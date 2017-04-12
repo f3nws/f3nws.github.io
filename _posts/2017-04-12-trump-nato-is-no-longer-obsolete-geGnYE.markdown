@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: NATO is 'no longer obsolete'"
-date: 2017-04-12 20:44:07Z
+date: 2017-04-12 21:54:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump, in joint news conference with NATO Secretary General Jen
 
 Full story on F3News: [Trump: NATO is 'no longer obsolete'](http://www.f3nws.com/n/geGnYE)
 
-> Posted on: Thursday, April 13, 2017 1:44:07 AM
+> Posted on: Thursday, April 13, 2017 2:54:05 AM
