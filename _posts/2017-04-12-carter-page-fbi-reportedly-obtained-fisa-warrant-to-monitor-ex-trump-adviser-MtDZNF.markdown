@@ -12,4 +12,4 @@ The FBI obtained a court order last summer that granted them permission to monit
 
 Full story on F3News: [Carter Page: FBI reportedly obtained FISA warrant to monitor ex-Trump adviser](http://www.f3nws.com/n/MtDZNF)
 
-> Posted on: 12 April 2017 00:15:00
+> Posted on: Wednesday, April 12, 2017 6:15:00 AM

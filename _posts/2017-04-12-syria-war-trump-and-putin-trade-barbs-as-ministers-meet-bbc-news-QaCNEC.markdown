@@ -12,4 +12,4 @@ BBC News Syria war: Trump and Putin trade barbs as ministers meet BBC News The U
 
 Full story on F3News: [Syria war: Trump and Putin trade barbs as ministers meet - BBC News](http://www.f3nws.com/n/QaCNEC)
 
-> Posted on: 12 April 2017 13:33:46
+> Posted on: Wednesday, April 12, 2017 7:33:46 PM

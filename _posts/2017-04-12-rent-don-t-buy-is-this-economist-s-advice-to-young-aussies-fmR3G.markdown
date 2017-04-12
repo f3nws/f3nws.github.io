@@ -12,4 +12,4 @@ With capital city house prices soaring, Deloitte economist Chris Richardson reve
 
 Full story on F3News: ['Rent, don't buy' is this economist's advice to young Aussies](http://www.f3nws.com/n/fmR3G)
 
-> Posted on: 12 April 2017 05:01:41
+> Posted on: Wednesday, April 12, 2017 11:01:41 AM

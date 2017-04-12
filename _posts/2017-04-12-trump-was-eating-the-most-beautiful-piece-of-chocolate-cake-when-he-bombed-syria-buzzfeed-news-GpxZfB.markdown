@@ -12,4 +12,4 @@ BuzzFeed News Trump Was Eating "The Most Beautiful Piece Of Chocolate Cake" When
 
 Full story on F3News: [Trump Was Eating "The Most Beautiful Piece Of Chocolate Cake" When He Bombed Syria - BuzzFeed News](http://www.f3nws.com/n/GpxZfB)
 
-> Posted on: 12 April 2017 15:14:24
+> Posted on: Wednesday, April 12, 2017 9:14:24 PM

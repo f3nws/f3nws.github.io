@@ -12,4 +12,4 @@ ISIL claims responsibility for deadly suicide bomb blast near government offices
 
 Full story on F3News: [Suicide bomb attack in heart of Kabul kills five](http://www.f3nws.com/n/Nvk2b)
 
-> Posted on: 12 April 2017 13:30:59
+> Posted on: Wednesday, April 12, 2017 7:30:59 PM

@@ -12,4 +12,4 @@ New York Times Ron Estes, a Republican, Survives Tight House Race to Win Kansas 
 
 Full story on F3News: [Ron Estes, a Republican, Survives Tight House Race to Win Kansas Seat - New York Times](http://www.f3nws.com/n/RAbhAD)
 
-> Posted on: 12 April 2017 02:47:36
+> Posted on: Wednesday, April 12, 2017 8:47:36 AM

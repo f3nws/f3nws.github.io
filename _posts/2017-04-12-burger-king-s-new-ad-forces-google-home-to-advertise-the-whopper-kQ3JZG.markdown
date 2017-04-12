@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Burger King’s new ad forces Google Home to advertise the Whopper](http://www.f3nws.com/n/kQ3JZG)
 
-> Posted on: 12 April 2017 15:00:02
+> Posted on: Wednesday, April 12, 2017 9:00:02 PM

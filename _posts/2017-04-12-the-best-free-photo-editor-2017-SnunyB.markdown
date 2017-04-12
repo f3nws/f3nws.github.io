@@ -12,4 +12,4 @@ Make your photos look their best with advanced retouching, color adjustment, and
 
 Full story on F3News: [The best free photo editor 2017](http://www.f3nws.com/n/SnunyB)
 
-> Posted on: 12 April 2017 14:03:00
+> Posted on: Wednesday, April 12, 2017 8:03:00 PM

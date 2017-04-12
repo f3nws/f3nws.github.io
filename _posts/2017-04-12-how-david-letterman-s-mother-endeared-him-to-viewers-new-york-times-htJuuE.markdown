@@ -12,4 +12,4 @@ New York Times How David Letterman's Mother Endeared Him to Viewers New York Tim
 
 Full story on F3News: [How David Letterman's Mother Endeared Him to Viewers - New York Times](http://www.f3nws.com/n/htJuuE)
 
-> Posted on: 12 April 2017 17:22:39
+> Posted on: Wednesday, April 12, 2017 11:22:39 PM

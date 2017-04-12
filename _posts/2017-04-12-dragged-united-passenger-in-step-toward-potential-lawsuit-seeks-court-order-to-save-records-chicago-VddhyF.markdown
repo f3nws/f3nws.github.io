@@ -12,4 +12,4 @@ Chicago Tribune Dragged United passenger, in step toward potential lawsuit, seek
 
 Full story on F3News: [Dragged United passenger, in step toward potential lawsuit, seeks court order to save records - Chicago Tribune](http://www.f3nws.com/n/VddhyF)
 
-> Posted on: 12 April 2017 17:53:00
+> Posted on: Wednesday, April 12, 2017 11:53:00 PM

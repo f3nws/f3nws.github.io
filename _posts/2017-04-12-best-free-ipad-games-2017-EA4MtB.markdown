@@ -12,4 +12,4 @@ So you've got an iPad and now you have no cash left to buy any games. Have no fe
 
 Full story on F3News: [Best free iPad games 2017](http://www.f3nws.com/n/EA4MtB)
 
-> Posted on: 12 April 2017 12:35:00
+> Posted on: Wednesday, April 12, 2017 6:35:00 PM

@@ -10,4 +10,4 @@ Chinese President Xi Jinping discussed the situation in North Korea and Syria wi
 
 Full story on F3News: [Trump talks N. Korea, Syria with Xi](http://www.f3nws.com/n/NnhtvF)
 
-> Posted on: 12 April 2017 18:10:21
+> Posted on: Thursday, April 13, 2017 12:10:21 AM

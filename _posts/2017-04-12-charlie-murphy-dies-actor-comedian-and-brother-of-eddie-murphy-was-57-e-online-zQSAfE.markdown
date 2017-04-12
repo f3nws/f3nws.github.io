@@ -12,4 +12,4 @@ E! Online Charlie Murphy Dies: Actor, Comedian and Brother of Eddie Murphy Was 5
 
 Full story on F3News: [Charlie Murphy Dies: Actor, Comedian and Brother of Eddie Murphy Was 57 - E! Online](http://www.f3nws.com/n/zQSAfE)
 
-> Posted on: 12 April 2017 16:57:22
+> Posted on: Wednesday, April 12, 2017 10:57:22 PM

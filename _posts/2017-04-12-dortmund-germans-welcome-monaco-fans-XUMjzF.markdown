@@ -10,4 +10,4 @@ Germans opened their homes to stranded Monaco supporters on Tuesday evening afte
 
 Full story on F3News: [Dortmund: Germans welcome Monaco fans](http://www.f3nws.com/n/XUMjzF)
 
-> Posted on: 12 April 2017 15:57:35
+> Posted on: Wednesday, April 12, 2017 9:57:35 PM

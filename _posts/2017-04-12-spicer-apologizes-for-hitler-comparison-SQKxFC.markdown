@@ -10,4 +10,4 @@ White House press secretary Sean Spicer, in an effort to shame Russia's alliance
 
 Full story on F3News: [Spicer apologizes for Hitler comparison](http://www.f3nws.com/n/SQKxFC)
 
-> Posted on: 12 April 2017 10:24:49
+> Posted on: Wednesday, April 12, 2017 4:24:49 PM

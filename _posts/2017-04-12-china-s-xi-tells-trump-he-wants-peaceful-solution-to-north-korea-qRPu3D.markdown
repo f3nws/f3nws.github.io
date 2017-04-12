@@ -12,4 +12,4 @@ Chinese President Xi Jinping told President Trump in a phone call Wednesday that
 
 Full story on F3News: [China's Xi tells Trump he wants peaceful solution to North Korea](http://www.f3nws.com/n/qRPu3D)
 
-> Posted on: 12 April 2017 11:31:00
+> Posted on: Wednesday, April 12, 2017 5:31:00 PM

@@ -10,4 +10,4 @@ The UK ambassador to the UN said Wednesday his country has evidence that Syria u
 
 Full story on F3News: [Britain says it has evidence of Syria sarin gas use](http://www.f3nws.com/n/mWbXPJ)
 
-> Posted on: 12 April 2017 17:59:02
+> Posted on: Wednesday, April 12, 2017 11:59:02 PM

@@ -12,4 +12,4 @@ Airline practice of overbooking flights in focus after video of man dragged off 
 
 Full story on F3News: [United Airlines apologises for removal of passenger](http://www.f3nws.com/n/XA2jSD)
 
-> Posted on: 12 April 2017 08:54:33
+> Posted on: Wednesday, April 12, 2017 2:54:33 PM

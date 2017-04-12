@@ -12,4 +12,4 @@ Five Ohio inmates were caught with a functioning, internet-connected computer in
 
 Full story on F3News: [How to Illegally Build an Internet-Connected PC in Prison](http://www.f3nws.com/n/XJWTrC)
 
-> Posted on: 12 April 2017 18:30:54
+> Posted on: Thursday, April 13, 2017 12:30:54 AM

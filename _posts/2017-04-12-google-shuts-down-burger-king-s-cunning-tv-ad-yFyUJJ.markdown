@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Google shuts down Burger King's cunning TV ad](http://www.f3nws.com/n/yFyUJJ)
 
-> Posted on: 12 April 2017 18:32:38
+> Posted on: Thursday, April 13, 2017 12:32:38 AM

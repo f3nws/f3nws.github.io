@@ -12,4 +12,4 @@ Shares in United Airlines were nearly 6% lower in premarket trading on Tuesday a
 
 Full story on F3News: [$1 billion in market value flies away](http://www.f3nws.com/n/2VDDKB)
 
-> Posted on: 11 April 2017 21:29:03
+> Posted on: Wednesday, April 12, 2017 3:29:03 AM

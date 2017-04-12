@@ -12,4 +12,4 @@ categories: google-news-australia
 
 Full story on F3News: [Waleed Aly eats non-Halal certified chocolate to show up Pauline Hanson - 9news.com.au](http://www.f3nws.com/n/VbXhBG)
 
-> Posted on: 11 April 2017 19:21:04
+> Posted on: Wednesday, April 12, 2017 1:21:04 AM

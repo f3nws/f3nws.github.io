@@ -10,4 +10,4 @@ John Warren Geils Jr., the guitarist and founder of the eponymous J. Geils Band,
 
 Full story on F3News: [Guitarist J. Geils found dead in Massachusetts home](http://www.f3nws.com/n/ymSTNF)
 
-> Posted on: 12 April 2017 13:02:58
+> Posted on: Wednesday, April 12, 2017 7:02:58 PM

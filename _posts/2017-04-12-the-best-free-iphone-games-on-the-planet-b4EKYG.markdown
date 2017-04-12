@@ -12,4 +12,4 @@ The must-have iPhone games that won't cost you a thing, including the latest top
 
 Full story on F3News: [The best free iPhone games on the planet](http://www.f3nws.com/n/b4EKYG)
 
-> Posted on: 12 April 2017 08:27:00
+> Posted on: Wednesday, April 12, 2017 2:27:00 PM

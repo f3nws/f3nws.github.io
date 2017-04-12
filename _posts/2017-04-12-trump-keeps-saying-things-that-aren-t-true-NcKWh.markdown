@@ -10,4 +10,4 @@ On Wednesday morning, President Donald Trump sent out a tweet touting his party'
 
 Full story on F3News: [Trump keeps saying things that aren't true](http://www.f3nws.com/n/NcKWh)
 
-> Posted on: 12 April 2017 17:49:46
+> Posted on: Wednesday, April 12, 2017 11:49:46 PM

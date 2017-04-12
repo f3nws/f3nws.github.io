@@ -12,4 +12,4 @@ All the best deals on laptops, ultrabooks and two-in-one laptop/tablet hybrids.
 
 Full story on F3News: [The best laptop deals in April 2017: cheap laptops for every budget](http://www.f3nws.com/n/KHnpyD)
 
-> Posted on: 12 April 2017 15:18:57
+> Posted on: Wednesday, April 12, 2017 9:18:57 PM

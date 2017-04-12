@@ -10,4 +10,4 @@ White House chief strategist Steve Bannon appears to be fighting for his politic
 
 Full story on F3News: [Analysis: Trump sounds sick of Bannon](http://www.f3nws.com/n/VVZsSB)
 
-> Posted on: 12 April 2017 14:50:19
+> Posted on: Wednesday, April 12, 2017 8:50:19 PM

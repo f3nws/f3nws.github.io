@@ -10,4 +10,4 @@ The FBI obtained a warrant to monitor President Donald Trump's former campaign a
 
 Full story on F3News: [FBI monitored former Trump campaign adviser on Russia](http://www.f3nws.com/n/NT4HXG)
 
-> Posted on: 12 April 2017 15:05:26
+> Posted on: Wednesday, April 12, 2017 9:05:26 PM

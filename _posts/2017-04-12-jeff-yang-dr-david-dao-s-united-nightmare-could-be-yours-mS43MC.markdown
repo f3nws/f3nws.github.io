@@ -10,4 +10,4 @@ Imagine you're a 69-year-old physician -- a Vietnamese-American immigrant, trave
 
 Full story on F3News: [Jeff Yang: Dr. David Dao's United nightmare could be yours](http://www.f3nws.com/n/mS43MC)
 
-> Posted on: 11 April 2017 23:54:42
+> Posted on: Wednesday, April 12, 2017 5:54:42 AM

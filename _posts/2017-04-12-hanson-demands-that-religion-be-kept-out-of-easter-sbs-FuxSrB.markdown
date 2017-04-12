@@ -12,4 +12,4 @@ SBS Hanson Demands That Religion Be Kept Out Of Easter SBS One Nation Leader Pau
 
 Full story on F3News: [Hanson Demands That Religion Be Kept Out Of Easter - SBS](http://www.f3nws.com/n/FuxSrB)
 
-> Posted on: 12 April 2017 00:36:56
+> Posted on: Wednesday, April 12, 2017 6:36:56 AM

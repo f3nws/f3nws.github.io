@@ -12,4 +12,4 @@ categories: msnbc
 
 Full story on F3News: [Trump's problematic new vow: 'We're not...](http://www.f3nws.com/n/YmTBUD)
 
-> Posted on: 12 April 2017 13:46:00
+> Posted on: Wednesday, April 12, 2017 7:46:00 PM

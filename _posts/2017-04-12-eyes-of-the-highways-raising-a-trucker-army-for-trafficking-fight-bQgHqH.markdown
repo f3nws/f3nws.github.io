@@ -10,4 +10,4 @@ There was a time when truck driver Kevin Kimmel knew little about the scourge of
 
 Full story on F3News: [Eyes of the highways: Raising a 'trucker army' for trafficking fight](http://www.f3nws.com/n/bQgHqH)
 
-> Posted on: 12 April 2017 12:55:27
+> Posted on: Wednesday, April 12, 2017 6:55:27 PM

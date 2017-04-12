@@ -12,4 +12,4 @@ After thorough analysis they have now confirmed the Califorctenus cacachilensis 
 
 Full story on F3News: [Spook alert: Researchers discover new softball-size spider in Mexican cave](http://www.f3nws.com/n/YN4JGC)
 
-> Posted on: 12 April 2017 16:31:00
+> Posted on: Wednesday, April 12, 2017 10:31:00 PM

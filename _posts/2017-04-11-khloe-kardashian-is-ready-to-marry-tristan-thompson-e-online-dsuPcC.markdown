@@ -12,4 +12,4 @@ E! Online Khloe Kardashian Is Ready to Marry Tristan Thompson E! Online The 32-y
 
 Full story on F3News: [Khloe Kardashian Is Ready to Marry Tristan Thompson - E! Online](http://www.f3nws.com/n/dsuPcC)
 
-> Posted on: 11 April 2017 22:04:27
+> Posted on: Wednesday, April 12, 2017 4:04:27 AM

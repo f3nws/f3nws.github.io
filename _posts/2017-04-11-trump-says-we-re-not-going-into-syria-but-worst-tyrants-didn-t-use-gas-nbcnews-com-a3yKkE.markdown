@@ -12,4 +12,4 @@ NBCNews.com Trump Says 'We're Not Going Into Syria' but 'Worst Tyrants' Didn't U
 
 Full story on F3News: [Trump Says 'We're Not Going Into Syria' but 'Worst Tyrants' Didn't Use Gas - NBCNews.com](http://www.f3nws.com/n/a3yKkE)
 
-> Posted on: 11 April 2017 22:54:02
+> Posted on: Wednesday, April 12, 2017 4:54:02 AM

@@ -12,4 +12,4 @@ National Post Tillerson meets with Putin amid deepening tensions over US missile
 
 Full story on F3News: [Tillerson meets with Putin amid deepening tensions over US missile strikes in Syria - Washington Post](http://www.f3nws.com/n/zpKut)
 
-> Posted on: 12 April 2017 17:52:14
+> Posted on: Wednesday, April 12, 2017 11:52:14 PM

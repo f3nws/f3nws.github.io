@@ -12,4 +12,4 @@ Defender taken to hospital after blasts go off near team bus before Champions Le
 
 Full story on F3News: [Marc Bartra injured in Borussia Dortmund bus blasts](http://www.f3nws.com/n/mbWupC)
 
-> Posted on: 12 April 2017 06:07:53
+> Posted on: Wednesday, April 12, 2017 12:07:53 PM

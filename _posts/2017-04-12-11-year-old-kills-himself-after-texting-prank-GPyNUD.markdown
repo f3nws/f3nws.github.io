@@ -10,4 +10,4 @@ An 11-year-old boy who died last week of injuries suffered in a March suicide at
 
 Full story on F3News: [11-year-old kills himself after texting prank](http://www.f3nws.com/n/GPyNUD)
 
-> Posted on: 12 April 2017 03:23:13
+> Posted on: Wednesday, April 12, 2017 9:23:13 AM

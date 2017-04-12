@@ -10,4 +10,4 @@ Russian Foreign Minister Sergey Lavrov began a meeting with his US counterpart R
 
 Full story on F3News: [Russia's warning to US: Don't strike Syria again](http://www.f3nws.com/n/kD44fF)
 
-> Posted on: 12 April 2017 17:48:08
+> Posted on: Wednesday, April 12, 2017 11:48:08 PM

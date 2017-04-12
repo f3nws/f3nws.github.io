@@ -12,4 +12,4 @@ New York Daily News Charlie Murphy, comedian and brother of Eddie Murphy, dead a
 
 Full story on F3News: [Charlie Murphy, comedian and brother of Eddie Murphy, dead at 57 - New York Daily News](http://www.f3nws.com/n/gesmbE)
 
-> Posted on: 12 April 2017 16:25:30
+> Posted on: Wednesday, April 12, 2017 10:25:30 PM

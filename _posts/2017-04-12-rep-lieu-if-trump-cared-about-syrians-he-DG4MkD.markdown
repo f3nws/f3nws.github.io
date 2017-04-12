@@ -12,4 +12,4 @@ Representative Ted Lieu, D-CA, speaks on the meeting between Rex Tillerson and V
 
 Full story on F3News: [Rep. Lieu: If Trump cared about Syrians he...](http://www.f3nws.com/n/DG4MkD)
 
-> Posted on: 12 April 2017 14:29:22
+> Posted on: Wednesday, April 12, 2017 8:29:22 PM

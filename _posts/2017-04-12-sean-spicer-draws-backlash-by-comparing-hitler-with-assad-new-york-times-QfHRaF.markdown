@@ -12,4 +12,4 @@ New York Times Sean Spicer Draws Backlash by Comparing Hitler With Assad New Yor
 
 Full story on F3News: [Sean Spicer Draws Backlash by Comparing Hitler With Assad - New York Times](http://www.f3nws.com/n/QfHRaF)
 
-> Posted on: 11 April 2017 23:35:07
+> Posted on: Wednesday, April 12, 2017 5:35:07 AM

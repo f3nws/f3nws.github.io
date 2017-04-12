@@ -12,4 +12,4 @@ The Boston Globe Guitarist J. Geils found dead in Groton home The Boston Globe J
 
 Full story on F3News: [Guitarist J. Geils found dead in Groton home - The Boston Globe](http://www.f3nws.com/n/knFTbC)
 
-> Posted on: 12 April 2017 04:03:45
+> Posted on: Wednesday, April 12, 2017 10:03:45 AM

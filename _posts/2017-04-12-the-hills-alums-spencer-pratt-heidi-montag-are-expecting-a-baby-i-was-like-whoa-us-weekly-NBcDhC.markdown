@@ -12,4 +12,4 @@ Us Weekly 'The Hills' Alums Spencer Pratt, Heidi Montag Are Expecting a Baby: 'I
 
 Full story on F3News: ['The Hills' Alums Spencer Pratt, Heidi Montag Are Expecting a Baby: 'I Was Like, Whoa!' - Us Weekly](http://www.f3nws.com/n/NBcDhC)
 
-> Posted on: 12 April 2017 11:01:21
+> Posted on: Wednesday, April 12, 2017 5:01:21 PM

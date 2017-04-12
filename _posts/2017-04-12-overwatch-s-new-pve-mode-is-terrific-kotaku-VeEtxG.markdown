@@ -12,4 +12,4 @@ Kotaku Overwatch's New PvE Mode Is Terrific Kotaku From now until May 1st, in th
 
 Full story on F3News: [Overwatch's New PvE Mode Is Terrific - Kotaku](http://www.f3nws.com/n/VeEtxG)
 
-> Posted on: 12 April 2017 14:13:47
+> Posted on: Wednesday, April 12, 2017 8:13:47 PM

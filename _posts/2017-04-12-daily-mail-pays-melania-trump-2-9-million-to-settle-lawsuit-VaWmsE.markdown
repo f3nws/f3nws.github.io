@@ -12,4 +12,4 @@ The Daily Mail has apologized to Melania Trump and agreed to pay damages to sett
 
 Full story on F3News: [Daily Mail pays Melania Trump $2.9 million to settle lawsuit](http://www.f3nws.com/n/VaWmsE)
 
-> Posted on: 12 April 2017 11:30:25
+> Posted on: Wednesday, April 12, 2017 5:30:25 PM

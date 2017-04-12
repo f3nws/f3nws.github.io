@@ -12,4 +12,4 @@ The House and Senate intelligence committees are expanding their investigation i
 
 Full story on F3News: [Congress expands 'unmasking' probe amid questions over Rice role](http://www.f3nws.com/n/tBj3eC)
 
-> Posted on: 12 April 2017 14:58:00
+> Posted on: Wednesday, April 12, 2017 8:58:00 PM

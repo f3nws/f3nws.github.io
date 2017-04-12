@@ -12,4 +12,4 @@ ABC Online Pauline Hanson's call for boycott of halal-certified Easter eggs coul
 
 Full story on F3News: [Pauline Hanson's call for boycott of halal-certified Easter eggs could cost jobs, union warns - ABC Online](http://www.f3nws.com/n/DZSkzC)
 
-> Posted on: 12 April 2017 06:44:14
+> Posted on: Wednesday, April 12, 2017 12:44:14 PM

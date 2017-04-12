@@ -12,4 +12,4 @@ Washington Post FBI obtained FISA warrant to monitor Trump adviser Carter Page W
 
 Full story on F3News: [FBI obtained FISA warrant to monitor Trump adviser Carter Page - Washington Post](http://www.f3nws.com/n/qHHxSJ)
 
-> Posted on: 11 April 2017 22:14:31
+> Posted on: Wednesday, April 12, 2017 4:14:31 AM

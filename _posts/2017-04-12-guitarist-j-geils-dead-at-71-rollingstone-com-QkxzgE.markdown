@@ -12,4 +12,4 @@ RollingStone.com Guitarist J. Geils Dead at 71 RollingStone.com J. Geils Band mu
 
 Full story on F3News: [Guitarist J. Geils Dead at 71 - RollingStone.com](http://www.f3nws.com/n/QkxzgE)
 
-> Posted on: 12 April 2017 00:11:18
+> Posted on: Wednesday, April 12, 2017 6:11:18 AM

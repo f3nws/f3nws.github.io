@@ -12,4 +12,4 @@ Washington Post Republicans fend off strong challenge to hold on to House seat i
 
 Full story on F3News: [Republicans fend off strong challenge to hold on to House seat in Kansas - Washington Post](http://www.f3nws.com/n/EYkaSD)
 
-> Posted on: 12 April 2017 02:15:01
+> Posted on: Wednesday, April 12, 2017 8:15:01 AM

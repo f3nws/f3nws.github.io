@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Syfy has renewed The Magicians for a third season](http://www.f3nws.com/n/NsaCjC)
 
-> Posted on: 12 April 2017 17:35:32
+> Posted on: Wednesday, April 12, 2017 11:35:32 PM

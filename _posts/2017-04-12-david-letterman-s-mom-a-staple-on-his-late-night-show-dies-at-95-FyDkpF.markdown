@@ -10,4 +10,4 @@ David Letterman's mother, Dorothy Mengering -- who was known for her spots on hi
 
 Full story on F3News: [David Letterman's mom, a staple on his late night show, dies at 95](http://www.f3nws.com/n/FyDkpF)
 
-> Posted on: 12 April 2017 13:52:34
+> Posted on: Wednesday, April 12, 2017 7:52:34 PM

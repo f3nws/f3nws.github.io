@@ -12,4 +12,4 @@ The advocate for girls' right to education worldwide is only the sixth person to
 
 Full story on F3News: [Malala Yousafzai made an honorary Canadian citizen](http://www.f3nws.com/n/fNVEdE)
 
-> Posted on: 12 April 2017 16:59:03
+> Posted on: Wednesday, April 12, 2017 10:59:03 PM

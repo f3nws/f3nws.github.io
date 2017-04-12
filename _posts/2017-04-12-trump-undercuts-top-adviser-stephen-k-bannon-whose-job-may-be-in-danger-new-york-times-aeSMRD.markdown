@@ -12,4 +12,4 @@ New York Times Trump Undercuts Top Adviser Stephen K. Bannon, Whose Job May Be i
 
 Full story on F3News: [Trump Undercuts Top Adviser Stephen K. Bannon, Whose Job May Be in Danger - New York Times](http://www.f3nws.com/n/aeSMRD)
 
-> Posted on: 12 April 2017 17:12:28
+> Posted on: Wednesday, April 12, 2017 11:12:28 PM

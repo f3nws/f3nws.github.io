@@ -12,4 +12,4 @@ The Verge Microsoft's Project Scorpio dev kit hints at what the next Xbox could 
 
 Full story on F3News: [Microsoft’s Project Scorpio dev kit hints at what the next Xbox could look like](http://www.f3nws.com/n/dWKn3)
 
-> Posted on: 12 April 2017 13:09:14
+> Posted on: Wednesday, April 12, 2017 7:09:14 PM

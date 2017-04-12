@@ -12,4 +12,4 @@ It wasn't long ago that Trump was describing his White House team as a "fine-tun
 
 Full story on F3News: [Amid White House turmoil, Trump says of...](http://www.f3nws.com/n/fgXtQC)
 
-> Posted on: 12 April 2017 12:20:00
+> Posted on: Wednesday, April 12, 2017 6:20:00 PM

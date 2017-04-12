@@ -12,4 +12,4 @@ E! Online Tyga Handcuffed After Leaving Avenue Nightclub in Hollywood E! Online 
 
 Full story on F3News: [Tyga Handcuffed After Leaving Avenue Nightclub in Hollywood - E! Online](http://www.f3nws.com/n/W2AqWF)
 
-> Posted on: 12 April 2017 12:08:38
+> Posted on: Wednesday, April 12, 2017 6:08:38 PM

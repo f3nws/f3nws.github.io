@@ -12,4 +12,4 @@ New York Times White House Accuses Russia of Cover-Up in Syria Chemical Attack N
 
 Full story on F3News: [White House Accuses Russia of Cover-Up in Syria Chemical Attack - New York Times](http://www.f3nws.com/n/JM4HED)
 
-> Posted on: 12 April 2017 00:19:39
+> Posted on: Wednesday, April 12, 2017 6:19:39 AM

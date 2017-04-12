@@ -12,4 +12,4 @@ NPR FBI Reportedly Got Court Order To Monitor Trump Adviser's Communications NPR
 
 Full story on F3News: [FBI Reportedly Got Court Order To Monitor Trump Adviser's Communications - NPR](http://www.f3nws.com/n/FNmRaB)
 
-> Posted on: 12 April 2017 16:16:00
+> Posted on: Wednesday, April 12, 2017 10:16:00 PM

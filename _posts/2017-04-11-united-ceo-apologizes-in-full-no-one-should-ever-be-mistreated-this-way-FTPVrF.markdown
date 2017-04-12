@@ -12,4 +12,4 @@ Facing a public relations crisis and tumbling share price, the airline‘s chief
 
 Full story on F3News: [United CEO apologizes in full: ‘No one should ever be mistreated this way’](http://www.f3nws.com/n/FTPVrF)
 
-> Posted on: 11 April 2017 19:06:48
+> Posted on: Wednesday, April 12, 2017 1:06:48 AM

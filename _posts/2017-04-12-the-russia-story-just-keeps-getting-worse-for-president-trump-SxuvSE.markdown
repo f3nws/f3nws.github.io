@@ -10,4 +10,4 @@ Two stories dealing with Russia's meddling in the election broke Tuesday night. 
 
 Full story on F3News: [The Russia story just keeps getting worse for President Trump](http://www.f3nws.com/n/SxuvSE)
 
-> Posted on: 12 April 2017 16:16:59
+> Posted on: Wednesday, April 12, 2017 10:16:59 PM

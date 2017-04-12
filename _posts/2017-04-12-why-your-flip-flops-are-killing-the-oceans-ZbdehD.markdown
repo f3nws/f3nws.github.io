@@ -10,4 +10,4 @@ Some reports project that by 2050 there may be more plastic in the sea than fish
 
 Full story on F3News: [Why your flip flops are killing the oceans](http://www.f3nws.com/n/ZbdehD)
 
-> Posted on: 12 April 2017 08:34:27
+> Posted on: Wednesday, April 12, 2017 2:34:27 PM

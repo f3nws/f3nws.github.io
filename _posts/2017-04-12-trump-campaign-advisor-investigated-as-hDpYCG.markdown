@@ -12,4 +12,4 @@ A foreign-policy adviser to the president of the United States was investigated 
 
 Full story on F3News: [Trump campaign advisor investigated as...](http://www.f3nws.com/n/hDpYCG)
 
-> Posted on: 12 April 2017 11:00:14
+> Posted on: Wednesday, April 12, 2017 5:00:14 PM

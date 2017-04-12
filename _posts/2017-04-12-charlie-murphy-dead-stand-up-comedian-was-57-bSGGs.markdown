@@ -12,4 +12,4 @@ Charlie Murphy, who got his start on the hit “Chappelle's Show” and evolved 
 
 Full story on F3News: [Charlie Murphy dead; stand-up comedian was 57](http://www.f3nws.com/n/bSGGs)
 
-> Posted on: 12 April 2017 17:29:00
+> Posted on: Wednesday, April 12, 2017 11:29:00 PM

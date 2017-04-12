@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Sean Spicer apologizes again for Hitler comment](http://www.f3nws.com/n/jyjqG)
 
-> Posted on: 12 April 2017 13:12:42
+> Posted on: Wednesday, April 12, 2017 7:12:42 PM

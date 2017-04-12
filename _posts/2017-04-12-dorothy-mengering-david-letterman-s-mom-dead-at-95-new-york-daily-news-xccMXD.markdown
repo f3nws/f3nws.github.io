@@ -12,4 +12,4 @@ New York Daily News Dorothy Mengering, David Letterman's mom, dead at 95 New Yor
 
 Full story on F3News: [Dorothy Mengering, David Letterman's mom, dead at 95 - New York Daily News](http://www.f3nws.com/n/xccMXD)
 
-> Posted on: 12 April 2017 02:08:31
+> Posted on: Wednesday, April 12, 2017 8:08:31 AM

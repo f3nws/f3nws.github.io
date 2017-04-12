@@ -12,4 +12,4 @@ United Airlines issues a stronger apology about a passenger who was dragged off 
 
 Full story on F3News: [United Airlines issues third apology over passenger removal](http://www.f3nws.com/n/qzvBAF)
 
-> Posted on: 12 April 2017 00:57:13
+> Posted on: Wednesday, April 12, 2017 6:57:13 AM

@@ -10,4 +10,4 @@ Disgusted by a man's violent removal from an oversold flight, New Jersey Gov. Ch
 
 Full story on F3News: [United CEO felt 'ashamed' by video](http://www.f3nws.com/n/JcuYHC)
 
-> Posted on: 12 April 2017 16:12:23
+> Posted on: Wednesday, April 12, 2017 10:12:23 PM

@@ -12,4 +12,4 @@ The Hill Trump: I told Chinese president about Syria airstrikes over dessert The
 
 Full story on F3News: [Trump: I told Chinese president about Syria airstrikes over dessert - The Hill](http://www.f3nws.com/n/ASavPE)
 
-> Posted on: 12 April 2017 13:09:29
+> Posted on: Wednesday, April 12, 2017 7:09:29 PM

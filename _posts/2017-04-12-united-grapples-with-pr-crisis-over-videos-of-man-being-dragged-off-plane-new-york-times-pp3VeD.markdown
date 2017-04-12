@@ -12,4 +12,4 @@ New York Times United Grapples With PR Crisis Over Videos of Man Being Dragged O
 
 Full story on F3News: [United Grapples With PR Crisis Over Videos of Man Being Dragged Off Plane - New York Times](http://www.f3nws.com/n/pp3VeD)
 
-> Posted on: 12 April 2017 01:21:31
+> Posted on: Wednesday, April 12, 2017 7:21:31 AM

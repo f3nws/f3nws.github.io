@@ -12,4 +12,4 @@ Project Scorpio, Microsoft's upcoming 4K and VR capable console, has no qualms b
 
 Full story on F3News: [Project Scorpio: everything we know about Microsoft's 4K-ready Xbox](http://www.f3nws.com/n/hBxnGF)
 
-> Posted on: 12 April 2017 14:00:00
+> Posted on: Wednesday, April 12, 2017 8:00:00 PM

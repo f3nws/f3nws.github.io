@@ -12,4 +12,4 @@ Now featuring Night in the Woods, these are the best indie games to keep you hoo
 
 Full story on F3News: [The 29 best indie games on PC and consoles](http://www.f3nws.com/n/cHvsDJ)
 
-> Posted on: 12 April 2017 15:21:00
+> Posted on: Wednesday, April 12, 2017 9:21:00 PM

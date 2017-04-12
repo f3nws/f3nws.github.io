@@ -12,4 +12,4 @@ Last month, United Airlines CEO Oscar Munoz was named U.S. Communicator of the Y
 
 Full story on F3News: [United Airlines shows how to make a PR crisis a total disaster](http://www.f3nws.com/n/u3kgZD)
 
-> Posted on: 11 April 2017 21:22:55
+> Posted on: Wednesday, April 12, 2017 3:22:55 AM

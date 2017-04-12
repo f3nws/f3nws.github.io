@@ -12,4 +12,4 @@ E! Online Heidi Montag Is Pregnant, Expecting First Child With Spencer Pratt E! 
 
 Full story on F3News: [Heidi Montag Is Pregnant, Expecting First Child With Spencer Pratt - E! Online](http://www.f3nws.com/n/ujmVgD)
 
-> Posted on: 12 April 2017 12:04:56
+> Posted on: Wednesday, April 12, 2017 6:04:56 PM

@@ -12,4 +12,4 @@ The CEO of United Airlines has issued a stronger apology about a passenger who w
 
 Full story on F3News: [United CEO: 'I deeply apologize' to customer dragged off flight](http://www.f3nws.com/n/AyEmvF)
 
-> Posted on: 11 April 2017 20:15:00
+> Posted on: Wednesday, April 12, 2017 2:15:00 AM

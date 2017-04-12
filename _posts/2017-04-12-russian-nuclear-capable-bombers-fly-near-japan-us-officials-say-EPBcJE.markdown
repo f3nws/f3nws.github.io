@@ -12,4 +12,4 @@ For the first time in nearly three months, Russia flew nuclear-capable â€œBearâ€
 
 Full story on F3News: [Russian nuclear-capable bombers fly near Japan, US officials say](http://www.f3nws.com/n/EPBcJE)
 
-> Posted on: 12 April 2017 13:00:00
+> Posted on: Wednesday, April 12, 2017 7:00:00 PM

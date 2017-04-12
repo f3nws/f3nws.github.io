@@ -12,4 +12,4 @@ John Warren Geils Jr., the founder and lead guitarist for the J. Geils Band has 
 
 Full story on F3News: [J. Geils found dead in Massachusetts home at age 71](http://www.f3nws.com/n/mE2yuC)
 
-> Posted on: 12 April 2017 01:00:00
+> Posted on: Wednesday, April 12, 2017 7:00:00 AM

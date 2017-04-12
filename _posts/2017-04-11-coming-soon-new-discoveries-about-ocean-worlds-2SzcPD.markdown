@@ -10,4 +10,4 @@ NASA will present new discoveries about the ocean worlds in our solar system on 
 
 Full story on F3News: [Coming soon: New discoveries about ocean worlds](http://www.f3nws.com/n/2SzcPD)
 
-> Posted on: 11 April 2017 19:07:38
+> Posted on: Wednesday, April 12, 2017 1:07:38 AM

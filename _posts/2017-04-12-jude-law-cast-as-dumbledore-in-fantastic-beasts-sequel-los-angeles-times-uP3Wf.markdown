@@ -12,4 +12,4 @@ Los Angeles Times Jude Law cast as Dumbledore in 'Fantastic Beasts' sequel Los A
 
 Full story on F3News: [Jude Law cast as Dumbledore in 'Fantastic Beasts' sequel - Los Angeles Times](http://www.f3nws.com/n/uP3Wf)
 
-> Posted on: 12 April 2017 16:16:57
+> Posted on: Wednesday, April 12, 2017 10:16:57 PM

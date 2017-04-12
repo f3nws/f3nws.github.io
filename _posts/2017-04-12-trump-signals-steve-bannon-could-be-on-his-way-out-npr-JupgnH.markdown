@@ -12,4 +12,4 @@ NPR Trump Signals Steve Bannon Could Be On His Way Out NPR Could a real shake-up
 
 Full story on F3News: [Trump Signals Steve Bannon Could Be On His Way Out - NPR](http://www.f3nws.com/n/JupgnH)
 
-> Posted on: 12 April 2017 14:25:58
+> Posted on: Wednesday, April 12, 2017 8:25:58 PM

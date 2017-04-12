@@ -10,4 +10,4 @@ India has passed a landmark bill which aims to ensure equal rights for those liv
 
 Full story on F3News: [India to ban discrimination against people with HIV/AIDS](http://www.f3nws.com/n/KYvxNB)
 
-> Posted on: 12 April 2017 08:18:50
+> Posted on: Wednesday, April 12, 2017 2:18:50 PM

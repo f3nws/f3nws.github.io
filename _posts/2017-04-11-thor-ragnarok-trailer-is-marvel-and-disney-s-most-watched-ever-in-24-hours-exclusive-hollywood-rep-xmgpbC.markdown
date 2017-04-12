@@ -12,4 +12,4 @@ Hollywood Reporter 'Thor: Ragnarok' Trailer Is Marvel and Disney's Most Watched 
 
 Full story on F3News: ['Thor: Ragnarok' Trailer Is Marvel and Disney's Most Watched Ever in 24 Hours (Exclusive) - Hollywood Reporter](http://www.f3nws.com/n/xmgpbC)
 
-> Posted on: 11 April 2017 21:13:54
+> Posted on: Wednesday, April 12, 2017 3:13:54 AM

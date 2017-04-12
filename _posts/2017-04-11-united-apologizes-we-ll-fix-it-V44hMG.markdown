@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [United apologizes: We'll fix it](http://www.f3nws.com/n/V44hMG)
 
-> Posted on: 11 April 2017 20:18:18
+> Posted on: Wednesday, April 12, 2017 2:18:18 AM

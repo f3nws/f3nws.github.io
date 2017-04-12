@@ -12,4 +12,4 @@ Former leader insists he will not run in the May 19 poll, saying his registratio
 
 Full story on F3News: [Mahmoud Ahmadinejad registers to run for president](http://www.f3nws.com/n/fFhdkG)
 
-> Posted on: 12 April 2017 08:41:46
+> Posted on: Wednesday, April 12, 2017 2:41:46 PM
