@@ -1,0 +1,12 @@
+# Site settings
+title: F3News
+email: f3nws@outlook.com
+description: > # this means to ignore newlines until "baseurl:"
+  Top news, beautifully presented!
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "http://www.f3nws.com" # the base hostname & protocol for your site
+twitter_username: f3nws
+github_username:  f3nws
+
+# Build settings
+markdown: kramdown
