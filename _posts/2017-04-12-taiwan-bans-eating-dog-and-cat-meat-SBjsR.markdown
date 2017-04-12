@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taiwan bans eating dog and cat meat"
-date: 2017-04-12 14:05:40Z
+date: 2017-04-12 21:26:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Taiwan has outlawed the consumption of dog and cat meat, as the island's legisla
 
 Full story on F3News: [Taiwan bans eating dog and cat meat](http://www.f3nws.com/n/SBjsR)
 
-> Posted on: Wednesday, April 12, 2017 7:05:40 PM
+> Posted on: Thursday, April 13, 2017 2:26:53 AM
