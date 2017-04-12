@@ -5,6 +5,7 @@ date: 2017-04-12 03:08:31Z
 categories: google-news-entertaintment
 ---
 
+![Dorothy Mengering, David Letterman's mom, dead at 95 - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3045350.1491964276!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/ball-st-letterman.jpg)
 New York Daily News Dorothy Mengering, David Letterman's mom, dead at 95 New York Daily News Dorothy Mengering, David Letterman's mom and one of his most popular “Late Night” and “Late Show” guests, died Tuesday. She was 95. Few details are known about Mengering's death, but Letterman's rep confirmed the news to the Daily News. Dorothy Mengering, David Letterman's Mother, Dies at 95 Variety Dorothy Mengering Dies: David Letterman's Mom Was 95 Deadline (Photo: Ron Galella, Ltd./Getty Images) A.V. Club PEOPLE.com - Hollywood Reporter all 52 news articles »
 
 

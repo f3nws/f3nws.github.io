@@ -5,6 +5,7 @@ date: 2017-04-11 21:18:18Z
 categories: cnn-com-top-stories
 ---
 
+![United apologizes: We'll fix it](http://i2.cdn.turner.com/money/dam/assets/160603145518-united-airlines-ceo-oscar-munoz-polaris-00000717-780x439.jpg)
 
 
 

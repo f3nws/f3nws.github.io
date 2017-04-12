@@ -5,6 +5,7 @@ date: 2017-04-12 03:19:59Z
 categories: cnn-com-top-stories
 ---
 
+![What we know about the airline incident](http://i2.cdn.turner.com/money/dam/assets/170411084535-united-airlines-down-780x439.jpg)
 
 
 

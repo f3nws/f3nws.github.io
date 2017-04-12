@@ -5,6 +5,7 @@ date: 2017-04-12 17:57:22Z
 categories: google-news-top-stories
 ---
 
+![Charlie Murphy Dies: Actor, Comedian and Brother of Eddie Murphy Was 57 - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017312/rs_600x600-170412101333-600-charlie-murphy-rip.jpg?downsize=450:*&crop=450:350;left,top)
 E! Online Charlie Murphy Dies: Actor, Comedian and Brother of Eddie Murphy Was 57 E! Online Actor, comedy writer and comic Charlie Murphy, the older brother of Eddie Murphy, has died at age 57. Charlie passed away after battling leukemia, his rep told E! News Wednesday. The performer was known for his appearances on Chappelle's Show, ... Comedian Charlie Murphy Dies at 57 Hollywood Reporter Charlie Murphy, 'Chappelle's Show' star, dead at 57 New York Daily News Comedian Charlie Murphy, brother of Eddie, dies at 57 AZCentral.com PEOPLE.com - Billboard - Page Six - RollingStone.com all 261 news articles »
 
 

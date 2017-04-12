@@ -5,6 +5,7 @@ date: 2017-04-12 00:54:28Z
 categories: the-verge
 ---
 
+![The Dodge Demon is an 840-horsepower manifesto](https://cdn0.vox-cdn.com/thumbor/zDX5v9vQS5t6G3-f86IXl8ciBnM=/0x102:2040x1250/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54204215/DSC_8213vrg.0.jpg)
 
 
 

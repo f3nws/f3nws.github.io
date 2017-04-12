@@ -5,6 +5,7 @@ date: 2017-04-12 14:00:30Z
 categories: cnn-com-top-stories
 ---
 
+![United CEO: We won't let police drag people off planes anymore](http://i2.cdn.turner.com/money/dam/assets/160603145518-united-airlines-ceo-oscar-munoz-polaris-00000717-780x439.jpg)
 United CEO Oscar Munoz says the airline won't allow law enforcement officers to haul seated paying passengers off its flights again.
 
 
