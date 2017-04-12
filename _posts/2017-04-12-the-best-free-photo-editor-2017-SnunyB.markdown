@@ -6,6 +6,7 @@ categories: techradar
 ---
 
 ![The best free photo editor 2017](http://cdn.mos.cms.futurecdn.net/c3dtdYacF7rh34FwigU8ic-1200-80.jpg)
+
 Make your photos look their best with advanced retouching, color adjustment, and stylish filters. Who needs Photoshop?
 
 

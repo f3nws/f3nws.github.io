@@ -6,6 +6,7 @@ categories: fox-news
 ---
 
 ![Spook alert: Researchers discover new softball-size spider in Mexican cave](http://a57.foxnews.com/images.foxnews.com/content/fox-news/world/2017/04/12/spook-alert-researchers-discover-new-softball-size-spider-in-mexican-cave/_jcr_content/par/featured-media/media-0.img.jpg/0/0/1492019530497.jpg?ve=1)
+
 After thorough analysis they have now confirmed the Califorctenus cacachilensis is indeed a new species.
 
 

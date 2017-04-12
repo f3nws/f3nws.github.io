@@ -6,6 +6,7 @@ categories: cnn-com-top-stories
 ---
 
 ![Daily Mail pays Melania Trump $2.9 million to settle lawsuit](http://i2.cdn.turner.com/money/dam/assets/160801001311-melania-trump-780x439.jpg)
+
 The Daily Mail has apologized to Melania Trump and agreed to pay damages to settle a lawsuit filed by the first lady after the publisher made false claims about her work as a professional model.
 
 

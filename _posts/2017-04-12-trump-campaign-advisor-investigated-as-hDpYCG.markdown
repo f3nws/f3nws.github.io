@@ -6,6 +6,7 @@ categories: msnbc
 ---
 
 ![Trump campaign advisor investigated as...](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/hd_mnbc-hard-20170411_cln_19-00_hardball_as_frame_87719_0.png?itok=7neN9ieD)
+
 A foreign-policy adviser to the president of the United States was investigated as a possible agent of Russia. That's not good.
 
 

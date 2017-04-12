@@ -6,6 +6,7 @@ categories: fox-news
 ---
 
 ![United CEO: 'I deeply apologize' to customer dragged off flight](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 The CEO of United Airlines has issued a stronger apology about a passenger who was dragged off a United Express flight, calling the confrontation "truly horrific."
 
 

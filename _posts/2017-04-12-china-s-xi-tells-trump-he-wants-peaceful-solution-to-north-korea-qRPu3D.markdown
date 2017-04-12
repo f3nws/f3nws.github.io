@@ -6,6 +6,7 @@ categories: fox-news
 ---
 
 ![China's Xi tells Trump he wants peaceful solution to North Korea](http://a57.foxnews.com/media2.foxnews.com/BrightCove/694940094001/2017/04/08/0/0/694940094001_5390849420001_5390839165001-vs.jpg?ve=1)
+
 Chinese President Xi Jinping told President Trump in a phone call Wednesday that Beijing is willing to work with Washington on ending North Korea’s nuclear weapons program, but wants to do so through peaceful means.
 
 

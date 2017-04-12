@@ -6,6 +6,7 @@ categories: cnn-com-top-stories
 ---
 
 ![$1 billion in market value flies away](http://i2.cdn.turner.com/money/dam/assets/170112013831-united-747-780x439.jpg)
+
 Shares in United Airlines were nearly 6% lower in premarket trading on Tuesday as the company scrambled to address a video showing a passenger being forcibly dragged off an overbooked flight.
 
 

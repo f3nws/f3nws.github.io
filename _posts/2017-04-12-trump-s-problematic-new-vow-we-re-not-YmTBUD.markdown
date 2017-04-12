@@ -6,6 +6,7 @@ categories: msnbc
 ---
 
 ![Trump's problematic new vow: 'We're not...](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/05811209.jpg?itok=UAQdiPO_)
+
 "We're not going into Syria," Donald Trump declared, downplaying the significance of the fact that we're already in Syria.
 
 

@@ -6,6 +6,7 @@ categories: fox-news
 ---
 
 ![Charlie Murphy dead; stand-up comedian was 57](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2017/04/12/charlie-murphy-dead-stand-up-comedian-was-57/_jcr_content/par/featured-media/media-0.img.jpg/0/0/1492017806045.jpg?ve=1)
+
 Charlie Murphy, who got his start on the hit “Chappelle's Show” and evolved into a famed comedian, has died, Fox News has learned. He was 57.
 
 

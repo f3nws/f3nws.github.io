@@ -6,6 +6,7 @@ categories: fox-news
 ---
 
 ![J. Geils found dead in Massachusetts home at age 71](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2017/04/11/j-geils-found-dead-in-massachusetts-home-at-age-71/_jcr_content/par/featured-media/media-0.img.jpg/0/0/1491969947204.jpg?ve=1)
+
 John Warren Geils Jr., the founder and lead guitarist for the J. Geils Band has died at the age of 71.
 
 
