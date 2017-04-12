@@ -9,6 +9,7 @@ categories: the-verge
 
 
 
+
 Full story on F3News: [The Dodge Demon is an 840-horsepower manifesto](http://www.f3nws.com/n/XzuVTF)
 
-> Posted on: 11 April 2017 23:54:28
+> Posted on: Wednesday, April 12, 2017 5:54:28 AM
