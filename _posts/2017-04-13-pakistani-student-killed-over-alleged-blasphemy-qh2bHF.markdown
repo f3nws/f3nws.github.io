@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistani student killed over alleged blasphemy"
-date: 2017-04-13 13:35:48Z
+date: 2017-04-13 14:54:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Mob attacks three students in university canteen over blasphemy allegation, kill
 
 Full story on F3News: [Pakistani student killed over alleged blasphemy](http://www.f3nws.com/n/qh2bHF)
 
-> Posted on: Thursday, April 13, 2017 6:35:48 PM
+> Posted on: Thursday, April 13, 2017 7:54:21 PM
