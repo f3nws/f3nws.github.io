@@ -5,7 +5,7 @@ date: 2017-04-13 01:25:10Z
 categories: al-jazeera-english
 ---
 
-![Trump says US-Russia ties 'may be at an all-time low'](http://www.aljazeera.com/mritems/Images/2017/4/13/5d1a89d4b30e448ebd288c94f4826af1_18.jpg)
+![Trump says US-Russia ties 'may be at an all-time low'](http://www.aljazeera.com/mritems/Images/2017/4/13/c5edebc384094dfeb5c34a1d03bc1571_18.jpg)
 
 As tensions rise over Syria, US president seems to walk away from campaign promise to improve ties with Moscow.
 
