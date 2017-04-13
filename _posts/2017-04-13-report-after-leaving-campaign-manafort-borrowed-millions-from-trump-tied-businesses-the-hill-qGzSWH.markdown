@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses - The Hill](http://thehill.com/sites/default/files/article_images/manafort.jpg)
 
-The Hill Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses The Hill On the same day Paul Manafort stepped down as the campaign chairman for Donald Trump · Donald TrumpReport: After leaving campaign, Manafort borrowed millions from Trump-tied businesses NAFTA reform must benefit the citizens of all three countries ... Manafort firm received Ukraine ledger payout, AP report says USA TODAY Paul Manafort, Trump's former campaign chairman, will register as a foreign agent Los Angeles Times After Campaign Exit, Manafort Borrowed From Businesses With Trump Ties New York Times AP News all 77 news articles »
+The Hill Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses The Hill On the same day Paul Manafort stepped down as the campaign chairman for Donald Trump · Donald TrumpSanders: Trump will be a one-term president Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses NAFTA reform ... Manafort firm received Ukraine ledger payout, AP report says USA TODAY Manafort is expected to register as a foreign agent Washington Post Why lobbyists like Manafort don't want to register as foreign agents CNN Los Angeles Times - New York Times - AP News all 80 news articles »
 
 
 Full story on F3News: [Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses - The Hill](http://www.f3nws.com/n/qGzSWH)

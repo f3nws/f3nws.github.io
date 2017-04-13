@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Inside Bannon's struggle: From 'shadow president' to Trump's marked man - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/10/National-Politics/Images/Botsford170410Trump13798.JPG)
 
-Washington Post Inside Bannon's struggle: From 'shadow president' to Trump's marked man Washington Post When Stephen K. Bannon reported for work Wednesday, he did not act like a man who had just been publicly humiliated by his boss. The White House chief strategist cycled in and out of the Oval Office for meetings with President Trump and took a seat in ... Jared and Ivanka Are Not Good People. They Are Complicit in the Worst Presidency Yet. Slate Magazine Trump downplays 5-year Bannon relationship CNN Trump undercuts Steve Bannon, whose job may be in danger The Boston Globe New York Times - CBS News - Hot Air - Washington Examiner all 377 news articles »
+Washington Post Inside Bannon's struggle: From 'shadow president' to Trump's marked man Washington Post When Stephen K. Bannon reported for work Wednesday, he did not act like a man who had just been publicly humiliated by his boss. The White House chief strategist cycled in and out of the Oval Office for meetings with President Trump and took a seat in ... Spicer: Trump wanted to clear up 'blurred' line between him and Bannon The Hill Jared and Ivanka Are Not Good People. They Are Complicit in the Worst Presidency Yet. Slate Magazine Trump downplays 5-year Bannon relationship CNN The Boston Globe - Hot Air - New York Times - CBS News all 389 news articles »
 
 
 Full story on F3News: [Inside Bannon's struggle: From 'shadow president' to Trump's marked man - Washington Post](http://www.f3nws.com/n/JTJTy)
