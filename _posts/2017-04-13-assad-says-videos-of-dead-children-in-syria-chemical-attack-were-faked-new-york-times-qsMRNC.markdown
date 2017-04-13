@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Assad Says Videos of Dead Children in Syria Chemical Attack Were Faked - New York Times](https://static01.nyt.com/images/2017/04/14/world/middleeast/14Syria/14Syria-facebookJumbo.jpg)
 
-New York Times Assad Says Videos of Dead Children in Syria Chemical Attack Were Faked New York Times President Bashar al-Assad of Syria in an interview from Damascus on Wednesday. Credit Agence France-Presse — Getty Images. Syria's president intensified on Thursday a propaganda counterattack against Western accusations that he had ordered a lethal ... Trump's China reset puts Russia out in the cold by defending Syria at UN The Hill (blog) We are relying on China and Russia to tell us what Trump and Tillerson discussed with their leaders Washington Post Trump's Syria Strike Puts America At The Precipice Of Another Middle East War Huffington Post Voice of America - New York Daily News - Yahoo News all 6,993 news articles »
+New York Times Assad Says Videos of Dead Children in Syria Chemical Attack Were Faked New York Times President Bashar al-Assad of Syria in an interview from Damascus on Wednesday. Credit Agence France-Presse — Getty Images. Vilified by accusations of using a chemical bomb, Syria's president intensified his counterpropaganda campaign on Thursday, ... With Assads Air Force Floundering, Russian Bombers Go On the Attack Daily Beast Assad claims Syria chemical attack was 'fabrication', in face of evidence CNN Assad calls Syria chemical attack a 'fabrication,' dismisses evidence Washington Post all 284 news articles »
 
 
 Full story on F3News: [Assad Says Videos of Dead Children in Syria Chemical Attack Were Faked - New York Times](http://www.f3nws.com/n/qsMRNC)

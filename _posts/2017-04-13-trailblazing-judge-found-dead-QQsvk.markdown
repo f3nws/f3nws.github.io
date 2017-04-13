@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trailblazing judge found dead"
-date: 2017-04-13 18:04:08Z
+date: 2017-04-13 20:52:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Sheila Abdus-Salaam, the first African-American woman appointed to the New York 
 
 Full story on F3News: [Trailblazing judge found dead](http://www.f3nws.com/n/QQsvk)
 
-> Posted on: Thursday, April 13, 2017 11:04:08 PM
+> Posted on: Friday, April 14, 2017 1:52:40 AM

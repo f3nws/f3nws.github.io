@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police Believe New York Judge Found in Hudson River Committed Suicide - New York Times](https://static01.nyt.com/images/2017/04/14/nyregion/14judge/14judge-facebookJumbo.jpg)
 
-New York Times Police Believe New York Judge Found in Hudson River Committed Suicide New York Times Judge Sheila Abdus-Salaam in 2013. She was the first black woman to serve on New York State's highest court. Credit Mike Groll/Associated Press. Family tragedy surrounded Judge Sheila Abdus-Salaam. About three years ago, law enforcement officials ... Judge Sheila Abdus-Salaam, Nation's First Muslim Judge, Found Dead in New York NBCNews.com New York judge's death a possible suicide, law enforcement sources say CNN Sheila Abdus-Salaam, Judge on New York's Top Court, Is Found Dead in Hudson River New York Times New York Post - New York Daily News all 464 news articles »
+New York Times Police Believe New York Judge Found in Hudson River Committed Suicide New York Times Judge Sheila Abdus-Salaam in 2013. She was the first black woman to serve on New York State's highest court. Credit Mike Groll/Associated Press. Family tragedy surrounded Judge Sheila Abdus-Salaam. About three years ago, law enforcement officials ... New York judge's death a possible suicide, law enforcement sources say CNN Sheila Abdus-Salaam, Judge on New York's Top Court, Is Found Dead in Hudson River New York Times Judge found dead in Hudson River was 'force for good' New York Post all 476 news articles »
 
 
 Full story on F3News: [Police Believe New York Judge Found in Hudson River Committed Suicide - New York Times](http://www.f3nws.com/n/dDEyMB)
