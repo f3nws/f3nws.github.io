@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "United fallout: 2 more officers on leave"
-date: 2017-04-12 22:20:55Z
+date: 2017-04-12 23:33:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Disgusted by a man's violent removal from an oversold flight, New Jersey Gov. Ch
 
 Full story on F3News: [United fallout: 2 more officers on leave](http://www.f3nws.com/n/JcuYHC)
 
-> Posted on: Thursday, April 13, 2017 3:20:55 AM
+> Posted on: Thursday, April 13, 2017 4:33:49 AM
