@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trailblazing judge found dead in Hudson River"
-date: 2017-04-13 05:17:45Z
+date: 2017-04-13 10:20:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Sheila Abdus-Salaam, the first African-American woman appointed to the New York 
 
 Full story on F3News: [Trailblazing judge found dead in Hudson River](http://www.f3nws.com/n/QQsvk)
 
-> Posted on: Thursday, April 13, 2017 10:17:45 AM
+> Posted on: Thursday, April 13, 2017 3:20:25 PM
