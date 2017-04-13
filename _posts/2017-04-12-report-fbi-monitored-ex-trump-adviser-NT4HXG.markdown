@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: FBI monitored ex-Trump adviser"
-date: 2017-04-12 16:53:40Z
+date: 2017-04-12 22:21:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The FBI obtained a warrant to monitor President Donald Trump's former campaign a
 
 Full story on F3News: [Report: FBI monitored ex-Trump adviser](http://www.f3nws.com/n/NT4HXG)
 
-> Posted on: Wednesday, April 12, 2017 9:53:40 PM
+> Posted on: Thursday, April 13, 2017 3:21:48 AM
