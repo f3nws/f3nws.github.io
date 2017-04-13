@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![After Campaign Exit, Manafort Borrowed From Businesses With Trump Ties - New York Times](https://static01.nyt.com/images/2017/04/13/us/13MANAFORT-01p/13MANAFORT-01p-facebookJumbo-v2.jpg)
 
-New York Times After Campaign Exit, Manafort Borrowed From Businesses With Trump Ties New York Times Paul Manafort's transactions raise a number of questions, including whether his decision to turn to lenders connected to Donald J. Trump was related to his role in the campaign. Credit Damon Winter/The New York Times. Aug. 19 was an eventful day for ... Longtime Trump ally: 'Heresy' to accuse Manafort of colluding with Russians CNN Report: After leaving campaign, Manafort borrowed millions from Trump-tied businesses The Hill Manafort is expected to register as a foreign agent Washington Post USA TODAY - AP News - AP News all 90 news articles »
+New York Times After Campaign Exit, Manafort Borrowed From Businesses With Trump Ties New York Times Paul Manafort's transactions raise a number of questions, including whether his decision to turn to lenders connected to Donald J. Trump was related to his role in the campaign. Credit Damon Winter/The New York Times. Aug. 19 was an eventful day for ... Paul Manafort, Trump's former campaign chairman, may belatedly register as a foreign agent Los Angeles Times AP Exclusive: Manafort firm received Ukraine ledger payout - AP News AP News The Latest: Manafort registering with US as foreign agent - AP News AP News all 91 news articles »
 
 
 Full story on F3News: [After Campaign Exit, Manafort Borrowed From Businesses With Trump Ties - New York Times](http://www.f3nws.com/n/akFXYB)

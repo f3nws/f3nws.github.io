@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President reverses on NATO, China, Russia, Syria"
-date: 2017-04-13 06:06:52Z
+date: 2017-04-13 06:17:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ It was almost as if Donald Trump's outsider presidential campaign never happened
 
 Full story on F3News: [US President reverses on NATO, China, Russia, Syria](http://www.f3nws.com/n/dqS3nF)
 
-> Posted on: Thursday, April 13, 2017 11:06:52 AM
+> Posted on: Thursday, April 13, 2017 11:17:47 AM

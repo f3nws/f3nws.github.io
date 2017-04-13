@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Charging Bull' sculptor wants 'Fearless Girl' removed"
-date: 2017-04-13 05:47:00Z
+date: 2017-04-13 06:16:19Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Sculptor of bull statue says 'Fearless Girl' is attacking the bull and distortin
 
 Full story on F3News: ['Charging Bull' sculptor wants 'Fearless Girl' removed](http://www.f3nws.com/n/jBZGGB)
 
-> Posted on: Thursday, April 13, 2017 10:47:00 AM
+> Posted on: Thursday, April 13, 2017 11:16:19 AM
