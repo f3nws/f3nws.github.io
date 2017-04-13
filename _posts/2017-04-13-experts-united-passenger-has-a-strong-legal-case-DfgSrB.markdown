@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Experts: United passenger has a strong legal case"
-date: 2017-04-13 16:44:49Z
+date: 2017-04-13 17:56:37Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Now the court system could get involved in the United fiasco.
 
 Full story on F3News: [Experts: United passenger has a strong legal case](http://www.f3nws.com/n/DfgSrB)
 
-> Posted on: Thursday, April 13, 2017 9:44:49 PM
+> Posted on: Thursday, April 13, 2017 10:56:37 PM
