@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "David Gergen: Where Trump's White House shake-up should begin"
-date: 2017-04-13 06:13:38Z
+date: 2017-04-13 08:59:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ A few years ago, the CEO of a Fortune 100 company confided that earlier in his c
 
 Full story on F3News: [David Gergen: Where Trump's White House shake-up should begin](http://www.f3nws.com/n/EXtvqH)
 
-> Posted on: Thursday, April 13, 2017 11:13:38 AM
+> Posted on: Thursday, April 13, 2017 1:59:55 PM
