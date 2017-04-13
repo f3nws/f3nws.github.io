@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Don't call Trump's reversals on China, NATO, Syria a weakness"
-date: 2017-04-13 15:51:43Z
+date: 2017-04-13 21:51:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ In the space of the last week, President Donald Trump has either altered or tota
 
 Full story on F3News: [Don't call Trump's reversals on China, NATO, Syria a weakness](http://www.f3nws.com/n/MgCVmB)
 
-> Posted on: Thursday, April 13, 2017 8:51:43 PM
+> Posted on: Friday, April 14, 2017 2:51:45 AM

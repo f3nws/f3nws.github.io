@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New discoveries on ocean worlds"
-date: 2017-04-13 19:02:33Z
+date: 2017-04-13 21:46:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ NASA has new evidence that the most likely places to find life beyond Earth are 
 
 Full story on F3News: [New discoveries on ocean worlds](http://www.f3nws.com/n/pJUqJF)
 
-> Posted on: Friday, April 14, 2017 12:02:33 AM
+> Posted on: Friday, April 14, 2017 2:46:33 AM

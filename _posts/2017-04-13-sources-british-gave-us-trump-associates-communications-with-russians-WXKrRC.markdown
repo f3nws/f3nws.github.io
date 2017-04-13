@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sources: British gave US Trump associates communications with Russians"
-date: 2017-04-13 20:43:09Z
+date: 2017-04-13 21:59:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ British and other European intelligence agencies intercepted communications betw
 
 Full story on F3News: [Sources: British gave US Trump associates communications with Russians](http://www.f3nws.com/n/WXKrRC)
 
-> Posted on: Friday, April 14, 2017 1:43:09 AM
+> Posted on: Friday, April 14, 2017 2:59:24 AM

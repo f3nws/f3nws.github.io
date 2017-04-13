@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bomb targeted ISIS complex in Afghanistan, sources say"
-date: 2017-04-13 20:23:22Z
+date: 2017-04-13 21:03:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The US military has dropped an enormous bomb in Afghanistan, according to four U
 
 Full story on F3News: [Bomb targeted ISIS complex in Afghanistan, sources say](http://www.f3nws.com/n/m2DFaG)
 
-> Posted on: Friday, April 14, 2017 1:23:22 AM
+> Posted on: Friday, April 14, 2017 2:03:06 AM
