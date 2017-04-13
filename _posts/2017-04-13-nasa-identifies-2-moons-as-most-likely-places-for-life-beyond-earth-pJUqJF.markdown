@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NASA identifies 2 moons as most likely places for life beyond Earth"
-date: 2017-04-13 18:49:44Z
+date: 2017-04-13 19:02:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ NASA has new evidence that the most likely places to find life beyond Earth are 
 
 Full story on F3News: [NASA identifies 2 moons as most likely places for life beyond Earth](http://www.f3nws.com/n/pJUqJF)
 
-> Posted on: Thursday, April 13, 2017 11:49:44 PM
+> Posted on: Friday, April 14, 2017 12:02:33 AM
