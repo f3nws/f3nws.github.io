@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says US-Russia ties 'may be at an all-time low'"
-date: 2017-04-13 01:25:10Z
+date: 2017-04-13 04:02:58Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ As tensions rise over Syria, US president seems to walk away from campaign promi
 
 Full story on F3News: [Trump says US-Russia ties 'may be at an all-time low'](http://www.f3nws.com/n/Bzc3dH)
 
-> Posted on: Thursday, April 13, 2017 6:25:10 AM
+> Posted on: Thursday, April 13, 2017 9:02:58 AM
