@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Some of Sydney's most overcrowded schools have grown by 40 per cent: new data - The Sydney Morning Herald"
-date: 2017-04-13 09:36:17Z
+date: 2017-04-13 13:20:07Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Some of Sydney's most overcrowded schools have grown b
 
 Full story on F3News: [Some of Sydney's most overcrowded schools have grown by 40 per cent: new data - The Sydney Morning Herald](http://www.f3nws.com/n/qsyhYB)
 
-> Posted on: Thursday, April 13, 2017 2:36:17 PM
+> Posted on: Thursday, April 13, 2017 6:20:07 PM
