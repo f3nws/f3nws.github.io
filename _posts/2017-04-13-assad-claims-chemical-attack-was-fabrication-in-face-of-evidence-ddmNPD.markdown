@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Assad claims chemical attack was 'fabrication', in face of evidence"
-date: 2017-04-13 15:48:53Z
+date: 2017-04-13 16:01:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Syrian President Bashar al-Assad dismissed reports of the deadly chemical attack
 
 Full story on F3News: [Assad claims chemical attack was 'fabrication', in face of evidence](http://www.f3nws.com/n/ddmNPD)
 
-> Posted on: Thursday, April 13, 2017 8:48:53 PM
+> Posted on: Thursday, April 13, 2017 9:01:58 PM
