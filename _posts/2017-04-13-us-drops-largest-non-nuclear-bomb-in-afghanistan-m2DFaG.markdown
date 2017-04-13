@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US drops largest non-nuclear bomb in Afghanistan"
-date: 2017-04-13 16:47:22Z
+date: 2017-04-13 17:31:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The US military has dropped an enormous bomb in Afghanistan, according to four U
 
 Full story on F3News: [US drops largest non-nuclear bomb in Afghanistan](http://www.f3nws.com/n/m2DFaG)
 
-> Posted on: Thursday, April 13, 2017 9:47:22 PM
+> Posted on: Thursday, April 13, 2017 10:31:35 PM
