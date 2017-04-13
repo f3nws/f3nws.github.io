@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Android Trojan Targeting Over 420 Banking Apps Worldwide Found On Google Play Store"
-date: 2017-04-13 18:50:07Z
+date: 2017-04-13 20:03:25Z
 categories: the-hacker-news
 ---
 
@@ -10,4 +10,4 @@ Do you like watching funny videos online? I am not kind of a funny person, but I
 
 Full story on F3News: [Android Trojan Targeting Over 420 Banking Apps Worldwide Found On Google Play Store](http://www.f3nws.com/n/3ZdAK)
 
-> Posted on: Thursday, April 13, 2017 11:50:07 PM
+> Posted on: Friday, April 14, 2017 1:03:25 AM
