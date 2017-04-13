@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US drops largest non-nuclear bomb in Afghanistan after Green Beret killed"
-date: 2017-04-13 17:15:00Z
+date: 2017-04-13 18:43:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The U.S. military dropped the largest non-nuclear bomb in eastern Afghanistan on
 
 Full story on F3News: [US drops largest non-nuclear bomb in Afghanistan after Green Beret killed](http://www.f3nws.com/n/3SekKF)
 
-> Posted on: Thursday, April 13, 2017 10:15:00 PM
+> Posted on: Thursday, April 13, 2017 11:43:00 PM
