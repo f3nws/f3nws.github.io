@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bludgeoned bodies may be work of MS-13'"
-date: 2017-04-14 14:47:12Z
+date: 2017-04-14 16:27:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Police on Long Island, New York, have discovered the bodies of four young people
 
 Full story on F3News: ['Bludgeoned bodies may be work of MS-13'](http://www.f3nws.com/n/qApMzC)
 
-> Posted on: Friday, April 14, 2017 7:47:12 PM
+> Posted on: Friday, April 14, 2017 9:27:50 PM

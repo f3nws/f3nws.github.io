@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN condemns reports of violence against gay men in Chechnya"
-date: 2017-04-14 14:08:02Z
+date: 2017-04-14 16:16:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ United Nations human rights experts are urging authorities to investigate report
 
 Full story on F3News: [UN condemns reports of violence against gay men in Chechnya](http://www.f3nws.com/n/vbky3C)
 
-> Posted on: Friday, April 14, 2017 7:08:02 PM
+> Posted on: Friday, April 14, 2017 9:16:00 PM

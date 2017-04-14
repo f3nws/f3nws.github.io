@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Christianity's prospects of surviving in its birthplace are grim"
-date: 2017-04-14 15:30:08Z
+date: 2017-04-14 16:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Prospects of Christianity surviving in its birthplace, the Middle East, appear a
 
 Full story on F3News: [Christianity's prospects of surviving in its birthplace are grim](http://www.f3nws.com/n/nJeKaC)
 
-> Posted on: Friday, April 14, 2017 8:30:08 PM
+> Posted on: Friday, April 14, 2017 9:30:02 PM
