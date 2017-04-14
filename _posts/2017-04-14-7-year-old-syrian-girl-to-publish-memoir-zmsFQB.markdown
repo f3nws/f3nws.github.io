@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7-year-old Syrian girl to publish memoir"
-date: 2017-04-14 11:20:04Z
+date: 2017-04-14 11:33:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Bana Alabed, the 7-year-old girl whose tweets from besieged Aleppo drew the worl
 
 Full story on F3News: [7-year-old Syrian girl to publish memoir](http://www.f3nws.com/n/zmsFQB)
 
-> Posted on: Friday, April 14, 2017 4:20:04 PM
+> Posted on: Friday, April 14, 2017 4:33:02 PM

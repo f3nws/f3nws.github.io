@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US coalition mistakenly kills 18 allied Syrian rebels"
-date: 2017-04-14 03:53:01Z
+date: 2017-04-14 12:10:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US Central Command says air strike was supposed to hit an ISIL fighting position
 
 Full story on F3News: [US coalition mistakenly kills 18 allied Syrian rebels](http://www.f3nws.com/n/jgjCtG)
 
-> Posted on: Friday, April 14, 2017 8:53:01 AM
+> Posted on: Friday, April 14, 2017 5:10:31 PM

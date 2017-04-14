@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "36 ISIS fighters killed by most powerful US non-nuclear bomb"
-date: 2017-04-14 10:29:38Z
+date: 2017-04-14 11:54:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US and Afghan military officials are assessing the impact of a colossal US bomb 
 
 Full story on F3News: [36 ISIS fighters killed by most powerful US non-nuclear bomb](http://www.f3nws.com/n/P3R2uB)
 
-> Posted on: Friday, April 14, 2017 3:29:38 PM
+> Posted on: Friday, April 14, 2017 4:54:33 PM
