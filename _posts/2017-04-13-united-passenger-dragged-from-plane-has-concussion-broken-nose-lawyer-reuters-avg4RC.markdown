@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![United passenger dragged from plane has concussion, broken nose: lawyer - Reuters](http://s2.reutersmedia.net/resources/r/?m=02&d=20170413&t=2&i=1180581319&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED3C1BH)
 
-Reuters United passenger dragged from plane has concussion, broken nose: lawyer Reuters CHICAGO The United Airlines passenger dragged from a plane in Chicago in an incident that sparked international outrage and turned into a corporate public relations nightmare suffered a concussion and broken nose and will likely sue, his attorney said ... United CEO Oscar Munoz: From 'Communicator of the Year' to PR disaster Los Angeles Times United passenger: Dragging incident more horrifying than when he fled Vietnam Washington Post Aldermen question whether aviation police had authority to act in United incident Chicago Tribune Forbes - Business Insider - ABC News - The Boston Globe all 920 news articles »
+Reuters United passenger dragged from plane has concussion, broken nose: lawyer Reuters CHICAGO The United Airlines passenger dragged from a plane in Chicago in an incident that sparked international outrage and turned into a corporate public relations nightmare suffered a concussion and broken nose and will likely sue, his attorney said ... Lawyer: Dragged passenger 'poster child' for airline abuses New York Daily News United CEO Oscar Munoz: From 'Communicator of the Year' to PR disaster Los Angeles Times Being A United Customer Is Scary, Imagine Working There Forbes Washington Post - Dayton Daily News - Alaska Dispatch News - Sentinel-Tribune all 891 news articles »
 
 
 Full story on F3News: [United passenger dragged from plane has concussion, broken nose: lawyer - Reuters](http://www.f3nws.com/n/avg4RC)
