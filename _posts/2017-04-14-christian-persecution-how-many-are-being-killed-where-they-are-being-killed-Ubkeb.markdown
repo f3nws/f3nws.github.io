@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Christian persecution: How many are being killed, where they are being killed"
-date: 2017-04-14 18:30:07Z
+date: 2017-04-14 18:47:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An average of 90,000 Christians are martyred each year.
 
 Full story on F3News: [Christian persecution: How many are being killed, where they are being killed](http://www.f3nws.com/n/Ubkeb)
 
-> Posted on: Friday, April 14, 2017 11:30:07 PM
+> Posted on: Friday, April 14, 2017 11:47:00 PM

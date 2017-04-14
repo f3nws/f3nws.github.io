@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook targets accounts in fake news crackdown"
-date: 2017-04-14 10:48:38Z
+date: 2017-04-14 19:18:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Facebook targets accounts in fake news crackdown](http://www.f3nws.com/n/GcMvdH)
 
-> Posted on: Friday, April 14, 2017 3:48:38 PM
+> Posted on: Saturday, April 15, 2017 12:18:12 AM
