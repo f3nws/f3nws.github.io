@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sheila Abdus-Salaam: New Yorkers mourn judge's death"
-date: 2017-04-14 01:14:05Z
+date: 2017-04-14 02:03:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Tributes flow in for first black woman to serve as a judge on New York's highest
 
 Full story on F3News: [Sheila Abdus-Salaam: New Yorkers mourn judge's death](http://www.f3nws.com/n/XSWU2D)
 
-> Posted on: Friday, April 14, 2017 6:14:05 AM
+> Posted on: Friday, April 14, 2017 7:03:37 AM
