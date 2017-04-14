@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "36 ISIS fighters killed by US 'mother of all bombs'"
-date: 2017-04-14 14:09:22Z
+date: 2017-04-14 14:52:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ In its second major display of military might in one week, the US dropped its mo
 
 Full story on F3News: [36 ISIS fighters killed by US 'mother of all bombs'](http://www.f3nws.com/n/P3R2uB)
 
-> Posted on: Friday, April 14, 2017 7:09:22 PM
+> Posted on: Friday, April 14, 2017 7:52:55 PM

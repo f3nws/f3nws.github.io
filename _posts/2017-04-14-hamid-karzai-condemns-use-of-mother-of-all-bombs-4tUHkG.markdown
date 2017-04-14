@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamid Karzai condemns use of 'mother of all bombs'"
-date: 2017-04-14 14:35:00Z
+date: 2017-04-14 14:49:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Afghanistan shouldn't be a 'testing ground for new and dangerous weapons' Hamid 
 
 Full story on F3News: [Hamid Karzai condemns use of 'mother of all bombs'](http://www.f3nws.com/n/4tUHkG)
 
-> Posted on: Friday, April 14, 2017 7:35:00 PM
+> Posted on: Friday, April 14, 2017 7:49:21 PM
