@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "$43M cash found in empty apartment"
-date: 2017-04-14 03:04:27Z
+date: 2017-04-14 14:03:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The Nigerian anti-corruption unit discovered more than $43 million in US dollars
 
 Full story on F3News: [$43M cash found in empty apartment](http://www.f3nws.com/n/JXXWqC)
 
-> Posted on: Friday, April 14, 2017 8:04:27 AM
+> Posted on: Friday, April 14, 2017 7:03:36 PM
