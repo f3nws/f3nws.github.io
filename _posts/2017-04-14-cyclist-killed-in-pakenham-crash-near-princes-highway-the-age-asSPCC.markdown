@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Cyclist killed in Pakenham crash near Princes Highway - The Age"
-date: 2017-04-14 09:19:47Z
+date: 2017-04-14 09:22:28Z
 categories: google-news-australia
 ---
 
-![Cyclist killed in Pakenham crash near Princes Highway - The Age](http://www.theage.com.au/content/dam/images/g/v/l/c/e/2/image.related.articleLeadwide.620x349.gvkwwq.png/1492161539958.jpg)
+![Cyclist killed in Pakenham crash near Princes Highway - The Age](http://www.theage.com.au/content/dam/images/g/v/l/c/e/2/image.related.articleLeadwide.620x349.gvkwwq.png/1492164418553.jpg)
 
-The Age Cyclist killed in Pakenham crash near Princes Highway The Age An off-duty police officer who was hit and killed by a ute while cycling with his daughter in Melbourne's south-east on Good Friday has been remembered as a "real personality" and highly regarded veteran sergeant. The pair was riding east on the ... Cyclist killed after colliding with ute in Pakenham Herald Sun Off-duty police officer dies after being hit by ute while cycling with daughter in Melbourne ABC Online Off-duty cop killed in Good Friday crash The Australian all 12 news articles »
+The Age Cyclist killed in Pakenham crash near Princes Highway The Age An off-duty police officer who was hit and killed by a ute while cycling with his daughter in Melbourne's south-east on Good Friday has been remembered as a "real personality" and highly regarded veteran sergeant. The pair was riding east on the ... Off-duty police officer dies after being hit by ute while cycling with daughter in Melbourne ABC Online Cyclist killed after colliding with ute in Pakenham Herald Sun Off-duty cop killed in Good Friday crash The Australian all 14 news articles »
 
 
 Full story on F3News: [Cyclist killed in Pakenham crash near Princes Highway - The Age](http://www.f3nws.com/n/asSPCC)
 
-> Posted on: Friday, April 14, 2017 2:19:47 PM
+> Posted on: Friday, April 14, 2017 2:22:28 PM
