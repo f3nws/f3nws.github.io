@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia, Syria and Iran warn US against further strikes"
-date: 2017-04-14 15:35:59Z
+date: 2017-04-14 20:11:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Allied foreign ministers meet in Moscow over Syrian war and warn Washington foll
 
 Full story on F3News: [Russia, Syria and Iran warn US against further strikes](http://www.f3nws.com/n/jBeWYD)
 
-> Posted on: Friday, April 14, 2017 8:35:59 PM
+> Posted on: Saturday, April 15, 2017 1:11:33 AM
