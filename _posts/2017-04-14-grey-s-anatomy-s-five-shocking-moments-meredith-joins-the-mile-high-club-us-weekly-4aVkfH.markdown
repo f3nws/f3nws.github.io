@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Grey's Anatomy's Five Shocking Moments: Meredith Joins the Mile-High Club - Us Weekly"
-date: 2017-04-14 10:00:38Z
+date: 2017-04-14 10:05:07Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ Us Weekly Grey's Anatomy's Five Shocking Moments: Meredith Joins the Mile-High C
 
 Full story on F3News: [Grey's Anatomy's Five Shocking Moments: Meredith Joins the Mile-High Club - Us Weekly](http://www.f3nws.com/n/4aVkfH)
 
-> Posted on: Friday, April 14, 2017 3:00:38 PM
+> Posted on: Friday, April 14, 2017 3:05:07 PM

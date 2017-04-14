@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US says 'mother of all bombs' hits ISIL in Afghanistan"
-date: 2017-04-14 09:49:08Z
+date: 2017-04-14 11:14:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Central Command says largest US non-nuclear bomb used in combat dropped on ISIL 
 
 Full story on F3News: [US says 'mother of all bombs' hits ISIL in Afghanistan](http://www.f3nws.com/n/XZG44)
 
-> Posted on: Friday, April 14, 2017 2:49:08 PM
+> Posted on: Friday, April 14, 2017 4:14:03 PM
