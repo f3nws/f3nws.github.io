@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why the 'mother of all bombs' and why now?"
-date: 2017-04-14 02:42:35Z
+date: 2017-04-14 02:51:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The dropping of a "mother of all bombs" Thursday by the United States on an ISIS
 
 Full story on F3News: [Why the 'mother of all bombs' and why now?](http://www.f3nws.com/n/DrsrPD)
 
-> Posted on: Friday, April 14, 2017 7:42:35 AM
+> Posted on: Friday, April 14, 2017 7:51:59 AM
