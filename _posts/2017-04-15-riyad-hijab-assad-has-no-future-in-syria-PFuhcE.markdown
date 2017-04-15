@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Riyad Hijab: 'Assad has no future in Syria'"
-date: 2017-04-15 18:57:15Z
+date: 2017-04-15 19:16:54Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Former PM and current opposition leader kicks off Al Jazeera's 11th annual forum
 
 Full story on F3News: [Riyad Hijab: 'Assad has no future in Syria'](http://www.f3nws.com/n/PFuhcE)
 
-> Posted on: Saturday, April 15, 2017 11:57:15 PM
+> Posted on: Sunday, April 16, 2017 12:16:54 AM
