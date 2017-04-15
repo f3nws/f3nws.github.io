@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fighting in South Sudan's Raga kills at least 14 people"
-date: 2017-04-15 16:34:11Z
+date: 2017-04-15 16:49:47Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Violence in eastern South Sudan forces 60 aid workers to flee as new battles eru
 
 Full story on F3News: [Fighting in South Sudan's Raga kills at least 14 people](http://www.f3nws.com/n/jBtdeG)
 
-> Posted on: Saturday, April 15, 2017 9:34:11 PM
+> Posted on: Saturday, April 15, 2017 9:49:47 PM

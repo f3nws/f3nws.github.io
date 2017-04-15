@@ -5,7 +5,7 @@ date: 2017-04-15 15:36:00Z
 categories: google-news-entertaintment
 ---
 
-Huffington Post April The Giraffe Finally Gives Birth Huffington Post April, a giraffe at a New York zoo whose pregnancy has been livestreamed since February, finally gave birth on Saturday morning. Animal Adventure Park in the town of Harpursville has not yet announced a name for the calf. The sex of the newborn was ... April the giraffe — after a very long pregnancy — just gave birth Washington Post April the Giraffe, an Internet Star, Gives Birth. Finally. New York Times April the giraffe welcomes much-anticipated calf CNN New York Daily News - Live Science - Los Angeles Times - WSOC Charlotte all 291 news articles »
+Huffington Post April The Giraffe Finally Gives Birth Huffington Post April, a giraffe at a New York zoo whose pregnancy has been livestreamed since February, finally gave birth on Saturday morning. Animal Adventure Park in the town of Harpursville has not yet announced a name for the calf. The sex of the newborn was ... April the giraffe finally had her baby. Is it a boy or a girl? Washington Post Live Birth Archive YouTube Animal Adventure Park - Home | Facebook Facebook GoFundMe - YouTube all 307 news articles »
 
 
 Full story on F3News: [April The Giraffe Finally Gives Birth - Huffington Post](http://www.f3nws.com/n/QmKSfD)
