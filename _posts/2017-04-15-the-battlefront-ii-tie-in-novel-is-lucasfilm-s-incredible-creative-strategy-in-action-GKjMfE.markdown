@@ -5,7 +5,7 @@ date: 2017-04-15 19:34:04Z
 categories: the-verge
 ---
 
-![The Battlefront II tie-in novel is Lucasfilm’s incredible creative strategy in action](https://cdn0.vox-cdn.com/thumbor/U-3aVrKs-YYuwN5wCQruvXiOayY=/0x1:1200x676/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54275797/C9ee_9OVYAA0kiT.0.jpg)
+![The Battlefront II tie-in novel is Lucasfilm’s incredible creative strategy in action](https://cdn0.vox-cdn.com/thumbor/aZTTxZpVeDEywZWGrm3S1V7bgD4=/0x300:625x652/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54275797/C9esUaaXoAETcNo.1492284845.jpg)
 
 
 
