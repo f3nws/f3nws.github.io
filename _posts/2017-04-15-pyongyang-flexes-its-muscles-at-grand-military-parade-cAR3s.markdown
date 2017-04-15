@@ -5,7 +5,7 @@ date: 2017-04-15 09:49:44Z
 categories: cnn-com-top-stories
 ---
 
-A military parade in the heart of Pyongyang is underway where its expected the regime will show off some of its latest arsenal.
+A military parade in the heart of Pyongyang is underway where it's expected the regime will show off some of its latest arsenal.
 
 
 Full story on F3News: [Pyongyang flexes its muscles at grand military parade](http://www.f3nws.com/n/cAR3s)

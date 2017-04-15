@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Easter: Why the resurrection is the most important truth in the world"
-date: 2017-04-15 15:00:11Z
+date: 2017-04-15 19:31:19Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ On Easter, Christians celebrate the resurrection of Jesus Christ. But what is no
 
 Full story on F3News: [Easter: Why the resurrection is the most important truth in the world](http://www.f3nws.com/n/BWh2QE)
 
-> Posted on: Saturday, April 15, 2017 8:00:11 PM
+> Posted on: Sunday, April 16, 2017 12:31:19 AM

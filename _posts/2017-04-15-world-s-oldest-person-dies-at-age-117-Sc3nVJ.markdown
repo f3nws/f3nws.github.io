@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's oldest person dies at age 117"
-date: 2017-04-15 18:25:57Z
+date: 2017-04-15 18:38:26Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Emma Morano, who was born on November 29, 1899, passed away in her armchair in V
 
 Full story on F3News: [World's oldest person dies at age 117](http://www.f3nws.com/n/Sc3nVJ)
 
-> Posted on: Saturday, April 15, 2017 11:25:57 PM
+> Posted on: Saturday, April 15, 2017 11:38:26 PM
