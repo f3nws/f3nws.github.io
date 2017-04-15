@@ -5,7 +5,7 @@ date: 2017-04-14 17:38:32Z
 categories: al-jazeera-english
 ---
 
-![MOAB attack: Condemnation, praise over massive bombing](http://www.aljazeera.com/mritems/Images/2017/4/14/8bb3313959ae472e9cb24307a9e175f4_18.jpg)
+![MOAB attack: Condemnation, praise over massive bombing](http://www.aljazeera.com/mritems/Images/2017/4/14/9a2eb5f461194022b840ead88428c948_18.jpg)
 
 Afghanistan shouldn't be a 'testing ground for new and dangerous weapons' Hamid Karzai says after US drops mega-bomb.
 
