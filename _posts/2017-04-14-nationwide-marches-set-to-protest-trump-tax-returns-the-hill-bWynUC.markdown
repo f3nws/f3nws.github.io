@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Nationwide marches set to protest Trump tax returns - The Hill](http://thehill.com/sites/default/files/article_images/donaldtrump_032717getty.jpg)
 
-The Hill Nationwide marches set to protest Trump tax returns The Hill Tens of thousands of people are expected to attend rallies on Saturday that are aimed at pressuring President Trump to release his tax returns. The events, which will be held as the tax-filing deadline approaches, are one of a number of protests that ... From tweets to the streets: Nationwide anti-Trump 'Tax Day' marches came together on social media CNN Tax Day protests: Anti-Trump marches planned nationwide to demand tax returns Fox News Are Anti-Trump Protests Losing Steam? The Atlantic all 204 news articles »
+The Hill Nationwide marches set to protest Trump tax returns The Hill Tens of thousands of people are expected to attend rallies on Saturday that are aimed at pressuring President Trump to release his tax returns. The events, which will be held as the tax-filing deadline approaches, are one of a number of protests that ... From tweets to the streets: Nationwide anti-Trump 'Tax Day' marches came together on social media CNN Tax Day protests: Anti-Trump marches planned nationwide to demand tax returns Fox News Are Anti-Trump Protests Losing Steam? The Atlantic all 206 news articles »
 
 
 Full story on F3News: [Nationwide marches set to protest Trump tax returns - The Hill](http://www.f3nws.com/n/bWynUC)

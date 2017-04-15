@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![12 killed during military raid in central Pakistan](http://www.aljazeera.com/mritems/Images/2017/4/14/f8c314cf559b47b68dc79b0764c152fe_18.jpg)
 
-Clashes between Pakistani military and Taliban fighters in Dera Ghaza Khan leave three soldiers and nine Taliban dead.
+Clashes between Pakistani military and Taliban fighters in Dera Ghazi Khan leave three soldiers and nine Taliban dead.
 
 
 Full story on F3News: [12 killed during military raid in central Pakistan](http://www.f3nws.com/n/GXvPMJ)
