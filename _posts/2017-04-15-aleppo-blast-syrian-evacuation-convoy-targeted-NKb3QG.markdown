@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aleppo blast: Syrian evacuation convoy targeted"
-date: 2017-04-15 17:33:21Z
+date: 2017-04-15 20:21:29Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ As many as 39 killed after huge explosion targets bus convoy in Aleppo moving re
 
 Full story on F3News: [Aleppo blast: Syrian evacuation convoy targeted](http://www.f3nws.com/n/NKb3QG)
 
-> Posted on: Saturday, April 15, 2017 10:33:21 PM
+> Posted on: Sunday, April 16, 2017 1:21:29 AM
