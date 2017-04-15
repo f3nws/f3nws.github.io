@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive dump landslide kills at least 10 in Sri Lanka"
-date: 2017-04-15 05:00:52Z
+date: 2017-04-15 05:23:44Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Rescuers search for survivors after fire caused the 91-metre-tall rubbish dump t
 
 Full story on F3News: [Massive dump landslide kills at least 10 in Sri Lanka](http://www.f3nws.com/n/yYJrKG)
 
-> Posted on: Saturday, April 15, 2017 10:00:52 AM
+> Posted on: Saturday, April 15, 2017 10:23:44 AM
