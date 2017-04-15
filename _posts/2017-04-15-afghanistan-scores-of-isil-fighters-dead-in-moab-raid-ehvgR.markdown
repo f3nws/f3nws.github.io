@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Afghanistan: Scores of ISIL fighters dead in MOAB raid"
-date: 2017-04-15 09:33:48Z
+date: 2017-04-15 11:53:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Afghan officials raise the number of ISIL fighters killed after the US army drop
 
 Full story on F3News: [Afghanistan: Scores of ISIL fighters dead in MOAB raid](http://www.f3nws.com/n/ehvgR)
 
-> Posted on: Saturday, April 15, 2017 2:33:48 PM
+> Posted on: Saturday, April 15, 2017 4:53:37 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Jong-un oversees display of N Korea military force"
-date: 2017-04-15 11:02:03Z
+date: 2017-04-15 12:33:25Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Long-range missiles on show as N Korea warns against provocation after US sends 
 
 Full story on F3News: [Kim Jong-un oversees display of N Korea military force](http://www.f3nws.com/n/tCcDh)
 
-> Posted on: Saturday, April 15, 2017 4:02:03 PM
+> Posted on: Saturday, April 15, 2017 5:33:25 PM
