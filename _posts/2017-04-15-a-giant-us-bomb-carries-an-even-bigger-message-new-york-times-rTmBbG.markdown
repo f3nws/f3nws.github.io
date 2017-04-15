@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Giant US Bomb Carries an Even Bigger Message - New York Times](https://static01.nyt.com/images/2017/04/15/world/15afghanistan-still/15afghanistan-still-facebookJumbo.jpg)
 
-New York Times A Giant US Bomb Carries an Even Bigger Message New York Times The United States dropped the most powerful conventional bomb in the American arsenal on an Islamic State cave complex in Afghanistan on Thursday, the Pentagon said. Footage released by U.S. Central Command shows the moment the bomb was ... US military defends dropping 'mother of all bombs' on ISIS in Afghanistan CNN MOAB Strike Didn't Need Trump's Approval, Officials Say NBCNews.com The 'Mother of All Bombs' isn't that big. Why did it unsettle us so much? Washington Post Reuters - Huffington Post - Fox News - Breitbart News all 1,947 news articles »
+New York Times A Giant US Bomb Carries an Even Bigger Message New York Times The United States dropped the most powerful conventional bomb in the American arsenal on an Islamic State cave complex in Afghanistan on Thursday, the Pentagon said. Footage released by U.S. Central Command shows the moment the bomb was ... Trump delights in watching the US military display its strength Washington Post US military defends dropping 'mother of all bombs' on ISIS in Afghanistan CNN Trump's bombs might be smart, but is his strategy? The Boston Globe Reuters - Huffington Post - Breitbart News all 2,016 news articles »
 
 
 Full story on F3News: [A Giant US Bomb Carries an Even Bigger Message - New York Times](http://www.f3nws.com/n/rTmBbG)
