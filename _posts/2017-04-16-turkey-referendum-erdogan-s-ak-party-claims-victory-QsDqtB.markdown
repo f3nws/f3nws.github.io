@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey referendum: Erdogan's AK Party claims victory"
-date: 2017-04-16 20:11:30Z
+date: 2017-04-16 20:41:20Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ categories: al-jazeera-english
 
 Full story on F3News: [Turkey referendum: Erdogan's AK Party claims victory](http://www.f3nws.com/n/QsDqtB)
 
-> Posted on: Monday, April 17, 2017 1:11:30 AM
+> Posted on: Monday, April 17, 2017 1:41:20 AM

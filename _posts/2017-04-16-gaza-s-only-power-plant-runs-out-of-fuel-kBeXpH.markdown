@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gaza's only power plant runs out of fuel"
-date: 2017-04-16 19:45:36Z
+date: 2017-04-16 20:38:39Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Two million Palestinians in the besieged territory now down to a few hours of el
 
 Full story on F3News: [Gaza's only power plant runs out of fuel](http://www.f3nws.com/n/kBeXpH)
 
-> Posted on: Monday, April 17, 2017 12:45:36 AM
+> Posted on: Monday, April 17, 2017 1:38:39 AM
