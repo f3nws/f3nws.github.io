@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US 'working with allies, China on options' for North Korea"
-date: 2017-04-16 18:14:55Z
+date: 2017-04-16 20:13:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ National security adviser Lt. Gen. H.R. McMaster said Sunday "all our options ar
 
 Full story on F3News: [US 'working with allies, China on options' for North Korea](http://www.f3nws.com/n/t42qnD)
 
-> Posted on: Sunday, April 16, 2017 11:14:55 PM
+> Posted on: Monday, April 17, 2017 1:13:50 AM
