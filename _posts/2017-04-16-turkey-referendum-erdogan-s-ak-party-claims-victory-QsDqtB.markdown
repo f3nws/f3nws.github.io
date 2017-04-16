@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey referendum: Erdogan's AK Party claims victory"
-date: 2017-04-16 18:59:50Z
+date: 2017-04-16 19:07:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Prime Minister Binali Yildirim has claimed victory for the 'Yes' vote in the ref
 
 Full story on F3News: [Turkey referendum: Erdogan's AK Party claims victory](http://www.f3nws.com/n/QsDqtB)
 
-> Posted on: Sunday, April 16, 2017 11:59:50 PM
+> Posted on: Monday, April 17, 2017 12:07:37 AM
