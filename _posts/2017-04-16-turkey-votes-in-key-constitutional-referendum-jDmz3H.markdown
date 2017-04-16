@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey votes in key constitutional referendum"
-date: 2017-04-16 08:47:28Z
+date: 2017-04-16 09:21:05Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The proposed changes seek to transform Turkey's governance from a parliamentary 
 
 Full story on F3News: [Turkey votes in key constitutional referendum](http://www.f3nws.com/n/jDmz3H)
 
-> Posted on: Sunday, April 16, 2017 1:47:28 PM
+> Posted on: Sunday, April 16, 2017 2:21:05 PM
