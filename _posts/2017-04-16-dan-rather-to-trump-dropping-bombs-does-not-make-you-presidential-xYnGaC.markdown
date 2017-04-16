@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dan Rather to Trump: Dropping bombs does not make you presidential"
-date: 2017-04-16 17:17:17Z
+date: 2017-04-16 18:07:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Instead, Rather said Trump should be judged on his ability to "keep the peace." 
 
 Full story on F3News: [Dan Rather to Trump: Dropping bombs does not make you presidential](http://www.f3nws.com/n/xYnGaC)
 
-> Posted on: Sunday, April 16, 2017 10:17:17 PM
+> Posted on: Sunday, April 16, 2017 11:07:37 PM

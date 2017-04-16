@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Watters' Words: Fake News Is Getting Trumped"
-date: 2017-04-16 17:30:10Z
+date: 2017-04-16 18:36:51Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Watters' Words: Fake News Is Getting Trumped](http://www.f3nws.com/n/McDXhF)
 
-> Posted on: Sunday, April 16, 2017 10:30:10 PM
+> Posted on: Sunday, April 16, 2017 11:36:51 PM

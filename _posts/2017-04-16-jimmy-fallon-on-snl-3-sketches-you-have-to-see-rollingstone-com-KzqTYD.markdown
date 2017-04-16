@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jimmy Fallon on 'SNL': 3 Sketches You Have to See - RollingStone.com](http://img.wennermedia.com/social/jf-41e76ad0-4f51-4d02-a09f-9b7a2998f9e1.jpg)
 
-RollingStone.com Jimmy Fallon on 'SNL': 3 Sketches You Have to See RollingStone.com Check out the three must-see sketches from Jimmy Fallon's return to 'SNL,' the first ever live coast-to-coast episode. By Ryan McGee. 4 hours ago. More News. Watch 'SNL' Spoof Kendall Jenner's 'Tone-Deaf' Pepsi Ad Louis C.K. on 'SNL': 3 Sketches You ... Saturday Night Live Recap: Jimmy Fallon Does Two Travoltas, Sean Spicer Apologizes Vulture Saturday Night Live recap: Jimmy Fallon EW.com (blog) 'Saturday Night Live' Review: Live In Every Time Zone, It's Jimmy Fallon IndieWire Hollywood Reporter - MTV.com - Vanity Fair - PEOPLE.com all 225 news articles »
+RollingStone.com Jimmy Fallon on 'SNL': 3 Sketches You Have to See RollingStone.com Check out the three must-see sketches from Jimmy Fallon's return to 'SNL,' the first ever live coast-to-coast episode. By Ryan McGee. 4 hours ago. More News. Watch 'SNL' Spoof Kendall Jenner's 'Tone-Deaf' Pepsi Ad Louis C.K. on 'SNL': 3 Sketches You ... Saturday Night Live recap: Jimmy Fallon EW.com (blog) Saturday Night Live Recap: Jimmy Fallon Does Two Travoltas, Sean Spicer Apologizes Vulture 'Saturday Night Live' Review: Live In Every Time Zone, It's Jimmy Fallon IndieWire MTV.com - Hollywood Reporter - PEOPLE.com - Vanity Fair all 224 news articles »
 
 
 Full story on F3News: [Jimmy Fallon on 'SNL': 3 Sketches You Have to See - RollingStone.com](http://www.f3nws.com/n/KzqTYD)
