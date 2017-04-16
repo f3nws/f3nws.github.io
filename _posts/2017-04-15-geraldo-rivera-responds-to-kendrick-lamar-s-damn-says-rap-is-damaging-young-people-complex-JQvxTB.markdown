@@ -5,7 +5,7 @@ date: 2017-04-15 19:59:31Z
 categories: google-news-entertaintment
 ---
 
-Complex Geraldo Rivera Responds to Kendrick Lamar's 'Damn,' Says Rap Is Damaging Young People Complex One of the most-talked about moments from Kendrick Lamar's new album Damn was when he called out Fox News and Geraldo Rivera on “Yah”: “Fox News wanna use my name for percentage […] Somebody tell Geraldo this nigga got ambition.” The lyrics ... Meet Kendrick Lamar's 'DAMN.' Secret Weapon: Zacari Billboard Fox News' Geraldo Rivera Responds to Kendrick Lamar, Says Hip-Hop is the 'Worst Role Model' BET On 'DAMN.,' Kendrick Lamar wonders if he's worthy. Yes, he is. The Boston Globe New York Daily News all 47 news articles »
+Complex Geraldo Rivera Responds to Kendrick Lamar's 'Damn,' Says Rap Is Damaging Young People Complex One of the most-talked about moments from Kendrick Lamar's new album Damn was when he called out Fox News and Geraldo Rivera on “Yah”: “Fox News wanna use my name for percentage […] Somebody tell Geraldo this nigga got ambition.” The lyrics ... The Songwriters, Collaborators & Producers Behind Kendrick Lamar's 'DAMN.' Billboard all 47 news articles »
 
 
 Full story on F3News: [Geraldo Rivera Responds to Kendrick Lamar's 'Damn,' Says Rap Is Damaging Young People - Complex](http://www.f3nws.com/n/JQvxTB)
