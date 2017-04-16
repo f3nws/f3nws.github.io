@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![North Korea missile launch attempt fails](http://www.abc.net.au/news/image/8446476-1x1-700x700.jpg)
 
-North Korea attempts to launch a missile near Sinpo, on its east coast, but fails, according to South Korea's military and the US Pacific Command.
+An unidentified missile fired by North Korea after days of sabre rattling "blew up almost immediately", the US military says.
 
 
 Full story on F3News: [North Korea missile launch attempt fails](http://www.f3nws.com/n/ZvDKFE)

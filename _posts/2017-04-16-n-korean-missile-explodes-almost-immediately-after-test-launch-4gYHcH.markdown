@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korean missile explodes almost immediately after test launch"
-date: 2017-04-16 08:54:13Z
+date: 2017-04-16 09:42:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ An attempted projectile launch by North Korea on Sunday failed, a South Korean d
 
 Full story on F3News: [N. Korean missile explodes almost immediately after test launch](http://www.f3nws.com/n/4gYHcH)
 
-> Posted on: Sunday, April 16, 2017 1:54:13 PM
+> Posted on: Sunday, April 16, 2017 2:42:38 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turks vote on new powers for Erdogan"
-date: 2017-04-16 08:58:21Z
+date: 2017-04-16 09:24:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Millions of Turks will vote Sunday on a controversial new draft constitution tha
 
 Full story on F3News: [Turks vote on new powers for Erdogan](http://www.f3nws.com/n/APDFuD)
 
-> Posted on: Sunday, April 16, 2017 1:58:21 PM
+> Posted on: Sunday, April 16, 2017 2:24:31 PM
