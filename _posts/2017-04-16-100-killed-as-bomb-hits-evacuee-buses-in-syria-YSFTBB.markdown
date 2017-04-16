@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "100 killed as bomb hits evacuee buses in Syria"
-date: 2017-04-16 00:17:22Z
+date: 2017-04-16 10:53:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ About 100 people were killed Saturday in a car bomb explosion targeting pro-regi
 
 Full story on F3News: [100 killed as bomb hits evacuee buses in Syria](http://www.f3nws.com/n/YSFTBB)
 
-> Posted on: Sunday, April 16, 2017 5:17:22 AM
+> Posted on: Sunday, April 16, 2017 3:53:02 PM
