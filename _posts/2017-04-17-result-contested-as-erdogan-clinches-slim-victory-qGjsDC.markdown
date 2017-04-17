@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Result contested as Erdogan clinches slim victory"
-date: 2017-04-17 09:59:10Z
+date: 2017-04-17 11:44:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Opponents of Turkey's controversial referendum to expand the powers of the presi
 
 Full story on F3News: [Result contested as Erdogan clinches slim victory](http://www.f3nws.com/n/qGjsDC)
 
-> Posted on: Monday, April 17, 2017 2:59:10 PM
+> Posted on: Monday, April 17, 2017 4:44:28 PM
