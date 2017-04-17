@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S Korea ousted leader Park charged in corruption probe"
-date: 2017-04-17 08:10:32Z
+date: 2017-04-17 10:51:45Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Former President Park Geun-hye charged with bribery, among others, over corrupti
 
 Full story on F3News: [S Korea ousted leader Park charged in corruption probe](http://www.f3nws.com/n/EpqHFB)
 
-> Posted on: Monday, April 17, 2017 1:10:32 PM
+> Posted on: Monday, April 17, 2017 3:51:45 PM
