@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Palestinian prisoners launch mass hunger strike](http://www.aljazeera.com/mritems/Images/2017/4/17/edfd67b25b05428e9cdc3e08852e118f_18.jpg)
 
-Hundreds of Palestinian prisoners launch hunger strike to demand basic rights in Israeli jails.
+Hundreds of Palestinian prisoners start hunger strike to demand basic rights as Israeli jails' conditions hit 'new low'.
 
 
 Full story on F3News: [Palestinian prisoners launch mass hunger strike](http://www.f3nws.com/n/aN2zkC)
