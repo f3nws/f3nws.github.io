@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hopes for survivors fade after rubbish dump collapse"
-date: 2017-04-17 12:09:39Z
+date: 2017-04-17 18:40:24Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Deadly 'man-made disaster' could have been avoided, residents say, as grim searc
 
 Full story on F3News: [Hopes for survivors fade after rubbish dump collapse](http://www.f3nws.com/n/FJZRk)
 
-> Posted on: Monday, April 17, 2017 5:09:39 PM
+> Posted on: Monday, April 17, 2017 11:40:24 PM

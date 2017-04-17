@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence: No more 'failed policy' on North Korea"
-date: 2017-04-17 12:09:02Z
+date: 2017-04-17 18:44:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ With North Korean soldiers standing less than 100 feet behind him at the Korean 
 
 Full story on F3News: [Pence: No more 'failed policy' on North Korea](http://www.f3nws.com/n/zCmDaE)
 
-> Posted on: Monday, April 17, 2017 5:09:02 PM
+> Posted on: Monday, April 17, 2017 11:44:42 PM
