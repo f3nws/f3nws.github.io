@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This Phishing Attack is Almost Impossible to Detect On Chrome, Firefox and Opera"
-date: 2017-04-17 16:02:09Z
+date: 2017-04-17 16:32:52Z
 categories: the-hacker-news
 ---
 
@@ -10,4 +10,4 @@ A Chinese infosec researcher has discovered a new "almost impossible to detect" 
 
 Full story on F3News: [This Phishing Attack is Almost Impossible to Detect On Chrome, Firefox and Opera](http://www.f3nws.com/n/SBRDbE)
 
-> Posted on: Monday, April 17, 2017 9:02:09 PM
+> Posted on: Monday, April 17, 2017 9:32:52 PM
