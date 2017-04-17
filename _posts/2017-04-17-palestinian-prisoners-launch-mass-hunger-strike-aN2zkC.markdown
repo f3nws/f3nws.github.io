@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinian prisoners launch mass hunger strike"
-date: 2017-04-17 06:48:47Z
+date: 2017-04-17 08:59:09Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Hundreds of Palestinian prisoners start hunger strike to demand basic rights as 
 
 Full story on F3News: [Palestinian prisoners launch mass hunger strike](http://www.f3nws.com/n/aN2zkC)
 
-> Posted on: Monday, April 17, 2017 11:48:47 AM
+> Posted on: Monday, April 17, 2017 1:59:09 PM
