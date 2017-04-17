@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "That song doesn't mean what you think"
-date: 2017-04-17 14:22:27Z
+date: 2017-04-17 15:28:05Z
 categories: cnn-com-entertainment
 ---
 
@@ -10,4 +10,4 @@ At this very moment, there's a couple out there realizing that "their" song, the
 
 Full story on F3News: [That song doesn't mean what you think](http://www.f3nws.com/n/hZFJnE)
 
-> Posted on: Monday, April 17, 2017 7:22:27 PM
+> Posted on: Monday, April 17, 2017 8:28:05 PM
