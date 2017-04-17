@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gardiner already backed up on first day of downtown ramp closure"
-date: 2017-04-17 11:15:55Z
+date: 2017-04-17 11:15:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ The eastbound off-ramp to Yonge, Bay and York Sts. was closed early Monday morni
 
 Full story on F3News: [Gardiner already backed up on first day of downtown ramp closure](http://www.f3nws.com/n/beCHPH)
 
-> Posted on: Monday, April 17, 2017 4:15:55 PM
+> Posted on: Monday, April 17, 2017 4:15:00 PM

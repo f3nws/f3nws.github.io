@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McMaster: North Korea 'coming to a head'"
-date: 2017-04-17 08:32:53Z
+date: 2017-04-17 13:33:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Saying "this problem is coming to a head," national security adviser Lt. Gen. H.
 
 Full story on F3News: [McMaster: North Korea 'coming to a head'](http://www.f3nws.com/n/t42qnD)
 
-> Posted on: Monday, April 17, 2017 1:32:53 PM
+> Posted on: Monday, April 17, 2017 6:33:51 PM

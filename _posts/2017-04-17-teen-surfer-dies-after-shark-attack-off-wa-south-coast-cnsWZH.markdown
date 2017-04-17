@@ -5,7 +5,7 @@ date: 2017-04-17 09:39:53Z
 categories: abc-top-stories
 ---
 
-![Teen surfer dies after shark attack off WA south coast](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
+![Teen surfer dies after shark attack off WA south coast](http://www.abc.net.au/news/image/8448410-1x1-700x700.jpg)
 
 A 17-year-old girl who was surfing with her father dies after being attacked by a shark near Esperance.
 
