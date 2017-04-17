@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Vice President Pence warns N. Korea: Don't test US resolve"
-date: 2017-04-17 12:05:07Z
+date: 2017-04-17 12:37:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US Vice President Mike Pence on Monday warned North Korea not to test the resolv
 
 Full story on F3News: [US Vice President Pence warns N. Korea: Don't test US resolve](http://www.f3nws.com/n/TxAcvB)
 
-> Posted on: Monday, April 17, 2017 5:05:07 PM
+> Posted on: Monday, April 17, 2017 5:37:07 PM
