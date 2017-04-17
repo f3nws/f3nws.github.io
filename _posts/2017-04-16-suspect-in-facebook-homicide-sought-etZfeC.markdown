@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect in Facebook homicide sought"
-date: 2017-04-16 22:31:43Z
+date: 2017-04-16 23:22:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Cleveland Police are seeking a suspect who posted video of an apparent homicide 
 
 Full story on F3News: [Suspect in Facebook homicide sought](http://www.f3nws.com/n/etZfeC)
 
-> Posted on: Monday, April 17, 2017 3:31:43 AM
+> Posted on: Monday, April 17, 2017 4:22:32 AM

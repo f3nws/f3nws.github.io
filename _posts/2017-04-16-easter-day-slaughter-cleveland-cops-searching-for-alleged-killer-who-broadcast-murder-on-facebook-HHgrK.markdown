@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Easter day slaughter': Cleveland cops searching for alleged killer who broadcast murder on Facebook"
-date: 2017-04-16 22:30:00Z
+date: 2017-04-16 23:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Cleveland cops on Sunday were hunting a man who they believe shot and killed ano
 
 Full story on F3News: ['Easter day slaughter': Cleveland cops searching for alleged killer who broadcast murder on Facebook](http://www.f3nws.com/n/HHgrK)
 
-> Posted on: Monday, April 17, 2017 3:30:00 AM
+> Posted on: Monday, April 17, 2017 4:15:00 AM
