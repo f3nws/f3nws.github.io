@@ -5,7 +5,7 @@ date: 2017-04-17 14:36:19Z
 categories: al-jazeera-english
 ---
 
-![North Korea on 'maximum alert' after US threats](http://www.aljazeera.com/mritems/Images/2017/4/17/35d8e91989f54cdd8734f6c8f724a096_18.jpg)
+![North Korea on 'maximum alert' after US threats](http://www.aljazeera.com/mritems/Images/2017/4/17/6980537ab00c4f0d820a3c8b7ea50750_18.jpg)
 
 Pyongyang tells Washington its nuclear weapons are 'not an illusion' following US threats.
 
