@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manhunt for Facebook homicide suspect"
-date: 2017-04-17 20:57:40Z
+date: 2017-04-17 22:12:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ A man who allegedly killed an elderly father after he had enjoyed an Easter meal
 
 Full story on F3News: [Manhunt for Facebook homicide suspect](http://www.f3nws.com/n/xqJGNB)
 
-> Posted on: Tuesday, April 18, 2017 1:57:40 AM
+> Posted on: Tuesday, April 18, 2017 3:12:10 AM
