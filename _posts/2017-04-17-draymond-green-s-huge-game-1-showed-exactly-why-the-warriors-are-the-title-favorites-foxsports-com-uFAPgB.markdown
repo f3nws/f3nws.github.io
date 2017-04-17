@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Draymond Green's huge Game 1 showed exactly why the Warriors are the title favorites - FOXSports.com"
+date: 2017-04-17 00:36:08Z
+categories: google-news-top-stories
+---
+
+![Draymond Green's huge Game 1 showed exactly why the Warriors are the title favorites - FOXSports.com](http://b.fssta.com/uploads/2017/04/usatsi_10016441.vresize.1200.630.high.0.jpg)
+
+FOXSports.com Draymond Green's huge Game 1 showed exactly why the Warriors are the title favorites FOXSports.com No player in the last 33 years has posted an ultra-rare 5x5 game (at least five points, assists, rebounds, steals, blocks) and a triple-double in any game in either the regular or postseason. The man who has come closest is Draymond Green — he was one ... Forgot about Dray? Green does it all in Warriors' Game 1 triumph ESPN (blog) Warriors Outlast Damian Lillard, CJ McCollum in 121-109 Game 1 Win vs. Blazers Bleacher Report Warriors flex defensive strength as Draymond Green stuffs Blazers' hopes USA TODAY CBSSports.com - The Mercury News - Yahoo Sports - Blazer's Edge all 528 news articles »
+
+
+Full story on F3News: [Draymond Green's huge Game 1 showed exactly why the Warriors are the title favorites - FOXSports.com](http://www.f3nws.com/n/uFAPgB)
+
+> Posted on: Monday, April 17, 2017 5:36:08 AM
