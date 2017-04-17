@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opponents of referendum result expected to protest across country"
-date: 2017-04-17 06:55:42Z
+date: 2017-04-17 09:24:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Opponents of Turkey's controversial referendum to expand the powers of the presi
 
 Full story on F3News: [Opponents of referendum result expected to protest across country](http://www.f3nws.com/n/qGjsDC)
 
-> Posted on: Monday, April 17, 2017 11:55:42 AM
+> Posted on: Monday, April 17, 2017 2:24:59 PM

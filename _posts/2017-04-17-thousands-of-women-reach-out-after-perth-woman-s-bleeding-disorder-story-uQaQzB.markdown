@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Thousands of women reach out after Perth woman's bleeding disorder story](http://www.abc.net.au/news/image/8448054-1x1-700x700.jpg)
 
-A woman's decision to speak about how she had bled for five years straight touches the lives of tens of thousands of girls and women across the world with similar problems.
+A woman's decision to speak about how she bled for five years straight after her first period touches the lives of tens of thousands of girls and women across the world with similar problems.
 
 
 Full story on F3News: [Thousands of women reach out after Perth woman's bleeding disorder story](http://www.f3nws.com/n/uQaQzB)
