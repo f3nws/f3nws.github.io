@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence brings 'message of resolve' amid N. Korea tensions"
-date: 2017-04-17 04:41:42Z
+date: 2017-04-17 05:14:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US Vice President Mike Pence will visit the Korean Demilitarized Zone Monday, a 
 
 Full story on F3News: [Pence brings 'message of resolve' amid N. Korea tensions](http://www.f3nws.com/n/TxAcvB)
 
-> Posted on: Monday, April 17, 2017 9:41:42 AM
+> Posted on: Monday, April 17, 2017 10:14:22 AM
