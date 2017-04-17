@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Couple's dangerous plan to hire hit man to kill sex abuse victim and witness - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/v/k/k/8/4/image.related.articleLeadwide.620x349.gvkgiw.png/1492371927404.jpg)
 
-The Sydney Morning Herald Couple's dangerous plan to hire hit man to kill sex abuse victim and witness The Sydney Morning Herald Having withstood 14 years of violence, including broken bones, shattered teeth and death threats, Mary Fatima Katic finally left her abusive husband. But a year later, in 2015, she found out the drug-addicted man she once lived with was locked up in ... Sydney woman paid man to kill husband's sex assault victim Daily Mail all 2 news articles »
+The Sydney Morning Herald Couple's dangerous plan to hire hit man to kill sex abuse victim and witness The Sydney Morning Herald Having withstood 14 years of violence, including broken bones, shattered teeth and death threats, Mary Fatima Katic finally left her abusive husband. But a year later, in 2015, she found out the drug-addicted man she once lived with was locked up in ... and more »
 
 
 Full story on F3News: [Couple's dangerous plan to hire hit man to kill sex abuse victim and witness - The Sydney Morning Herald](http://www.f3nws.com/n/nThfZC)
