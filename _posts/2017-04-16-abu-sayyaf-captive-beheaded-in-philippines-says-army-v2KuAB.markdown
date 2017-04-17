@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Abu Sayyaf captive beheaded in Philippines, says army](http://www.aljazeera.com/mritems/Images/2017/4/16/3f314af9869b41be9c980b04ec72023f_18.jpg)
 
-ISIL-linked group executes Filipino fishermen abducted last year as army pursues all-out-war in country's southwest.
+ISIL-linked group executes Filipino fisherman abducted last year as army pursues all-out-war in country's southwest.
 
 
 Full story on F3News: [Abu Sayyaf captive beheaded in Philippines, says army](http://www.f3nws.com/n/v2KuAB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eating avocados every day can help you lose weight in this problem area"
-date: 2017-04-17 02:09:28Z
+date: 2017-04-17 05:00:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Your weight loss goals just got a lot easier to achieve.
 
 Full story on F3News: [Eating avocados every day can help you lose weight in this problem area](http://www.f3nws.com/n/uWeVSE)
 
-> Posted on: Monday, April 17, 2017 7:09:28 AM
+> Posted on: Monday, April 17, 2017 10:00:08 AM
