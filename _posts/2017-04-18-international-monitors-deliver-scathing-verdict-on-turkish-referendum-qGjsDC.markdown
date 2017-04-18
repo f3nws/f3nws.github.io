@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "International monitors deliver scathing verdict on Turkish referendum"
-date: 2017-04-18 01:26:03Z
+date: 2017-04-18 09:43:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ International election monitors have delivered a scathing verdict on the conduct
 
 Full story on F3News: [International monitors deliver scathing verdict on Turkish referendum](http://www.f3nws.com/n/qGjsDC)
 
-> Posted on: Tuesday, April 18, 2017 6:26:03 AM
+> Posted on: Tuesday, April 18, 2017 2:43:12 PM
