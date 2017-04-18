@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: 'Buy American, Hire American'"
-date: 2017-04-18 20:15:07Z
+date: 2017-04-18 22:41:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump signed an executive order Tuesday directing federal agenc
 
 Full story on F3News: [Trump: 'Buy American, Hire American'](http://www.f3nws.com/n/4qhDgF)
 
-> Posted on: Wednesday, April 19, 2017 1:15:07 AM
+> Posted on: Wednesday, April 19, 2017 3:41:35 AM
