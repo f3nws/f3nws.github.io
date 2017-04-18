@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Government abolishing 457 visas, Malcolm Turnbull says - ABC Online](http://www.abc.net.au/news/image/8450862-1x1-700x700.jpg)
 
-ABC Online Government abolishing 457 visas, Malcolm Turnbull says ABC Online The Federal Government will abolish the 457 visa and replace it with two new visas, Prime Minister Malcolm Turnbull says. Key points: The move is about "jobs for Australians," the PM says; Number of occupations eligible for two-year visa will be ... The figure the PM didn't mention NEWS.com.au What new foreign worker visa rules mean The Australian Business reaction to 457 axe mixed dailytelegraph.com.au The Sydney Morning Herald - Business Insider Australia - Yahoo7 News - Courier Mail all 92 news articles »
+ABC Online Government abolishing 457 visas, Malcolm Turnbull says ABC Online The Federal Government will abolish the 457 visa and replace it with two new visas, Prime Minister Malcolm Turnbull says. Key points: The move is about "jobs for Australians," the PM says; Number of occupations eligible for two-year visa will be ... Australia risks economic downturn in face of North Korea hostilies SBS Malcolm Turnbull's 457 visa crackdown shifts politics and moves the economy The Australian Financial Review China should play larger role on N Korea The Australian dailytelegraph.com.au - The Conversation AU - NEWS.com.au - The Sydney Morning Herald all 129 news articles »
 
 
 Full story on F3News: [Government abolishing 457 visas, Malcolm Turnbull says - ABC Online](http://www.f3nws.com/n/KscctB)

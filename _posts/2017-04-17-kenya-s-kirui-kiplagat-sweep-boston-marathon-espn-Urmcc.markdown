@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kenya's Kirui, Kiplagat sweep Boston Marathon - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0417%2Fr200578_1296x729_16%2D9.jpg)
 
-ESPN Kenya's Kirui, Kiplagat sweep Boston Marathon ESPN BOSTON -- The Kenyans are back in Boston after a relative lull that saw them shut out in the world's most prestigious marathon twice in the past three years. More surprisingly, so are the Americans. Geoffrey Kirui won the 121st Boston Marathon on ... and more »
+ESPN Kenya's Kirui, Kiplagat sweep Boston Marathon ESPN BOSTON -- The Kenyans are back in Boston after a relative lull that saw them shut out in the world's most prestigious marathon twice in the past three years. More surprisingly, so are the Americans. Geoffrey Kirui won the 121st Boston Marathon on ... First Woman to Enter Boston Marathon Runs It Again, 50 Years Later New York Times all 1,110 news articles »
 
 
 Full story on F3News: [Kenya's Kirui, Kiplagat sweep Boston Marathon - ESPN](http://www.f3nws.com/n/Urmcc)

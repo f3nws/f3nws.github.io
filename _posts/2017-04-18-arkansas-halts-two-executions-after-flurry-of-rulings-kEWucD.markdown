@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas halts two executions after flurry of rulings"
-date: 2017-04-18 06:00:55Z
+date: 2017-04-18 08:21:00Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Legal wrangling continues over US state's rush to execute six men before end of 
 
 Full story on F3News: [Arkansas halts two executions after flurry of rulings](http://www.f3nws.com/n/kEWucD)
 
-> Posted on: Tuesday, April 18, 2017 11:00:55 AM
+> Posted on: Tuesday, April 18, 2017 1:21:00 PM
