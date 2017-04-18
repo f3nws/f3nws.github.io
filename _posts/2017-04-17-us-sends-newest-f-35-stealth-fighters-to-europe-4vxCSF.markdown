@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US sends newest F-35 stealth fighters to Europe"
-date: 2017-04-17 22:04:20Z
+date: 2017-04-17 23:40:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The US Air Force's newest stealth fighters arrived in the UK over the weekend as
 
 Full story on F3News: [US sends newest F-35 stealth fighters to Europe](http://www.f3nws.com/n/4vxCSF)
 
-> Posted on: Tuesday, April 18, 2017 3:04:20 AM
+> Posted on: Tuesday, April 18, 2017 4:40:29 AM
