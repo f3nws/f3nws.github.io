@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US to test ability to shoot down North Korean missiles"
-date: 2017-04-18 20:00:52Z
+date: 2017-04-18 20:55:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ The Pentagon will conduct two major high-stakes tests in May of its ability to s
 
 Full story on F3News: [US to test ability to shoot down North Korean missiles](http://www.f3nws.com/n/njHEeB)
 
-> Posted on: Wednesday, April 19, 2017 1:00:52 AM
+> Posted on: Wednesday, April 19, 2017 1:55:51 AM
