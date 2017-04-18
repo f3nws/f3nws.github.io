@@ -5,9 +5,9 @@ date: 2017-04-18 03:56:03Z
 categories: abc-top-stories
 ---
 
-![Government abolishing 457 visas for foreign workers, PM says](http://www.abc.net.au/news/image/8389770-1x1-700x700.jpg)
+![Government abolishing 457 visas for foreign workers, PM says](http://www.abc.net.au/news/image/8450862-1x1-700x700.jpg)
 
-The Government is replacing the visas with a new temporary visa with requirements around work history and English skills, Prime Minister Malcolm Turnbull says.
+The Federal Government will replace the visa type with two new temporary skills visas — a two-year visa and a more specialised one for four years "targeted at higher skills".
 
 
 Full story on F3News: [Government abolishing 457 visas for foreign workers, PM says](http://www.f3nws.com/n/KscctB)
