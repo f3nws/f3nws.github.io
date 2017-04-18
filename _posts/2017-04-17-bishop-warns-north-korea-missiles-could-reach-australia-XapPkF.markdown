@@ -5,7 +5,7 @@ date: 2017-04-17 23:16:56Z
 categories: abc-top-stories
 ---
 
-![Bishop warns North Korea missiles could reach Australia](http://www.abc.net.au/news/image/8446070-1x1-700x700.jpg)
+![Bishop warns North Korea missiles could reach Australia](http://www.abc.net.au/news/image/8450096-1x1-700x700.jpg)
 
 Foreign Minister Julie Bishop warns North Korea's nuclear weapons program poses a "serious threat" to Australia unless it is stopped by the international community.
 
