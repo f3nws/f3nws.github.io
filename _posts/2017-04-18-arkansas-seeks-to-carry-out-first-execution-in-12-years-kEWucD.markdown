@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas seeks to carry out first execution in 12 years"
-date: 2017-04-18 03:23:04Z
+date: 2017-04-18 03:47:41Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Inmate served his 'last meal' as legal wrangling continues over US state's bid t
 
 Full story on F3News: [Arkansas seeks to carry out first execution in 12 years](http://www.f3nws.com/n/kEWucD)
 
-> Posted on: Tuesday, April 18, 2017 8:23:04 AM
+> Posted on: Tuesday, April 18, 2017 8:47:41 AM
