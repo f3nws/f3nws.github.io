@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Murder Posted on Facebook Prompts Outrage and Questions Over Responsibility - New York Times](https://static01.nyt.com/images/2017/04/18/us/18fbshootings-still/18fbshootings-still-facebookJumbo.jpg)
 
-New York Times A Murder Posted on Facebook Prompts Outrage and Questions Over Responsibility New York Times The social network is facing criticism for a posting of a killing, but it is not the first struggle the company has had over content. By NEETI UPADHYE on Publish Date April 17, 2017. . Watch in Times Video ». embed. SAN FRANCISCO — On Easter, Steve ... National manhunt underway for suspect in Facebook homicide video Washington Post Steve Stephens manhunt: "National search" for suspect in Facebook killing CBS News Multi-state search widens for Cleveland Facebook murder suspect Chicago Tribune BBC News - KTRK-TV - New York Daily News - Business Insider all 1,274 news articles »
+New York Times A Murder Posted on Facebook Prompts Outrage and Questions Over Responsibility New York Times The social network is facing criticism for a posting of a killing, but it is not the first struggle the company has had over content. By NEETI UPADHYE on Publish Date April 17, 2017. . Watch in Times Video ». embed. SAN FRANCISCO — On Easter, Steve ... Family of Facebook homicide victim: We forgive accused shooter CNN National manhunt underway for suspect in Facebook homicide video Washington Post Videos Show the Desperation of the Facebook Live Killing Suspect Steve Stephens TIME Chicago Tribune - CBS News - KTRK-TV - Business Insider all 1,298 news articles »
 
 
 Full story on F3News: [A Murder Posted on Facebook Prompts Outrage and Questions Over Responsibility - New York Times](http://www.f3nws.com/n/eXxDzD)
