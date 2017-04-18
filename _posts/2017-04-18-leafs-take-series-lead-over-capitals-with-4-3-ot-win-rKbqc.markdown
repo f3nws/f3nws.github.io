@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Leafs take series lead over Capitals with 4-3 OT win](https://www.thestar.com/content/dam/thestar/sports/leafs/2017/04/17/leafs-youngsters-ellers-costly-penalty-story-of-game-3/bozakhug.jpg)
 
-The younger Leafs blocked out the playoff hoopla, while the Capitals sealed their fate with a penalty in the final minute of the third period.
+The young Leafs fed off the carnival atmosphere around the ACC and also shut down the Capitals’ power play.
 
 
 Full story on F3News: [Leafs take series lead over Capitals with 4-3 OT win](http://www.f3nws.com/n/rKbqc)
