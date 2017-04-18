@@ -5,7 +5,7 @@ date: 2017-04-18 10:00:00Z
 categories: toronto-star
 ---
 
-![Ontario embraces no-strings-attached basic income experiment](https://www.thestar.com/content/dam/thestar/news/gta/2017/04/18/ontario-embraces-no-strings-attached-basic-income-experiment/betty-wallace.jpg)
+![Ontario embraces no-strings-attached basic income experiment](https://www.thestar.com/content/dam/thestar/news/gta/2017/04/18/ontario-embraces-no-strings-attached-basic-income-experiment/new-betty-wallace.jpg)
 
 Province to follow trail blazed by Manitoba in the mid-1970s with plan to lift people out of poverty with unconditional monthly payments.
 

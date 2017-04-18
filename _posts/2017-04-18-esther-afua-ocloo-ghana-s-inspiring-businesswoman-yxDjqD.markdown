@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Esther Afua Ocloo: Ghana's inspiring businesswoman"
-date: 2017-04-18 10:25:54Z
+date: 2017-04-18 14:51:56Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Founder of Nkulenu Industries, Ocloo started her business with less than a dolla
 
 Full story on F3News: [Esther Afua Ocloo: Ghana's inspiring businesswoman](http://www.f3nws.com/n/yxDjqD)
 
-> Posted on: Tuesday, April 18, 2017 3:25:54 PM
+> Posted on: Tuesday, April 18, 2017 7:51:56 PM

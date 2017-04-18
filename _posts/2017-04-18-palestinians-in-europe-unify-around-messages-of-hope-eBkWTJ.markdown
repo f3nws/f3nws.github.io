@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinians in Europe unify around messages of hope"
-date: 2017-04-18 06:45:36Z
+date: 2017-04-18 13:22:13Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Thousands convene in Netherlands for annual Palestinians in Europe conference, u
 
 Full story on F3News: [Palestinians in Europe unify around messages of hope](http://www.f3nws.com/n/eBkWTJ)
 
-> Posted on: Tuesday, April 18, 2017 11:45:36 AM
+> Posted on: Tuesday, April 18, 2017 6:22:13 PM
