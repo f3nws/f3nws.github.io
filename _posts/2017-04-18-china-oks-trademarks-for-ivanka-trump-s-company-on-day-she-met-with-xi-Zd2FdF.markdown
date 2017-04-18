@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China OKs trademarks for Ivanka Trump's company on day she met with Xi"
-date: 2017-04-18 18:30:30Z
+date: 2017-04-18 22:21:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [China OKs trademarks for Ivanka Trump's company on day she met with Xi](http://www.f3nws.com/n/Zd2FdF)
 
-> Posted on: Tuesday, April 18, 2017 11:30:30 PM
+> Posted on: Wednesday, April 19, 2017 3:21:00 AM
