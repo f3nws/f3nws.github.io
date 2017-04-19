@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook murder suspect dead"
-date: 2017-04-18 22:58:27Z
+date: 2017-04-18 23:00:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Steve Stephens, the Cleveland murder suspect accused of posting video of the kil
 
 Full story on F3News: [Facebook murder suspect dead](http://www.f3nws.com/n/AUhJgG)
 
-> Posted on: Wednesday, April 19, 2017 3:58:27 AM
+> Posted on: Wednesday, April 19, 2017 4:00:47 AM
