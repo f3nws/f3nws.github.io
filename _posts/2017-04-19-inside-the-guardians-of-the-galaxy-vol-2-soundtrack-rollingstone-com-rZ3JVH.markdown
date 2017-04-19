@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack - RollingStone.com"
-date: 2017-04-19 13:21:57Z
+date: 2017-04-19 12:59:00Z
 categories: google-news-entertaintment
 ---
 
 ![Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack - RollingStone.com](http://img.wennermedia.com/social/gaurdians-of-the-galazy-mix-tape-017fc22d-0d8f-486e-b032-3cc03e8f8779.jpg)
 
-RollingStone.com Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack RollingStone.com From Fleetwood Mac to Jay and the Americans, here's an exclusive look at what's on "Awesome Mix Vol. 2," and why. Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack. By Brian Hiatt. 3 hours ago ... Where 'Guardians of the Galaxy' Could Go After 'Vol. 3' Hollywood Reporter Chris Pratt Teases What's Next For Star-Lord In Avengers: Infinity War And Beyond Comicbook.com Chris Pratt on the 'Even Bigger and Better' 'Guardians of the Galaxy Vol. 2' Variety EW.com (blog) - Consequence of Sound (blog) - /FILM - Forbes all 751 news articles »
+RollingStone.com Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack RollingStone.com From Fleetwood Mac to Jay and the Americans, here's an exclusive look at what's on "Awesome Mix Vol. 2," and why. Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack. By Brian Hiatt. 5 hours ago ... The New Avengers: Which Upcoming Marvel Movies Might Be Part Of The MCU Phase 4? moviepilot.com Guardians of the Galaxy Vol. 2 Soundtrack List is Here! ComingSoon.net James Gunn - Well, this week we start the U.S. press... | Facebook Facebook YouTube all 797 news articles »
 
 
 Full story on F3News: [Inside the 'Guardians of the Galaxy Vol. 2' Soundtrack - RollingStone.com](http://www.f3nws.com/n/rZ3JVH)
 
-> Posted on: Wednesday, April 19, 2017 6:21:57 PM
+> Posted on: Wednesday, April 19, 2017 5:59:00 PM
