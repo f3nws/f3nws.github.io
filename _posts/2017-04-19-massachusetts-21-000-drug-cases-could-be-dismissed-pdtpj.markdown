@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massachusetts: 21,000 drug cases could be dismissed"
-date: 2017-04-19 12:32:52Z
+date: 2017-04-19 12:45:55Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Former police chemist falsified tests, which could lead to biggest 'dismissal of
 
 Full story on F3News: [Massachusetts: 21,000 drug cases could be dismissed](http://www.f3nws.com/n/pdtpj)
 
-> Posted on: Wednesday, April 19, 2017 5:32:52 PM
+> Posted on: Wednesday, April 19, 2017 5:45:55 PM

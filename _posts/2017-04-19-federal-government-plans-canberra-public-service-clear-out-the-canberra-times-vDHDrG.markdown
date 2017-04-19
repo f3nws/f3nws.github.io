@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Federal government plans Canberra public service clear-out - The Canberra Times](http://www.canberratimes.com.au/content/dam/images/g/v/n/w/t/q/image.related.articleLeadwide.620x349.gvnq37.png/1492600909557.jpg)
 
-The Canberra Times Federal government plans Canberra public service clear-out The Canberra Times The Coalition government is trying to open the way for a mass clear-out of Commonwealth departments and the public servants who work there from the national capital. The government announced a policy on Wednesday that would force all federal ... Public service decentralisation push sparks fierce backlash from ACT representatives ABC Online Government departments have to make city case or move to regions The Australian Financial Review Govt pushes for rural move for agencies Sky News Australia all 10 news articles »
+The Canberra Times Federal government plans Canberra public service clear-out The Canberra Times The Coalition government is trying to open the way for a mass clear-out of Commonwealth departments and the public servants who work there from the national capital. The government announced a policy on Wednesday that would force all federal ... Public service decentralisation push sparks fierce backlash from ACT representatives ABC Online Govt pushes for rural move for agencies Sky News Australia Government departments have to make city case or move to regions The Australian Financial Review all 12 news articles »
 
 
 Full story on F3News: [Federal government plans Canberra public service clear-out - The Canberra Times](http://www.f3nws.com/n/vDHDrG)
