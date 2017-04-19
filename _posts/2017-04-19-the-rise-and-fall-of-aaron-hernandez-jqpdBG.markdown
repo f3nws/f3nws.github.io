@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The rise and fall of Aaron Hernandez"
-date: 2017-04-19 17:05:21Z
+date: 2017-04-19 19:29:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ A few short years ago, Aaron Hernandez was destined to be a football superstar a
 
 Full story on F3News: [The rise and fall of Aaron Hernandez](http://www.f3nws.com/n/jqpdBG)
 
-> Posted on: Wednesday, April 19, 2017 10:05:21 PM
+> Posted on: Thursday, April 20, 2017 12:29:32 AM
