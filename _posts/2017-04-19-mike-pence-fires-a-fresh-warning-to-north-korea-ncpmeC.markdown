@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mike Pence fires a fresh warning to North Korea"
-date: 2017-04-19 07:49:58Z
+date: 2017-04-19 10:04:07Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Visiting Japan as part of trip to reassure allies, US vice president promises 'o
 
 Full story on F3News: [Mike Pence fires a fresh warning to North Korea](http://www.f3nws.com/n/ncpmeC)
 
-> Posted on: Wednesday, April 19, 2017 12:49:58 PM
+> Posted on: Wednesday, April 19, 2017 3:04:07 PM

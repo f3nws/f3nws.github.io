@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence gives stern warning to North Korea"
-date: 2017-04-19 09:04:12Z
+date: 2017-04-19 09:46:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US Vice President Mike Pence doubled down on the US commitment to Asia Pacific w
 
 Full story on F3News: [Pence gives stern warning to North Korea](http://www.f3nws.com/n/kMGcWG)
 
-> Posted on: Wednesday, April 19, 2017 2:04:12 PM
+> Posted on: Wednesday, April 19, 2017 2:46:49 PM
