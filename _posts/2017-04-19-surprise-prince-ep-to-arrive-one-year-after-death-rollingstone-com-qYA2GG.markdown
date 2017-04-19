@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Surprise Prince EP to Arrive One Year After Death - RollingStone.com"
-date: 2017-04-19 01:46:46Z
+date: 2017-04-19 01:43:00Z
 categories: google-news-entertaintment
 ---
 
 ![Surprise Prince EP to Arrive One Year After Death - RollingStone.com](http://img.wennermedia.com/social/gettyimages-74290175-a8af9725-721d-45dd-a86b-34fde4680f33.jpg)
 
-RollingStone.com Surprise Prince EP to Arrive One Year After Death RollingStone.com Prince delivers a fiery vocal and guitar performance on "Deliverance," the title-track from his new posthumous EP. Credit: Michael Ochs Archives/Getty. By Jon Blistein. 42 minutes ago. More News. Search Warrants from Prince's Death Unsealed Prince ... Unreleased Prince Music Coming Friday on 'Deliverance' EP: Stream Title Track Now Billboard Prince EP With Unreleased Material to Drop on Anniversary of His Death Variety Hear Prince's unreleased song 'Deliverance,' from a new six-song EP USA TODAY TMZ.com - PR Newswire (press release) - Just Jared - The FADER all 12 news articles »
+RollingStone.com Surprise Prince EP to Arrive One Year After Death RollingStone.com Prince delivers a fiery vocal and guitar performance on "Deliverance," the title-track from his new posthumous EP. Credit: Michael Ochs Archives/Getty. By Jon Blistein. 5 hours ago. More News. Search Warrants from Prince's Death Unsealed Prince, David ... Unreleased Prince Music Coming Friday on 'Deliverance' EP: Stream Title Track Now Billboard LISTEN: Prince Releases First New Track off Posthumous Album PEOPLE.com Unreleased Prince EP to Drop on Friday — And It's Surprisingly Good (Listen) Variety E! Online - The Inquisitr all 36 news articles »
 
 
 Full story on F3News: [Surprise Prince EP to Arrive One Year After Death - RollingStone.com](http://www.f3nws.com/n/qYA2GG)
 
-> Posted on: Wednesday, April 19, 2017 6:46:46 AM
+> Posted on: Wednesday, April 19, 2017 6:43:00 AM
