@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill O'Reilly out at Fox News"
-date: 2017-04-19 21:41:22Z
+date: 2017-04-19 22:50:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Bill O'Reilly is done at Fox News, its parent company 21st Century Fox said Wedn
 
 Full story on F3News: [Bill O'Reilly out at Fox News](http://www.f3nws.com/n/pAbsUF)
 
-> Posted on: Thursday, April 20, 2017 2:41:22 AM
+> Posted on: Thursday, April 20, 2017 3:50:39 AM

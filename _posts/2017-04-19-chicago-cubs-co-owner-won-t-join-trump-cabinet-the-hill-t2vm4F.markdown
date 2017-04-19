@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chicago Cubs co-owner won't join Trump Cabinet - The Hill](http://thehill.com/sites/default/files/article_images/trumpricketts_112416getty.jpg)
 
-The Hill Chicago Cubs co-owner won't join Trump Cabinet The Hill Chicago Cubs co-owner and GOP mega-donor Todd Ricketts will withdraw his name from consideration as President Trump's deputy Commerce secretary, the White House said Wednesday. Ricketts will submit his formal withdrawal next week when ... and more »
+The Hill Chicago Cubs co-owner won't join Trump Cabinet The Hill Chicago Cubs co-owner and GOP mega-donor Todd Ricketts will withdraw his name from consideration as President Trump's deputy Commerce secretary, the White House said Wednesday. Ricketts will submit his formal withdrawal next week when ... Too early to panic, but not too early for GOP to be concerned Washington Times all 22 news articles »
 
 
 Full story on F3News: [Chicago Cubs co-owner won't join Trump Cabinet - The Hill](http://www.f3nws.com/n/t2vm4F)
