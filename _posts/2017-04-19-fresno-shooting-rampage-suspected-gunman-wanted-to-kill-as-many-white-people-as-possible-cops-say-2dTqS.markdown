@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fresno shooting rampage: Suspected gunman wanted to kill as many white people as possible, cops say"
-date: 2017-04-19 06:00:08Z
+date: 2017-04-19 07:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Police said the man who killed three people on a shooting spree in downtown Fres
 
 Full story on F3News: [Fresno shooting rampage: Suspected gunman wanted to kill as many white people as possible, cops say](http://www.f3nws.com/n/2dTqS)
 
-> Posted on: Wednesday, April 19, 2017 11:00:08 AM
+> Posted on: Wednesday, April 19, 2017 12:00:00 PM
