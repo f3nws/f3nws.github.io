@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria evacuations resume after deadly bomb attack"
-date: 2017-04-19 20:32:56Z
+date: 2017-04-19 20:43:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The reciprocal evacuations from two pro-government villages and two opposition-h
 
 Full story on F3News: [Syria evacuations resume after deadly bomb attack](http://www.f3nws.com/n/nJypW)
 
-> Posted on: Thursday, April 20, 2017 1:32:56 AM
+> Posted on: Thursday, April 20, 2017 1:43:28 AM
