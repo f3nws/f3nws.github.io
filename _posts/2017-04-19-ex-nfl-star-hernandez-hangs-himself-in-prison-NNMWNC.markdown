@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-NFL star Hernandez hangs himself in prison"
-date: 2017-04-19 14:38:40Z
+date: 2017-04-19 15:51:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Convicted murderer and former NFL star Aaron Hernandez was found hanged in his M
 
 Full story on F3News: [Ex-NFL star Hernandez hangs himself in prison](http://www.f3nws.com/n/NNMWNC)
 
-> Posted on: Wednesday, April 19, 2017 7:38:40 PM
+> Posted on: Wednesday, April 19, 2017 8:51:19 PM
