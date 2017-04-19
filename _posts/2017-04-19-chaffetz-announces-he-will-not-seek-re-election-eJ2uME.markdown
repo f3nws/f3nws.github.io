@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chaffetz announces he will not seek re-election"
-date: 2017-04-19 14:53:00Z
+date: 2017-04-19 20:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Rep. Jason Chaffetz, the outspoken Utah Republican and influential chairman of t
 
 Full story on F3News: [Chaffetz announces he will not seek re-election](http://www.f3nws.com/n/eJ2uME)
 
-> Posted on: Wednesday, April 19, 2017 7:53:00 PM
+> Posted on: Thursday, April 20, 2017 1:00:00 AM
