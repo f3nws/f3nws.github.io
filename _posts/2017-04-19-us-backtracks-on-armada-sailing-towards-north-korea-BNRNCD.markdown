@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US backtracks on 'armada' sailing towards North Korea"
-date: 2017-04-19 02:23:15Z
+date: 2017-04-19 02:56:34Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ By the time Pentagon said US was sending an aircraft carrier, vessels were tempo
 
 Full story on F3News: [US backtracks on 'armada' sailing towards North Korea](http://www.f3nws.com/n/BNRNCD)
 
-> Posted on: Wednesday, April 19, 2017 7:23:15 AM
+> Posted on: Wednesday, April 19, 2017 7:56:34 AM
