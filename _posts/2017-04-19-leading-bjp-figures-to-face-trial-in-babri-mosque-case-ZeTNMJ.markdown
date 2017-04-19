@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Leading BJP figures to face trial in Babri mosque case"
-date: 2017-04-19 09:52:09Z
+date: 2017-04-19 13:45:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Members of Modi's governing BJP face criminal conspiracy charges over the 1992 d
 
 Full story on F3News: [Leading BJP figures to face trial in Babri mosque case](http://www.f3nws.com/n/ZeTNMJ)
 
-> Posted on: Wednesday, April 19, 2017 2:52:09 PM
+> Posted on: Wednesday, April 19, 2017 6:45:37 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Part of Bill O'Reilly's problem at Fox: Few people there actually like him"
-date: 2017-04-19 13:03:05Z
+date: 2017-04-19 13:43:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Bill O'Reilly has for years been Fox's most valuable on-air talent. He may also 
 
 Full story on F3News: [Part of Bill O'Reilly's problem at Fox: Few people there actually like him](http://www.f3nws.com/n/2pZyUB)
 
-> Posted on: Wednesday, April 19, 2017 6:03:05 PM
+> Posted on: Wednesday, April 19, 2017 6:43:39 PM
