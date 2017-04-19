@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian bombers again fly near Alaska"
-date: 2017-04-19 18:04:00Z
+date: 2017-04-19 19:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ For the second consecutive night, Russia flew two long-range bombers off the coa
 
 Full story on F3News: [Russian bombers again fly near Alaska](http://www.f3nws.com/n/DRYnQJ)
 
-> Posted on: Wednesday, April 19, 2017 11:04:00 PM
+> Posted on: Thursday, April 20, 2017 12:00:00 AM
