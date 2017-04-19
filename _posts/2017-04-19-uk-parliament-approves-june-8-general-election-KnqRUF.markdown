@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK parliament approves June 8 general election"
-date: 2017-04-19 14:25:31Z
+date: 2017-04-19 16:19:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Prime Minister Theresa May's surprise call for June elections approved 522 to 13
 
 Full story on F3News: [UK parliament approves June 8 general election](http://www.f3nws.com/n/KnqRUF)
 
-> Posted on: Wednesday, April 19, 2017 7:25:31 PM
+> Posted on: Wednesday, April 19, 2017 9:19:31 PM
