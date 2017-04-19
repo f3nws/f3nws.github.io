@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US 'armada' was nowhere near N. Korea"
-date: 2017-04-19 08:22:33Z
+date: 2017-04-19 10:53:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ As the White House was talking about sending a naval "armada" to the Korean peni
 
 Full story on F3News: [US 'armada' was nowhere near N. Korea](http://www.f3nws.com/n/xzTNjH)
 
-> Posted on: Wednesday, April 19, 2017 1:22:33 PM
+> Posted on: Wednesday, April 19, 2017 3:53:54 PM
