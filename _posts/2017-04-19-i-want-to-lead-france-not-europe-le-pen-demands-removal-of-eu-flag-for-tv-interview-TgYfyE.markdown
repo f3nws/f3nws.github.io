@@ -5,7 +5,7 @@ date: 2017-04-19 18:02:43Z
 categories: rt-news
 ---
 
-![‘I want to lead France, not Europe’: Le Pen demands removal of EU flag for TV interview](https://img.rt.com/files/2017.04/article/58f77198c461886a0c8b456e.jpg)
+![‘I want to lead France, not Europe’: Le Pen demands removal of EU flag for TV interview](https://cdn.rt.com/files/2017.04/article/58f77198c461886a0c8b456e.jpg)
 
 With France’s presidential election just days away, National Front (FN) candidate Marine Le Pen symbolically demanded the removal of an EU flag from the studio for a TV interview. Earlier she promised a referendum on France’s EU membership if she wins the vote. Read Full Article at RT.com
 
