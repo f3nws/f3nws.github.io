@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AG Jeff Sessions seems to forget that..."
-date: 2017-04-20 20:05:41Z
+date: 2017-04-20 20:05:54Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Jeff Sessions is "amazed that a judge sitting on an island in the Pacific" can b
 
 Full story on F3News: [AG Jeff Sessions seems to forget that...](http://www.f3nws.com/n/xajKRB)
 
-> Posted on: Friday, April 21, 2017 1:05:41 AM
+> Posted on: Friday, April 21, 2017 1:05:54 AM
