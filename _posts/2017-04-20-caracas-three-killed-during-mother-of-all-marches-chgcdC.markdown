@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Caracas: Three killed during 'mother of all marches'"
-date: 2017-04-20 03:04:25Z
+date: 2017-04-20 03:06:44Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Opposition protesters flood capital Caracas and other cities as President Maduro
 
 Full story on F3News: [Caracas: Three killed during 'mother of all marches'](http://www.f3nws.com/n/chgcdC)
 
-> Posted on: Thursday, April 20, 2017 8:04:25 AM
+> Posted on: Thursday, April 20, 2017 8:06:44 AM
