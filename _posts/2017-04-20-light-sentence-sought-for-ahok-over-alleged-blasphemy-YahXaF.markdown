@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Light' sentence sought for Ahok over alleged blasphemy"
-date: 2017-04-20 09:23:02Z
+date: 2017-04-20 12:36:13Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Day after Christian governor lost vote to keep post, prosecutors recommend proba
 
 Full story on F3News: ['Light' sentence sought for Ahok over alleged blasphemy](http://www.f3nws.com/n/YahXaF)
 
-> Posted on: Thursday, April 20, 2017 2:23:02 PM
+> Posted on: Thursday, April 20, 2017 5:36:13 PM
