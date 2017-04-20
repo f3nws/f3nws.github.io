@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Australian citizenship law changes mean migrants will face tougher tests - ABC Online](http://www.abc.net.au/news/image/8456424-1x1-700x700.jpg)
 
-ABC Online Australian citizenship law changes mean migrants will face tougher tests ABC Online The Federal Government has announced sweeping changes to the nation's citizenship laws, with Prime Minister Malcolm Turnbull declaring that new arrivals must prize "Australian values" and prove their commitment to the nation. Turnbull government to overhaul citizenship test, which can only be failed three times NEWS.com.au Malcolm Turnbull targets Labor over 'Australian values' citizenship quiz The Sydney Morning Herald Malcolm Turnbull's 457 visa immigration crackdown disaster for universities The Australian Financial Review SBS - The Australian - dailytelegraph.com.au - The Conversation AU all 685 news articles »
+ABC Online Australian citizenship law changes mean migrants will face tougher tests ABC Online The Federal Government has announced sweeping changes to the nation's citizenship laws, with Prime Minister Malcolm Turnbull declaring that new arrivals must prize "Australian values" and prove their commitment to the nation. Turnbull government to overhaul citizenship test, which can only be failed three times NEWS.com.au Malcolm Turnbull targets Labor over 'Australian values' citizenship quiz The Sydney Morning Herald Malcolm Turnbull's 457 visa immigration crackdown disaster for universities The Australian Financial Review SBS - The Australian - dailytelegraph.com.au - Gympie Times all 677 news articles »
 
 
 Full story on F3News: [Australian citizenship law changes mean migrants will face tougher tests - ABC Online](http://www.f3nws.com/n/pFyYPG)
