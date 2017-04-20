@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris attack: 1 police officer killed, 2 seriously injured in shooting on Champs-Élysées‬‬; ISIS claims responsibility"
-date: 2017-04-20 22:25:00Z
+date: 2017-04-20 22:40:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A police officer was killed and two others were seriously injured when a gunman 
 
 Full story on F3News: [Paris attack: 1 police officer killed, 2 seriously injured in shooting on Champs-Élysées‬‬; ISIS claims responsibility](http://www.f3nws.com/n/XrqJqF)
 
-> Posted on: Friday, April 21, 2017 3:25:00 AM
+> Posted on: Friday, April 21, 2017 3:40:00 AM
