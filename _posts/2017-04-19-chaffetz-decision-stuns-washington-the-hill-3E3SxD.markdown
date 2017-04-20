@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chaffetz decision stuns Washington - The Hill](http://thehill.com/sites/default/files/chaffetzjason_091316gn_lead.jpg)
 
-TIME Chaffetz decision stuns Washington The Hill Rep. Jason Chaffetz · Jason ChaffetzChaffetz decision stuns Washington Chaffetz's campaign arm registers 2028 websites Who will replace Chaffetz on Oversight? MORE (R-Utah) shocked Washington on Wednesday by announcing he is leaving Congress ... Jason Chaffetz, Powerful House Republican, Won't Run in 2018 New York Times Rep. Jason Chaffetz is not running for re-election CNN Jason Chaffetz - Thank you! Thank you for allowing me to... | Facebook Facebook BuzzFeed News - Salt Lake Tribune - Deseret News - Facebook all 188 news articles »
+New York Times Chaffetz decision stuns Washington The Hill Rep. Jason Chaffetz · Jason ChaffetzChaffetz decision stuns Washington Chaffetz's campaign arm registers 2028 websites Who will replace Chaffetz on Oversight? MORE (R-Utah) shocked Washington on Wednesday by announcing he is leaving Congress ... Jason Chaffetz - Thank you! Thank you for allowing me to... | Facebook Facebook Viral fundraising catapults Democrat Kathryn Allen over Rep. Jason Chaffetz Salt Lake Tribune Rep. Jason Chaffetz eyeing a new title — governor Deseret News Facebook all 190 news articles »
 
 
 Full story on F3News: [Chaffetz decision stuns Washington - The Hill](http://www.f3nws.com/n/3E3SxD)
