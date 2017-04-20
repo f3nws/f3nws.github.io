@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Marine Le Pen Leads Far-Right Fight to Make France 'More French' - New York Times](https://static01.nyt.com/images/2017/04/21/world/21lepen-2/21lepen-2-facebookJumbo.jpg)
 
-New York Times Marine Le Pen Leads Far-Right Fight to Make France 'More French' New York Times Marine Le Pen, the presidential candidate of the National Front party in France, at a campaign rally at the Dôme in Marseille on Wednesday. Credit Jeff J. Mitchell/Getty Images. MARSEILLE, France — Slipping in polls in the final days before the start ... Who's Who In France's Wild Presidential Election NPR Outsider Candidates Poised to Upend Razor-Thin French Presidential Election U.S. News & World Report For the next few days, Wall Street is a deer in the headlights Business Insider all 1,051 news articles »
+New York Times Marine Le Pen Leads Far-Right Fight to Make France 'More French' New York Times Marine Le Pen, the presidential candidate of the National Front party in France, at a campaign rally at the Dôme in Marseille on Wednesday. Credit Jeff J. Mitchell/Getty Images. MARSEILLE, France — Slipping in polls in the final days before the start ... The Latest: French candidate on EU: We change it or we leave Washington Post Who's Who In France's Wild Presidential Election NPR France's would-be presidents make last-minute appeals before vote Reuters all 1,050 news articles »
 
 
 Full story on F3News: [Marine Le Pen Leads Far-Right Fight to Make France 'More French' - New York Times](http://www.f3nws.com/n/KC3Yq)
