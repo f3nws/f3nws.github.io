@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan court: Insufficient evidence to remove Sharif"
-date: 2017-04-20 09:56:01Z
+date: 2017-04-20 10:08:17Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Supreme Court rules there is not enough evidence to order Prime Minister Nawaz S
 
 Full story on F3News: [Pakistan court: Insufficient evidence to remove Sharif](http://www.f3nws.com/n/jSefhB)
 
-> Posted on: Thursday, April 20, 2017 2:56:01 PM
+> Posted on: Thursday, April 20, 2017 3:08:17 PM
