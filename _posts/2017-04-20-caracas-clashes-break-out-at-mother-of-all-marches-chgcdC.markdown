@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Caracas: Clashes break out at 'mother of all marches'"
-date: 2017-04-20 01:24:12Z
+date: 2017-04-20 01:59:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Opposition protesters flood capital Caracas and other cities as President Maduro
 
 Full story on F3News: [Caracas: Clashes break out at 'mother of all marches'](http://www.f3nws.com/n/chgcdC)
 
-> Posted on: Thursday, April 20, 2017 6:24:12 AM
+> Posted on: Thursday, April 20, 2017 6:59:16 AM
