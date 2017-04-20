@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 2 dead in Venezuelan protests"
-date: 2017-04-20 00:19:44Z
+date: 2017-04-20 02:04:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ At least two people were killed Wednesday when violent clashes marred what oppos
 
 Full story on F3News: [At least 2 dead in Venezuelan protests](http://www.f3nws.com/n/ZZFadF)
 
-> Posted on: Thursday, April 20, 2017 5:19:44 AM
+> Posted on: Thursday, April 20, 2017 7:04:38 AM
