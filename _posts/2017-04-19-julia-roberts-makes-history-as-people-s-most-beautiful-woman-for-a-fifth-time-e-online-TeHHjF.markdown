@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Julia Roberts Makes History as People's "Most Beautiful" Woman for a Fifth Time - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017319/rs_600x600-170419045658-600.julia-roberts-people-most-beautiful.41917.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Julia Roberts Makes History as People's "Most Beautiful" Woman for a Fifth Time E! Online The 49-year-old actress has been named the Most Beautiful Woman in the World in People's May 1 issue, the magazine announced Wednesday. It marks Roberts' fifth time receiving the title. "I am very flattered," the Lancôme brand ambassador says of the ... I'm The Most Beautiful Woman In The World Bustle Julia Roberts Is PEOPLE's 2017 World's Most Beautiful Woman! PEOPLE.com In Case You Were Wondering What Happened To Julia Roberts' 2001 Oscars Dress... Refinery29 Huffington Post - PerezHilton.com all 130 news articles »
+E! Online Julia Roberts Makes History as People's "Most Beautiful" Woman for a Fifth Time E! Online The 49-year-old actress has been named the Most Beautiful Woman in the World in People's May 1 issue, the magazine announced Wednesday. It marks Roberts' fifth time receiving the title. "I am very flattered," the Lancôme brand ambassador says of the ... Julia Roberts Is PEOPLE's 2017 World's Most Beautiful Woman! PEOPLE.com I'm The Most Beautiful Woman In The World Bustle Julia Roberts Will Give Daughter Hazel This Iconic Piece of Hollywood Vanity Fair Huffington Post - ABC News - PerezHilton.com - SFGate all 177 news articles »
 
 
 Full story on F3News: [Julia Roberts Makes History as People's "Most Beautiful" Woman for a Fifth Time - E! Online](http://www.f3nws.com/n/TeHHjF)
