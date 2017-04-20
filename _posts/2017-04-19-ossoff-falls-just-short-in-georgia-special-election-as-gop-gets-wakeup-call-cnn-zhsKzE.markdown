@@ -5,7 +5,7 @@ date: 2017-04-19 13:40:34Z
 categories: google-news-top-stories
 ---
 
-CNN Ossoff falls just short in Georgia special election as GOP gets wakeup call CNN Atlanta (CNN) Democrat Jon Ossoff fell just short Tuesday of capturing a House seat in a longtime conservative stronghold in Georgia, serving a reminder to Republicans of President Donald Trump's unpopularity. Ossoff received 48.1% of the vote, shy of ... Can Elections Like Georgia's Help Predict Future Races? New York Times Five takeaways from the Georgia special election The Hill GOP stuck on defense Fox News NBCNews.com - Slate Magazine all 1,449 news articles »
+CNN Ossoff falls just short in Georgia special election as GOP gets wakeup call CNN Atlanta (CNN) Democrat Jon Ossoff fell just short Tuesday of capturing a House seat in a longtime conservative stronghold in Georgia, serving a reminder to Republicans of President Donald Trump's unpopularity. Ossoff received 48.1% of the vote, shy of ... Can Elections Like Georgia's Help Predict Future Races? New York Times all 1,321 news articles »
 
 
 Full story on F3News: [Ossoff falls just short in Georgia special election as GOP gets wakeup call - CNN](http://www.f3nws.com/n/zhsKzE)
