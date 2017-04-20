@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Venezuelans are protesting"
-date: 2017-04-20 10:33:51Z
+date: 2017-04-20 13:20:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Opposition leaders in Venezuela have called protesters to the streets for what t
 
 Full story on F3News: [Why Venezuelans are protesting](http://www.f3nws.com/n/RuZyND)
 
-> Posted on: Thursday, April 20, 2017 3:33:51 PM
+> Posted on: Thursday, April 20, 2017 6:20:45 PM
