@@ -6,6 +6,7 @@ baseurl: "" # the subpath of your site, e.g. /blog/
 url: "http://www.f3nws.com" # the base hostname & protocol for your site
 twitter_username: f3nws
 github_username:  f3nws
+paginate: 20
 
 # Build settings
 markdown: kramdown
