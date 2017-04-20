@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News Drops Bill O'Reilly in Wake of Harassment Allegations"
-date: 2017-04-20 00:01:03Z
+date: 2017-04-20 01:00:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Fox News Drops Bill O'Reilly in Wake of Harassment Allegations](http://www.f3nws.com/n/QtcDS)
 
-> Posted on: Thursday, April 20, 2017 5:01:03 AM
+> Posted on: Thursday, April 20, 2017 6:00:10 AM
