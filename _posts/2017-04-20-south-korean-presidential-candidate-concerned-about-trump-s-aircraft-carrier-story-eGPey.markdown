@@ -5,7 +5,7 @@ date: 2017-04-20 07:00:00Z
 categories: fox-news
 ---
 
-A presidential candidate from South Korea’s former ruling party said Wednesday that if what President Trump said about the mission of the U.S. aircraft carrier was a lie “South Korea will not trust whatever Trump says.”
+President Trump’s comments about moving the USS Carl Vinson toward North Korea in a show of force has sparked confusion and could cause South Korea to "not trust" what Trump says for the remainder of his term, a South Korea presidential candidate said Wednesday.
 
 
 Full story on F3News: [South Korean presidential candidate concerned about Trump's aircraft carrier story](http://www.f3nws.com/n/eGPey)
