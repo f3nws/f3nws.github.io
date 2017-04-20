@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘I want to lead France, not Europe’: Le Pen demands removal of EU flag for TV interview"
-date: 2017-04-19 18:02:43Z
+date: 2017-04-19 18:02:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ With France’s presidential election just days away, National Front (FN) candid
 
 Full story on F3News: [‘I want to lead France, not Europe’: Le Pen demands removal of EU flag for TV interview](http://www.f3nws.com/n/TgYfyE)
 
-> Posted on: Wednesday, April 19, 2017 11:02:43 PM
+> Posted on: Wednesday, April 19, 2017 11:02:00 PM
