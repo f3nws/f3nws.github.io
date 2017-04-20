@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House denies misleading public in aircraft carrier mix-up - The Hill](http://thehill.com/sites/default/files/article_images/carlvinson_041717getty.jpg)
 
-The Hill White House denies misleading public in aircraft carrier mix-up The Hill White House press secretary Sean Spicer on Wednesday denied that the Trump administration misled the public when the president said last week that a U.S. aircraft carrier was heading toward the Sea of Japan. “The president said that we have an armada ... Sean Spicer wants to argue about what the definition of 'is' is Washington Post Sean Spicer's explanation on the Carl Vinson makes no sense CNN Sean Spicer Insists The White House Didn't Mislead Anyone About Location Of U.S. Ships Huffington Post Politico - BBC News - New York Times - DefenseNews.com all 319 news articles »
+The Hill White House denies misleading public in aircraft carrier mix-up The Hill White House press secretary Sean Spicer on Wednesday denied that the Trump administration misled the public when the president said last week that a U.S. aircraft carrier was heading toward the Sea of Japan. “The president said that we have an armada ... When There's Confusion Over Where a U.S. Aircraft Carrier Is, the Military Chain of Command Is Dangerously Broken Slate Magazine Pentagon Quietly Corrects Mattis Statement About the USS Vinson NBCNews.com Sean Spicer's explanation on the Carl Vinson makes no sense CNN ABC News - New York Times - DefenseNews.com - Navy.mil - View Image all 352 news articles »
 
 
 Full story on F3News: [White House denies misleading public in aircraft carrier mix-up - The Hill](http://www.f3nws.com/n/bsjXMD)
