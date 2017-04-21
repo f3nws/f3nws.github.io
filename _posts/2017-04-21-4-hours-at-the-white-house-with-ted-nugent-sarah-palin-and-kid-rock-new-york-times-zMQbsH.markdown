@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![4 Hours at the White House With Ted Nugent, Sarah Palin and Kid Rock - New York Times](https://static01.nyt.com/images/2017/04/21/us/21visitors/21visitors-facebookJumbo.jpg)
 
-New York Times 4 Hours at the White House With Ted Nugent, Sarah Palin and Kid Rock New York Times Kid Rock, left, Sarah Palin and Ted Nugent posed in front of Hillary Clinton's official portrait during a visit to the White House on Wednesday. Credit Via Sarah Palin on Facebook. WASHINGTON — Ted Nugent, Kid Rock and Sarah Palin had a fete to ... Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' Politico A detailed analysis of the Trump-Palin-Nugent-Kid Rock photo CNN Olbermann: Trump hosted 'trailer park trash' The Hill SarahPalin.com - Deer & Deer Hunting - The Hill all 171 news articles »
+New York Times 4 Hours at the White House With Ted Nugent, Sarah Palin and Kid Rock New York Times Kid Rock, left, Sarah Palin and Ted Nugent posed in front of Hillary Clinton's official portrait during a visit to the White House on Wednesday. Credit Via Sarah Palin on Facebook. WASHINGTON — Ted Nugent, Kid Rock and Sarah Palin had a fete to ... Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' Politico Why Donald Trump Invited This Racist Celebrity to the White House Slate Magazine Ted Nugent tells the tale of his night with Trump and Kid Rock Detroit Free Press CNN - The Hill - SarahPalin.com - Deer & Deer Hunting all 170 news articles »
 
 
 Full story on F3News: [4 Hours at the White House With Ted Nugent, Sarah Palin and Kid Rock - New York Times](http://www.f3nws.com/n/zMQbsH)
