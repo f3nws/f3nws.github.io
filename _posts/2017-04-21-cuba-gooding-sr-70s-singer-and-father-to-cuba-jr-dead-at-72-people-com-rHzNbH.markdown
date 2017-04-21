@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Cuba Gooding Sr., 70s Singer and Father to Cuba Jr., Dead at 72 - PEOPLE.com](http://i2.wp.com/peopledotcom.files.wordpress.com/2017/04/cuba-gooding-sr.jpg?crop=0px%2C0px%2C2000px%2C1500px&resize=660%2C495&ssl=1)
 
-PEOPLE.com Cuba Gooding Sr., 70s Singer and Father to Cuba Jr., Dead at 72 PEOPLE.com Cuba Gooding Sr., a popular soul singer in the 1970s and father of Academy Award winner Cuba Gooding Jr., died Thursday, according to multiple outlets. He was 72. Gooding Sr. was found slumped over in his silver Jaguar, which was parked on a street in ... Cuba Gooding, Sr. dead at 72 of possible overdose: report New York Daily News Soul singer Cuba Gooding Sr., 72, found dead inside car in Woodland Hills Los Angeles Times Cuba Gooding Sr., soul singer and father of Oscar winner, dead at 72 EW.com Variety - Entertainment Tonight - TIME - USA TODAY all 75 news articles »
+PEOPLE.com Cuba Gooding Sr., 70s Singer and Father to Cuba Jr., Dead at 72 PEOPLE.com Cuba Gooding Sr., a popular soul singer in the 1970s and father of Academy Award winner Cuba Gooding Jr., died Thursday, according to multiple outlets. He was 72. Gooding Sr. was found slumped over in his silver Jaguar, which was parked on a street in ... Cuba Gooding, Sr. dead at 72 of possible overdose: report New York Daily News Soul singer Cuba Gooding Sr., 72, found dead inside car in Woodland Hills Los Angeles Times Cuba Gooding Sr., soul singer and father of Oscar winner, dead at 72 EW.com Variety - Entertainment Tonight - TIME - USA TODAY all 78 news articles »
 
 
 Full story on F3News: [Cuba Gooding Sr., 70s Singer and Father to Cuba Jr., Dead at 72 - PEOPLE.com](http://www.f3nws.com/n/rHzNbH)
