@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The MMA owner who wouldn't sign Conor McGregor"
-date: 2017-04-21 18:06:08Z
+date: 2017-04-21 18:35:20Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ With typical bravado, Conor McGregor claimed he was worth $4.2 billion dollars "
 
 Full story on F3News: [The MMA owner who wouldn't sign Conor McGregor](http://www.f3nws.com/n/X3csTD)
 
-> Posted on: Friday, April 21, 2017 11:06:08 PM
+> Posted on: Friday, April 21, 2017 11:35:20 PM
