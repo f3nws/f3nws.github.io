@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' - Politico](http://static.politico.com/58/fd/15038bd04f7e95e3554baf18d6fa/170420-sarah-palin-gty-1160.jpg)
 
-Politico Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' Politico President Donald Trump asked Sarah Palin to join him for dinner at the White House on Wednesday night “just to touch base,” and said she could invite a couple of friends — and so she brought musicians Kid Rock and Ted Nugent. “Jesus was booked,” Palin ... Why Donald Trump Invited This Racist Celebrity to the White House Slate Magazine Photos From An Awesome Evening At The White House - SarahPalin.com SarahPalin.com Sarah Palin visits White House with Kid Rock, Ted Nugent The Hill Deer & Deer Hunting all 137 news articles »
+Politico Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' Politico President Donald Trump asked Sarah Palin to join him for dinner at the White House on Wednesday night “just to touch base,” and said she could invite a couple of friends — and so she brought musicians Kid Rock and Ted Nugent. “Jesus was booked,” Palin ... Photos From An Awesome Evening At The White House - SarahPalin.com SarahPalin.com Sarah Palin visits White House with Kid Rock, Ted Nugent The Hill Deer & Deer Hunting Blogger Has Dinner with President Trump at the White House - Deer & Deer Hunting | Whitetail ... Deer & Deer Hunting all 138 news articles »
 
 
 Full story on F3News: [Palin invited Ted Nugent and Kid Rock to the White House because 'Jesus was booked' - Politico](http://www.f3nws.com/n/NVAP4D)

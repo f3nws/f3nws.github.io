@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House Officials, Craving Progress, Push Revised Health Bill - New York Times](https://static01.nyt.com/images/2017/04/21/us/21HEALTH-01/21HEALTH-01-facebookJumbo.jpg)
 
-New York Times White House Officials, Craving Progress, Push Revised Health Bill New York Times Speaker Paul D. Ryan at a news conference on health care legislation at the Capitol early this month. “We're in the midst of negotiating sort of finishing touches” on a health bill, he said this week in London. Credit Gabriella Demczuk for The New York ... White House pressures GOP leaders on Obamacare showdown next week Politico Pelosi: GOP learned nothing from ObamaCare repeal failure The Hill The Zombie Trumpcare Deal Is a Mirage Inspired by Trump's Deepening Thirst for Any Win Slate Magazine Los Angeles Times - TIME - Washington Post (blog) - Bloomberg all 319 news articles »
+New York Times White House Officials, Craving Progress, Push Revised Health Bill New York Times Speaker Paul D. Ryan at a news conference on health care legislation at the Capitol early this month. “We're in the midst of negotiating sort of finishing touches” on a health bill, he said this week in London. Credit Gabriella Demczuk for The New York ... White House pressures GOP leaders on Obamacare showdown next week Politico The GOP's latest health-care plan is comically bad Washington Post ObamaCare replacement deal hits major speed bumps The Hill TIME - Los Angeles Times - Fox News - Bloomberg all 328 news articles »
 
 
 Full story on F3News: [White House Officials, Craving Progress, Push Revised Health Bill - New York Times](http://www.f3nws.com/n/MyMxbB)
