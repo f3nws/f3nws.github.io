@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris: Gunman kills officer before being shot dead"
-date: 2017-04-20 22:58:31Z
+date: 2017-04-20 23:31:50Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Attack in popular Champs Elysees area takes place three days before first round 
 
 Full story on F3News: [Paris: Gunman kills officer before being shot dead](http://www.f3nws.com/n/DAXzmG)
 
-> Posted on: Friday, April 21, 2017 3:58:31 AM
+> Posted on: Friday, April 21, 2017 4:31:50 AM

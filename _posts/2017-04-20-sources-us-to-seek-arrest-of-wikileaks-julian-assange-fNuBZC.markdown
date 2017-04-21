@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sources: US to seek arrest of WikiLeaks' Julian Assange"
-date: 2017-04-20 22:42:24Z
+date: 2017-04-20 23:03:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US authorities have prepared charges to seek the arrest of WikiLeaks founder Jul
 
 Full story on F3News: [Sources: US to seek arrest of WikiLeaks' Julian Assange](http://www.f3nws.com/n/fNuBZC)
 
-> Posted on: Friday, April 21, 2017 3:42:24 AM
+> Posted on: Friday, April 21, 2017 4:03:01 AM
