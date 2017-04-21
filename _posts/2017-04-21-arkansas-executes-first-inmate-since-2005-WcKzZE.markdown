@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas executes first inmate since 2005"
-date: 2017-04-21 06:34:26Z
+date: 2017-04-21 07:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Arkansas has executed an inmate for the first time in nearly a dozen years as pa
 
 Full story on F3News: [Arkansas executes first inmate since 2005](http://www.f3nws.com/n/WcKzZE)
 
-> Posted on: Friday, April 21, 2017 11:34:26 AM
+> Posted on: Friday, April 21, 2017 12:00:00 PM

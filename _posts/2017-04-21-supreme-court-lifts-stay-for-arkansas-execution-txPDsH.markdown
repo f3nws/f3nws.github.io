@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supreme Court lifts stay for Arkansas execution"
-date: 2017-04-21 05:23:50Z
+date: 2017-04-21 06:58:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Supreme Court lifts stay for Arkansas execution](http://www.f3nws.com/n/txPDsH)
 
-> Posted on: Friday, April 21, 2017 10:23:50 AM
+> Posted on: Friday, April 21, 2017 11:58:36 AM
