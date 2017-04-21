@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prosecutors open terror investigation into Paris attack"
-date: 2017-04-21 11:21:13Z
+date: 2017-04-21 11:29:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ French decision follows deadly Champs Elysees attack on police, just three days 
 
 Full story on F3News: [Prosecutors open terror investigation into Paris attack](http://www.f3nws.com/n/uJSmCF)
 
-> Posted on: Friday, April 21, 2017 4:21:13 PM
+> Posted on: Friday, April 21, 2017 4:29:21 PM
