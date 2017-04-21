@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thousands risk their lives to reach USA"
-date: 2017-04-21 16:00:20Z
+date: 2017-04-21 19:02:16Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ Yolanda ticks off the countries she and her husband have passed through in the l
 
 Full story on F3News: [Thousands risk their lives to reach USA](http://www.f3nws.com/n/HrxZNE)
 
-> Posted on: Friday, April 21, 2017 9:00:20 PM
+> Posted on: Saturday, April 22, 2017 12:02:16 AM

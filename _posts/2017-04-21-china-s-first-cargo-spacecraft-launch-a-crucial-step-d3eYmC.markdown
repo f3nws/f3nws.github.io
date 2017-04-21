@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's first cargo spacecraft launch a 'crucial step'"
-date: 2017-04-21 18:35:20Z
+date: 2017-04-21 19:15:15Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ China launched its first cargo spacecraft Thursday night, according to state med
 
 Full story on F3News: [China's first cargo spacecraft launch a 'crucial step'](http://www.f3nws.com/n/d3eYmC)
 
-> Posted on: Friday, April 21, 2017 11:35:20 PM
+> Posted on: Saturday, April 22, 2017 12:15:15 AM

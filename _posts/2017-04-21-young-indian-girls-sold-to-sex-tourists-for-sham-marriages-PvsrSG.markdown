@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Young Indian girls sold to sex tourists for sham marriages"
-date: 2017-04-21 16:00:20Z
+date: 2017-04-21 19:02:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Young Indian girls sold to sex tourists for sham marriages](http://www.f3nws.com/n/PvsrSG)
 
-> Posted on: Friday, April 21, 2017 9:00:20 PM
+> Posted on: Saturday, April 22, 2017 12:02:16 AM

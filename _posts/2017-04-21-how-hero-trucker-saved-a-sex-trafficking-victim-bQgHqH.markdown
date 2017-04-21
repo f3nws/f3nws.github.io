@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How hero trucker saved a sex trafficking victim"
-date: 2017-04-21 16:00:20Z
+date: 2017-04-21 19:02:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ There was a time when truck driver Kevin Kimmel knew little about the scourge of
 
 Full story on F3News: [How hero trucker saved a sex trafficking victim](http://www.f3nws.com/n/bQgHqH)
 
-> Posted on: Friday, April 21, 2017 9:00:20 PM
+> Posted on: Saturday, April 22, 2017 12:02:16 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Nye becomes science warrior in Netflix series"
-date: 2017-04-21 18:35:26Z
+date: 2017-04-21 19:15:18Z
 categories: cnn-com-entertainment
 ---
 
@@ -10,4 +10,4 @@ Can Bill Nye really save the world? Probably not by preaching to the choir, whic
 
 Full story on F3News: [Bill Nye becomes science warrior in Netflix series](http://www.f3nws.com/n/RSEMpC)
 
-> Posted on: Friday, April 21, 2017 11:35:26 PM
+> Posted on: Saturday, April 22, 2017 12:15:18 AM

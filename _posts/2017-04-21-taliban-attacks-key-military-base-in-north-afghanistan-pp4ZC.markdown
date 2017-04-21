@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taliban attacks key military base in north Afghanistan"
-date: 2017-04-21 17:08:05Z
+date: 2017-04-21 18:48:36Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Brazen assault kills at least eight soldiers on a major army base in Balkh provi
 
 Full story on F3News: [Taliban attacks key military base in north Afghanistan](http://www.f3nws.com/n/pp4ZC)
 
-> Posted on: Friday, April 21, 2017 10:08:05 PM
+> Posted on: Friday, April 21, 2017 11:48:36 PM

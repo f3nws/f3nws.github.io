@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mayte Garcia on the Prince you didn't know"
-date: 2017-04-21 18:35:26Z
+date: 2017-04-21 19:15:18Z
 categories: cnn-com-entertainment
 ---
 
@@ -10,4 +10,4 @@ Many Prince fans are preparing for a day of mourning on the one-year anniversary
 
 Full story on F3News: [Mayte Garcia on the Prince you didn't know](http://www.f3nws.com/n/HhpYzF)
 
-> Posted on: Friday, April 21, 2017 11:35:26 PM
+> Posted on: Saturday, April 22, 2017 12:15:18 AM

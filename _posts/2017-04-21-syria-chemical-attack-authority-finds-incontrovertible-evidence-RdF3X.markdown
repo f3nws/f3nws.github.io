@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria chemical attack: Authority finds 'incontrovertible' evidence"
-date: 2017-04-21 18:35:20Z
+date: 2017-04-21 19:15:15Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ International chemical weapons inspectors have found "incontrovertible" evidence
 
 Full story on F3News: [Syria chemical attack: Authority finds 'incontrovertible' evidence](http://www.f3nws.com/n/RdF3X)
 
-> Posted on: Friday, April 21, 2017 11:35:20 PM
+> Posted on: Saturday, April 22, 2017 12:15:15 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The world's most beautiful floral hotels"
-date: 2017-04-21 18:35:20Z
+date: 2017-04-21 19:15:15Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ If spring is your favorite season, you don't have to go outside to enjoy beautif
 
 Full story on F3News: [The world's most beautiful floral hotels](http://www.f3nws.com/n/Nnup3D)
 
-> Posted on: Friday, April 21, 2017 11:35:20 PM
+> Posted on: Saturday, April 22, 2017 12:15:15 AM

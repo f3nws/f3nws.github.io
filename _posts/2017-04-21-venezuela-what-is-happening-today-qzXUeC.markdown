@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela: What is happening today?"
-date: 2017-04-21 17:25:02Z
+date: 2017-04-21 19:08:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ A look at the country's ongoing protests against the government of President Mad
 
 Full story on F3News: [Venezuela: What is happening today?](http://www.f3nws.com/n/qzXUeC)
 
-> Posted on: Friday, April 21, 2017 10:25:02 PM
+> Posted on: Saturday, April 22, 2017 12:08:08 AM

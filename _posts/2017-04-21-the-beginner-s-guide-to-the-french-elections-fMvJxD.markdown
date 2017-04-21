@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The beginner's guide to the French elections"
-date: 2017-04-21 18:35:20Z
+date: 2017-04-21 19:15:15Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ France is about to pick a new president. That's nice, you say, but you're still 
 
 Full story on F3News: [The beginner's guide to the French elections](http://www.f3nws.com/n/fMvJxD)
 
-> Posted on: Friday, April 21, 2017 11:35:20 PM
+> Posted on: Saturday, April 22, 2017 12:15:15 AM
