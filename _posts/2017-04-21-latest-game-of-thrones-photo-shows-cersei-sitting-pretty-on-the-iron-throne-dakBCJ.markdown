@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest Game of Thrones photo shows Cersei sitting pretty on the Iron Throne"
-date: 2017-04-21 06:28:00Z
+date: 2017-04-21 15:43:53Z
 categories: cnn-com-entertainment
 ---
 
@@ -10,4 +10,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Latest Game of Thrones photo shows Cersei sitting pretty on the Iron Throne](http://www.f3nws.com/n/dakBCJ)
 
-> Posted on: Friday, April 21, 2017 11:28:00 AM
+> Posted on: Friday, April 21, 2017 8:43:53 PM

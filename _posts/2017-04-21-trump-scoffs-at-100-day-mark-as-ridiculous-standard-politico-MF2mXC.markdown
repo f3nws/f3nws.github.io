@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Trump scoffs at 100-day mark as 'ridiculous standard' - Politico"
+date: 2017-04-21 15:13:27Z
+categories: google-news-top-stories
+---
+
+![Trump scoffs at 100-day mark as 'ridiculous standard' - Politico](http://static.politico.com/fc/fc/58dca6964cd085dc93b985c19215/09-donald-trump-94-gty-1160.jpg)
+
+Politico Trump scoffs at 100-day mark as 'ridiculous standard' Politico President Donald Trump on Friday claimed that he won't get the credit he deserves for the first 100 days of his administration, seeking to manage expectations around what he called the “ridiculous standard” of the upcoming milestone date. “No matter ... President Trump, here's why 100 days may not be such a 'ridiculous standard' Washington Post Donald Trump just pulled a major flip-flop on his first 100 days in office CNN Trump says media won't give him credit for his accomplishments Fox News The Hill - ThinkProgress - CNBC - CBS News all 45 news articles »
+
+
+Full story on F3News: [Trump scoffs at 100-day mark as 'ridiculous standard' - Politico](http://www.f3nws.com/n/MF2mXC)
+
+> Posted on: Friday, April 21, 2017 8:13:27 PM
