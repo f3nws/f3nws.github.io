@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "One tip ends 39-day hunt for teacher and missing girl"
-date: 2017-04-21 21:50:00Z
+date: 2017-04-21 22:46:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tad Cummins was an intensely sought fugitive, trumpeted from coast to coast as t
 
 Full story on F3News: [One tip ends 39-day hunt for teacher and missing girl](http://www.f3nws.com/n/CBSpF)
 
-> Posted on: Saturday, April 22, 2017 2:50:00 AM
+> Posted on: Saturday, April 22, 2017 3:46:08 AM
