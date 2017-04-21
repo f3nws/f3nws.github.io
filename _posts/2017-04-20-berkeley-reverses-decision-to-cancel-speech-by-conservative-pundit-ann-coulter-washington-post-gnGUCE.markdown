@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Berkeley reverses decision to cancel speech by conservative pundit Ann Coulter - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2016/09/08/Style/Images/596737750-2420.jpg)
 
-Washington Post Berkeley reverses decision to cancel speech by conservative pundit Ann Coulter Washington Post Officials at the University of California at Berkeley on Thursday reversed their decision to cancel a speech by conservative firebrand Ann Coulter. The university had previously announced Wednesday that it was canceling Coulter's appearance following ... Berkeley, Reversing Decision, Says Ann Coulter Can Speak in Early May New York Times Ann Coulter rejects UC Berkeley's rescheduling, vows to keep original speech date Chicago Tribune Berkeley Reverses Decision To Cancel Ann Coulter Speech Breitbart News Los Angeles Times - Fox News - Inside Higher Ed - Hollywood Reporter all 207 news articles »
+Washington Post Berkeley reverses decision to cancel speech by conservative pundit Ann Coulter Washington Post Officials at the University of California at Berkeley on Thursday reversed their decision to cancel a speech by conservative firebrand Ann Coulter. The university had previously announced Wednesday that it was canceling Coulter's appearance following ... Berkeley Reschedules Coulter, but She Vows to Speak on Original Date New York Times Berkeley reverses decision to cancel Ann Coulter speech The Hill (blog) UC Berkeley reverses decision to cancel Ann Coulter visit Los Angeles Times Hollywood Reporter - T.co all 215 news articles »
 
 
 Full story on F3News: [Berkeley reverses decision to cancel speech by conservative pundit Ann Coulter - Washington Post](http://www.f3nws.com/n/gnGUCE)
