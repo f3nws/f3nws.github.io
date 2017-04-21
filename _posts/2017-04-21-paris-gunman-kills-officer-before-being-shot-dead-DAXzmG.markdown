@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris: Gunman kills officer before being shot dead"
-date: 2017-04-21 01:21:45Z
+date: 2017-04-21 01:59:46Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ France launches terrorism probe after attack on Champs Elysees, three days befor
 
 Full story on F3News: [Paris: Gunman kills officer before being shot dead](http://www.f3nws.com/n/DAXzmG)
 
-> Posted on: Friday, April 21, 2017 6:21:45 AM
+> Posted on: Friday, April 21, 2017 6:59:46 AM
