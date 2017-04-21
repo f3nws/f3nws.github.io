@@ -3,7 +3,7 @@ title: F3News
 email: f3nws@outlook.com
 description: "Top news, beautifully presented!"
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://www.f3nws.com" # the base hostname & protocol for your site
+url: "http://m.f3nws.com" # the base hostname & protocol for your site
 twitter_username: f3nws
 github_username:  f3nws
 paginate: 20
