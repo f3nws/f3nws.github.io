@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian military aircraft prowls US coast"
-date: 2017-04-21 20:28:15Z
+date: 2017-04-21 20:58:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ US defense officials are calling recent sightings of Russian bombers off the Ala
 
 Full story on F3News: [Russian military aircraft prowls US coast](http://www.f3nws.com/n/zPsTeF)
 
-> Posted on: Saturday, April 22, 2017 1:28:15 AM
+> Posted on: Saturday, April 22, 2017 1:58:31 AM
