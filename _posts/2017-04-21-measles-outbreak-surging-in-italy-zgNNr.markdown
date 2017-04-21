@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Measles outbreak surging in Italy"
-date: 2017-04-21 07:44:58Z
+date: 2017-04-21 16:00:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ An outbreak of measles is spreading across Italy, with more than 1,600 cases of 
 
 Full story on F3News: [Measles outbreak surging in Italy](http://www.f3nws.com/n/zgNNr)
 
-> Posted on: Friday, April 21, 2017 12:44:58 PM
+> Posted on: Friday, April 21, 2017 9:00:20 PM

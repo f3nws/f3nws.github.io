@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris shooting: Election campaign halts as ISIS claims attack"
-date: 2017-04-21 09:08:27Z
+date: 2017-04-21 16:00:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Three French presidential candidates have halted their campaigns as Paris wakes 
 
 Full story on F3News: [Paris shooting: Election campaign halts as ISIS claims attack](http://www.f3nws.com/n/NDMpr)
 
-> Posted on: Friday, April 21, 2017 2:08:27 PM
+> Posted on: Friday, April 21, 2017 9:00:20 PM

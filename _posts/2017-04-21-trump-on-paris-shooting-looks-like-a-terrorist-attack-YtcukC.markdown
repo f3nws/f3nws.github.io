@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on Paris shooting: Looks like a terrorist attack"
-date: 2017-04-21 11:35:39Z
+date: 2017-04-21 16:06:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump responded to reports of a shooting Thursday in Paris by s
 
 Full story on F3News: [Trump on Paris shooting: Looks like a terrorist attack](http://www.f3nws.com/n/YtcukC)
 
-> Posted on: Friday, April 21, 2017 4:35:39 PM
+> Posted on: Friday, April 21, 2017 9:06:02 PM

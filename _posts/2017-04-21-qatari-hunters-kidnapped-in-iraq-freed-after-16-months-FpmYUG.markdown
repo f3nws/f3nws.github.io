@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatari hunters kidnapped in Iraq freed after 16 months"
-date: 2017-04-21 14:04:51Z
+date: 2017-04-21 16:05:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Iraqi interior ministry says gunmen have released a Qatari hunting party that in
 
 Full story on F3News: [Qatari hunters kidnapped in Iraq freed after 16 months](http://www.f3nws.com/n/FpmYUG)
 
-> Posted on: Friday, April 21, 2017 7:04:51 PM
+> Posted on: Friday, April 21, 2017 9:05:08 PM
