@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jehovah’s Witnesses banned as ‘extremist’ in Russia, property to be seized – court decision"
-date: 2017-04-21 08:37:45Z
+date: 2017-04-21 08:37:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Russia’s Supreme Court has banned the Jehovah’s Witnesses, declaring it an �
 
 Full story on F3News: [Jehovah’s Witnesses banned as ‘extremist’ in Russia, property to be seized – court decision](http://www.f3nws.com/n/caDSRC)
 
-> Posted on: Friday, April 21, 2017 1:37:45 PM
+> Posted on: Friday, April 21, 2017 1:37:00 PM
