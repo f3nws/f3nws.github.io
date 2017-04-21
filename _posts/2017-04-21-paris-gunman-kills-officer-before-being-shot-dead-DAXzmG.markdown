@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris: Gunman kills officer before being shot dead"
-date: 2017-04-21 00:16:48Z
+date: 2017-04-21 01:01:38Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ French police launch raids after attack on Champs Elysees takes place just days 
 
 Full story on F3News: [Paris: Gunman kills officer before being shot dead](http://www.f3nws.com/n/DAXzmG)
 
-> Posted on: Friday, April 21, 2017 5:16:48 AM
+> Posted on: Friday, April 21, 2017 6:01:38 AM
