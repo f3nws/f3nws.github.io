@@ -5,7 +5,7 @@ date: 2017-04-21 03:11:41Z
 categories: cnn-com-top-stories
 ---
 
-Several senior administration officials told CNN Thursday that President Donald Trump's strategy toward North Korea hinges on one word: China.
+Chinese air force land-attack, cruise-missile-capable bombers were put "on high alert" on Wednesday as the US sees evidence that the Chinese military is preparing to respond to a potential situation in North Korea, a US defense official tells CNN.
 
 
 Full story on F3News: [US official: China puts bombers on 'high alert'](http://www.f3nws.com/n/u2yxJE)

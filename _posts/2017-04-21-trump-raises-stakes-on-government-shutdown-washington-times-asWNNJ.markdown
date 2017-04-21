@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump raises stakes on government shutdown... - Washington Times](http://media.washtimes.com.s3.amazonaws.com/media/image/2017/01/25/aptopix_trump_immigration_65013.jpg)
 
-CBS News Trump raises stakes on government shutdown... Washington Times The White House said Thursday that it wants to see money for President Trump's border wall included in the spending bill Congress must pass next week — a demand Democrats said sours negotiations and makes a government shutdown more likely. White House pushes uncertain bid to revive health care bill New York Daily News draft of the tentative deal - Politico Politico Some Republicans Think They May Have A Health Care Deal Huffington Post Politico all 370 news articles »
+U.S. News & World Report Trump raises stakes on government shutdown... Washington Times The White House said Thursday that it wants to see money for President Trump's border wall included in the spending bill Congress must pass next week — a demand Democrats said sours negotiations and makes a government shutdown more likely. Trump is trying to repeal Obamacare again, but he still doesn't have the votes Los Angeles Times Republicans float health care compromise before Trump's 100-day mark ABC News White House turns up heat on Congress to revise the Affordable Care Act Chicago Tribune Politico - Huffington Post - Politico all 209 news articles »
 
 
 Full story on F3News: [Trump raises stakes on government shutdown... - Washington Times](http://www.f3nws.com/n/asWNNJ)
