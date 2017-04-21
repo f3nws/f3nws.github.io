@@ -5,6 +5,8 @@ date: 2017-04-21 19:07:47Z
 categories: cnn-com-top-stories
 ---
 
+![Take a tour of Russia's World Cup stadiums](http://i2.cdn.cnn.com/cnnnext/dam/assets/170309165054-kazan-arena-river-russia-world-cup-2018-super-tease.jpg)
+
 
 
 

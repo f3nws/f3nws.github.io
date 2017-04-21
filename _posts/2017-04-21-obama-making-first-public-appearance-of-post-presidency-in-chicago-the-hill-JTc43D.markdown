@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Obama making first public appearance of post-presidency in Chicago - The Hill](http://thehill.com/sites/default/files/obamabarack_101816vsj5.jpg)
 
-The Hill Obama making first public appearance of post-presidency in Chicago The Hill Barack Obama · Barack ObamaDem rep: Jim Crow's 'nieces and nephews' are in the White House Obama making first public appearance of post-presidency in Chicago Why acrimony still impedes nuclear disarmament MORE will make the first public ... Vacation's Over: Obama Returns to Public Life Next Week New York Times Ex-President Barack Obama to hold first public event since leaving office, in Chicago on Monday Chicago Tribune What it's like to eat dinner at the same restaurant as the Obamas Business Insider Politico - Huffington Post all 37 news articles »
+The Hill Obama making first public appearance of post-presidency in Chicago The Hill Barack Obama · Barack ObamaTrump, bring back the War Powers Act. US troops are not yours alone. The Hill's 12:30 Report Dem rep: Jim Crow's 'nieces and nephews' are in the White House MORE will make the first public appearance of his ... Vacation's Over: Obama Returns to Public Life Next Week New York Times Obama to make first post-presidency public appearance in Chicago next week Washington Post Ex-President Barack Obama to hold first public event since leaving office, in Chicago on Monday Chicago Tribune Politico all 85 news articles »
 
 
 Full story on F3News: [Obama making first public appearance of post-presidency in Chicago - The Hill](http://www.f3nws.com/n/JTc43D)
