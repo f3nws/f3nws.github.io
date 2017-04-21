@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris gunman known to security forces, source says"
-date: 2017-04-21 17:43:03Z
+date: 2017-04-21 18:06:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ A man who killed a police officer on the Champs-Elysees Thursday night was known
 
 Full story on F3News: [Paris gunman known to security forces, source says](http://www.f3nws.com/n/RCjJzG)
 
-> Posted on: Friday, April 21, 2017 10:43:03 PM
+> Posted on: Friday, April 21, 2017 11:06:08 PM
