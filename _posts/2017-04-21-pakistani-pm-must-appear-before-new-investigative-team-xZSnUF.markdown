@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistani PM must appear before new investigative team"
-date: 2017-04-21 16:06:02Z
+date: 2017-04-21 16:36:05Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ Pakistani Prime Minister Nawaz Sharif survived a Supreme Court ruling Thursday o
 
 Full story on F3News: [Pakistani PM must appear before new investigative team](http://www.f3nws.com/n/xZSnUF)
 
-> Posted on: Friday, April 21, 2017 9:06:02 PM
+> Posted on: Friday, April 21, 2017 9:36:05 PM

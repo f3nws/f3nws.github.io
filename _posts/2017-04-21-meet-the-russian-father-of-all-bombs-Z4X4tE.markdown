@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meet the Russian 'father of all bombs'"
-date: 2017-04-21 16:06:02Z
+date: 2017-04-21 16:36:05Z
 categories: cnn-com-world
 ---
 
@@ -10,4 +10,4 @@ Born in Russia in 2007, the "father of all bombs" may be holding a title surpass
 
 Full story on F3News: [Meet the Russian 'father of all bombs'](http://www.f3nws.com/n/Z4X4tE)
 
-> Posted on: Friday, April 21, 2017 9:06:02 PM
+> Posted on: Friday, April 21, 2017 9:36:05 PM
