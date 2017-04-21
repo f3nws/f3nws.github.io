@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Army accused of extrajudicial killings in leaked video"
-date: 2017-04-21 13:33:42Z
+date: 2017-04-21 21:54:19Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Footage purportedly shows Egyptian soldiers executing prisoners in Sinai provinc
 
 Full story on F3News: [Army accused of extrajudicial killings in leaked video](http://www.f3nws.com/n/jtfx2E)
 
-> Posted on: Friday, April 21, 2017 6:33:42 PM
+> Posted on: Saturday, April 22, 2017 2:54:19 AM
