@@ -7,7 +7,7 @@ categories: techradar
 
 ![The 10 best gaming keyboards of 2017](http://cdn.mos.cms.futurecdn.net/NphrF6Fq56xwV6YuXgLhbn-1200-80.jpg)
 
-Could the Razer BlackWidow Chroma v2 help you get the most out of your gaming experience?
+Could the Logitech G413 Carbon help you get the most out of your gaming experience?
 
 
 Full story on F3News: [The 10 best gaming keyboards of 2017](http://www.f3nws.com/n/xUUvfE)
