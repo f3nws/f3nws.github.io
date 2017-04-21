@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Morris Day on Last Meeting With Prince: 'He Knew... - RollingStone.com](http://img.wennermedia.com/social/rs-morris-day-v1-d6214374-4bcb-4d46-b493-ee38398a1f89.jpg)
 
-RollingStone.com Morris Day on Last Meeting With Prince: 'He Knew... RollingStone.com Morris Day, leader of legendary funk band the Time, premieres the video for a recent single dedicated to his late friend Prince. By Sarah Grant. 2 hours ago. More News. Watch Lenny Kravitz's Fervent Prince Tribute Performance at Rock Hall Prince's ... In The Wake Of Prince's Death NPR 'I Am Something That You'll Never Comprehend': Defining the Legacy of Prince The Root Prince's music sales, streams skyrocketed since his death New York Daily News CNN - Billboard - W*USA 9 - Billboard all 160 news articles »
+RollingStone.com Morris Day on Last Meeting With Prince: 'He Knew... RollingStone.com Morris Day, leader of legendary funk band the Time, premieres the video for a recent single dedicated to his late friend Prince. By Sarah Grant. 3 hours ago. More News. Watch Lenny Kravitz's Fervent Prince Tribute Performance at Rock Hall Prince's ... The Latest: Prince fans join 'purple family' at Paisley Park New York Daily News The Time's Morris Day Honors His Friend Prince with a New Song and Video: 'It Was Just My Way of Saying Goodbye' PEOPLE.com In The Wake Of Prince's Death NPR USA TODAY - The Root - KHOU - Essence.com all 174 news articles »
 
 
 Full story on F3News: [Morris Day on Last Meeting With Prince: 'He Knew... - RollingStone.com](http://www.f3nws.com/n/BBzdEH)
