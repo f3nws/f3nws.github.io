@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian bombers spotted off Alaskan coast twice in 24 hours"
-date: 2017-04-21 19:15:15Z
+date: 2017-04-21 13:22:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Two Russian TU-95 Bear bombers were spotted flying about 41 miles off the coast 
 
 Full story on F3News: [Russian bombers spotted off Alaskan coast twice in 24 hours](http://www.f3nws.com/n/jMrseC)
 
-> Posted on: Saturday, April 22, 2017 12:15:15 AM
+> Posted on: Friday, April 21, 2017 6:22:57 PM
