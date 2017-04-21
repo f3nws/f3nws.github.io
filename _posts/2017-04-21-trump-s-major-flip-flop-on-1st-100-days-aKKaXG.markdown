@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's major flip-flop on 1st 100 days"
-date: 2017-04-21 16:00:20Z
+date: 2017-04-21 13:25:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ On the 92nd day of his presidency, Donald Trump has decided the idea of his firs
 
 Full story on F3News: [Trump's major flip-flop on 1st 100 days](http://www.f3nws.com/n/aKKaXG)
 
-> Posted on: Friday, April 21, 2017 9:00:20 PM
+> Posted on: Friday, April 21, 2017 6:25:37 PM

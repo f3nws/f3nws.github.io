@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump scoffs at 100-day mark as 'ridiculous standard' - Politico](http://static.politico.com/25/8f/e5c647b34d19ae9127fe5ba39920/14-donald-trump-27-gty-1160.jpg)
 
-Politico Trump scoffs at 100-day mark as 'ridiculous standard' Politico President Donald Trump on Friday claimed that he won't get the credit he deserves for the first 100 days of his administration, seeking to manage expectations around what he called the “ridiculous standard” of the upcoming milestone date. “No matter ... President Trump, here's why 100 days may not be such a 'ridiculous standard' Washington Post Donald Trump just pulled a major flip-flop on his first 100 days in office CNN Trump says media won't give him credit for his accomplishments Fox News The Hill - U.S. News & World Report - The Atlantic - ThinkProgress all 54 news articles »
+Politico Trump scoffs at 100-day mark as 'ridiculous standard' Politico President Donald Trump on Friday claimed that he won't get the credit he deserves for the first 100 days of his administration, seeking to manage expectations around what he called the “ridiculous standard” of the upcoming milestone date. “No matter ... President Trump, here's why 100 days may not be such a 'ridiculous standard' Washington Post Donald Trump just pulled a major flip-flop on his first 100 days in office CNN Donald Trump Is Right: '100 Days' Is Dumb (Someone Should Tell His Staff) U.S. News & World Report Fox News - MSNBC - The Atlantic - Donald J Trump for President all 62 news articles »
 
 
 Full story on F3News: [Trump scoffs at 100-day mark as 'ridiculous standard' - Politico](http://www.f3nws.com/n/MF2mXC)

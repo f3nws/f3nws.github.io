@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela protests: What you need to know"
-date: 2017-04-21 16:36:05Z
+date: 2017-04-21 17:43:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -10,4 +10,4 @@ Venezuela has been riven by violent protests in recent weeks as opposition leade
 
 Full story on F3News: [Venezuela protests: What you need to know](http://www.f3nws.com/n/RuZyND)
 
-> Posted on: Friday, April 21, 2017 9:36:05 PM
+> Posted on: Friday, April 21, 2017 10:43:03 PM
