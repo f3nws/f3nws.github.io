@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Nye wants to save the world from science deniers     - CNET"
-date: 2017-04-22 01:27:17Z
+date: 2017-04-22 01:34:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Science Guy stops by CNET to talk about his new Netflix show...and we roast 
 
 Full story on F3News: [Bill Nye wants to save the world from science deniers     - CNET](http://www.f3nws.com/n/43cjFJ)
 
-> Posted on: Saturday, April 22, 2017 6:27:17 AM
+> Posted on: Saturday, April 22, 2017 6:34:43 AM

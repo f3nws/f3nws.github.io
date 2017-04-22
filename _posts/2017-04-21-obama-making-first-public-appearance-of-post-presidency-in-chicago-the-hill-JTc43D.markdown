@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Obama making first public appearance of post-presidency in Chicago - The Hill](http://thehill.com/sites/default/files/obamabarack_101816vsj5.jpg)
 
-The Hill Obama making first public appearance of post-presidency in Chicago The Hill Barack Obama · Barack ObamaState Dept. official reassigned after conservative media criticism: report Trump, bring back the War Powers Act. US troops are not yours alone. The Hill's 12:30 Report MORE will make the first public appearance of his ... Vacation's Over: Obama Returns to Public Life Next Week New York Times Obama to make first post-presidency public appearance in Chicago next week Washington Post Obama's back: Former president to hold Chicago event on Monday Politico CNN - Chicago Tribune all 92 news articles »
+The Hill Obama making first public appearance of post-presidency in Chicago The Hill Barack Obama · Barack ObamaEx-Obama aide: Obama still the face of Democratic party State Dept. official reassigned after conservative media criticism: report Trump, bring back the War Powers Act. US troops are not yours alone. MORE will make the first ... Vacation's Over: Obama Returns to Public Life Next Week New York Times Obama to make first post-presidency public appearance in Chicago next week Washington Post Ex-President Barack Obama to hold first public event since leaving office, in Chicago on Monday Chicago Tribune Politico all 94 news articles »
 
 
 Full story on F3News: [Obama making first public appearance of post-presidency in Chicago - The Hill](http://www.f3nws.com/n/JTc43D)
