@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taliban fighters attack  Afghan base"
-date: 2017-04-22 12:58:11Z
+date: 2017-04-22 15:11:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Taliban fighters dressed in military uniforms attacked an army base in northern 
 
 Full story on F3News: [Taliban fighters attack  Afghan base](http://www.f3nws.com/n/2gqHjC)
 
-> Posted on: Saturday, April 22, 2017 5:58:11 PM
+> Posted on: Saturday, April 22, 2017 8:11:49 PM
