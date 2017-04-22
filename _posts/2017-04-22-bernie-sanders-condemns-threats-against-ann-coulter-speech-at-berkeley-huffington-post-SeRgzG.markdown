@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley - Huffington Post](http://img.huffingtonpost.com/asset/2000_1000/58fb71551c00003a00e81208.jpeg)
 
-Huffington Post Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley Huffington Post OMAHA ― Sen. Bernie Sanders (I-Vt.) criticized the security threats to a speaking event by conservative pundit Ann Coulter at the University of California, Berkeley that prompted the school to postpone the talk. “I don't like this. I don't like it ... and more »
+Huffington Post Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley Huffington Post OMAHA ― Sen. Bernie Sanders (I-Vt.) criticized the security threats to a speaking event by conservative pundit Ann Coulter at the University of California, Berkeley that prompted the school to postpone the talk. “I don't like this. I don't like it ... Berkeley once stood for free speech; now it caves: Megan McArdle OregonLive.com all 108 news articles »
 
 
 Full story on F3News: [Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley - Huffington Post](http://www.f3nws.com/n/SeRgzG)

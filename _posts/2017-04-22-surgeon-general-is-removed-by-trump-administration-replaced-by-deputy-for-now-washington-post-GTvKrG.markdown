@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Surgeon general is removed by Trump administration, replaced by deputy for now - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2016/03/30/Editorial-Opinion/Advance/Images/517238842-544.jpg)
 
-Washington Post Surgeon general is removed by Trump administration, replaced by deputy for now Washington Post U.S. Surgeon General Vivek H. Murthy has been removed by the Trump administration and replaced temporarily by his deputy, Rear Adm. Sylvia Trent-Adams. Murthy, a holdover from the Obama administration, was asked to resign, according to a statement ... US Surgeon General Vivek Murthy Replaced Under Trump Administration NBCNews.com Surgeon general asked to resign CNN Trump Fires Surgeon General Who Called Gun Violence a Public Health Issue Slate Magazine (blog) Fox News - Gizmodo - ThinkProgress - New York Times all 60 news articles »
+Washington Post Surgeon general is removed by Trump administration, replaced by deputy for now Washington Post U.S. Surgeon General Vivek H. Murthy has been removed by the Trump administration and replaced temporarily by his deputy, Rear Adm. Sylvia Trent-Adams. Murthy, a holdover from the Obama administration, was asked to resign, according to a statement ... Surgeon General removed from post by Trump administration, replaced by deputy ABC News US Surgeon General Vivek Murthy Replaced Under Trump Administration NBCNews.com Surgeon general asked to resign CNN Slate Magazine (blog) - Fox News - Gizmodo - New York Times all 65 news articles »
 
 
 Full story on F3News: [Surgeon general is removed by Trump administration, replaced by deputy for now - Washington Post](http://www.f3nws.com/n/GTvKrG)
