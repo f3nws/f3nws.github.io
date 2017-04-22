@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Thousands arrive in Compton to give Kendrick Lamar a hero's welcome - Los Angeles Times](http://www.trbimg.com/img-58fa5a53/turbine/la-et-ms-kendrick-lamar-compton-20170420)
 
-Los Angeles Times Thousands arrive in Compton to give Kendrick Lamar a hero's welcome Los Angeles Times The parking lot of the Compton Best Buy is 131 miles from the Empire Polo Club in Indio. Perhaps it's much farther in the minds of many South L.A. hip-hop fans, at least for those who wished they could have seen their hometown hero Kendrick Lamar ... Kendrick Lamar's First Interview After Releasing 'DAMN.' Is A Doozy NPR A Deep Dig on Kendrick Lamar and J. Cole's Hip-Hop's Values New York Times Kendrick Lamar reveals what he learned from meeting Barack Obama EW.com (blog) Salon - Billboard - BET - Consequence of Sound (blog) all 232 news articles »
+Los Angeles Times Thousands arrive in Compton to give Kendrick Lamar a hero's welcome Los Angeles Times The parking lot of the Compton Best Buy is 131 miles from the Empire Polo Club in Indio. Perhaps it's much farther in the minds of many South L.A. hip-hop fans, at least for those who wished they could have seen their hometown hero Kendrick Lamar ... A Deep Dig on Kendrick Lamar and J. Cole's Hip-Hop's Values New York Times Kendrick Lamar reveals what he learned from meeting Barack Obama EW.com (blog) Kendrick Lamar has all the answers Salon Billboard - BET - Consequence of Sound (blog) - HipHopDX all 232 news articles »
 
 
 Full story on F3News: [Thousands arrive in Compton to give Kendrick Lamar a hero's welcome - Los Angeles Times](http://www.f3nws.com/n/UGrsdB)
