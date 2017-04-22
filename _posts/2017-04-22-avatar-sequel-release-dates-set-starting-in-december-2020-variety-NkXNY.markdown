@@ -5,9 +5,9 @@ date: 2017-04-22 14:50:28Z
 categories: google-news-entertaintment
 ---
 
-!['Avatar' Sequel Release Dates Set, Starting in December, 2020 - Variety](http://pmcvariety.files.wordpress.com/2017/04/avatar.jpg?w=1000&h=557&crop=1)
+!['Avatar' Sequel Release Dates Set, Starting in December, 2020 - Variety](https://pmcvariety.files.wordpress.com/2017/04/avatar.jpg?w=1000&h=557&crop=1)
 
-Variety 'Avatar' Sequel Release Dates Set, Starting in December, 2020 Variety James Cameron and Fox have set the release dates for the four “Avatar” sequels, starting on Dec. 18, 2020, for “Avatar 2.” “Avatar 3” will open Dec. 17, 2021, followed by a three- year break for “Avatar 4, set for Dec.20, 2024. “Avatar 5” will then ... Avatar sequels get official release dates EW.com 20th Century Fox Sets Release Dates for Four 'Avatar' Sequels Between 2020 & 2025 Collider.com 'Avatar' sequels now scheduled to start in December 2020 New York Daily News Screen Rant - The Verge - Deadline - Just Jared all 28 news articles »
+Variety 'Avatar' Sequel Release Dates Set, Starting in December, 2020 Variety James Cameron and Fox have set the release dates for the four “Avatar” sequels, starting on Dec. 18, 2020, for “Avatar 2.” “Avatar 3” will open Dec. 17, 2021, followed by a three- year break for “Avatar 4, set for Dec.20, 2024. “Avatar 5” will then ... Avatar sequels get official release dates EW.com 'Avatar' sequels now scheduled to start in December 2020 New York Daily News 'Avatar' Locks Down Release Dates for Four Sequel Films RollingStone.com /FILM - ComingSoon.net - Collider.com - Forbes all 43 news articles »
 
 
 Full story on F3News: ['Avatar' Sequel Release Dates Set, Starting in December, 2020 - Variety](http://www.f3nws.com/n/NkXNY)

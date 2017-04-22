@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News Channel's 'Tucker Carlson Tonight' to Present an Exclusive Interview with Caitlyn Jenner This Monday at 8 pm ET!"
-date: 2017-04-22 17:04:23Z
+date: 2017-04-22 18:00:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Fox News Channel's 'Tucker Carlson Tonight' to Present an Exclusive Interview with Caitlyn Jenner This Monday at 8 pm ET!](http://www.f3nws.com/n/ymPpWG)
 
-> Posted on: Saturday, April 22, 2017 10:04:23 PM
+> Posted on: Saturday, April 22, 2017 11:00:08 PM
