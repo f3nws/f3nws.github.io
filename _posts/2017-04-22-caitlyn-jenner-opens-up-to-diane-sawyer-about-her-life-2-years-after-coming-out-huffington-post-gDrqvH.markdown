@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out - Huffington Post](http://img.huffingtonpost.com/asset/2000_1000/58fb61f514000049001b5ba2.png)
 
-Huffington Post Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out Huffington Post The wide-ranging interview hit on everything from Donald Trump to her Vanity Fair cover. By Noah Michelson. 580. 27. There is “peace” in Caitlyn Jenner's soul. That's the message she had for Diane Sawyer ― and the millions of people who tuned in for ... Caitlyn Jenner Confirms Gender Reassignment Surgery in '20/20' Interview Us Weekly Caitlyn Jenner Says Penis Removal Questions Are Inappropriate TMZ.com TV Ratings: Caitlyn Jenner and Diane Sawyer Reunion Interview Shrinks Hollywood Reporter Orlando Sentinel - The Hollywood Gossip - X17 Online - myCentralOregon.com all 391 news articles »
+Huffington Post Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out Huffington Post The wide-ranging interview hit on everything from Donald Trump to her Vanity Fair cover. By Noah Michelson. 660. 27. There is “peace” in Caitlyn Jenner's soul. That's the message she had for Diane Sawyer ― and the millions of people who tuned in for ... Caitlyn Jenner Confirms Gender Reassignment Surgery in '20/20' Interview Us Weekly Caitlyn Jenner Says Penis Removal Questions Are Inappropriate TMZ.com TV Ratings: Caitlyn Jenner and Diane Sawyer Reunion Interview Shrinks Hollywood Reporter all 391 news articles »
 
 
 Full story on F3News: [Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out - Huffington Post](http://www.f3nws.com/n/gDrqvH)
