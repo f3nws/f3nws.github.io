@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Vows to Unveil Tax-Cut Plan Next Week, Surprising Staff - New York Times](https://static01.nyt.com/images/2017/04/22/us/22TRUMP-01/22TRUMP-01-facebookJumbo.jpg)
 
-New York Times Trump Vows to Unveil Tax-Cut Plan Next Week, Surprising Staff New York Times President Trump signed an executive order on tax reform at the Treasury Department on Friday. Credit Gabriella Demczuk for The New York Times. WASHINGTON — President Trump promised on Friday that he would unveil a “massive” tax cut for Americans ... The White House reveals what next week's 'big announcement' on taxes will look like Washington Post Trump's Plan Can Cut Taxes, But Only Temporarily Bloomberg Trump's 'Big Announcement' on Tax to Be Broad Principles: Official U.S. News & World Report all 304 news articles »
+New York Times Trump Vows to Unveil Tax-Cut Plan Next Week, Surprising Staff New York Times President Trump signed an executive order on tax reform at the Treasury Department on Friday. Credit Gabriella Demczuk for The New York Times. WASHINGTON — President Trump promised on Friday that he would unveil a “massive” tax cut for Americans ... The White House reveals what next week's 'big announcement' on taxes will look like Washington Post Trump's Plan Can Cut Taxes, But Only Temporarily Bloomberg Trump to unveil tax cut he says could be biggest ever Fox News CBS News - Newsweek - CNBC - ABC News all 316 news articles »
 
 
 Full story on F3News: [Trump Vows to Unveil Tax-Cut Plan Next Week, Surprising Staff - New York Times](http://www.f3nws.com/n/aefsWJ)
