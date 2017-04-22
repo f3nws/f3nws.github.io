@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taliban fighters attack Afghan army base, 'killing 140'"
-date: 2017-04-22 09:59:43Z
+date: 2017-04-22 10:08:58Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Fighters dressed in military uniforms attack major army base in Balkh province a
 
 Full story on F3News: [Taliban fighters attack Afghan army base, 'killing 140'](http://www.f3nws.com/n/pp4ZC)
 
-> Posted on: Saturday, April 22, 2017 2:59:43 PM
+> Posted on: Saturday, April 22, 2017 3:08:58 PM

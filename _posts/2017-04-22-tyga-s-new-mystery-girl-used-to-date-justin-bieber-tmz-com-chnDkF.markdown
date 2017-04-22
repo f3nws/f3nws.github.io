@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Tyga's New Mystery Girl Used to Date Justin Bieber - TMZ.com](http://ll-media.tmz.com/2017/04/21/0421-tyga-new-girl-fame-flynet-primary-1200x630.jpg)
 
-TMZ.com Tyga's New Mystery Girl Used to Date Justin Bieber TMZ.com If Tyga's new mystery girl looks familiar, it's not just because she's a Kylie look-alike -- she also used to date Justin Bieber. Jordan Ozuna was banging the Biebs back in 2014 ... back when she was a Hooters waitress in Vegas. She also worked as a ... Tyga's Dinner Date Jordan Ozuna Breaks Her Silence on Those Romance Rumors E! Online Why Did Kylie Jenner and Tyga Break up? Here's Everything We Know! In Touch Weekly Twitter DRAGS Tyga For Being Caught With A Kylie Jenner Look-Alike -- Too Funny! PerezHilton.com Hollywood Life - Us Weekly - Bustle - Huffington Post all 83 news articles »
+TMZ.com Tyga's New Mystery Girl Used to Date Justin Bieber TMZ.com If Tyga's new mystery girl looks familiar, it's not just because she's a Kylie look-alike -- she also used to date Justin Bieber. Jordan Ozuna was banging the Biebs back in 2014 ... back when she was a Hooters waitress in Vegas. She also worked as a ... Tyga's Dinner Date Jordan Ozuna Breaks Her Silence on Those Romance Rumors E! Online Why Did Kylie Jenner and Tyga Break up? Here's Everything We Know! In Touch Weekly Twitter DRAGS Tyga For Being Caught With A Kylie Jenner Look-Alike -- Too Funny! PerezHilton.com Hollywood Life - Huffington Post - TMZ.com all 85 news articles »
 
 
 Full story on F3News: [Tyga's New Mystery Girl Used to Date Justin Bieber - TMZ.com](http://www.f3nws.com/n/chnDkF)
