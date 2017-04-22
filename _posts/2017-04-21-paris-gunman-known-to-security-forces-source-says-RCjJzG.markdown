@@ -5,6 +5,8 @@ date: 2017-04-21 19:15:15Z
 categories: cnn-com-top-stories
 ---
 
+![Paris gunman known to security forces, source says](http://i2.cdn.cnn.com/cnnnext/dam/assets/170420160315-05-champs-elysees-shooting-0420-super-tease.jpg)
+
 A man who killed a police officer on the Champs-Elysees Thursday night was known to French security services for radical Islamist activities and had shot and wounded an officer in the past, a source close to the investigation told CNN.
 
 

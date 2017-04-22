@@ -5,6 +5,8 @@ date: 2017-04-21 16:00:20Z
 categories: cnn-com-top-stories
 ---
 
+![Diet sodas tied to stroke, dementia risk?](http://i2.cdn.cnn.com/cnnnext/dam/assets/131216161138-diet-soda-1-story-top.jpg)
+
 Artificially sweetened drinks, such as diet sodas, were associated with a higher risk of stroke and dementia in a new study; however, the findings do not determine a causal relationship and should be interpreted with caution.
 
 

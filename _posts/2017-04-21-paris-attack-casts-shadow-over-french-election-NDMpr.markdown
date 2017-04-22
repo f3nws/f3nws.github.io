@@ -5,6 +5,8 @@ date: 2017-04-21 19:58:07Z
 categories: cnn-com-top-stories
 ---
 
+![Paris attack casts shadow over French election](http://i2.cdn.cnn.com/cnnnext/dam/assets/170420171723-20-champs-elysees-shooting-0420-super-tease.jpg)
+
 A deadly attack on a police bus in the heart of Paris has dramatically changed the course of the French presidential election campaign.
 
 

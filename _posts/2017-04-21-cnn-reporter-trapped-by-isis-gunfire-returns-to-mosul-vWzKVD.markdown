@@ -5,6 +5,8 @@ date: 2017-04-21 18:00:23Z
 categories: cnn-com-top-stories
 ---
 
+![CNN reporter trapped by ISIS gunfire returns to Mosul](http://i2.cdn.cnn.com/cnnnext/dam/assets/170306163551-14-mosul-hell-and-humanity-arwa-and-baby-super-tease.jpg)
+
 The last time I saw Mattar, she was running for her life, and she was angry.
 
 

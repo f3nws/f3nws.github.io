@@ -5,6 +5,8 @@ date: 2017-04-21 19:43:48Z
 categories: cnn-com-top-stories
 ---
 
+![Can Serena return to the top after giving birth?](http://i2.cdn.cnn.com/cnnnext/dam/assets/170228123151-serena-williams-smiles-super-tease.jpg)
+
 It is July 2008. Five months have passed since Kim Clijsters gave birth to her first child, and the Belgian is back on the tennis court for the first time.
 
 

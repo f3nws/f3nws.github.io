@@ -5,6 +5,8 @@ date: 2017-04-21 15:47:56Z
 categories: cnn-com-top-stories
 ---
 
+![Measles outbreak surging in Italy](http://i2.cdn.cnn.com/cnnnext/dam/assets/160531160929-vaccine-vile-and-needle-super-tease.jpg)
+
 An outbreak of measles is spreading across Italy, with more than 1,600 cases of the disease reported in 2017, across 19 of the country's 21 regions.
 
 
