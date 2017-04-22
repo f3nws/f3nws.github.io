@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters march worldwide in support of science"
-date: 2017-04-22 12:34:54Z
+date: 2017-04-22 13:52:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Crowds of people are marching Saturday in the United States and around the world
 
 Full story on F3News: [Protesters march worldwide in support of science](http://www.f3nws.com/n/HBPCcC)
 
-> Posted on: Saturday, April 22, 2017 5:34:54 PM
+> Posted on: Saturday, April 22, 2017 6:52:50 PM
