@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![140 Soldiers Killed in Taliban Attack on Afghan Base, Official Says - New York Times](https://static01.nyt.com/images/2017/04/22/world/asia/afghan-img/afghan-img-facebookJumbo-v2.jpg)
 
-New York Times 140 Soldiers Killed in Taliban Attack on Afghan Base, Official Says New York Times Soldiers outside a military base in Balkh Province in northern Afghanistan on Saturday. A Taliban assault there Friday may have been the deadliest attack on an Afghan base since the war began. Credit Mutalib Sultani/European Pressphoto Agency. KABUL ... Afghanistan massacre: More than 100 feared dead in Taliban attack Fox News Militants in army uniforms kill more than 100 Afghan soldiers at northern base, officials say Los Angeles Times More than 100 soldiers killed or injured in Taliban attack on Afghan base CNN NBCNews.com - U.S. News & World Report - Washington Post - Military.com all 253 news articles »
+New York Times 140 Soldiers Killed in Taliban Attack on Afghan Base, Official Says New York Times Soldiers outside a military base in Balkh Province in northern Afghanistan on Saturday. A Taliban assault there Friday may have been the deadliest attack on an Afghan base since the war began. Credit Mutalib Sultani/European Pressphoto Agency. KABUL ... Mourning declared after scores of troops die in Afghan base attack Reuters Militants in army uniforms kill more than 100 Afghan soldiers at northern base, officials say Los Angeles Times More than 100 soldiers killed or injured in Taliban attack on Afghan base CNN Fox News - Washington Post - NBCNews.com - Military.com all 260 news articles »
 
 
 Full story on F3News: [140 Soldiers Killed in Taliban Attack on Afghan Base, Official Says - New York Times](http://www.f3nws.com/n/ymBkMG)

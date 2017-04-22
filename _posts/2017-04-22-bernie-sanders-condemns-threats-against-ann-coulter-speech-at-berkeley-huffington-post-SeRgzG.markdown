@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley - Huffington Post"
+date: 2017-04-22 16:25:15Z
+categories: google-news-top-stories
+---
+
+![Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley - Huffington Post](http://img.huffingtonpost.com/asset/2000_1000/58fb71551c00003a00e81208.jpeg)
+
+Huffington Post Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley Huffington Post OMAHA ― Sen. Bernie Sanders (I-Vt.) criticized the security threats to a speaking event by conservative pundit Ann Coulter at the University of California, Berkeley that prompted the school to postpone the talk. “I don't like this. I don't like it ... Bill Maher defends Ann Coulter in Berkeley free-speech fight Fox News How Trump can send a message to UC Berkeley about freedom of speech Los Angeles Times Berkeley is still appeasing the the anti-free-speech bullies New York Post all 98 news articles »
+
+
+Full story on F3News: [Bernie Sanders Condemns Threats Against Ann Coulter Speech At Berkeley - Huffington Post](http://www.f3nws.com/n/SeRgzG)
+
+> Posted on: Saturday, April 22, 2017 9:25:15 PM
