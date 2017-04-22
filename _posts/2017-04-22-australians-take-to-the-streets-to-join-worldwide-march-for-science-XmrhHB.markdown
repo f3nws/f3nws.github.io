@@ -5,7 +5,7 @@ date: 2017-04-22 02:29:13Z
 categories: abc-top-stories
 ---
 
-![Australians take to the streets to join worldwide March for Science](http://www.abc.net.au/news/image/8463990-1x1-700x700.jpg)
+![Australians take to the streets to join worldwide March for Science](http://www.abc.net.au/news/image/8464166-1x1-700x700.jpg)
 
 Thousands of Australians took to the streets today in the name of science, with the inaugural March for Science taking place in 12 Australian locations and 500 places worldwide.
 
