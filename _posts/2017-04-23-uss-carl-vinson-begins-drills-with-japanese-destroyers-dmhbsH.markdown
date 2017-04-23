@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USS Carl Vinson begins drills with Japanese destroyers"
-date: 2017-04-23 10:10:09Z
+date: 2017-04-23 15:49:29Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ American aircraft carrier USS Carl Vinson started joint drills with two Japanese
 
 Full story on F3News: [USS Carl Vinson begins drills with Japanese destroyers](http://www.f3nws.com/n/dmhbsH)
 
-> Posted on: Sunday, April 23, 2017 3:10:09 PM
+> Posted on: Sunday, April 23, 2017 8:49:29 PM

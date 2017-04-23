@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Here's how the headphones that come with Samsung's Galaxy S8 compare to Apple's EarPods - Business Insider"
+date: 2017-04-23 14:01:38Z
+categories: google-news-technology
+---
+
+![Here's how the headphones that come with Samsung's Galaxy S8 compare to Apple's EarPods - Business Insider](http://static4.businessinsider.com/image/58fc53fb7522cafa078b5795-1190-625/heres-how-the-headphones-that-come-with-samsungs-galaxy-s8-compare-to-apples-earpods.jpg)
+
+Business Insider Here's how the headphones that come with Samsung's Galaxy S8 compare to Apple's EarPods Business Insider BI Reviews Galaxy S8 Headphones 4x3 A Samsung Galaxy S8 and its included earbuds (left), and an Apple iPhone SE with its included EarPods earbuds. Jeff Dunn/Business Insider. Let's be clear here: Don't buy a smartphone because of the headphones in ... Galaxy S8 Review: Samsung Spoils Perfection Forbes There's an anti-dog label inside the Galaxy S8 — here's what it means The Verge Galaxy Note 8 vs. iPhone 8: KGI Analyst Hints At Specs ValueWalk Tom's Guide - Yahoo News - Engadget - Tech Times all 527 news articles »
+
+
+Full story on F3News: [Here's how the headphones that come with Samsung's Galaxy S8 compare to Apple's EarPods - Business Insider](http://www.f3nws.com/n/BsxrNB)
+
+> Posted on: Sunday, April 23, 2017 7:01:38 PM
