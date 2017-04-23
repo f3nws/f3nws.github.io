@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron, Le Pen set to face off in final round"
-date: 2017-04-23 19:24:50Z
+date: 2017-04-23 19:35:39Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Exit polls from nail-biting first stage of French presidential vote shows centri
 
 Full story on F3News: [Macron, Le Pen set to face off in final round](http://www.f3nws.com/n/UBVm2H)
 
-> Posted on: Monday, April 24, 2017 12:24:50 AM
+> Posted on: Monday, April 24, 2017 12:35:39 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's First 100 Days: An 'Entry-Level' Presidency - NPR](https://media.npr.org/assets/img/2017/04/22/gettyimages-671248252_wide-78f5802ea6db2de07f528c0fb1eb3bba5650384d.jpg?s=1400)
 
-NPR Trump's First 100 Days: An 'Entry-Level' Presidency NPR With any new president, there's a learning curve. But for President Trump, it's been steeper than others. "Mount Everest" is how Barbara Perry, director of presidential studies at the Miller Center at the University of Virginia, described it ahead of ... Transcript of AP interview with Trump Washington Post Why Trump likes his freewheeling Oval Office schedule Politico Analysis: A bumpy 100 days for Trump? Just wait for the 1361 to follow USA TODAY Washington Examiner - CNN - The Atlantic - Business Insider all 145 news articles »
+NPR Trump's First 100 Days: An 'Entry-Level' Presidency NPR With any new president, there's a learning curve. But for President Trump, it's been steeper than others. "Mount Everest" is how Barbara Perry, director of presidential studies at the Miller Center at the University of Virginia, described it ahead of ... Transcript of AP interview with Trump Washington Post Why Trump likes his freewheeling Oval Office schedule Politico Trump to sign executive orders on environment, energy this week: report The Hill USA TODAY - CNN - Washington Examiner - The Atlantic all 148 news articles »
 
 
 Full story on F3News: [Trump's First 100 Days: An 'Entry-Level' Presidency - NPR](http://www.f3nws.com/n/2yCeGE)
