@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Kardashian Puts Shimmering Bra on Display in Raciest Outfit in Months - E! Online"
-date: 2017-04-22 22:04:43Z
+date: 2017-04-22 22:02:43Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ E! Online Kim Kardashian Puts Shimmering Bra on Display in Raciest Outfit in Mon
 
 Full story on F3News: [Kim Kardashian Puts Shimmering Bra on Display in Raciest Outfit in Months - E! Online](http://www.f3nws.com/n/qzZAd)
 
-> Posted on: Sunday, April 23, 2017 3:04:43 AM
+> Posted on: Sunday, April 23, 2017 3:02:43 AM
