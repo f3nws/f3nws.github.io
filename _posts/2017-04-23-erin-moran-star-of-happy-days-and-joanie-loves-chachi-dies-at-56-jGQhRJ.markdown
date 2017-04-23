@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erin Moran, star of 'Happy Days' and 'Joanie Loves Chachi' dies at 56"
-date: 2017-04-23 04:00:11Z
+date: 2017-04-23 04:01:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Erin Moran, the former child star who played Joanie Cunningham in the sitcoms â€
 
 Full story on F3News: [Erin Moran, star of 'Happy Days' and 'Joanie Loves Chachi' dies at 56](http://www.f3nws.com/n/jGQhRJ)
 
-> Posted on: Sunday, April 23, 2017 9:00:11 AM
+> Posted on: Sunday, April 23, 2017 9:01:00 AM
