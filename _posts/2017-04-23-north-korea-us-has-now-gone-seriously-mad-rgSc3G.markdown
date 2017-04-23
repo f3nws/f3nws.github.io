@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: 'US has now gone seriously mad'"
-date: 2017-04-23 05:27:29Z
+date: 2017-04-23 05:50:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US naval strike group set to arrive off peninsula amid concerns North Korea is p
 
 Full story on F3News: [North Korea: 'US has now gone seriously mad'](http://www.f3nws.com/n/rgSc3G)
 
-> Posted on: Sunday, April 23, 2017 10:27:29 AM
+> Posted on: Sunday, April 23, 2017 10:50:21 AM

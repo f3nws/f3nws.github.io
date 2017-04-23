@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "March for Science: Rallies from Washington DC to Berlin"
-date: 2017-04-23 05:20:48Z
+date: 2017-04-23 05:56:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Global event aimed to promote an understanding of science and defend it from pro
 
 Full story on F3News: [March for Science: Rallies from Washington DC to Berlin](http://www.f3nws.com/n/cDSkCJ)
 
-> Posted on: Sunday, April 23, 2017 10:20:48 AM
+> Posted on: Sunday, April 23, 2017 10:56:33 AM
