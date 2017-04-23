@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Why people are marching for science: 'There is no Planet B' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/22/Others/Images/2017-04-22/ARD_3688.jpg)
 
-Washington Post Why people are marching for science: 'There is no Planet B' Washington Post Thousands of people gathered in the rain Saturday on the soggy grounds of the Washington Monument to turn Earth Day into an homage to science. After four hours of speeches and musical performances, they marched down Constitution Avenue to the foot ... 'In science we trust': Rainy Boston rally draws thousands The Boston Globe Trump on Earth Day: 'Rigorous science is critical to my administration' CNN Scientists, Supporters Descend on Washington in March for Science U.S. News & World Report Los Angeles Times - Fox News - CBS News - The Hill all 657 news articles »
+Washington Post Why people are marching for science: 'There is no Planet B' Washington Post Thousands of people gathered in the rain Saturday on the soggy grounds of the Washington Monument to turn Earth Day into an homage to science. After four hours of speeches and musical performances, they marched down Constitution Avenue to the foot ... Dems knock Trump on Earth Day The Hill 'In science we trust': Rainy Boston rally draws thousands The Boston Globe March for Science Demonstrators Say They're the Real Patriots NBCNews.com Los Angeles Times - CNN - Fox News - CBS News all 726 news articles »
 
 
 Full story on F3News: [Why people are marching for science: 'There is no Planet B' - Washington Post](http://www.f3nws.com/n/GeSQh)
