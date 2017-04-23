@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to memorialize someone's Facebook account     - CNET"
-date: 2017-04-22 23:09:01Z
+date: 2017-04-22 23:28:10Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Take the reins of your loved one's memorial page.
 
 Full story on F3News: [How to memorialize someone's Facebook account     - CNET](http://www.f3nws.com/n/zRmufB)
 
-> Posted on: Sunday, April 23, 2017 4:09:01 AM
+> Posted on: Sunday, April 23, 2017 4:28:10 AM
