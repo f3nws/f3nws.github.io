@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French elections: Far-right leader Le Pen and centrist Macron to face off, estimates say"
-date: 2017-04-23 20:01:00Z
+date: 2017-04-23 20:21:24Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Polls have closed in France's bitterly divisive presidential election. Early pro
 
 Full story on F3News: [French elections: Far-right leader Le Pen and centrist Macron to face off, estimates say](http://www.f3nws.com/n/ZsgeyC)
 
-> Posted on: Monday, April 24, 2017 1:01:00 AM
+> Posted on: Monday, April 24, 2017 1:21:24 AM
