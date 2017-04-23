@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France votes in first round of tight presidential race"
-date: 2017-04-23 15:47:33Z
+date: 2017-04-23 17:54:18Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Any two of the four leading candidates could reach the second round in a vote th
 
 Full story on F3News: [France votes in first round of tight presidential race](http://www.f3nws.com/n/dpBkmD)
 
-> Posted on: Sunday, April 23, 2017 8:47:33 PM
+> Posted on: Sunday, April 23, 2017 10:54:18 PM

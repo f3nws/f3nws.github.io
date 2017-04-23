@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France begins voting for president after bitter campaign"
-date: 2017-04-23 15:49:37Z
+date: 2017-04-23 17:39:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ French voters go to the polls Sunday after a presidential election campaign that
 
 Full story on F3News: [France begins voting for president after bitter campaign](http://www.f3nws.com/n/HHkfXH)
 
-> Posted on: Sunday, April 23, 2017 8:49:37 PM
+> Posted on: Sunday, April 23, 2017 10:39:45 PM
