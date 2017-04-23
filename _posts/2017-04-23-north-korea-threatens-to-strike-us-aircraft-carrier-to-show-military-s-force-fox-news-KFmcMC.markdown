@@ -7,7 +7,7 @@ categories: fox-news
 
 ![North Korea threatens to strike US aircraft carrier to show 'military's force' - Fox News](http://a57.foxnews.com/media2.foxnews.com/BrightCove/694940094001/2017/04/22/876/493/694940094001_5407642047001_5407633492001-vs.jpg?ve=1&tl=1)
 
-Fox News North Korea threatens to strike US aircraft carrier to show 'military's force' Fox News North Korea threatened Sunday to sink a U.S. aircraft carrier to demonstrate its military prowess as two Japanese navy ship joined a U.S. strike group for exercises in the Philippine Sea. “Our revolutionary forces are combat-ready to sink a U.S ... North Korea says ready to strike US aircraft carrier CNBC Aircraft Carrier Wasn't Sailing to Deter North Korea, as US Suggested New York Times 170415-N-BL637-044 - Navy.mil - View Image Navy.mil - View Image DefenseNews.com - Fox Business - Commander, US 7th Fleet all 761 news articles »
+Fox News North Korea threatens to strike US aircraft carrier to show 'military's force' Fox News North Korea threatened Sunday to sink a U.S. aircraft carrier to demonstrate its military prowess as two Japanese navy ship joined a U.S. strike group for exercises in the Philippine Sea. “Our revolutionary forces are combat-ready to sink a U.S ... North Korea says ready to strike US aircraft carrier CNBC Aircraft Carrier Wasn't Sailing to Deter North Korea, as US Suggested New York Times 170415-N-BL637-044 - Navy.mil - View Image Navy.mil - View Image DefenseNews.com - Fox Business - Commander, US 7th Fleet all 766 news articles »
 
 
 Full story on F3News: [North Korea threatens to strike US aircraft carrier to show 'military's force' - Fox News](http://www.f3nws.com/n/KFmcMC)
