@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea 'arrests US citizen' at Pyongyang airport"
-date: 2017-04-23 10:39:06Z
+date: 2017-04-23 11:27:00Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Amid regional tensions, Korean-American aid worker reportedly arrested on Friday
 
 Full story on F3News: [North Korea 'arrests US citizen' at Pyongyang airport](http://www.f3nws.com/n/4gDmW)
 
-> Posted on: Sunday, April 23, 2017 3:39:06 PM
+> Posted on: Sunday, April 23, 2017 4:27:00 PM
