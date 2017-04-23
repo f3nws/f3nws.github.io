@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out - Huffington Post](http://img.huffingtonpost.com/asset/2000_1000/58fb61f514000049001b5ba2.png)
 
-Huffington Post Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out Huffington Post The wide-ranging interview hit on everything from Donald Trump to her Vanity Fair cover. By Noah Michelson. 720. 28. There is “peace” in Caitlyn Jenner's soul. That's the message she had for Diane Sawyer ― and the millions of people who tuned in for ... Everything We Learned From Caitlyn Jenner's Bombshell '20/20′ Interview Wetpaint Caitlyn Jenner Confirms Gender Reassignment Surgery in '20/20' Interview Us Weekly Caitlyn Jenner Says Penis Removal Questions Are Inappropriate TMZ.com Hollywood Reporter all 393 news articles »
+Huffington Post Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out Huffington Post The wide-ranging interview hit on everything from Donald Trump to her Vanity Fair cover. By Noah Michelson. 870. 30. There is “peace” in Caitlyn Jenner's soul. That's the message she had for Diane Sawyer ― and the millions of people who tuned in for ... Everything We Learned From Caitlyn Jenner's Bombshell '20/20′ Interview Wetpaint Is Caitlyn Jenner's privilege protection, or a prison? Washington Post Caitlyn Jenner voted for Trump but now she won't even play golf with him SFGate Us Weekly all 402 news articles »
 
 
 Full story on F3News: [Caitlyn Jenner Opens Up To Diane Sawyer About Her Life 2 Years After Coming Out - Huffington Post](http://www.f3nws.com/n/gDrqvH)
