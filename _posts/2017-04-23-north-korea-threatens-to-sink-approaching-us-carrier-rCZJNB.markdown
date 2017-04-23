@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea threatens to sink approaching US carrier"
-date: 2017-04-23 15:11:52Z
+date: 2017-04-23 17:07:49Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Rhetoric rises as Pyongyang also warns Australia of a nuclear attack if it joins
 
 Full story on F3News: [North Korea threatens to sink approaching US carrier](http://www.f3nws.com/n/rCZJNB)
 
-> Posted on: Sunday, April 23, 2017 8:11:52 PM
+> Posted on: Sunday, April 23, 2017 10:07:49 PM
