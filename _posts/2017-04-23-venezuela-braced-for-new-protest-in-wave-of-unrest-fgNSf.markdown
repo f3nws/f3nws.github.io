@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela braced for new protest in wave of unrest"
-date: 2017-04-23 06:51:28Z
+date: 2017-04-23 12:09:52Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ A test of government tolerance after days of running street battles with rubber 
 
 Full story on F3News: [Venezuela braced for new protest in wave of unrest](http://www.f3nws.com/n/fgNSf)
 
-> Posted on: Sunday, April 23, 2017 11:51:28 AM
+> Posted on: Sunday, April 23, 2017 5:09:52 PM
