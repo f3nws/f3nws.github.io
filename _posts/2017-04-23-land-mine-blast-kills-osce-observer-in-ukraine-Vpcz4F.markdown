@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Land mine blast kills OSCE observer in Ukraine"
-date: 2017-04-23 13:56:57Z
+date: 2017-04-23 14:49:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ OSCE chairman calls for 'thorough investigation' after monitors' patrol hits roa
 
 Full story on F3News: [Land mine blast kills OSCE observer in Ukraine](http://www.f3nws.com/n/Vpcz4F)
 
-> Posted on: Sunday, April 23, 2017 6:56:57 PM
+> Posted on: Sunday, April 23, 2017 7:49:33 PM
