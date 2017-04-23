@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![American Airlines Suspends Flight Attendant After Altercation Over Stroller - New York Times](https://static01.nyt.com/images/2017/04/22/us/22xp-stroller/22xp-stroller-facebookJumbo.jpg)
 
-New York Times American Airlines Suspends Flight Attendant After Altercation Over Stroller New York Times American Airlines said it had suspended a flight attendant after an altercation with a woman traveling with two young children. Credit Spencer Platt/Getty Images. American Airlines suspended a flight attendant after an altercation on Friday in which ... 'Come on, hit me!': American Airlines grounds flight attendant after video shows confrontation Washington Post OMG! AA Flight attendant violently took... - Surain Adyanthaya - Facebook Facebook Video shows intense moments between passengers, American Airlines crew WFAA all 859 news articles »
+New York Times American Airlines Suspends Flight Attendant After Altercation Over Stroller New York Times American Airlines said it had suspended a flight attendant after an altercation with a woman traveling with two young children. Credit Spencer Platt/Getty Images. American Airlines suspended a flight attendant after an altercation on Friday in which ... 'Come on, hit me!': American Airlines grounds flight attendant after video shows confrontation Washington Post OMG! AA Flight attendant violently took... - Surain Adyanthaya - Facebook Facebook Video shows intense moments between passengers, American Airlines crew WFAA all 866 news articles »
 
 
 Full story on F3News: [American Airlines Suspends Flight Attendant After Altercation Over Stroller - New York Times](http://www.f3nws.com/n/UDaqeB)
