@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Polls open for first round of French presidential vote"
-date: 2017-04-23 08:05:43Z
+date: 2017-04-23 09:10:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Any two of the four leading candidates could reach the second round in a vote th
 
 Full story on F3News: [Polls open for first round of French presidential vote](http://www.f3nws.com/n/dpBkmD)
 
-> Posted on: Sunday, April 23, 2017 1:05:43 PM
+> Posted on: Sunday, April 23, 2017 2:10:08 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erin Moran, 'Happy Days' actress, dead at 56"
-date: 2017-04-23 04:45:54Z
+date: 2017-04-23 09:20:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Popular actress Erin Moran, a mainstay on TV from the late '60s to the mid-'80s 
 
 Full story on F3News: [Erin Moran, 'Happy Days' actress, dead at 56](http://www.f3nws.com/n/4QhjgG)
 
-> Posted on: Sunday, April 23, 2017 9:45:54 AM
+> Posted on: Sunday, April 23, 2017 2:20:03 PM
