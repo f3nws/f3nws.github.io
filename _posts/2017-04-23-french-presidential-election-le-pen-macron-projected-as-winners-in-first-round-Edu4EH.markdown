@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French presidential election: Le Pen, Macron projected as winners in first round"
-date: 2017-04-23 20:47:00Z
+date: 2017-04-23 21:18:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ As France’s polls closed in the first round of presidential voting on Sunday, 
 
 Full story on F3News: [French presidential election: Le Pen, Macron projected as winners in first round](http://www.f3nws.com/n/Edu4EH)
 
-> Posted on: Monday, April 24, 2017 1:47:00 AM
+> Posted on: Monday, April 24, 2017 2:18:00 AM
