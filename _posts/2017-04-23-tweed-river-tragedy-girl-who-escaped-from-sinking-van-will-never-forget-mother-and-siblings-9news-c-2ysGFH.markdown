@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tweed River tragedy: Girl who escaped from sinking van 'will never forget' mother and siblings - 9news.com.au"
-date: 2017-04-23 09:25:00Z
+date: 2017-04-23 09:27:56Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ Tweed River tragedy: Girl who escaped from sinking van 'will never forget' mothe
 
 Full story on F3News: [Tweed River tragedy: Girl who escaped from sinking van 'will never forget' mother and siblings - 9news.com.au](http://www.f3nws.com/n/2ysGFH)
 
-> Posted on: Sunday, April 23, 2017 2:25:00 PM
+> Posted on: Sunday, April 23, 2017 2:27:56 PM
