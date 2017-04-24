@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria gas attack: 'We found bodies all over the floor'"
-date: 2017-04-24 18:05:20Z
+date: 2017-04-24 18:30:12Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Survivors and aid workers share their stories of horror and shock after suspecte
 
 Full story on F3News: [Syria gas attack: 'We found bodies all over the floor'](http://www.f3nws.com/n/EFCjdC)
 
-> Posted on: Monday, April 24, 2017 11:05:20 PM
+> Posted on: Monday, April 24, 2017 11:30:12 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas prepares for first double execution in US since 2000"
-date: 2017-04-24 15:30:00Z
+date: 2017-04-24 18:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Two condemned killers in Arkansas are set to die Monday in the first double exec
 
 Full story on F3News: [Arkansas prepares for first double execution in US since 2000](http://www.f3nws.com/n/nFKYMB)
 
-> Posted on: Monday, April 24, 2017 8:30:00 PM
+> Posted on: Monday, April 24, 2017 11:00:00 PM
