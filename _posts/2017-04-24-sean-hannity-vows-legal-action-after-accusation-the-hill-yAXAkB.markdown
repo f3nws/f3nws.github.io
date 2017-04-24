@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Sean Hannity vows legal action after accusation - The Hill](http://thehill.com/sites/default/files/article_images/hannitysean_012417getty.jpg)
 
-The Hill Sean Hannity vows legal action after accusation The Hill Sean Hannity has vowed to sue a former guest of his program with "some of the finest and toughest lawyers in the country" after she accused the Fox News host of sexually propositioning her as allegations of sexual harassment continue to roil the network. Ex-Fox News guest: Hannity made 'uncomfortable' advances Washington Post Ex-Fox News guest accuses Sean Hannity of sexual harassment New York Daily News Despite Reports, Fmr Fox Guest Now Claims She Was Never Sexually Harassed by Sean Hannity LawNewz Kfaq - Art19 - Twitter - New York Daily News all 83 news articles »
+The Hill Sean Hannity vows legal action after accusation The Hill Sean Hannity has vowed to sue a former guest of his program with "some of the finest and toughest lawyers in the country" after she accused the Fox News host of sexually propositioning her as allegations of sexual harassment continue to roil the network. Ex-Fox News guest accuses Sean Hannity of sexual harassment New York Daily News Ex-Fox News guest: Hannity made 'uncomfortable' advances Washington Post A Conservative Commentator Says That No, Sean Hannity Didn't Sexually Harass Her BuzzFeed News PerezHilton.com - Huffington Post - Detroit Free Press - Salon all 87 news articles »
 
 
 Full story on F3News: [Sean Hannity vows legal action after accusation - The Hill](http://www.f3nws.com/n/yAXAkB)
