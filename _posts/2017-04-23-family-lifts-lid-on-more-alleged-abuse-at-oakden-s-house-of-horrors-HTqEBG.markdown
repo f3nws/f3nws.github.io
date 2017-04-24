@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Family lifts lid on more alleged abuse at Oakden's 'house of horrors'](http://www.abc.net.au/news/image/8466236-1x1-700x700.jpg)
 
-Eddie Serpo's wife was worried about leaving him alone at a South Australian Government-run nursing in Oakden after witnessing abuse. Days before his death she discovered bruising on his head which staff said was from a fall.
+Eddie Serpo's wife was worried about leaving him alone at a South Australian Government-run nursing home in Oakden after witnessing abuse. Days before his death she discovered bruising on his head which staff said was from a fall.
 
 
 Full story on F3News: [Family lifts lid on more alleged abuse at Oakden's 'house of horrors'](http://www.f3nws.com/n/HTqEBG)

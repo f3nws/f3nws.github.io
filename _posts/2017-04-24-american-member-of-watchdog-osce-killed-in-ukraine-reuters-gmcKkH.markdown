@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American member of watchdog OSCE killed in Ukraine - Reuters"
-date: 2017-04-24 01:28:00Z
+date: 2017-04-24 01:30:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Reuters American member of watchdog OSCE killed in Ukraine Reuters The damaged v
 
 Full story on F3News: [American member of watchdog OSCE killed in Ukraine - Reuters](http://www.f3nws.com/n/gmcKkH)
 
-> Posted on: Monday, April 24, 2017 6:28:00 AM
+> Posted on: Monday, April 24, 2017 6:30:04 AM
