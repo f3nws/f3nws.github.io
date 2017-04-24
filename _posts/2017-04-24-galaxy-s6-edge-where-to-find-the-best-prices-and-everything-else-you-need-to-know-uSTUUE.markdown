@@ -5,6 +5,8 @@ date: 2017-04-24 19:15:31Z
 categories: digital-trends
 ---
 
+![Galaxy S6 (Edge): Where to find the best prices, and everything else you need to know](http://icdn3.digitaltrends.com/image/samsung-galaxy-s6_0175-3-1200x630-c.jpg)
+
 The Samsung Galaxy S6 and S6 Edge are now classic phones, and they're still available in some select carriers. Here's everything we know about their specs and availability at present. The post Galaxy S6 (Edge): Where to find the best prices, and everything else you need to know appeared first on Digital Trends .
 
 
