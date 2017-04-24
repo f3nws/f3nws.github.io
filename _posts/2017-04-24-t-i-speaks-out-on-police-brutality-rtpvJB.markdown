@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "T.I. speaks out on police brutality"
-date: 2017-04-24 11:22:47Z
+date: 2017-04-24 12:48:36Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ CNN caught up with Tip "T.I." Harris at the SXSW festival last month, where the 
 
 Full story on F3News: [T.I. speaks out on police brutality](http://www.f3nws.com/n/rtpvJB)
 
-> Posted on: Monday, April 24, 2017 4:22:47 PM
+> Posted on: Monday, April 24, 2017 5:48:36 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The lonely pyramids of Giza: Egyptian tourism's decline"
-date: 2017-04-24 07:33:24Z
+date: 2017-04-24 12:38:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The recent Coptic church bombings could further damage the already crippled tour
 
 Full story on F3News: [The lonely pyramids of Giza: Egyptian tourism's decline](http://www.f3nws.com/n/erG2fD)
 
-> Posted on: Monday, April 24, 2017 12:33:24 PM
+> Posted on: Monday, April 24, 2017 5:38:31 PM
