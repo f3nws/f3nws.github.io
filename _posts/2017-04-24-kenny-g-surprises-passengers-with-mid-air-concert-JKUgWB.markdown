@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenny G. surprises passengers with mid-air concert"
-date: 2017-04-24 16:48:47Z
+date: 2017-04-24 21:07:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Some passengers on a Delta flight had time to contemplate this reality as Kenny 
 
 Full story on F3News: [Kenny G. surprises passengers with mid-air concert](http://www.f3nws.com/n/JKUgWB)
 
-> Posted on: Monday, April 24, 2017 9:48:47 PM
+> Posted on: Tuesday, April 25, 2017 2:07:04 AM

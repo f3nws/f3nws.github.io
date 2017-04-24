@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parisians react to first round, mull Le Pen's chances"
-date: 2017-04-24 18:37:23Z
+date: 2017-04-24 20:47:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Far-right leader gained just 5 percent of the vote in the French capital, but wh
 
 Full story on F3News: [Parisians react to first round, mull Le Pen's chances](http://www.f3nws.com/n/TftMmF)
 
-> Posted on: Monday, April 24, 2017 11:37:23 PM
+> Posted on: Tuesday, April 25, 2017 1:47:37 AM
