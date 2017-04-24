@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![From K.Dot To Kung Fu Kenny: Kendrick Lamar By The Numbers - HipHopDX](http://s3.amazonaws.com/hiphopdx-production/2017/04/170421-Kendrick-Lamar-827x620.jpg)
 
-HipHopDX From K.Dot To Kung Fu Kenny: Kendrick Lamar By The Numbers HipHopDX The question is still swirling about whether Kendrick Lamar's DAMN. will go down as a classic. It hasn't had the same cultural impact as 2015's Grammy-winning To Pimp a Butterfly, but it has still made its mark on the industry, now becoming the biggest ... Does Kendrick Lamar's 'DAMN.' Make Him the GOAT? Hip-Hop Editors Weigh In Billboard Grouplove brings joy and Kendrick Lamar proves his mettle as Coachella comes to a close Los Angeles Times How James Blake Contributed to Kendrick Lamar's 'Damn' Complex SPIN - XXLMAG.COM - UPROXX - Billboard all 196 news articles »
+HipHopDX From K.Dot To Kung Fu Kenny: Kendrick Lamar By The Numbers HipHopDX The question is still swirling about whether Kendrick Lamar's DAMN. will go down as a classic. It hasn't had the same cultural impact as 2015's Grammy-winning To Pimp a Butterfly, but it has still made its mark on the industry, now becoming the biggest ... Kendrick Lamar's 'Humble.' Hits No. 1 on Billboard Hot 100 Billboard How James Blake Contributed to Kendrick Lamar's 'Damn' Complex Grouplove brings joy and Kendrick Lamar proves his mettle as Coachella comes to a close Los Angeles Times Billboard all 201 news articles »
 
 
 Full story on F3News: [From K.Dot To Kung Fu Kenny: Kendrick Lamar By The Numbers - HipHopDX](http://www.f3nws.com/n/mgkygD)
