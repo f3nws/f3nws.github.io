@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Afghan officials resign after Taliban attack"
-date: 2017-04-24 09:24:39Z
+date: 2017-04-24 10:47:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Army chief and defence minister forced to step down as country mourns loss of 13
 
 Full story on F3News: [Afghan officials resign after Taliban attack](http://www.f3nws.com/n/gyudbB)
 
-> Posted on: Monday, April 24, 2017 2:24:39 PM
+> Posted on: Monday, April 24, 2017 3:47:27 PM

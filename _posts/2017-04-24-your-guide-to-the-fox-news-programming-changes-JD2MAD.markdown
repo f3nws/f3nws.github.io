@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Your Guide to the Fox News Programming Changes"
-date: 2017-04-24 10:30:25Z
+date: 2017-04-24 11:10:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Your Guide to the Fox News Programming Changes](http://www.f3nws.com/n/JD2MAD)
 
-> Posted on: Monday, April 24, 2017 3:30:25 PM
+> Posted on: Monday, April 24, 2017 4:10:04 PM

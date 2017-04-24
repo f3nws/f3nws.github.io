@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 10 best 4K TVs of 2017"
-date: 2017-04-24 10:12:00Z
+date: 2017-04-24 10:35:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Don't settle for 1080p. These 4K TVs have incredible clarity, amazing colour and
 
 Full story on F3News: [The 10 best 4K TVs of 2017](http://www.f3nws.com/n/ckeUuC)
 
-> Posted on: Monday, April 24, 2017 3:12:00 PM
+> Posted on: Monday, April 24, 2017 3:35:00 PM
