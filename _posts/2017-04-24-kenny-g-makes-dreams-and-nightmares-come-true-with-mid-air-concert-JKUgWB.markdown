@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenny G. makes dreams and nightmares come true with mid-air concert"
-date: 2017-04-24 14:00:27Z
+date: 2017-04-24 16:48:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Some passengers on a Delta flight had time to contemplate this reality as Kenny 
 
 Full story on F3News: [Kenny G. makes dreams and nightmares come true with mid-air concert](http://www.f3nws.com/n/JKUgWB)
 
-> Posted on: Monday, April 24, 2017 7:00:27 PM
+> Posted on: Monday, April 24, 2017 9:48:47 PM
