@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France urged to reject Le Pen in presidential vote runoff"
-date: 2017-04-24 18:07:45Z
+date: 2017-04-24 20:32:37Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ France's defeated political establishment has begun to rally against the far-rig
 
 Full story on F3News: [France urged to reject Le Pen in presidential vote runoff](http://www.f3nws.com/n/GxAugF)
 
-> Posted on: Monday, April 24, 2017 11:07:45 PM
+> Posted on: Tuesday, April 25, 2017 1:32:37 AM
