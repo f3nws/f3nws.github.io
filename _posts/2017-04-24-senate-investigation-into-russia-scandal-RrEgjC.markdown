@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate investigation into Russia scandal..."
-date: 2017-04-24 15:30:33Z
+date: 2017-04-24 15:30:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ To think that a Richard Burr-led investigation into the Russia scandal would be 
 
 Full story on F3News: [Senate investigation into Russia scandal...](http://www.f3nws.com/n/RrEgjC)
 
-> Posted on: Monday, April 24, 2017 8:30:33 PM
+> Posted on: Monday, April 24, 2017 8:30:00 PM

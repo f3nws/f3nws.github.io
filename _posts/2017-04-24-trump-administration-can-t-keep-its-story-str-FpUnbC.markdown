@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump administration can't keep its story str"
-date: 2017-04-24 13:00:36Z
+date: 2017-04-24 13:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ The president said Dreamers can "rest easy." The attorney general said something
 
 Full story on F3News: [Trump administration can't keep its story str](http://www.f3nws.com/n/FpUnbC)
 
-> Posted on: Monday, April 24, 2017 6:00:36 PM
+> Posted on: Monday, April 24, 2017 6:00:00 PM
