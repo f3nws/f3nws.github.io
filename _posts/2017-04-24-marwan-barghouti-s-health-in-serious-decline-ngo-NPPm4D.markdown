@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marwan Barghouti's health in serious decline: NGO"
-date: 2017-04-24 17:16:11Z
+date: 2017-04-24 19:26:40Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Palestinian leader refuses medical treatment after joining hunger strike with 1,
 
 Full story on F3News: [Marwan Barghouti's health in serious decline: NGO](http://www.f3nws.com/n/NPPm4D)
 
-> Posted on: Monday, April 24, 2017 10:16:11 PM
+> Posted on: Tuesday, April 25, 2017 12:26:40 AM
