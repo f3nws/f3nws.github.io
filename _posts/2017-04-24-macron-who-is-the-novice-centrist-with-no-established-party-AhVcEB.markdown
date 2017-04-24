@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron: Who is the novice centrist with no established party?"
-date: 2017-04-24 12:20:13Z
+date: 2017-04-24 18:56:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ He was once the subject of mockery in French political circles -- now it appears
 
 Full story on F3News: [Macron: Who is the novice centrist with no established party?](http://www.f3nws.com/n/AhVcEB)
 
-> Posted on: Monday, April 24, 2017 5:20:13 PM
+> Posted on: Monday, April 24, 2017 11:56:48 PM
