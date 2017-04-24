@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Family dog found alive four years after disappearance](http://www.abc.net.au/news/image/8468016-1x1-700x700.jpg)
 
-Sammy the labrador, who went missing during a walk through bushland on the Sunshine Coast four years ago, is found and reunited with her family.
+Sammy the labrador, who went missing during a walk through bushland on the Sunshine Coast four years ago, is found and reunited with her family after living in the wild and likely surviving on a diet of pineapples.
 
 
 Full story on F3News: [Family dog found alive four years after disappearance](http://www.f3nws.com/n/gEsDQB)
