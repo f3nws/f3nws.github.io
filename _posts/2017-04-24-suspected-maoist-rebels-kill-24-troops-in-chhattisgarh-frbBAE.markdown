@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspected Maoist rebels kill 24 troops in Chhattisgarh"
-date: 2017-04-24 15:56:50Z
+date: 2017-04-24 16:15:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 24 troops killed in one of the worst attacks on the country's security 
 
 Full story on F3News: [Suspected Maoist rebels kill 24 troops in Chhattisgarh](http://www.f3nws.com/n/frbBAE)
 
-> Posted on: Monday, April 24, 2017 8:56:50 PM
+> Posted on: Monday, April 24, 2017 9:15:15 PM

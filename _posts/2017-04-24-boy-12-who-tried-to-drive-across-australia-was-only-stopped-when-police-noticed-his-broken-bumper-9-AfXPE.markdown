@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Boy, 12, who tried to drive across Australia was only stopped when police noticed his broken bumper - 9news.com.au](http://prod.static9.net.au/_/media/2017/04/24/170424_raw_brokenhill.ashx)
 
-9news.com.au Boy, 12, who tried to drive across Australia was only stopped when police noticed his broken bumper 9news.com.au A 12-year-old boy who drove 1300 kilometres across NSW on his own in the family car was involved in a crash before he was eventually stopped by highway patrol officers. The boy was en-route to Perth when he was pulled over at Broken Hill in far west ... Solo driver, 12, 'looked 19 or 20' NEWS.com.au all 70 news articles »
+9news.com.au Boy, 12, who tried to drive across Australia was only stopped when police noticed his broken bumper 9news.com.au A 12-year-old boy who drove 1300 kilometres across NSW on his own in the family car was involved in a crash before he was eventually stopped by highway patrol officers. The boy was en-route to Perth when he was pulled over at Broken Hill in far west ... Solo driver, 12, 'looked 19 or 20' NEWS.com.au all 71 news articles »
 
 
 Full story on F3News: [Boy, 12, who tried to drive across Australia was only stopped when police noticed his broken bumper - 9news.com.au](http://www.f3nws.com/n/AfXPE)
