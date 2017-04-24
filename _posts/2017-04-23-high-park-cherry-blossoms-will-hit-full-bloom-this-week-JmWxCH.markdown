@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![High Park cherry blossoms will hit full bloom this week](https://www.thestar.com/content/dam/thestar/news/gta/2017/04/23/the-high-park-cherry-blossoms-will-hit-full-bloom-this-week/cherryblossomblooms2013.jpg)
 
-The sakura trees are blooming, with peak flowers expected on Monday or Tuesday.
+The sakura trees hit their peak bloom on Sunday afternoon, but should remain beautiful all week, weather permitting.
 
 
 Full story on F3News: [High Park cherry blossoms will hit full bloom this week](http://www.f3nws.com/n/JmWxCH)

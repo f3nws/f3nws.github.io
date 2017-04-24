@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opinion: Le Pen is a nightmare for the EU"
-date: 2017-04-24 08:39:27Z
+date: 2017-04-24 12:21:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ France goes to the polls Sunday to vote in the first round of its presidential e
 
 Full story on F3News: [Opinion: Le Pen is a nightmare for the EU](http://www.f3nws.com/n/AuuxbG)
 
-> Posted on: Monday, April 24, 2017 1:39:27 PM
+> Posted on: Monday, April 24, 2017 5:21:56 PM

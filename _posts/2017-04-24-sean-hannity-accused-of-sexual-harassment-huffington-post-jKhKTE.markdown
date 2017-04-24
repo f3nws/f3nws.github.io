@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Sean Hannity Accused Of Sexual Harassment - Huffington Post](http://img.huffingtonpost.com/asset/2000_1000/58fd6a872600003596c47406.jpeg?cache=lrp6dghngr)
 
-Huffington Post Sean Hannity Accused Of Sexual Harassment Huffington Post In an interview with the Pat Campbell Show on Friday, former Fox News contributor Debbie Schlussel claimed that Hannity had invited her to his hotel room — twice — when they appeared together for one of his programs. But when she rebuffed him, ... Ex-Fox News contributor accuses Sean Hannity of sexual harassment New York Daily News Sean Hannity Accused of Sexually Harassing Fox News Guest Daily Beast Sean Hannity is the latest Fox News bigwig to be accused of sexual harassment Salon International Business Times - The Week Magazine - Twitter - Debbie Schlussel all 33 news articles »
+Huffington Post Sean Hannity Accused Of Sexual Harassment Huffington Post In an interview with the Pat Campbell Show on Friday, former Fox News contributor Debbie Schlussel claimed that Hannity had invited her to his hotel room — twice — when they appeared together for one of his programs. But when she rebuffed him, ... The New York Times (@nytimes) | Twitter Twitter Sean Hannity's Freedom CONcert Scam: Almost None of Charity's $ Went to Injured Troops, Kids of Fallen Troops; G5s ... Debbie Schlussel Sean Hannity the Latest Fox News Host to Be Accused of Sexual Harassment - Story - Kfaq Kfaq New York Daily News all 38 news articles »
 
 
 Full story on F3News: [Sean Hannity Accused Of Sexual Harassment - Huffington Post](http://www.f3nws.com/n/jKhKTE)
