@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Arkansas carries out first double execution since 2000](http://www.aljazeera.com/mritems/Images/2017/4/25/ceab7a21826d4afb90169c693bf495d9_18.jpg)
 
-Jack Jones and Marcel Williams executed just days ahead of expiry of one of US state's lethal injection drugs.
+Jack Jones and Marcel Williams executed just days before expiry of one of US state's lethal injection drugs.
 
 
 Full story on F3News: [Arkansas carries out first double execution since 2000](http://www.f3nws.com/n/Cpe3NC)

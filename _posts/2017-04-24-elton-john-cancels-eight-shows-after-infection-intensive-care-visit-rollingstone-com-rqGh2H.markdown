@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Elton John Cancels Eight Shows After Infection, Intensive Care Visit - RollingStone.com](http://img.wennermedia.com/social/rs-elton-john-412bb2b7-3c39-4730-946f-91d28cd5d479.jpg)
 
-RollingStone.com Elton John Cancels Eight Shows After Infection, Intensive Care Visit RollingStone.com Elton John has cancelled eight shows after contracting a bacterial infection that put him in intensive care. Credit: Larry Busacca/Getty. By Kory Grow. 12 hours ago. More News. See Jack White, Elton John Recreate Early American Recording Sessions Elton ... Sir Elton suffered 'potentially deadly' infection on tour BBC News Elton John Cheats Death Elton John Cheats Death Following Potentially Deadly Bacterial Infection Daily Beast all 292 news articles »
+RollingStone.com Elton John Cancels Eight Shows After Infection, Intensive Care Visit RollingStone.com Elton John has cancelled eight shows after contracting a bacterial infection that put him in intensive care. Credit: Larry Busacca/Getty. By Kory Grow. 12 hours ago. More News. See Jack White, Elton John Recreate Early American Recording Sessions Elton ... Elton John Cancels Concerts After 'Potentially Deadly' Infection New York Times Sir Elton suffered 'potentially deadly' infection on tour BBC News Elton John Cheats Death Elton John Cheats Death Following Potentially Deadly Bacterial Infection Daily Beast all 296 news articles »
 
 
 Full story on F3News: [Elton John Cancels Eight Shows After Infection, Intensive Care Visit - RollingStone.com](http://www.f3nws.com/n/rqGh2H)

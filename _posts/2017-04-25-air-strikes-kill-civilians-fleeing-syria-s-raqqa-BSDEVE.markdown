@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Air strikes kill civilians fleeing Syria's Raqqa"
-date: 2017-04-25 08:12:10Z
+date: 2017-04-25 11:03:35Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 11 people killed while fleeing fighting between US-backed forces and IS
 
 Full story on F3News: [Air strikes kill civilians fleeing Syria's Raqqa](http://www.f3nws.com/n/BSDEVE)
 
-> Posted on: Tuesday, April 25, 2017 1:12:10 PM
+> Posted on: Tuesday, April 25, 2017 4:03:35 PM
