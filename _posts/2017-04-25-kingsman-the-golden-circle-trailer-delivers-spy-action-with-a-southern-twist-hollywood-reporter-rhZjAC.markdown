@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Kingsman: The Golden Circle' Trailer Delivers Spy Action With a Southern Twist - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/04/kingsman.jpg)
 
-Hollywood Reporter 'Kingsman: The Golden Circle' Trailer Delivers Spy Action With a Southern Twist Hollywood Reporter Eggsy (Taron Egerton) is back — and with some southern charm for Kingsman: The Golden Circle. The trailer was set to debut Monday on CBS' The Late Late Show , but it hit online early. Director Matthew Vaughn's followup to the 2015 hit also sees the ... Kingsman: The Golden Circle full trailer is finally here EW.com The Trailer for 'Kingsman: The Golden Circle' Goes American Crave Online 'Kingsman: The Golden Circle' Trailer: How Is Colin Firth's Character Still Alive? International Business Times Variety - Forbes - ComingSoon.net - UPI.com all 126 news articles »
+Hollywood Reporter 'Kingsman: The Golden Circle' Trailer Delivers Spy Action With a Southern Twist Hollywood Reporter Eggsy (Taron Egerton) is back — and with some southern charm for Kingsman: The Golden Circle. The trailer was set to debut Monday on CBS' The Late Late Show , but it hit online early. Director Matthew Vaughn's followup to the 2015 hit also sees the ... Kingsman: The Golden Circle full trailer is finally here EW.com The Trailer for 'Kingsman: The Golden Circle' Goes American Crave Online 'Kingsman: The Golden Circle' Trailer Debuts (Watch) Variety Forbes - ComingSoon.net - YouTube - YouTube all 130 news articles »
 
 
 Full story on F3News: ['Kingsman: The Golden Circle' Trailer Delivers Spy Action With a Southern Twist - Hollywood Reporter](http://www.f3nws.com/n/rhZjAC)

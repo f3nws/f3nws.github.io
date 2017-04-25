@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump in Berlin to work on special relationship"
-date: 2017-04-25 11:18:42Z
+date: 2017-04-25 12:21:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It could be the beginning of a beautiful friendship, after all.
 
 Full story on F3News: [Ivanka Trump in Berlin to work on special relationship](http://www.f3nws.com/n/UZezBH)
 
-> Posted on: Tuesday, April 25, 2017 4:18:42 PM
+> Posted on: Tuesday, April 25, 2017 5:21:26 PM
