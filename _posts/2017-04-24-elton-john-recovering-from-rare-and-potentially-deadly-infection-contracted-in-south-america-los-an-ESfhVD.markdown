@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Elton John recovering from 'rare and potentially deadly' infection contracted in South America - Los Angeles Times](http://www.trbimg.com/img-58fe9276/turbine/la-et-entertainment-news-updates-april-elton-john-cancels-vegas-shows-to-1493074904)
 
-Los Angeles Times Elton John recovering from 'rare and potentially deadly' infection contracted in South America Los Angeles Times Elton John contracted "a harmful and unusual" bacterial infection during his recent South American tour and, after an extended hospital stay that included two nights in intensive care, has canceled all of his shows scheduled for April and May. "During ... Elton John Cancels Eight Shows After Infection, Intensive Care Visit RollingStone.com Elton John Cancels String of Concerts After Contracting 'Rare and Potentially Deadly' Bacterial Infection PEOPLE.com all 248 news articles »
+Los Angeles Times Elton John recovering from 'rare and potentially deadly' infection contracted in South America Los Angeles Times Elton John contracted "a harmful and unusual" bacterial infection during his recent South American tour and, after an extended hospital stay that included two nights in intensive care, has canceled all of his shows scheduled for April and May. "During ... Elton John Cancels Eight Shows After Infection, Intensive Care Visit RollingStone.com Elton John Cancels String of Concerts After Contracting 'Rare and Potentially Deadly' Bacterial Infection PEOPLE.com all 251 news articles »
 
 
 Full story on F3News: [Elton John recovering from 'rare and potentially deadly' infection contracted in South America - Los Angeles Times](http://www.f3nws.com/n/ESfhVD)
