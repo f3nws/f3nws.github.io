@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German crowd hisses, boos Ivanka Trump"
-date: 2017-04-25 15:30:31Z
+date: 2017-04-25 15:31:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump defended her father at a women's panel in Berlin Tuesday after atte
 
 Full story on F3News: [German crowd hisses, boos Ivanka Trump](http://www.f3nws.com/n/HasyfF)
 
-> Posted on: Tuesday, April 25, 2017 8:30:31 PM
+> Posted on: Tuesday, April 25, 2017 8:31:16 PM
