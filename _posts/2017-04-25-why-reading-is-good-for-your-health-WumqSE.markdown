@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why reading is good for your health"
-date: 2017-04-25 13:21:25Z
+date: 2017-04-25 13:48:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Clients who seek solace by pouring their hearts out in Alison Kerr Courtney's of
 
 Full story on F3News: [Why reading is good for your health](http://www.f3nws.com/n/WumqSE)
 
-> Posted on: Tuesday, April 25, 2017 6:21:25 PM
+> Posted on: Tuesday, April 25, 2017 6:48:40 PM

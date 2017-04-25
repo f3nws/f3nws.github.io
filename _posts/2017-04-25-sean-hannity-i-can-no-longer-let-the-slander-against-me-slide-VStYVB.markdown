@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sean Hannity: I Can No Longer Let the Slander Against Me Slide"
-date: 2017-04-25 11:30:14Z
+date: 2017-04-25 13:39:56Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Sean Hannity: I Can No Longer Let the Slander Against Me Slide](http://www.f3nws.com/n/VStYVB)
 
-> Posted on: Tuesday, April 25, 2017 4:30:14 PM
+> Posted on: Tuesday, April 25, 2017 6:39:56 PM
