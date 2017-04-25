@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump slaps first tariffs on Canadian lumber"
-date: 2017-04-25 03:11:29Z
+date: 2017-04-25 11:42:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump slaps first tariffs on Canadian lumber](http://www.f3nws.com/n/HcphXB)
 
-> Posted on: Tuesday, April 25, 2017 8:11:29 AM
+> Posted on: Tuesday, April 25, 2017 4:42:53 PM
