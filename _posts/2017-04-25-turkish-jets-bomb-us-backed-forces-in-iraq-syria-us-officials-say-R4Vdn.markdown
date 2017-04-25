@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish jets bomb US-backed forces in Iraq, Syria, US officials say"
-date: 2017-04-25 19:15:00Z
+date: 2017-04-25 20:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ More than 30 U.S.-backed Syrian and Iraqi Kurdish fighters were killed in a seri
 
 Full story on F3News: [Turkish jets bomb US-backed forces in Iraq, Syria, US officials say](http://www.f3nws.com/n/R4Vdn)
 
-> Posted on: Wednesday, April 26, 2017 12:15:00 AM
+> Posted on: Wednesday, April 26, 2017 1:00:00 AM
