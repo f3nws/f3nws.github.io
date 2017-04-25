@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House 'confident' of averting shutdown as Trump shows flexibility on wall - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/24/National-Politics/Images/672363056.jpg)
 
-Washington Post White House 'confident' of averting shutdown as Trump shows flexibility on wall Washington Post The White House sought Monday to calm a jittery Washington ahead of a showdown with Congress over spending, and President Trump softened his demand that a deal to keep the federal government open include money to begin construction on his ... Democrats open to more border security money to avoid funding standoff CNN Trump wants a border wall, but few in Congress want to pay for it Los Angeles Times Donald Trump's Idiotic Shutdown Threat Could Destroy His Presidency Slate Magazine The Atlantic - NBCNews.com - Huffington Post - Daily Beast all 1,127 news articles »
+Washington Post White House 'confident' of averting shutdown as Trump shows flexibility on wall Washington Post The White House sought Monday to calm a jittery Washington ahead of a showdown with Congress over spending, and President Trump softened his demand that a deal to keep the federal government open include money to begin construction on his ... Ryan on the hot seat to deliver for Trump Politico The Spending Bill Was Supposed to Be Easy. Then Trump Intervened. New York Times Disconnect: Trump, GOP not on same page The Hill CNN - Los Angeles Times - Slate Magazine - New York Daily News all 1,112 news articles »
 
 
 Full story on F3News: [White House 'confident' of averting shutdown as Trump shows flexibility on wall - Washington Post](http://www.f3nws.com/n/2jgATG)
