@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Message to Seoul? North Korea conducts live-fire exercise"
-date: 2017-04-25 11:18:35Z
+date: 2017-04-25 14:23:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's military staged a "large-scale artillery drill" around the Wonsan 
 
 Full story on F3News: [Message to Seoul? North Korea conducts live-fire exercise](http://www.f3nws.com/n/NjrSaD)
 
-> Posted on: Tuesday, April 25, 2017 4:18:35 PM
+> Posted on: Tuesday, April 25, 2017 7:23:06 PM
