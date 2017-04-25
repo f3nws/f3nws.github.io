@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best family plan, individual plan, unlimited plan, and more"
-date: 2017-04-25 19:13:40Z
+date: 2017-04-25 19:15:00Z
 categories: digital-trends
 ---
 
@@ -12,4 +12,4 @@ Sorting through carriers’ plans to find the best service for you and your fami
 
 Full story on F3News: [The best family plan, individual plan, unlimited plan, and more](http://www.f3nws.com/n/rzzfWE)
 
-> Posted on: Wednesday, April 26, 2017 12:13:40 AM
+> Posted on: Wednesday, April 26, 2017 12:15:00 AM
