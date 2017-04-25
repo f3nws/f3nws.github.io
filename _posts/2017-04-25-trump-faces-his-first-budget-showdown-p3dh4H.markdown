@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump faces his first budget showdown"
-date: 2017-04-25 12:16:24Z
+date: 2017-04-25 13:26:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Less than a week before the federal government is scheduled to shut down absent 
 
 Full story on F3News: [Trump faces his first budget showdown](http://www.f3nws.com/n/p3dh4H)
 
-> Posted on: Tuesday, April 25, 2017 5:16:24 PM
+> Posted on: Tuesday, April 25, 2017 6:26:25 PM

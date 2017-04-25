@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Trump era, Rachel Maddow starts beating Fox News"
-date: 2017-04-25 04:48:09Z
+date: 2017-04-25 13:29:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [In Trump era, Rachel Maddow starts beating Fox News](http://www.f3nws.com/n/WHUVdH)
 
-> Posted on: Tuesday, April 25, 2017 9:48:09 AM
+> Posted on: Tuesday, April 25, 2017 6:29:48 PM
