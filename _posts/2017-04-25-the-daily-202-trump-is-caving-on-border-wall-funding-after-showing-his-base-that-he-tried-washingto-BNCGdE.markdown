@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Daily 202: Trump is caving on border wall funding after showing his base that he tried - Washington Post](https://images.washingtonpost.com/?url=https://palomaimages.washingtonpost.com/pr2/304c9759e24effd31bb2d1e9188ad014-4877-3251-Botsford170424Trump14378.jpg&w=1484&op=resize&opt=1&filter=antialias)
 
-Washington Post The Daily 202: Trump is caving on border wall funding after showing his base that he tried Washington Post With Breanne Deppisch. -- Thank you, readers! The Daily 202 has won The Webby Award for Best Email Newsletter. THE BIG IDEA: Donald Trump blinked first – again. After the bluster comes the inevitable bow to reality. Last night the president backed off ... Government shutdown: Border wall money out, Obamacare fight on CNN The Hill's 12:30 Report The Hill Why are Dems happy when Trump drops unpopular positions? Fox News Politico - New York Times - USA TODAY - Los Angeles Times all 1,300 news articles »
+Washington Post The Daily 202: Trump is caving on border wall funding after showing his base that he tried Washington Post With Breanne Deppisch. -- Thank you, readers! The Daily 202 has won The Webby Award for Best Email Newsletter. THE BIG IDEA: Donald Trump blinked first – again. After the bluster comes the inevitable bow to reality. Last night the president backed off ... The Hill's 12:30 Report The Hill Government shutdown: Border wall money out, Obamacare fight on CNN Congress set to deny Trump wall money Politico Fox News - New York Times - USA TODAY - NBCNews.com all 1,274 news articles »
 
 
 Full story on F3News: [The Daily 202: Trump is caving on border wall funding after showing his base that he tried - Washington Post](http://www.f3nws.com/n/BNCGdE)
