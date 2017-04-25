@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roadside bomb kills bus passengers in Kurram district"
-date: 2017-04-25 06:52:50Z
+date: 2017-04-25 09:18:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Security forces are searching an area where an explosion targeting a passenger b
 
 Full story on F3News: [Roadside bomb kills bus passengers in Kurram district](http://www.f3nws.com/n/4UzbcE)
 
-> Posted on: Tuesday, April 25, 2017 11:52:50 AM
+> Posted on: Tuesday, April 25, 2017 2:18:31 PM

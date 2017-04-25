@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas carries out first double execution since 2000"
-date: 2017-04-25 04:37:07Z
+date: 2017-04-25 09:24:56Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Jack Jones and Marcel Williams executed just days ahead of expiry of one of US s
 
 Full story on F3News: [Arkansas carries out first double execution since 2000](http://www.f3nws.com/n/Cpe3NC)
 
-> Posted on: Tuesday, April 25, 2017 9:37:07 AM
+> Posted on: Tuesday, April 25, 2017 2:24:56 PM
