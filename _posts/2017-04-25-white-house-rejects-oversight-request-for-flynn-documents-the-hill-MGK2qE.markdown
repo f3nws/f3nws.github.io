@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House rejects Oversight request for Flynn documents - The Hill](http://thehill.com/sites/default/files/blogs/trump.flynn_.jpg)
 
-The Hill White House rejects Oversight request for Flynn documents The Hill The Trump administration has denied a request from the House Oversight Committee for more information on payments that former national security adviser Michael Flynn received from foreign governments, including from the Kremlin-backed television ... The Latest: Lawmakers say Flynn sidestepped disclosure rules Washington Post White House Denies Lawmakers' Request for Info About Flynn Payments NBCNews.com all 24 news articles »
+The Hill White House rejects Oversight request for Flynn documents The Hill The Trump administration has denied a request from the House Oversight Committee for more information on payments that former national security adviser Michael Flynn received from foreign governments, including from the Kremlin-backed television ... House oversight panel: No sign Flynn complied with the law CNN House Oversight chairman: I've seen 'no evidence' that Michael Flynn 'complied' with the law Business Insider Flynn likely broke the law by failing to disclose foreign payments, House Oversight leaders say Washington Post New York Times - USA TODAY - New York Post - Politico all 37 news articles »
 
 
 Full story on F3News: [White House rejects Oversight request for Flynn documents - The Hill](http://www.f3nws.com/n/MGK2qE)
