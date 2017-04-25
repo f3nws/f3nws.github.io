@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Robert M. Pirsig, Author of 'Zen and the Art of Motorcycle Maintenance,' Dies at 88 - New York Times](https://static01.nyt.com/images/2017/04/25/arts/PIRSIG1/PIRSIG1-facebookJumbo.jpg)
 
-New York Times Robert M. Pirsig, Author of 'Zen and the Art of Motorcycle Maintenance,' Dies at 88 New York Times Robert M. Pirsig, whose “Zen and the Art of Motorcycle Maintenance,” a dense and discursive novel of ideas, became an unlikely publishing phenomenon in the mid-1970s and a touchstone in the waning days of the counterculture, died on Monday at his ... 'Zen And The Art of Motorcycle Maintenance' Author Robert M. Pirsig Dies At 88 NPR Robert Pirsig dies at 88; wrote counterculture classic 'Zen and the Art of Motorcycle Maintenance' Los Angeles Times 'Zen and the Art of Motorcycle Maintenance' Author Robert Pirsig Dead NBCNews.com all 16 news articles »
+New York Times Robert M. Pirsig, Author of 'Zen and the Art of Motorcycle Maintenance,' Dies at 88 New York Times Robert M. Pirsig, whose “Zen and the Art of Motorcycle Maintenance,” a dense and discursive novel of ideas, became an unlikely publishing phenomenon in the mid-1970s and a touchstone in the waning days of the counterculture, died on Monday at his ... 'Zen And The Art of Motorcycle Maintenance' Author Robert M. Pirsig Dies At 88 NPR all 15 news articles »
 
 
 Full story on F3News: [Robert M. Pirsig, Author of 'Zen and the Art of Motorcycle Maintenance,' Dies at 88 - New York Times](http://www.f3nws.com/n/JXXKxC)
