@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Guardians of the Galaxy Vol. 2' music player is getting built into Doritos bags     - CNET"
-date: 2017-04-25 18:24:24Z
+date: 2017-04-25 19:09:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Seriously.
 
 Full story on F3News: ['Guardians of the Galaxy Vol. 2' music player is getting built into Doritos bags     - CNET](http://www.f3nws.com/n/FRzNNE)
 
-> Posted on: Tuesday, April 25, 2017 11:24:24 PM
+> Posted on: Wednesday, April 26, 2017 12:09:56 AM
