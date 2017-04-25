@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flynn may have broken law over Russia payments"
-date: 2017-04-25 19:30:40Z
+date: 2017-04-25 20:51:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's former national security adviser did not properly discl
 
 Full story on F3News: [Flynn may have broken law over Russia payments](http://www.f3nws.com/n/GWzZsF)
 
-> Posted on: Wednesday, April 26, 2017 12:30:40 AM
+> Posted on: Wednesday, April 26, 2017 1:51:10 AM

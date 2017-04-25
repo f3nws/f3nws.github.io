@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "An artificial womb successfully grew baby sheep — and humans could be next"
-date: 2017-04-25 17:02:53Z
+date: 2017-04-25 21:09:57Z
 categories: the-verge
 ---
 
@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [An artificial womb successfully grew baby sheep — and humans could be next](http://www.f3nws.com/n/gPqVgE)
 
-> Posted on: Tuesday, April 25, 2017 10:02:53 PM
+> Posted on: Wednesday, April 26, 2017 2:09:57 AM

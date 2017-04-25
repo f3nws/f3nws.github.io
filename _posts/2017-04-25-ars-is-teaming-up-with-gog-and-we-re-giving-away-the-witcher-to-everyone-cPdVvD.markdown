@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ars is teaming up with GOG and we’re giving away The Witcher to everyone"
-date: 2017-04-25 15:00:20Z
+date: 2017-04-25 20:50:20Z
 categories: ars-technica
 ---
 
@@ -12,4 +12,4 @@ Everybody gets a free copy of The Witcher: Enhanced Edition —and that's just t
 
 Full story on F3News: [Ars is teaming up with GOG and we’re giving away The Witcher to everyone](http://www.f3nws.com/n/cPdVvD)
 
-> Posted on: Tuesday, April 25, 2017 8:00:20 PM
+> Posted on: Wednesday, April 26, 2017 1:50:20 AM
