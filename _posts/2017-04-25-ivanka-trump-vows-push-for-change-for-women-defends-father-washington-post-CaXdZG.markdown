@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ivanka Trump vows push for change for women, defends father - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-04-25/Getty/672772668.jpg)
 
-Washington Post Ivanka Trump vows push for change for women, defends father Washington Post BERLIN — Ivanka Trump pledged to push for “incremental, positive change” for women in the U.S. economy and defended her father's attitudes toward women as she made her first international outing Tuesday as a White House adviser. Trump told an ... Ivanka Trump arrives in Berlin to work on special relationship CNN Groans and hisses in Berlin as Ivanka Trump defends her father as champion of women, families Los Angeles Times Is Ivanka Trump's new book being buried? The Boston Globe TIME - New York Daily News - The Mercury News - The Hill (blog) all 391 news articles »
+Washington Post Ivanka Trump vows push for change for women, defends father Washington Post BERLIN — Ivanka Trump pledged to push for “incremental, positive change” for women in the U.S. economy and defended her father's attitudes toward women as she made her first international outing Tuesday as a White House adviser. Trump told an ... Ivanka Trump arrives in Berlin to work on special relationship CNN Ivanka Trump faces tough audience in European women Politico Ivanka Trumps Global Debut in Berlin Falls Flat Daily Beast Los Angeles Times - USA TODAY - The Boston Globe - Politico all 370 news articles »
 
 
 Full story on F3News: [Ivanka Trump vows push for change for women, defends father - Washington Post](http://www.f3nws.com/n/CaXdZG)
