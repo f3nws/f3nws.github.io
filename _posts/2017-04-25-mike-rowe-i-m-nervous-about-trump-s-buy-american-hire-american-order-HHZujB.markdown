@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mike Rowe: 'I'm nervous' about Trump's 'buy American, hire American' order"
-date: 2017-04-25 03:30:05Z
+date: 2017-04-25 04:00:12Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Former "Dirty Jobs" host Mike Rowe told Fox News' "Tucker Carlson Tonight" Monda
 
 Full story on F3News: [Mike Rowe: 'I'm nervous' about Trump's 'buy American, hire American' order](http://www.f3nws.com/n/HHZujB)
 
-> Posted on: Tuesday, April 25, 2017 8:30:05 AM
+> Posted on: Tuesday, April 25, 2017 9:00:12 AM
