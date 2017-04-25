@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Elton John Cancels Eight Shows After Infection,... - RollingStone.com](http://img.wennermedia.com/social/rs-elton-john-412bb2b7-3c39-4730-946f-91d28cd5d479.jpg)
 
-RollingStone.com Elton John Cancels Eight Shows After Infection,... RollingStone.com Elton John has cancelled eight shows after contracting a bacterial infection that put him in intensive care. Credit: Larry Busacca/Getty. By Kory Grow. 5 hours ago. More News. See Jack White, Elton John Recreate Early American Recording Sessions Elton ... Elton John Hospitalized for 'Harmful and Unusual Bacterial Infection,' Eight Shows Cancelled Ultimate Classic Rock Elton John Cancels String of Concerts After Contracting 'Rare and Potentially Deadly' Bacterial Infection PEOPLE.com Elton John bags U.S. shows after catching rare infection in South America UPI.com all 94 news articles »
+RollingStone.com Elton John Cancels Eight Shows After Infection,... RollingStone.com Elton John has cancelled eight shows after contracting a bacterial infection that put him in intensive care. Credit: Larry Busacca/Getty. By Kory Grow. 6 hours ago. More News. See Jack White, Elton John Recreate Early American Recording Sessions Elton ... Elton John Hospitalized for 'Harmful and Unusual Bacterial Infection,' Eight Shows Cancelled Ultimate Classic Rock Elton John Cancels String of Concerts After Contracting 'Rare and Potentially Deadly' Bacterial Infection PEOPLE.com Elton John bags U.S. shows after catching rare infection in South America UPI.com PerezHilton.com - Page Six - KTRK-TV - WCPO all 96 news articles »
 
 
 Full story on F3News: [Elton John Cancels Eight Shows After Infection,... - RollingStone.com](http://www.f3nws.com/n/rqGh2H)
