@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Elton John cancels Las Vegas shows after hospitalization"
-date: 2017-04-25 12:33:00Z
+date: 2017-04-25 12:46:36Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The Rocket Man is in need of some rest.
 
 Full story on F3News: [Elton John cancels Las Vegas shows after hospitalization](http://www.f3nws.com/n/sUSVrF)
 
-> Posted on: Tuesday, April 25, 2017 5:33:00 PM
+> Posted on: Tuesday, April 25, 2017 5:46:36 PM

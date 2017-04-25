@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Yassmin Abdel-Magied courts controversy with Anzac Day Facebook post - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/1/m/b/5/i/9/image.related.articleLeadwide.620x349.gvs7yp.png/1493110661054.jpg)
 
-The Sydney Morning Herald Yassmin Abdel-Magied courts controversy with Anzac Day Facebook post The Sydney Morning Herald Muslim activist and television host Yassmin Abdel-Magied has courted controversy with an Anzac Day Facebook post suggesting Australians should also remember the suffering on Manus Island and Nauru, and in Syria and Palestine. The presenter of ABC's ... Yassmin Abdel-Magied triggers anger with Anzac Day Facebook post The Australian Yassmin deletes 'disrespectful' Facebook post dailytelegraph.com.au Disrespecting Anzac Day becoming a national sport Herald Sun (blog) The New Daily - 9news.com.au - NEWS.com.au - Yahoo7 News all 12 news articles »
+The Sydney Morning Herald Yassmin Abdel-Magied courts controversy with Anzac Day Facebook post The Sydney Morning Herald Muslim activist and television host Yassmin Abdel-Magied has courted controversy with an Anzac Day Facebook post suggesting Australians should also remember the suffering on Manus Island and Nauru, and in Syria and Palestine. The presenter of ABC's ... Yassmin Abdel-Magied triggers anger with Anzac Day Facebook post The Australian Yassmin deletes 'disrespectful' Facebook post dailytelegraph.com.au Disrespecting Anzac Day becoming a national sport Herald Sun (blog) 9news.com.au - The New Daily - Pedestrian TV - Daily Mail all 14 news articles »
 
 
 Full story on F3News: [Yassmin Abdel-Magied courts controversy with Anzac Day Facebook post - The Sydney Morning Herald](http://www.f3nws.com/n/HD33x)
