@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's former security adviser may have broken law over Russia payments"
-date: 2017-04-25 17:07:42Z
+date: 2017-04-25 17:55:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's former national security adviser did not properly discl
 
 Full story on F3News: [Trump's former security adviser may have broken law over Russia payments](http://www.f3nws.com/n/GWzZsF)
 
-> Posted on: Tuesday, April 25, 2017 10:07:42 PM
+> Posted on: Tuesday, April 25, 2017 10:55:05 PM
