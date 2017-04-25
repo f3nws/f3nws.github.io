@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![State Department deletes online blog post that promoted Trump's Mar-a-Lago - Los Angeles Times](http://www.trbimg.com/img-58fe879f/turbine/la-na-essential-washington-updates-state-dept-is-promoting-trump-s-1493063463)
 
-Los Angeles Times State Department deletes online blog post that promoted Trump's Mar-a-Lago Los Angeles Times President Trump's oceanside Mar-a-Lago resort in Florida has gained considerable airtime and tweet time since Trump took office and dubbed it his winter White House. It now has received official attention from the State Department. The State Department ... State Department removes Mar-a-Lago blog post CNN State Department website touts glittering history of Trump's Mar-a-Lago estate Washington Post State Department Removes Webpage Featuring Trump's For-Profit Club, Mar-A-Lago NPR NBCNews.com - Daily Beast - The Hill - New York Times all 76 news articles »
+Los Angeles Times State Department deletes online blog post that promoted Trump's Mar-a-Lago Los Angeles Times President Trump's oceanside Mar-a-Lago resort in Florida has gained considerable airtime and tweet time since Trump took office and dubbed it his winter White House. It now has received official attention from the State Department. The State Department ... Trump's 100-days promises: A long way to go on most of them SFGate Has Trump kept his campaign promises? BBC News A Very Busy Week Ahead Huffington Post all 444 news articles »
 
 
 Full story on F3News: [State Department deletes online blog post that promoted Trump's Mar-a-Lago - Los Angeles Times](http://www.f3nws.com/n/RmtxcC)
