@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Maoists' kill 25 troops in worst attack in seven years"
-date: 2017-04-25 06:39:22Z
+date: 2017-04-25 07:05:22Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 25 soldiers killed in one of the worst attacks on the security forces i
 
 Full story on F3News: ['Maoists' kill 25 troops in worst attack in seven years](http://www.f3nws.com/n/frbBAE)
 
-> Posted on: Tuesday, April 25, 2017 11:39:22 AM
+> Posted on: Tuesday, April 25, 2017 12:05:22 PM
