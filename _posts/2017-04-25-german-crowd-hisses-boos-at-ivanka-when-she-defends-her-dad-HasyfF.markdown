@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German crowd hisses, boos at Ivanka when she defends her dad"
-date: 2017-04-25 18:32:26Z
+date: 2017-04-25 18:37:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump defended her father at a women's panel in Berlin Tuesday after atte
 
 Full story on F3News: [German crowd hisses, boos at Ivanka when she defends her dad](http://www.f3nws.com/n/HasyfF)
 
-> Posted on: Tuesday, April 25, 2017 11:32:26 PM
+> Posted on: Tuesday, April 25, 2017 11:37:05 PM
