@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Trump works: A network outside the White House"
-date: 2017-04-25 13:45:35Z
+date: 2017-04-25 16:34:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sometimes he calls to ask for advice. Other times he just wants to vent.
 
 Full story on F3News: [How Trump works: A network outside the White House](http://www.f3nws.com/n/GQEPb)
 
-> Posted on: Tuesday, April 25, 2017 6:45:35 PM
+> Posted on: Tuesday, April 25, 2017 9:34:35 PM

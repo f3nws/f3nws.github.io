@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump pokes fun at his own ambassador"
-date: 2017-04-25 14:15:04Z
+date: 2017-04-25 16:42:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At a lunch at the White House on Monday with more than a dozen UN ambassadors, P
 
 Full story on F3News: [Trump pokes fun at his own ambassador](http://www.f3nws.com/n/YaksrH)
 
-> Posted on: Tuesday, April 25, 2017 7:15:04 PM
+> Posted on: Tuesday, April 25, 2017 9:42:48 PM

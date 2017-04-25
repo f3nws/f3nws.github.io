@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Trump just cave on the border wall?"
-date: 2017-04-25 15:50:37Z
+date: 2017-04-25 16:32:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Just days after insisting that any spending bill to keep the federal government 
 
 Full story on F3News: [Did Trump just cave on the border wall?](http://www.f3nws.com/n/DvaZPG)
 
-> Posted on: Tuesday, April 25, 2017 8:50:37 PM
+> Posted on: Tuesday, April 25, 2017 9:32:30 PM
