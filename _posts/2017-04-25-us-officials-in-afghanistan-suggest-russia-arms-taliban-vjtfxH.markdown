@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US officials in Afghanistan suggest Russia arms Taliban"
-date: 2017-04-25 08:15:04Z
+date: 2017-04-25 18:20:52Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Top US military officials allude to increasing concerns over Moscow's role in Af
 
 Full story on F3News: [US officials in Afghanistan suggest Russia arms Taliban](http://www.f3nws.com/n/vjtfxH)
 
-> Posted on: Tuesday, April 25, 2017 1:15:04 PM
+> Posted on: Tuesday, April 25, 2017 11:20:52 PM
