@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bachelor' star Chris Soules arrested for leaving the scene of a fatal accident"
-date: 2017-04-25 13:40:00Z
+date: 2017-04-25 14:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: ['Bachelor' star Chris Soules arrested for leaving the scene of a fatal accident](http://www.f3nws.com/n/H32qQE)
 
-> Posted on: Tuesday, April 25, 2017 6:40:00 PM
+> Posted on: Tuesday, April 25, 2017 7:30:00 PM
