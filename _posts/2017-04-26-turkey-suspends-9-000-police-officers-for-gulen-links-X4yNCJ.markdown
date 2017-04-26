@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey suspends 9,000 police officers for 'Gulen links'"
-date: 2017-04-26 20:19:54Z
+date: 2017-04-26 21:02:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Suspension follows arrests targeting alleged network of US-based cleric blamed b
 
 Full story on F3News: [Turkey suspends 9,000 police officers for 'Gulen links'](http://www.f3nws.com/n/X4yNCJ)
 
-> Posted on: Thursday, April 27, 2017 1:19:54 AM
+> Posted on: Thursday, April 27, 2017 2:02:27 AM

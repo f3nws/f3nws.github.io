@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Xbox Project Scorpio: Everything you need to know about Microsoft’s newest console"
-date: 2017-04-26 20:41:40Z
+date: 2017-04-26 20:41:59Z
 categories: digital-trends
 ---
 
@@ -12,4 +12,4 @@ Microsoft's Project Scorpio releases this holiday. Check out our roundup of all 
 
 Full story on F3News: [Xbox Project Scorpio: Everything you need to know about Microsoft’s newest console](http://www.f3nws.com/n/mcBVuF)
 
-> Posted on: Thursday, April 27, 2017 1:41:40 AM
+> Posted on: Thursday, April 27, 2017 1:41:59 AM
