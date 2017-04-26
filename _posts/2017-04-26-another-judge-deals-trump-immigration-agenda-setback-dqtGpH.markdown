@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Another judge deals Trump immigration agenda setback"
-date: 2017-04-26 04:07:38Z
+date: 2017-04-26 10:27:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A federal judge on Tuesday blocked the Trump administration from enforcing a thr
 
 Full story on F3News: [Another judge deals Trump immigration agenda setback](http://www.f3nws.com/n/dqtGpH)
 
-> Posted on: Wednesday, April 26, 2017 9:07:38 AM
+> Posted on: Wednesday, April 26, 2017 3:27:53 PM

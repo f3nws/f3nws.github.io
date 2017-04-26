@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Al Jazeera wins Broadcaster of the Year award at NYF"
-date: 2017-04-26 09:14:51Z
+date: 2017-04-26 10:13:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Other awards handed to Al Jazeera at New York Festivals include five Gold World 
 
 Full story on F3News: [Al Jazeera wins Broadcaster of the Year award at NYF](http://www.f3nws.com/n/FcpCBH)
 
-> Posted on: Wednesday, April 26, 2017 2:14:51 PM
+> Posted on: Wednesday, April 26, 2017 3:13:31 PM
