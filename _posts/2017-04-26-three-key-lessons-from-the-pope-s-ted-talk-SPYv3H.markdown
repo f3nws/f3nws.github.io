@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three key lessons from the Pope's TED talk"
-date: 2017-04-26 05:46:29Z
+date: 2017-04-26 09:49:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For all the talk about Pope Francis' techno-savvy -- and 10 million Twitter foll
 
 Full story on F3News: [Three key lessons from the Pope's TED talk](http://www.f3nws.com/n/SPYv3H)
 
-> Posted on: Wednesday, April 26, 2017 10:46:29 AM
+> Posted on: Wednesday, April 26, 2017 2:49:10 PM
