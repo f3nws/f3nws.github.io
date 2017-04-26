@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's 'sanctuary city' order blocked by federal judge in San Francisco - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/25/SocialIssues-Religion-Immigration/Images/Sanctuary_Cities_07439-625ce.jpg)
 
-Washington Post Trump's 'sanctuary city' order blocked by federal judge in San Francisco Washington Post A federal judge in San Francisco dealt the Trump administration another legal blow Tuesday, temporarily halting President Trump's threat to withhold unspecified federal funding from cities and towns that refuse to cooperate with immigration authorities. Judge Blocks Trump Effort to Withhold Money From Sanctuary Cities New York Times Judge blocks part of Trump's sanctuary cities executive order CNN Judge Blocks Donald Trump's Executive Order On Sanctuary Cities Huffington Post Politico - The Boston Globe - Bloomberg - New York Daily News all 236 news articles »
+Washington Post Trump's 'sanctuary city' order blocked by federal judge in San Francisco Washington Post A federal judge in San Francisco dealt the Trump administration another legal blow Tuesday, temporarily halting President Trump's threat to withhold unspecified federal funding from cities and towns that refuse to cooperate with immigration authorities. Judge Blocks Trump Effort to Withhold Money From Sanctuary Cities New York Times Judge blocks part of Trump's sanctuary cities executive order CNN Judge Blocks Donald Trump's Executive Order On Sanctuary Cities Huffington Post Politico - NBCNews.com - The Boston Globe - Bloomberg all 240 news articles »
 
 
 Full story on F3News: [Trump's 'sanctuary city' order blocked by federal judge in San Francisco - Washington Post](http://www.f3nws.com/n/G3tzJC)
