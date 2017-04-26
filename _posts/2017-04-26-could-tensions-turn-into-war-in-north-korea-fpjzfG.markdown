@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Could tensions turn into war in North Korea?"
-date: 2017-04-26 07:41:24Z
+date: 2017-04-26 23:01:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US warships and submarines are on the move. North Korea has carried out its larg
 
 Full story on F3News: [Could tensions turn into war in North Korea?](http://www.f3nws.com/n/fpjzfG)
 
-> Posted on: Wednesday, April 26, 2017 12:41:24 PM
+> Posted on: Thursday, April 27, 2017 4:01:38 AM
