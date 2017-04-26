@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea conducts large-scale artillery drill on military anniversary"
-date: 2017-04-25 15:51:27Z
+date: 2017-04-25 23:25:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's military staged a "large-scale artillery drill" around the Wonsan 
 
 Full story on F3News: [North Korea conducts large-scale artillery drill on military anniversary](http://www.f3nws.com/n/NjrSaD)
 
-> Posted on: Tuesday, April 25, 2017 8:51:27 PM
+> Posted on: Wednesday, April 26, 2017 4:25:21 AM

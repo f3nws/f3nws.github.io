@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![AT&T Launches Fake 5G Network in Desperate Attempt to Seem Innovative - Gizmodo](https://i.kinja-img.com/gawker-media/image/upload/s--B-MWWGhR--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/bcadpfk8gbduhngkenld.png)
 
-Gizmodo AT&T Launches Fake 5G Network in Desperate Attempt to Seem Innovative Gizmodo Have you heard? AT&T is going to “pave the way for the next generation of faster speeds” with something called 5G Evolution. No, it's not actually a new 5G network, the much hyped successor to 4G that's supposed to change the way we connect to the ... AT&T announces it will build a fake 5G network The Verge AT&T's '5G Evolution' is a step on the true 5G path, but there is a ways to go Digital Trends AT&T's faux 5G network launches in Austin Engadget CNET - AT&T all 22 news articles »
+Gizmodo AT&T Launches Fake 5G Network in Desperate Attempt to Seem Innovative Gizmodo Have you heard? AT&T is going to “pave the way for the next generation of faster speeds” with something called 5G Evolution. No, it's not actually a new 5G network, the much hyped successor to 4G that's supposed to change the way we connect to the ... AT&T announces it will build a fake 5G network The Verge AT&T's '5G Evolution' is a step on the true 5G path, but there is a ways to go Digital Trends AT&T's faux 5G network launches in Austin Engadget CNET - AT&T all 23 news articles »
 
 
 Full story on F3News: [AT&T Launches Fake 5G Network in Desperate Attempt to Seem Innovative - Gizmodo](http://www.f3nws.com/n/grdKVF)
