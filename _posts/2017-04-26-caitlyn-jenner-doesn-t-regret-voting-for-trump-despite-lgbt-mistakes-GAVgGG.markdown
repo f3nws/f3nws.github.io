@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Caitlyn Jenner doesn't regret voting for Trump despite LGBT 'mistakes'"
-date: 2017-04-26 03:39:56Z
+date: 2017-04-26 06:03:26Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Caitlyn Jenner may not like everything US President Donald Trump's administratio
 
 Full story on F3News: [Caitlyn Jenner doesn't regret voting for Trump despite LGBT 'mistakes'](http://www.f3nws.com/n/GAVgGG)
 
-> Posted on: Wednesday, April 26, 2017 8:39:56 AM
+> Posted on: Wednesday, April 26, 2017 11:03:26 AM
