@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Border wall talk leads top Mexican official to float American entry fee"
-date: 2017-04-26 19:06:44Z
+date: 2017-04-26 20:07:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A top Mexican official announced Tuesday that Mexico may consider charging a fee
 
 Full story on F3News: [Border wall talk leads top Mexican official to float American entry fee](http://www.f3nws.com/n/khFDEC)
 
-> Posted on: Thursday, April 27, 2017 12:06:44 AM
+> Posted on: Thursday, April 27, 2017 1:07:10 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ESPN will lay off 100 on-air personalities and writers, source says"
-date: 2017-04-26 18:13:16Z
+date: 2017-04-26 19:50:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ ESPN plans to lay off 100 on-air personalities and writers, a source familiar wi
 
 Full story on F3News: [ESPN will lay off 100 on-air personalities and writers, source says](http://www.f3nws.com/n/uRpXSG)
 
-> Posted on: Wednesday, April 26, 2017 11:13:16 PM
+> Posted on: Thursday, April 27, 2017 12:50:42 AM
