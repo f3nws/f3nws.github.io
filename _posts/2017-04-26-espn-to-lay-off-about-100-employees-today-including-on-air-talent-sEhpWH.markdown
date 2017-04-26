@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ESPN to lay off about 100 employees today, including on-air talent"
-date: 2017-04-26 16:06:00Z
+date: 2017-04-26 17:16:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ ESPN sent a memo to employees early Wednesday, informing them that a series of p
 
 Full story on F3News: [ESPN to lay off about 100 employees today, including on-air talent](http://www.f3nws.com/n/sEhpWH)
 
-> Posted on: Wednesday, April 26, 2017 9:06:00 PM
+> Posted on: Wednesday, April 26, 2017 10:16:00 PM
