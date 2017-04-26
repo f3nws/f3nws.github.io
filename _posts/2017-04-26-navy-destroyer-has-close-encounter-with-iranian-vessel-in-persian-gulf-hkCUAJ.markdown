@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Navy destroyer has close encounter with Iranian vessel in Persian Gulf"
-date: 2017-04-26 00:00:00Z
+date: 2017-04-26 00:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A U.S. Navy destroyer had another close encounter with an Iranian Revolutionary 
 
 Full story on F3News: [Navy destroyer has close encounter with Iranian vessel in Persian Gulf](http://www.f3nws.com/n/hkCUAJ)
 
-> Posted on: Wednesday, April 26, 2017 5:00:00 AM
+> Posted on: Wednesday, April 26, 2017 5:30:00 AM

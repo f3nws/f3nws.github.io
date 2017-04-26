@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook removes video of Thai baby killing"
-date: 2017-04-26 00:03:35Z
+date: 2017-04-26 00:29:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Facebook has removed video that reportedly showed a man in Thailand killing his 
 
 Full story on F3News: [Facebook removes video of Thai baby killing](http://www.f3nws.com/n/jSaT4D)
 
-> Posted on: Wednesday, April 26, 2017 5:03:35 AM
+> Posted on: Wednesday, April 26, 2017 5:29:42 AM
