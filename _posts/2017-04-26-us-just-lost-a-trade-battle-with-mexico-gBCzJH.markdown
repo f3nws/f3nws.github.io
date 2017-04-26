@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US just lost a trade battle with Mexico"
-date: 2017-04-26 05:09:34Z
+date: 2017-04-26 12:18:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US just lost a trade battle with Mexico](http://www.f3nws.com/n/gBCzJH)
 
-> Posted on: Wednesday, April 26, 2017 10:09:34 AM
+> Posted on: Wednesday, April 26, 2017 5:18:30 PM
