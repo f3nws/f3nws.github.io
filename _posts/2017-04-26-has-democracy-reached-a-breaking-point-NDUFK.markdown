@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Has democracy reached a breaking point?"
-date: 2017-04-26 15:37:12Z
+date: 2017-04-26 16:06:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It is often hailed as the beacon of a civilized society -- but is democracy in d
 
 Full story on F3News: [Has democracy reached a breaking point?](http://www.f3nws.com/n/NDUFK)
 
-> Posted on: Wednesday, April 26, 2017 8:37:12 PM
+> Posted on: Wednesday, April 26, 2017 9:06:42 PM

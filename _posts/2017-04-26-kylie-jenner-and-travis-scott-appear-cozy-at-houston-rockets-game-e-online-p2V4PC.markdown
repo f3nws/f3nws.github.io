@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Kylie Jenner and Travis Scott Appear Cozy at Houston Rockets Game - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017326/rs_600x600-170426070023-600_Silo_KylieTravis_3_MK042617.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Kylie Jenner and Travis Scott Appear Cozy at Houston Rockets Game E! Online Scott and Jenner were spotted sitting next to each other courtside at the Houston Rockets vs. Oklahoma City Thunder game Tuesday, and in one photo the rapper rests his hand on her leg. Before the game started Travis, who used to be a Rockets ballboy, ... Kylie Jenner & Travis Scott Flaunt All Kinds Of PDA At NBA Game -- It's So ON! PerezHilton.com "Cash Me Outside" Girl Danielle Bregoli Thinks Tyga Is "Fine" — But Doesn't Want Kylie's "Sloppy Seconds ... In Touch Weekly Kylie Jenner & Travis Scott Pack On PDA While Courtside At NBA Playoffs — Pic Hollywood Life New York Daily News - PEOPLE.com all 63 news articles »
+E! Online Kylie Jenner and Travis Scott Appear Cozy at Houston Rockets Game E! Online Scott and Jenner were spotted sitting next to each other courtside at the Houston Rockets vs. Oklahoma City Thunder game Tuesday, and in one photo the rapper rests his hand on her leg. Before the game started Travis, who used to be a Rockets ballboy, ... Sorry, Tyga! Kylie Jenner Hits Up Coachella with Travis Scott PEOPLE.com all 62 news articles »
 
 
 Full story on F3News: [Kylie Jenner and Travis Scott Appear Cozy at Houston Rockets Game - E! Online](http://www.f3nws.com/n/p2V4PC)
