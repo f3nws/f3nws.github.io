@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China launches its first homegrown aircraft carrier"
-date: 2017-04-26 06:05:54Z
+date: 2017-04-26 08:55:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The first aircraft carrier designed and built in China was launched Wednesday am
 
 Full story on F3News: [China launches its first homegrown aircraft carrier](http://www.f3nws.com/n/AVxryE)
 
-> Posted on: Wednesday, April 26, 2017 11:05:54 AM
+> Posted on: Wednesday, April 26, 2017 1:55:32 PM

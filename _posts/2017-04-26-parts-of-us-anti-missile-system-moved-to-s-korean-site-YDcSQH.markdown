@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parts of US anti-missile system moved to S. Korean site"
-date: 2017-04-26 04:38:01Z
+date: 2017-04-26 08:40:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Parts of a US-built anti-missile system designed to mitigate the threat of North
 
 Full story on F3News: [Parts of US anti-missile system moved to S. Korean site](http://www.f3nws.com/n/YDcSQH)
 
-> Posted on: Wednesday, April 26, 2017 9:38:01 AM
+> Posted on: Wednesday, April 26, 2017 1:40:00 PM
