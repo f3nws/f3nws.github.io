@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "United passenger swung fists violently, officers' reports say"
-date: 2017-04-26 10:24:53Z
+date: 2017-04-26 10:56:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United Airlines passenger who was left bloodied and bruised after being forc
 
 Full story on F3News: [United passenger swung fists violently, officers' reports say](http://www.f3nws.com/n/FeGSSF)
 
-> Posted on: Wednesday, April 26, 2017 3:24:53 PM
+> Posted on: Wednesday, April 26, 2017 3:56:47 PM
