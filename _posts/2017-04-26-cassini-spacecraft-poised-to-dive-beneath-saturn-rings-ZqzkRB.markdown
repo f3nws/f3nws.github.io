@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cassini spacecraft poised to dive beneath Saturn rings"
-date: 2017-04-26 09:05:22Z
+date: 2017-04-26 09:33:34Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The dives will also be the unmanned spacecraft's swansong as its mission will en
 
 Full story on F3News: [Cassini spacecraft poised to dive beneath Saturn rings](http://www.f3nws.com/n/ZqzkRB)
 
-> Posted on: Wednesday, April 26, 2017 2:05:22 PM
+> Posted on: Wednesday, April 26, 2017 2:33:34 PM
