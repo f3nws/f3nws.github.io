@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![US just lost a trade battle with Mexico](http://i2.cdn.turner.com/money/dam/assets/170302103302-mexico-pesos-flag-trump-780x439.jpg)
 
-
+The US just lost a trade battle with Mexico. It's the first loss of the Trump era.
 
 
 Full story on F3News: [US just lost a trade battle with Mexico](http://www.f3nws.com/n/gBCzJH)

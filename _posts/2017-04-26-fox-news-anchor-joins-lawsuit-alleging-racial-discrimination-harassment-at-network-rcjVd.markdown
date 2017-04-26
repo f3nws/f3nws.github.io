@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News anchor joins lawsuit alleging racial discrimination, harassment at network"
-date: 2017-04-26 01:08:34Z
+date: 2017-04-26 14:37:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Fox News anchor joins lawsuit alleging racial discrimination, harassment at network](http://www.f3nws.com/n/rcjVd)
 
-> Posted on: Wednesday, April 26, 2017 6:08:34 AM
+> Posted on: Wednesday, April 26, 2017 7:37:41 PM

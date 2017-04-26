@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tax cuts will be 'biggest in history'"
-date: 2017-04-26 13:53:22Z
+date: 2017-04-26 14:34:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump tax cuts will be 'biggest in history'](http://www.f3nws.com/n/qk4DuC)
 
-> Posted on: Wednesday, April 26, 2017 6:53:22 PM
+> Posted on: Wednesday, April 26, 2017 7:34:51 PM

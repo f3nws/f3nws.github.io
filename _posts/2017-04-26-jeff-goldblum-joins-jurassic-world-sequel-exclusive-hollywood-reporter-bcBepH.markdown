@@ -5,9 +5,9 @@ date: 2017-04-26 02:20:49Z
 categories: google-news-entertaintment
 ---
 
-![Jeff Goldblum Joins 'Jurassic World' Sequel (Exclusive) - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/04/jeff_goldblum.jpg)
+![Jeff Goldblum Joins 'Jurassic World' Sequel (Exclusive) - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/04/jeff_goldblum_0.jpg)
 
-Hollywood Reporter Jeff Goldblum Joins 'Jurassic World' Sequel (Exclusive) Hollywood Reporter Chris Pratt and Bryce Dallas Howard are returning for the follow-up, which will be directed by J.A. Bayona. Jeff Goldblum is returning to the land of dinosaurs. The actor, who co-starred in 1993's Jurassic Park and 1997's The Lost World: Jurassic Park ... Jeff Goldblum to Return for 'Jurassic World' Sequel Variety Jeff Goldblum returning to franchise for Jurassic World 2 EW.com Jeff Goldblum Is Back Again in 'Jurassic World' Sequel Yahoo News Comicbook.com - ComingSoon.net - New York Daily News - Cinema Blend all 125 news articles »
+Hollywood Reporter Jeff Goldblum Joins 'Jurassic World' Sequel (Exclusive) Hollywood Reporter Chris Pratt and Bryce Dallas Howard are returning for the follow-up, which will be directed by J.A. Bayona. Jeff Goldblum is returning to the land of dinosaurs. The actor, who co-starred in 1993's Jurassic Park and 1997's The Lost World: Jurassic Park ... Jeff Goldblum To Reprise Role In 'Jurassic World' Sequel Huffington Post Jeff Goldblum to Return for 'Jurassic World' Sequel Variety Report: Jeff Goldblum signs on for 'Jurassic World' sequel New York Daily News EW.com - Comicbook.com - ComingSoon.net - Cinema Blend all 146 news articles »
 
 
 Full story on F3News: [Jeff Goldblum Joins 'Jurassic World' Sequel (Exclusive) - Hollywood Reporter](http://www.f3nws.com/n/bcBepH)
