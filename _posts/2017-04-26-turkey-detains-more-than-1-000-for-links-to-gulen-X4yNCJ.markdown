@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey detains more than 1,000 for 'links to Gulen'"
-date: 2017-04-26 11:46:09Z
+date: 2017-04-26 18:41:13Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Overnight arrests target alleged network of US-based cleric Fethullah Gulen, bla
 
 Full story on F3News: [Turkey detains more than 1,000 for 'links to Gulen'](http://www.f3nws.com/n/X4yNCJ)
 
-> Posted on: Wednesday, April 26, 2017 4:46:09 PM
+> Posted on: Wednesday, April 26, 2017 11:41:13 PM
