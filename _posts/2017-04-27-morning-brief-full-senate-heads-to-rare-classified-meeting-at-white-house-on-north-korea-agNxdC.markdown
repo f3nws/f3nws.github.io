@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "MORNING BRIEF: Full Senate heads to rare classified meeting at White House on North Korea"
-date: 2017-04-27 04:00:07Z
+date: 2017-04-27 04:30:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ In an unusual move, all 100 senators were invited to attend a classified meeting
 
 Full story on F3News: [MORNING BRIEF: Full Senate heads to rare classified meeting at White House on North Korea](http://www.f3nws.com/n/agNxdC)
 
-> Posted on: Thursday, April 27, 2017 9:00:07 AM
+> Posted on: Thursday, April 27, 2017 9:30:03 AM
