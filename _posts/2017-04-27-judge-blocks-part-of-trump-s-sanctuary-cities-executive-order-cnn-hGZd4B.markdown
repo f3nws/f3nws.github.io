@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Judge blocks part of Trump's sanctuary cities executive order - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170421185639-san-francisco-sanctuary-city-0414-super-tease.jpg)
 
-CNN Judge blocks part of Trump's sanctuary cities executive order CNN Washington (CNN) A federal judge on Tuesday blocked the Trump administration from enforcing a threat to take away funds from sanctuary cities -- the latest blow from the federal judiciary to President Donald Trump's immigration agenda. In his ruling ... Sanctuary cities ruling: When a judge quotes Sean Spicer, it's not a good sign for the White House Washington Post Difficult legal path forward for Trump in sanctuary cities case Raw Story all 625 news articles »
+CNN Judge blocks part of Trump's sanctuary cities executive order CNN Washington (CNN) A federal judge on Tuesday blocked the Trump administration from enforcing a threat to take away funds from sanctuary cities -- the latest blow from the federal judiciary to President Donald Trump's immigration agenda. In his ruling ... and more »
 
 
 Full story on F3News: [Judge blocks part of Trump's sanctuary cities executive order - CNN](http://www.f3nws.com/n/hGZd4B)

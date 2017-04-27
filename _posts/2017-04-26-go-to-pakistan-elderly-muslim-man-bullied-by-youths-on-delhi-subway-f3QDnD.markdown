@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Go to Pakistan': Elderly Muslim man bullied by youths on Delhi subway"
-date: 2017-04-26 11:07:28Z
+date: 2017-04-26 11:07:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ An elderly Muslim man was denied a seat on the Delhi subway by a group of youths
 
 Full story on F3News: ['Go to Pakistan': Elderly Muslim man bullied by youths on Delhi subway](http://www.f3nws.com/n/f3QDnD)
 
-> Posted on: Wednesday, April 26, 2017 4:07:28 PM
+> Posted on: Wednesday, April 26, 2017 4:07:00 PM
