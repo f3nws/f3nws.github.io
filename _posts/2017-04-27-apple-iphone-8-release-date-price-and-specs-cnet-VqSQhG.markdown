@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone 8 Release Date, Price and Specs     - CNET"
-date: 2017-04-27 14:27:00Z
+date: 2017-04-27 14:39:40Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Rumor has it that Apple may debut a radical redesign for its 10th anniversary ed
 
 Full story on F3News: [Apple iPhone 8 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/VqSQhG)
 
-> Posted on: Thursday, April 27, 2017 7:27:00 PM
+> Posted on: Thursday, April 27, 2017 7:39:40 PM
