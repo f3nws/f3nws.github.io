@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Join us LIVE for the Windows Central Video Podcast today at 2:30PM ET"
-date: 2017-04-28 17:00:00Z
+date: 2017-04-28 18:30:00Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ Make sure you join us for the LIVE recording of the Windows Central Video Podcas
 
 Full story on F3News: [Join us LIVE for the Windows Central Video Podcast today at 2:30PM ET](http://www.f3nws.com/n/32HbkG)
 
-> Posted on: Friday, April 28, 2017 10:00:00 PM
+> Posted on: Friday, April 28, 2017 11:30:00 PM
