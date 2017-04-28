@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope Francis in Egypt: 'No to every form of violence'"
-date: 2017-04-28 17:55:52Z
+date: 2017-04-28 21:15:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pope Francis, speaking at the heart of Sunni Islam scholarship, stressed the imp
 
 Full story on F3News: [Pope Francis in Egypt: 'No to every form of violence'](http://www.f3nws.com/n/FCxJXD)
 
-> Posted on: Friday, April 28, 2017 10:55:52 PM
+> Posted on: Saturday, April 29, 2017 2:15:20 AM
