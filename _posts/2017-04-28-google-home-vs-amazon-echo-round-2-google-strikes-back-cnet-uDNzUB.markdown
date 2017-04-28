@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Home vs. Amazon Echo: Round 2 -- Google strikes back     - CNET"
-date: 2017-04-28 12:00:02Z
+date: 2017-04-28 15:10:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Google edges into the lead, but the Echo's far from finished.
 
 Full story on F3News: [Google Home vs. Amazon Echo: Round 2 -- Google strikes back     - CNET](http://www.f3nws.com/n/uDNzUB)
 
-> Posted on: Friday, April 28, 2017 5:00:02 PM
+> Posted on: Friday, April 28, 2017 8:10:27 PM

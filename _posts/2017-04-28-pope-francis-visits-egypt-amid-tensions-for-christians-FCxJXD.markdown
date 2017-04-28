@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Pope Francis visits Egypt amid tensions for Christians"
+date: 2017-04-28 15:54:27Z
+categories: cnn-com-top-stories
+---
+
+![Pope Francis visits Egypt amid tensions for Christians](http://i2.cdn.cnn.com/cnnnext/dam/assets/170426045002-pope-francis-ted-talk-april-25-2017-super-tease.jpg)
+
+Pope Francis, speaking at the heart of Sunni Islam scholarship, stressed the importance of unity between Muslims and Christians to shape world peace.
+
+
+Full story on F3News: [Pope Francis visits Egypt amid tensions for Christians](http://www.f3nws.com/n/FCxJXD)
+
+> Posted on: Friday, April 28, 2017 8:54:27 PM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Don Dale: Adam Giles says 'can't recall' 60 times in first hour at NT inquiry - ABC Online](http://www.abc.net.au/news/image/8479626-1x1-700x700.jpg)
 
-ABC Online Don Dale: Adam Giles says 'can't recall' 60 times in first hour at NT inquiry ABC Online The former Chief Minister of the Northern Territory has told a royal commission he does not recall being told of major failings in the youth detention system. Adam Giles was the Chief Minister in the Country Liberals Government when the ABC's Four ... Ex-Territory chief minister gives the royal commission a big miss The Sydney Morning Herald Ex NT chief unaware of Don Dale incidents Sky News Australia Ex-NT chief 'unaware' of Don Dale abuse 9news.com.au The Australian all 9 news articles »
+ABC Online Don Dale: Adam Giles says 'can't recall' 60 times in first hour at NT inquiry ABC Online The former Chief Minister of the Northern Territory has told a royal commission he does not recall being told of major failings in the youth detention system. Adam Giles was the Chief Minister in the Country Liberals Government when the ABC's Four ... Inquiry 'could have been averted if Don Dale was properly funded' The Australian Ex NT chief unaware of Don Dale incidents Sky News Australia Ex-Territory chief minister gives the royal commission a big miss The Sydney Morning Herald 9news.com.au all 10 news articles »
 
 
 Full story on F3News: [Don Dale: Adam Giles says 'can't recall' 60 times in first hour at NT inquiry - ABC Online](http://www.f3nws.com/n/3eYjnB)
