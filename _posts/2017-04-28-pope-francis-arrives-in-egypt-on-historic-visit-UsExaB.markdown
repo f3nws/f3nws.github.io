@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope Francis arrives in Egypt on historic visit"
-date: 2017-04-28 15:39:01Z
+date: 2017-04-28 16:04:09Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Catholic pontiff's two-day visit is aimed at fostering peace between the Muslim 
 
 Full story on F3News: [Pope Francis arrives in Egypt on historic visit](http://www.f3nws.com/n/UsExaB)
 
-> Posted on: Friday, April 28, 2017 8:39:01 PM
+> Posted on: Friday, April 28, 2017 9:04:09 PM
