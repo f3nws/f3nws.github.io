@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas executes 4th inmate in 8 days"
-date: 2017-04-28 16:04:34Z
+date: 2017-04-28 17:13:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Arkansas executed its fourth inmate in eight days, ending a frantic schedule as 
 
 Full story on F3News: [Arkansas executes 4th inmate in 8 days](http://www.f3nws.com/n/kGCkHE)
 
-> Posted on: Friday, April 28, 2017 9:04:34 PM
+> Posted on: Friday, April 28, 2017 10:13:20 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump talks to NRA in Atlanta as Georgia debates guns on college campuses"
-date: 2017-04-28 16:30:04Z
+date: 2017-04-28 17:23:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The NRA kicks off its annual meeting in Atlanta at a time Georgia is in the midd
 
 Full story on F3News: [Trump talks to NRA in Atlanta as Georgia debates guns on college campuses](http://www.f3nws.com/n/m3j4SB)
 
-> Posted on: Friday, April 28, 2017 9:30:04 PM
+> Posted on: Friday, April 28, 2017 10:23:00 PM
