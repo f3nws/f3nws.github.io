@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's 1st report: Slowest growth in 3 years"
-date: 2017-04-28 13:46:31Z
+date: 2017-04-28 13:56:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump's 1st report: Slowest growth in 3 years](http://www.f3nws.com/n/KzjMcF)
 
-> Posted on: Friday, April 28, 2017 6:46:31 PM
+> Posted on: Friday, April 28, 2017 6:56:54 PM

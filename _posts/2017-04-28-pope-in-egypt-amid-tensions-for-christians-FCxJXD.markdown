@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope in Egypt amid tensions for Christians"
-date: 2017-04-28 13:48:26Z
+date: 2017-04-28 14:22:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pope Francis arrived in Egypt on Friday, kicking off a two-day trip designed to 
 
 Full story on F3News: [Pope in Egypt amid tensions for Christians](http://www.f3nws.com/n/FCxJXD)
 
-> Posted on: Friday, April 28, 2017 6:48:26 PM
+> Posted on: Friday, April 28, 2017 7:22:02 PM
