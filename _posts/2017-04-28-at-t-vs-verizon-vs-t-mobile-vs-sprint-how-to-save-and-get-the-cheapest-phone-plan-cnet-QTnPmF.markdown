@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AT&T vs. Verizon vs. T-Mobile vs. Sprint: How to save and get the cheapest phone plan     - CNET"
-date: 2017-04-28 19:03:29Z
+date: 2017-04-28 19:40:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We help you avoid all the fine print and tedium that comes with choosing a phone
 
 Full story on F3News: [AT&T vs. Verizon vs. T-Mobile vs. Sprint: How to save and get the cheapest phone plan     - CNET](http://www.f3nws.com/n/QTnPmF)
 
-> Posted on: Saturday, April 29, 2017 12:03:29 AM
+> Posted on: Saturday, April 29, 2017 12:40:39 AM
