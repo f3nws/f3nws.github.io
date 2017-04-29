@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope urges unity against fanaticism at Cairo mass"
-date: 2017-04-29 18:03:38Z
+date: 2017-04-29 18:07:59Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Pope Francis celebrated an open air mass that gave Egypt's embattled Christians 
 
 Full story on F3News: [Pope urges unity against fanaticism at Cairo mass](http://www.f3nws.com/n/NHjDgE)
 
-> Posted on: Saturday, April 29, 2017 11:03:38 PM
+> Posted on: Saturday, April 29, 2017 11:07:59 PM

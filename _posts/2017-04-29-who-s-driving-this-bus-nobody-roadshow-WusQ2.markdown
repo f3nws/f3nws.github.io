@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who's driving this bus? Nobody     - Roadshow"
-date: 2017-04-29 17:15:37Z
+date: 2017-04-29 17:20:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Autonomous cars are all well and good. But if you want to make every
 
 Full story on F3News: [Who's driving this bus? Nobody     - Roadshow](http://www.f3nws.com/n/WusQ2)
 
-> Posted on: Saturday, April 29, 2017 10:15:37 PM
+> Posted on: Saturday, April 29, 2017 10:20:06 PM
