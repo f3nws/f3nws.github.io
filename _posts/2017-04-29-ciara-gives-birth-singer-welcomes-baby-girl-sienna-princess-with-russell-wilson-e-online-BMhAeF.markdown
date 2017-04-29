@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ciara Gives Birth! Singer Welcomes Baby Girl Sienna Princess With Russell Wilson - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017126/rs_600x600-170226185503-600-ciara-russell-wilson-oscars-elton-john-after-party-022617.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Ciara Gives Birth! Singer Welcomes Baby Girl Sienna Princess With Russell Wilson E! Online Ciara has given birth to her first child with husband Russell Wilson. The proud mama posted the following Instagram announcing the name of her baby girl: "Dear Sienna Princess Wilson. No matter how big the wave, we will always be your calm in the storm. Ciara and Russell Wilson Welcome Baby Girl PEOPLE.com Seahawks QB Russell Wilson, wife Ciara welcome baby girl Atlanta Journal Constitution Ciara & Russell Wilson Welcome Baby Girl HotNewHipHop all 35 news articles »
+E! Online Ciara Gives Birth! Singer Welcomes Baby Girl Sienna Princess With Russell Wilson E! Online Ciara has given birth to her first child with husband Russell Wilson. The proud mama posted the following Instagram announcing the name of her baby girl: "Dear Sienna Princess Wilson. No matter how big the wave, we will always be your calm in the storm. Ciara and Russell Wilson Welcome Baby Girl Billboard Seahawks' Russell Wilson, Ciara welcome baby girl Palm Beach Post Ciara Gives Birth: Star Welcomes 1st Child With Husband Russell Wilson — Congrats Hollywood Life Us Weekly - seattlepi.com - Just Jared - The News Tribune all 37 news articles »
 
 
 Full story on F3News: [Ciara Gives Birth! Singer Welcomes Baby Girl Sienna Princess With Russell Wilson - E! Online](http://www.f3nws.com/n/BMhAeF)

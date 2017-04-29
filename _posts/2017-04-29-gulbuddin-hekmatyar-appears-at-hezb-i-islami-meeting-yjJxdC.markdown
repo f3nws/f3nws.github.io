@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gulbuddin Hekmatyar appears at Hezb-i-Islami meeting"
-date: 2017-04-29 04:19:30Z
+date: 2017-04-29 09:13:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Controversial commander returns from self-imposed exile after his group signed a
 
 Full story on F3News: [Gulbuddin Hekmatyar appears at Hezb-i-Islami meeting](http://www.f3nws.com/n/yjJxdC)
 
-> Posted on: Saturday, April 29, 2017 9:19:30 AM
+> Posted on: Saturday, April 29, 2017 2:13:16 PM
