@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters take on Trump's climate policies -- and the heat"
-date: 2017-04-29 18:50:55Z
+date: 2017-04-29 19:23:31Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Thousands of people who support action on climate change are expected to brave t
 
 Full story on F3News: [Protesters take on Trump's climate policies -- and the heat](http://www.f3nws.com/n/pnGY)
 
-> Posted on: Saturday, April 29, 2017 11:50:55 PM
+> Posted on: Sunday, April 30, 2017 12:23:31 AM
