@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The kids suing Donald Trump are marching to the White House"
-date: 2017-04-29 17:24:26Z
+date: 2017-04-29 20:04:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A 16-year-old walked up to the microphone.
 
 Full story on F3News: [The kids suing Donald Trump are marching to the White House](http://www.f3nws.com/n/qFRdh)
 
-> Posted on: Saturday, April 29, 2017 10:24:26 PM
+> Posted on: Sunday, April 30, 2017 1:04:45 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![How Trump Has Reshaped the Presidency, and How It's Changed Him, Too - New York Times](https://static01.nyt.com/images/2017/04/30/us/30prexy/30prexey-facebookJumbo.jpg)
 
-New York Times How Trump Has Reshaped the Presidency, and How It's Changed Him, Too New York Times President Trump boarding Air Force One in Maryland on Friday. The president operating on Day 100 is not the same as the one who took office in January. Credit Al Drago/The New York Times. The First 100 Days: Times reporters are taking a look back at ... How the world sees Trump, 100 days in CNN Trump floods the zone for 100-day anniversary The Hill Trump's mad dash to 100 days Politico Huffington Post - Fox News - Salon - USA TODAY all 1,688 news articles »
+New York Times How Trump Has Reshaped the Presidency, and How It's Changed Him, Too New York Times President Trump boarding Air Force One in Maryland on Friday. The president operating on Day 100 is not the same as the one who took office in January. Credit Al Drago/The New York Times. The First 100 Days: Times reporters are taking a look back at ... How the world sees Trump, 100 days in CNN Trump floods the zone for 100-day anniversary The Hill The rule of law in Trump's first 100 days Fox News Politico - CBS News - Huffington Post - USA TODAY all 1,856 news articles »
 
 
 Full story on F3News: [How Trump Has Reshaped the Presidency, and How It's Changed Him, Too - New York Times](http://www.f3nws.com/n/pRAs4B)
