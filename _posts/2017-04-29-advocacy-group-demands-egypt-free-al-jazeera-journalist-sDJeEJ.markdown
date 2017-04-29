@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Advocacy group demands Egypt free Al Jazeera journalist"
-date: 2017-04-29 17:29:09Z
+date: 2017-04-29 18:56:51Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US rights group asks UN to pressure Egypt to free Mahmoud Hussein as Egyptian au
 
 Full story on F3News: [Advocacy group demands Egypt free Al Jazeera journalist](http://www.f3nws.com/n/sDJeEJ)
 
-> Posted on: Saturday, April 29, 2017 10:29:09 PM
+> Posted on: Saturday, April 29, 2017 11:56:51 PM
