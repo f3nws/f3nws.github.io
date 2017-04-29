@@ -5,6 +5,8 @@ date: 2017-04-28 08:47:03Z
 categories: cnn-com-top-stories
 ---
 
+![President Trump: I miss my old life](http://i2.cdn.cnn.com/cnnnext/dam/assets/170427145335-trump-white-house-0425-super-tease.jpg)
+
 President Donald Trump, reflecting on a first 100 days in office, told Reuters that he thought the job would be easier and he misses his old life.
 
 
