@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two biggest ways Trump family could benefit from his tax plan"
-date: 2017-04-29 02:30:03Z
+date: 2017-04-29 02:30:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Two biggest ways Trump family could benefit from his tax plan](http://www.f3nws.com/n/GpjbSE)
 
-> Posted on: Saturday, April 29, 2017 7:30:03 AM
+> Posted on: Saturday, April 29, 2017 7:30:54 AM
