@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Luxury festival descends into chaos"
-date: 2017-04-29 07:30:15Z
+date: 2017-04-29 17:50:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ If you turned up at the Fyre Festival wooed by its ads -- and many, many fans di
 
 Full story on F3News: [Luxury festival descends into chaos](http://www.f3nws.com/n/3SqREH)
 
-> Posted on: Saturday, April 29, 2017 12:30:15 PM
+> Posted on: Saturday, April 29, 2017 10:50:37 PM
