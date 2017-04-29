@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Bengals brush off concerns, draft RB Mixon - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F1222%2Fr165222_1296x729_16%2D9.jpg)
 
-ESPN Bengals brush off concerns, draft RB Mixon ESPN CINCINNATI -- Joe Mixon struggled with his emotions after being drafted by the Cincinnati Bengals in the second round Friday night, a career high point for a talented player who experienced intense backlash for punching a woman in the face while at the ... Spurned by Most, Joe Mixon Drafted by a Team That May Be Exactly Wrong for Him Bleacher Report Criminal: Bengals draft controversial Joe Mixon to join NFL's most notorious team FOXSports.com What happens next is all on Joe Mixon ABC News USA TODAY - CBSSports.com - Los Angeles Times - New York Post all 337 news articles »
+ESPN Bengals brush off concerns, draft RB Mixon ESPN CINCINNATI -- Joe Mixon struggled with his emotions after being drafted by the Cincinnati Bengals in the second round Friday night, a career high point for a talented player who experienced intense backlash for punching a woman in the face while at the ... Spurned by Most, Joe Mixon Drafted by a Team That May Be Exactly Wrong for Him Bleacher Report Criminal: Bengals draft controversial Joe Mixon to join NFL's most notorious team FOXSports.com What happens next is all on Joe Mixon ABC News CBSSports.com - USA TODAY - Los Angeles Times - New York Post all 342 news articles »
 
 
 Full story on F3News: [Bengals brush off concerns, draft RB Mixon - ESPN](http://www.f3nws.com/n/sZ2UZE)
