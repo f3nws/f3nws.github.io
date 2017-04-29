@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea carries out missile test in defiance of UN"
-date: 2017-04-29 05:30:01Z
+date: 2017-04-29 05:42:43Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US and South Korean officials say launch of missile, amid high tensions on the K
 
 Full story on F3News: [North Korea carries out missile test in defiance of UN](http://www.f3nws.com/n/HCqPvC)
 
-> Posted on: Saturday, April 29, 2017 10:30:01 AM
+> Posted on: Saturday, April 29, 2017 10:42:43 AM
