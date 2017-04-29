@@ -5,6 +5,8 @@ date: 2017-04-29 07:25:09Z
 categories: cnn-com-entertainment
 ---
 
+![Ciara and Russell Wilson welcome baby girl](http://i2.cdn.cnn.com/cnnnext/dam/assets/160823123254-01-russell-wilson-ciara-0823-super-tease.jpg)
+
 Ciara and Russell Wilson's baby girl is here.
 
 
