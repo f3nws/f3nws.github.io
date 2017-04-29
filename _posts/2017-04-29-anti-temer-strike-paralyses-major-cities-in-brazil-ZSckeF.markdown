@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anti-Temer strike paralyses major cities in Brazil"
-date: 2017-04-29 06:00:01Z
+date: 2017-04-29 06:00:26Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The 24-hour strike against President Temer's proposed labour reforms turns viole
 
 Full story on F3News: [Anti-Temer strike paralyses major cities in Brazil](http://www.f3nws.com/n/ZSckeF)
 
-> Posted on: Saturday, April 29, 2017 11:00:01 AM
+> Posted on: Saturday, April 29, 2017 11:00:26 AM
