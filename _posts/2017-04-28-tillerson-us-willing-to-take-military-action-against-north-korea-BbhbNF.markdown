@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson: US willing to take military action against North Korea"
-date: 2017-04-28 22:46:09Z
+date: 2017-04-28 23:56:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson called on the world community Friday to drastic
 
 Full story on F3News: [Tillerson: US willing to take military action against North Korea](http://www.f3nws.com/n/BbhbNF)
 
-> Posted on: Saturday, April 29, 2017 3:46:09 AM
+> Posted on: Saturday, April 29, 2017 4:56:16 AM
