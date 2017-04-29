@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Hacker Leaks Stolen 'Orange Is the New Black' Season 5 Episodes to Piracy Network - Variety](https://pmcvariety.files.wordpress.com/2017/04/netflix-oitnb-season-5.jpg?w=1000&h=750&crop=1)
 
-Variety Hacker Leaks Stolen 'Orange Is the New Black' Season 5 Episodes to Piracy Network Variety Variety was unable to verify the authenticity of the “OITNB” episodes the hacker claimed to have shared on popular file-sharing site the Pirate Bay. The first 10 episodes of season 5 were apparently shared shortly before 6 a.m. ET Saturday, with the 10 ... and more »
+Variety Hacker Leaks Stolen 'Orange Is the New Black' Season 5 Episodes to Piracy Network Variety Variety was unable to verify the authenticity of the “OITNB” episodes the hacker claimed to have shared on popular file-sharing site the Pirate Bay. The first 10 episodes of season 5 were apparently shared shortly before 6 a.m. ET Saturday, with the 10 ... Hacker Releases New Episodes of 'Orange Is the New Black' Hollywood Reporter A Hacker Is Holding Season 5 of Orange Is the New Black for Ransom Vanity Fair 'Orange Is The New Black': Hacker Says He Stole New Season, Demands Ransom From Netflix Deadline The Verge - EW.com - Us Weekly - Cinema Blend all 69 news articles »
 
 
 Full story on F3News: [Hacker Leaks Stolen 'Orange Is the New Black' Season 5 Episodes to Piracy Network - Variety](http://www.f3nws.com/n/nsGUTE)

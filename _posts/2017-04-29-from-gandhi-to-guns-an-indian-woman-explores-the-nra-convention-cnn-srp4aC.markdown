@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![From Gandhi to guns: An Indian woman explores the NRA convention - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170428181354-01-moni-nra-super-tease.jpg)
 
-CNN From Gandhi to guns: An Indian woman explores the NRA convention CNN Atlanta (CNN) Guns are not a part of the culture of my homeland, except perhaps for the occasional Bollywood movie in which the bad guy meets his demise staring down the wrong end of a barrel. My childhood in India was steeped in ahimsa, the tenet of ... Senator Responds to Trump's NRA Speech With Photos of Shooting Victims New York Times Trump Brings Campaign Rhetoric To NRA Speech, Pledging Gun-Rights Support NPR Trump in campaign mode at NRA convention The Hill all 346 news articles »
+CNN From Gandhi to guns: An Indian woman explores the NRA convention CNN Atlanta (CNN) Guns are not a part of the culture of my homeland, except perhaps for the occasional Bollywood movie in which the bad guy meets his demise staring down the wrong end of a barrel. My childhood in India was steeped in ahimsa, the tenet of ... Trump to NRA: 'You have a true friend in the White House' Washington Post Senator Responds to Trump's NRA Speech With Photos of Shooting Victims New York Times Trump Brings Campaign Rhetoric To NRA Speech, Pledging Gun-Rights Support NPR The Hill all 354 news articles »
 
 
 Full story on F3News: [From Gandhi to guns: An Indian woman explores the NRA convention - CNN](http://www.f3nws.com/n/srp4aC)
