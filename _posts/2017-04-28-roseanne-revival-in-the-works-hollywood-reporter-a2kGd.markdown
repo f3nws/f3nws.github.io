@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Roseanne' Revival in the Works - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/04/roseanne_44_-_h_2017.jpg)
 
-Hollywood Reporter 'Roseanne' Revival in the Works Hollywood Reporter Roseanne Barr, John Goodman and Sara Gilbert are onboard for the 8-episode project, which is currently being shopped to networks. Roseanne is eyeing a comeback. An eight-episode revival of the Emmy-winning ABC sitcom is in the works, sources ... 'Roseanne' Getting Revival With Roseanne Barr, John Goodman, Sara Gilbert & Co. Deadline Roseanne revival speculation kicks up with original cast EW.com (blog) 20 Years Later! John Goodman & Sara Gilbert in Hilarious 'Roseanne' Spoof - YouTube YouTube RoseanneWorld all 97 news articles »
+Hollywood Reporter 'Roseanne' Revival in the Works Hollywood Reporter Roseanne Barr, John Goodman and Sara Gilbert are onboard for the 8-episode project, which is currently being shopped to networks. Roseanne is eyeing a comeback. An eight-episode revival of the Emmy-winning ABC sitcom is in the works, sources ... 'Roseanne' Getting Revival With Roseanne Barr, John Goodman, Sara Gilbert & Co. Deadline Roseanne revival speculation kicks up with original cast EW.com (blog) 20 Years Later! John Goodman & Sara Gilbert in Hilarious 'Roseanne' Spoof - YouTube YouTube RoseanneWorld all 98 news articles »
 
 
 Full story on F3News: ['Roseanne' Revival in the Works - Hollywood Reporter](http://www.f3nws.com/n/a2kGd)

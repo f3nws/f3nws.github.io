@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ja Rule apologizes, says Fyre Festival was 'NOT A SCAM'"
-date: 2017-04-29 06:59:40Z
+date: 2017-04-29 07:30:15Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ If you turned up at the Fyre Festival wooed by its ads -- and many, many fans di
 
 Full story on F3News: [Ja Rule apologizes, says Fyre Festival was 'NOT A SCAM'](http://www.f3nws.com/n/3SqREH)
 
-> Posted on: Saturday, April 29, 2017 11:59:40 AM
+> Posted on: Saturday, April 29, 2017 12:30:15 PM
