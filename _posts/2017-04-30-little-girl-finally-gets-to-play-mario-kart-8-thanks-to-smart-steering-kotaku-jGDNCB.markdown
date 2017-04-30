@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering - Kotaku"
-date: 2017-04-30 16:34:12Z
+date: 2017-04-30 16:32:15Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering Ko
 
 Full story on F3News: [Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering - Kotaku](http://www.f3nws.com/n/jGDNCB)
 
-> Posted on: Sunday, April 30, 2017 9:34:12 PM
+> Posted on: Sunday, April 30, 2017 9:32:15 PM
