@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US families receive Iran payouts, decades after bombings"
-date: 2017-04-30 10:22:36Z
+date: 2017-04-30 11:01:05Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Compensation to relatives of victims of 'state-sponsored acts of terrorism' come
 
 Full story on F3News: [US families receive Iran payouts, decades after bombings](http://www.f3nws.com/n/XHSsUJ)
 
-> Posted on: Sunday, April 30, 2017 3:22:36 PM
+> Posted on: Sunday, April 30, 2017 4:01:05 PM
