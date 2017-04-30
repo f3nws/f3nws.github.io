@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Climate March Draws Thousands of Protesters Alarmed by Trump's Environmental Agenda - New York Times](https://static01.nyt.com/images/2017/04/30/us/30CLIMATE-vid/30CLIMATE-vid-facebookJumbo.jpg)
 
-New York Times Climate March Draws Thousands of Protesters Alarmed by Trump's Environmental Agenda New York Times By DAVE HORN on Publish Date April 30, 2017. Photo by Hilary Swift for The New York Times. Watch in Times Video ». embed. WASHINGTON — Tens of thousands of demonstrators, alarmed at what they see as a dangerous assault on the environment by ... Thousands March In DC To Protest Trump Climate Policies NPR Climate March: Tens of thousands protest Trump climate policies, demand environmental action Fox News Climate March draws massive crowd to DC in sweltering heat Washington Post Raw Story - Los Angeles Times - CNN - The Verge all 485 news articles »
+New York Times Climate March Draws Thousands of Protesters Alarmed by Trump's Environmental Agenda New York Times By DAVE HORN on Publish Date April 30, 2017. Photo by Hilary Swift for The New York Times. Watch in Times Video ». embed. WASHINGTON — Tens of thousands of demonstrators, alarmed at what they see as a dangerous assault on the environment by ... Thousands March In DC To Protest Trump Climate Policies NPR The Climate March's Big Tent Strategy Paid Off The Atlantic 200000 at People's Climate March Rise to the Challenge Huffington Post Fox News - Raw Story - Washington Post - Los Angeles Times all 513 news articles »
 
 
 Full story on F3News: [Climate March Draws Thousands of Protesters Alarmed by Trump's Environmental Agenda - New York Times](http://www.f3nws.com/n/3CWCrB)
