@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hasan Minhaj's Trump-bashing comedy routine at the White House correspondents' dinner, annotated - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-04-29/AP/Correspondents_Dinner_73902-1f85f.jpg)
 
-Washington Post Hasan Minhaj's Trump-bashing comedy routine at the White House correspondents' dinner, annotated Washington Post President Trump did not attend the White House correspondents' dinner, but he was still the butt of host Hasan Minhaj's jokes. We have annotated Minhaj's remarks using Genius. To see an annotation, click on the yellow, highlighted text. Thank you ... Muslim comedian's winning take on Trump CNN Trump Stars On Stage He Built Himself, Far From Washington NPR For Journalists, Annual Dinner Serves Up Catharsis and Resolve New York Times Fox News - Huffington Post - Washington Times - ThinkProgress all 1,025 news articles »
+Washington Post Hasan Minhaj's Trump-bashing comedy routine at the White House correspondents' dinner, annotated Washington Post President Trump did not attend the White House correspondents' dinner , but he was still the butt of host Hasan Minhaj's jokes. We have annotated Minhaj's remarks using Genius. To see an annotation, click on the yellow, highlighted text. Thank you ... For Journalists, Annual Dinner Serves Up Catharsis and Resolve New York Times Muslim comedian's winning take on Trump CNN Journalists Didn't Miss The Celebrity Glitz At White House Correspondents' Dinner Huffington Post Washington Times - EW.com - NPR - Fox News all 895 news articles »
 
 
 Full story on F3News: [Hasan Minhaj's Trump-bashing comedy routine at the White House correspondents' dinner, annotated - Washington Post](http://www.f3nws.com/n/f2msFB)
