@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "TUNE IN: 'The Fox News Specialists' Premieres Monday at 5pm ET, Bolling Interviews President Trump!"
-date: 2017-04-30 12:30:02Z
+date: 2017-04-30 13:01:49Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [TUNE IN: 'The Fox News Specialists' Premieres Monday at 5pm ET, Bolling Interviews President Trump!](http://www.f3nws.com/n/PZtubE)
 
-> Posted on: Sunday, April 30, 2017 5:30:02 PM
+> Posted on: Sunday, April 30, 2017 6:01:49 PM
