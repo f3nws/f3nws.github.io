@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Jamie Lynn Spears Honors Britney Spears During Surprise Appearance at 2017 Radio Disney Music Awards - E! Online"
-date: 2017-04-30 02:47:40Z
+date: 2017-04-30 02:38:16Z
 categories: google-news-entertaintment
 ---
 
 ![Jamie Lynn Spears Honors Britney Spears During Surprise Appearance at 2017 Radio Disney Music Awards - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017329/rs_600x600-170429183316-600.Jamie-Lynn-Spears-Britney-Spears.kg.042917.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Jamie Lynn Spears Honors Britney Spears During Surprise Appearance at 2017 Radio Disney Music Awards E! Online Jamie Lynn Spears surprised fans at the 2017 Radio Disney Music Awards earlier today, when she presented big sis Britney Spears the first-ever Icon Award at the House of Mouse's big show at the Microsoft Theater in Los Angeles. A whopping 23 years ... Britney Spears Sizzles In Skin-Tight Black Dress At The Radio Disney Music Awards Hollywood Life Jamie Lynn Spears Surprises Big Sister Britney Spears at Radio Disney Music Awards 2017 Us Weekly Raven-Symone Hits the Radio Disney Music Awards Red Carpet With the Cast of 'Raven's Home' Entertainment Tonight Idolator - Just Jared all 45 news articles »
+E! Online Jamie Lynn Spears Honors Britney Spears During Surprise Appearance at 2017 Radio Disney Music Awards E! Online Jamie Lynn Spears surprised fans at the 2017 Radio Disney Music Awards earlier today, when she presented big sis Britney Spears the first-ever Icon Award at the House of Mouse's big show at the Microsoft Theater in Los Angeles. A whopping 23 years ... Britney Spears Sizzles In Skin-Tight Black Dress At The Radio Disney Music Awards Hollywood Life Jamie Lynn Spears Surprises Big Sister Britney Spears at Radio Disney Music Awards 2017 Us Weekly Raven-Symone Hits the Radio Disney Music Awards Red Carpet With the Cast of 'Raven's Home' Entertainment Tonight InStyle - Just Jared - Idolator all 47 news articles »
 
 
 Full story on F3News: [Jamie Lynn Spears Honors Britney Spears During Surprise Appearance at 2017 Radio Disney Music Awards - E! Online](http://www.f3nws.com/n/hvYfUJ)
 
-> Posted on: Sunday, April 30, 2017 7:47:40 AM
+> Posted on: Sunday, April 30, 2017 7:38:16 AM
