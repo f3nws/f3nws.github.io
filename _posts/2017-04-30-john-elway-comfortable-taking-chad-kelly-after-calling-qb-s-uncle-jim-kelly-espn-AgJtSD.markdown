@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![John Elway 'comfortable' taking Chad Kelly after calling QB's uncle, Jim Kelly - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0429%2Fr205309_1296x729_16%2D9.jpg)
 
-ESPN John Elway 'comfortable' taking Chad Kelly after calling QB's uncle, Jim Kelly ESPN ENGLEWOOD, Colo. -- The Denver Broncos said they vetted Chad Kelly carefully, and that's why they used the draft's final pick, 253rd overall, to select the Mississippi quarterback on Saturday and add him to the roster. Chad Kelly Picked by Broncos: Twitter Reacts to 2017 NFL Draft's Mr. Irrelevant Bleacher Report LOOK: Chad Kelly falls asleep during draft, Broncos make him Mr. Irrelevant anyway CBSSports.com As Mr. Irrelevant, Chad Kelly gets chance to delete troubled history with Broncos Sporting News Los Angeles Times - SB Nation - NFL.com all 78 news articles »
+ESPN John Elway 'comfortable' taking Chad Kelly after calling QB's uncle, Jim Kelly ESPN ENGLEWOOD, Colo. -- The Denver Broncos said they vetted Chad Kelly carefully, and that's why they used the draft's final pick, 253rd overall, to select the Mississippi quarterback on Saturday and add him to the roster. Chad Kelly Picked by Broncos: Twitter Reacts to 2017 NFL Draft's Mr. Irrelevant Bleacher Report LOOK: Chad Kelly falls asleep during draft, Broncos make him Mr. Irrelevant anyway CBSSports.com Chad Kelly could be Broncos' starting QB of the future, but now he's Mr. Irrelevant SB Nation Los Angeles Times - NFL.com all 80 news articles »
 
 
 Full story on F3News: [John Elway 'comfortable' taking Chad Kelly after calling QB's uncle, Jim Kelly - ESPN](http://www.f3nws.com/n/AgJtSD)
