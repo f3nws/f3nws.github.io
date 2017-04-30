@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![EPA removes climate change information from website - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170429113904-04-climate-march-washington-0429-super-tease.jpg)
 
-CNN EPA removes climate change information from website CNN (CNN) The EPA removed most climate change information from its website Friday, saying in a press release that language on the website is being updated to "reflect the approach of new leadership." EPA Administrator Scott Pruitt has expressed doubt about ... EPA begins scrubbing Obama's climate legacy from website amid protests Washington Examiner EPA Kicks Off Website Updates | U.S. EPA News Releases | US EPA US EPA EPA website removes climate science site from public view after two decades Washington Post The White House all 145 news articles »
+CNN EPA removes climate change information from website CNN (CNN) The EPA removed most climate change information from its website Friday, saying in a press release that language on the website is being updated to "reflect the approach of new leadership." EPA Administrator Scott Pruitt has expressed doubt about ... EPA Purges Pages That Highlight Climate Change From Its Website Huffington Post EPA removes climate change data, other scientific information from website USA TODAY EPA Kicks Off Website Updates | U.S. EPA News Releases | US EPA US EPA Washington Post - The White House all 156 news articles »
 
 
 Full story on F3News: [EPA removes climate change information from website - CNN](http://www.f3nws.com/n/CrdsUC)
