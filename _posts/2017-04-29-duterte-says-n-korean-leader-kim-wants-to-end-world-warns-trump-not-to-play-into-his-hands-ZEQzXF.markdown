@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Duterte says N. Korean leader Kim ‘wants to end world,’ warns Trump ‘not to play into his hands’"
-date: 2017-04-29 17:22:55Z
+date: 2017-04-29 17:22:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Philippines President Rodrigo Duterte has urged the White House to be “prudent
 
 Full story on F3News: [Duterte says N. Korean leader Kim ‘wants to end world,’ warns Trump ‘not to play into his hands’](http://www.f3nws.com/n/ZEQzXF)
 
-> Posted on: Saturday, April 29, 2017 10:22:55 PM
+> Posted on: Saturday, April 29, 2017 10:22:00 PM
