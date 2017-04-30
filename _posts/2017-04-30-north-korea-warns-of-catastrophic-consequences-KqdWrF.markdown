@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea warns of 'catastrophic consequences'"
-date: 2017-04-30 17:54:46Z
+date: 2017-04-30 18:54:32Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ USS Carl Vinson strike group carries out exercises with South Korean navy as Nor
 
 Full story on F3News: [North Korea warns of 'catastrophic consequences'](http://www.f3nws.com/n/KqdWrF)
 
-> Posted on: Sunday, April 30, 2017 10:54:46 PM
+> Posted on: Sunday, April 30, 2017 11:54:32 PM

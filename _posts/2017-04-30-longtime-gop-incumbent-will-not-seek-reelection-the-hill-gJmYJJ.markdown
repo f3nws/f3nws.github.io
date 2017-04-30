@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Longtime GOP incumbent will not seek reelection - The Hill](http://thehill.com/sites/default/files/article_images/illeanaros-lehtinen_010615gn2.jpg)
 
-The Hill Longtime GOP incumbent will not seek reelection The Hill Rep. Ileana Ros-Lehtinen (R-Fla.), who has represented Miami in Congress since 1989, will not seek reelection in 2018, The Miami Herald reported Sunday. “It's been such a delight and a high honor to serve our community for so many years and help ... Rep. Ros-Lehtinen, first Cuban-American in Congress, to retire CNN Florida's Ros-Lehtinen to retire from Congress Politico Ileana Ros-Lehtinen to retire from Congress Miami Herald all 25 news articles »
+The Hill Longtime GOP incumbent will not seek reelection The Hill Rep. Ileana Ros-Lehtinen (R-Fla.), who has represented Miami in Congress since 1989, will not seek reelection in 2018, The Miami Herald reported Sunday. “It's been such a delight and a high honor to serve our community for so many years and help ... Rep. Ros-Lehtinen, first Cuban-American in Congress, to retire CNN Ileana Ros-Lehtinen to retire from Congress Miami Herald Florida's Ros-Lehtinen to retire from Congress Politico Washington Post all 32 news articles »
 
 
 Full story on F3News: [Longtime GOP incumbent will not seek reelection - The Hill](http://www.f3nws.com/n/gJmYJJ)

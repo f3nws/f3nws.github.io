@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--_s3QNxLd--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/hzon86vrk1grvqoavun7.png)
 
-Kotaku Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering Kotaku If you've been playing Mario Kart 8 Deluxe on the Nintendo Switch this weekend, you might have noticed that the game has something called Smart Steering turned on by default. While most players have started the game by turning it off, the feature was a ... I Took My Nintendo Switch To A Bar, And I Was Surprised By What Happened Forbes Mario Kart 8 Deluxe Guide: How To Drift For The Biggest Boost Attack of the Fanboy Daily Deals: Mario Kart 8 Deluxe for Under £35 IGN all 139 news articles »
+Kotaku Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering Kotaku If you've been playing Mario Kart 8 Deluxe on the Nintendo Switch this weekend, you might have noticed that the game has something called Smart Steering turned on by default. While most players have started the game by turning it off, the feature was a ... I Took My Nintendo Switch To A Bar, And I Was Surprised By What Happened Forbes Mario Kart 8 Deluxe Guide: How To Drift For The Biggest Boost Attack of the Fanboy Daily Deals: Mario Kart 8 Deluxe for Under £35 IGN Twinfinite - CNET all 139 news articles »
 
 
 Full story on F3News: [Little Girl Finally Gets To Play Mario Kart 8 Thanks To Smart Steering - Kotaku](http://www.f3nws.com/n/jGDNCB)
