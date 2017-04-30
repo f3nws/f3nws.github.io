@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Doug Whaley fired as Bills general manager - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0119%2Fr172612_1296x729_16%2D9.jpg)
 
-Miami Herald Doug Whaley fired as Bills general manager ESPN ORCHARD PARK, N.Y. -- The Buffalo Bills fired general manager Doug Whaley, the team announced Sunday. The Bills were 30-34 in Whaley's four seasons as general manager. His only winning season came in 2014, when the Bills finished 9-7 but missed ... Bills fire entire scouting staff along with Doug Whaley NBCSports.com Bills fire GM Whaley, scouting staff 1 day after draft FOXSports.com Why the Bills might finally be due now that Doug Whaley's rocky tenure is over CBSSports.com NFL.com - Bleacher Report - New York Post - BuffaloBills.com all 76 news articles »
+Washington Post Doug Whaley fired as Bills general manager ESPN ORCHARD PARK, N.Y. -- The Buffalo Bills fired general manager Doug Whaley, the team announced Sunday. The Bills were 30-34 in Whaley's four seasons as general manager. His only winning season came in 2014, when the Bills finished 9-7 but missed ... Bills fire entire scouting staff along with Doug Whaley NBCSports.com Doug Whaley Firing Ends Bills Power Struggle, Puts Team in Best Position to Win Bleacher Report Bills fire GM Whaley, scouting staff 1 day after draft FOXSports.com New York Post - BuffaloBills.com - Yahoo Sports all 84 news articles »
 
 
 Full story on F3News: [Doug Whaley fired as Bills general manager - ESPN](http://www.f3nws.com/n/sMTRCD)
