@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Deadly storms hit several states - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170430035134-texas-tornado-super-tease.jpg)
 
-CNN Deadly storms hit several states CNN (CNN) A line of deadly storms that spawned tornadoes and caused flooding in Texas, Missouri, Arkansas and Mississippi had claimed at least eight lives by Sunday afternoon, authorities said. The storms were expected to roll into Alabama later Sunday and ... Multiple deaths reported as tornadoes, severe floods hit South, Midwest CBS News Nine Dead, Dozens Hurt After Tornadoes Hit Texas, South NBCNews.com The Latest: 2 die in Arkansas flooding; storm toll now 9 New York Daily News Washington Post - USA TODAY - The Weather Channel all 227 news articles »
+CNN Deadly storms hit several states CNN (CNN) A string of deadly storms spawned tornadoes and caused flooding over the weekend that left a trail of devastation through four states. At least eight people were killed as storms rolled through Texas, Missouri, Arkansas and Mississippi ... Multiple deaths reported as tornadoes, severe floods hit South, Midwest CBS News At least nine killed by storms, flooding in South and Midwest Fox News Nine Dead, Dozens Hurt After Tornadoes Hit Texas, South NBCNews.com The Weather Channel - 9NEWS.com - New York Daily News - WPXI Pittsburgh all 228 news articles »
 
 
 Full story on F3News: [Deadly storms hit several states - CNN](http://www.f3nws.com/n/gnn2NJ)

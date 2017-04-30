@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hillary’s Presidential Bid Was Doomed From The Beginning"
-date: 2017-04-30 20:00:13Z
+date: 2017-04-30 21:09:24Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Hillary’s Presidential Bid Was Doomed From The Beginning](http://www.f3nws.com/n/zkXdEF)
 
-> Posted on: Monday, May 1, 2017 1:00:13 AM
+> Posted on: Monday, May 1, 2017 2:09:24 AM
