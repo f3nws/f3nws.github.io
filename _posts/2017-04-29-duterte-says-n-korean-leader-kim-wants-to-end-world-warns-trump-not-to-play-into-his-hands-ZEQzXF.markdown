@@ -5,7 +5,7 @@ date: 2017-04-29 17:22:55Z
 categories: rt-news
 ---
 
-![Duterte says N. Korean leader Kim ‘wants to end world,’ warns Trump ‘not to play into his hands’](https://img.rt.com/files/2017.04/article/5904c740c461880c7a8b45c3.jpg)
+![Duterte says N. Korean leader Kim ‘wants to end world,’ warns Trump ‘not to play into his hands’](https://cdn.rt.com/files/2017.04/article/5904c740c461880c7a8b45c3.jpg)
 
 Philippines President Rodrigo Duterte has urged the White House to be “prudent and patient” in dealing with North Korea’s leader, Kim Jong-un, warning that “the guy simply wants to end the world.” Read Full Article at RT.com
 
