@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas severe weather: At least 5 killed, dozens injured after tornadoes rip through state"
-date: 2017-04-30 11:00:00Z
+date: 2017-04-30 11:35:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least five people were killed and dozens were injured after tornadoes ripped 
 
 Full story on F3News: [Texas severe weather: At least 5 killed, dozens injured after tornadoes rip through state](http://www.f3nws.com/n/BFeHDJ)
 
-> Posted on: Sunday, April 30, 2017 4:00:00 PM
+> Posted on: Sunday, April 30, 2017 4:35:00 PM
