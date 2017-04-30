@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Battle for Libya: Key moments"
-date: 2017-04-30 09:01:04Z
+date: 2017-04-30 09:03:54Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Timeline of decisive battles and political developments in Libya's uprising agai
 
 Full story on F3News: [Battle for Libya: Key moments](http://www.f3nws.com/n/2Fjc3B)
 
-> Posted on: Sunday, April 30, 2017 2:01:04 PM
+> Posted on: Sunday, April 30, 2017 2:03:54 PM
