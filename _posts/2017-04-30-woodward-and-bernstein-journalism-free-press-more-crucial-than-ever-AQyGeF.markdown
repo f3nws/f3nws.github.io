@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woodward and Bernstein: Journalism, free press more crucial than ever"
-date: 2017-04-30 04:40:57Z
+date: 2017-04-30 06:38:45Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Carl Bernstein and Bob Woodward of Watergate fame argued Saturday night that goo
 
 Full story on F3News: [Woodward and Bernstein: Journalism, free press more crucial than ever](http://www.f3nws.com/n/AQyGeF)
 
-> Posted on: Sunday, April 30, 2017 9:40:57 AM
+> Posted on: Sunday, April 30, 2017 11:38:45 AM
