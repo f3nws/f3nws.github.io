@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran: Khamanei rebuffs Rouhani over detente with West"
-date: 2017-04-30 16:21:32Z
+date: 2017-04-30 21:40:40Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Supreme leader denounces Rouhani's comments suggesting risk of war with the West
 
 Full story on F3News: [Iran: Khamanei rebuffs Rouhani over detente with West](http://www.f3nws.com/n/fVjkg)
 
-> Posted on: Sunday, April 30, 2017 9:21:32 PM
+> Posted on: Monday, May 1, 2017 2:40:40 AM
