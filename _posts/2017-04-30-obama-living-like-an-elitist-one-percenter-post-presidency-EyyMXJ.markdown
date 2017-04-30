@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obama Living Like An Elitist One-Percenter Post Presidency"
-date: 2017-04-30 17:06:27Z
+date: 2017-04-30 20:00:13Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Obama Living Like An Elitist One-Percenter Post Presidency](http://www.f3nws.com/n/EyyMXJ)
 
-> Posted on: Sunday, April 30, 2017 10:06:27 PM
+> Posted on: Monday, May 1, 2017 1:00:13 AM

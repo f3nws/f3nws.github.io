@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 memorable lines from comedian Hasan Minhaj at the WHCA dinner"
-date: 2017-04-30 16:29:47Z
+date: 2017-04-30 19:32:02Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump was a no-show at the first White House Correspondents' As
 
 Full story on F3News: [10 memorable lines from comedian Hasan Minhaj at the WHCA dinner](http://www.f3nws.com/n/hDhPMB)
 
-> Posted on: Sunday, April 30, 2017 9:29:47 PM
+> Posted on: Monday, May 1, 2017 12:32:02 AM
