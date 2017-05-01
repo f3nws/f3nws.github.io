@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times](http://www.trbimg.com/img-5906dafc/turbine/la-me-ln-la-jolla-shooting-20170430)
 
-Los Angeles Times 1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police Los Angeles Times One woman was killed and seven people were wounded, several critically, when a man opened fire Sunday at a San Diego apartment complex swimming pool where a number of adults were attending a birthday party. Police rushed to the apartment building ... One killed, seven wounded in San Diego pool party shooting New York Daily News Gunman in San Diego kills 1, wounds 7 at apartment complex swimming pool cleveland.com 1 Dead, 7 Injured in San Diego Pool Shooting: Police NBC New York KTLA - Fox News - fox5sandiego.com - KABC-TV all 66 news articles »
+Los Angeles Times 1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police Los Angeles Times One woman was killed and seven people were wounded, several critically, when a man opened fire Sunday at a San Diego apartment complex swimming pool where a number of adults were attending a birthday party. Police rushed to the apartment building ... One killed, seven wounded in San Diego pool party shooting New York Daily News 1 person killed, 7 injured in San Diego mass shooting ABC News A beer in one hand, a gun in the other, man kills 1, injures 7 at San Diego apartment pool Washington Post CBS News - CNN - NBC New York - Huffington Post all 73 news articles »
 
 
 Full story on F3News: [1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times](http://www.f3nws.com/n/bMRSxD)
