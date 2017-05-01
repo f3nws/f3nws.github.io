@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SpaceX launches secretive spy satellite"
-date: 2017-05-01 12:30:10Z
+date: 2017-05-01 14:25:41Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [SpaceX launches secretive spy satellite](http://www.f3nws.com/n/dpRRmG)
 
-> Posted on: Monday, May 1, 2017 5:30:10 PM
+> Posted on: Monday, May 1, 2017 7:25:41 PM
