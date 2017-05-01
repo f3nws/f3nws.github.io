@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![President Trump says he would be 'honored' to meet with North Korean dictator - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/01/National-Politics/Images/AFP_NN8J0.jpg)
 
-Washington Post President Trump says he would be 'honored' to meet with North Korean dictator Washington Post President Trump said Monday he would be “honored” to meet with North Korean leader Kim Jong Un “under the right circumstances.” Trump's comments came amid heightened tensions with North Korea, whose nuclear weapons program has sparked deep ... Donald Trump's willingness to meet the world's strongmen CNN Trump mum on North Korea red line, says: 'I act if I have to act' Fox News In South Korea's Presidential Election, A Referendum On US Relations NPR Reuters - NBCNews.com - USA TODAY - Business Insider all 1,293 news articles »
+Washington Post President Trump says he would be 'honored' to meet with North Korean dictator Washington Post President Trump said Monday he would be “honored” to meet with North Korean leader Kim Jong Un “under the right circumstances.” Trump's comments came amid heightened tensions with North Korea, whose nuclear weapons program has sparked deep ... Donald Trump's willingness to meet the world's strongmen CNN Trump mum on North Korea red line, says: 'I act if I have to act' Fox News In South Korea's Presidential Election, A Referendum On US Relations NPR NBCNews.com - USA TODAY - Reuters - Business Insider all 1,330 news articles »
 
 
 Full story on F3News: [President Trump says he would be 'honored' to meet with North Korean dictator - Washington Post](http://www.f3nws.com/n/2JvaaD)

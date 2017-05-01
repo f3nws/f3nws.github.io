@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police: San Diego shooter was 'despondent' over breakup - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170430233135-san-diego-shooting-pool-sot-00000921-super-tease.jpg)
 
-CNN Police: San Diego shooter was 'despondent' over breakup CNN San Diego (CNN) Despondent over the end of a relationship, a gunman entered the pool area of his San Diego apartment complex Sunday and began shooting indiscriminately at people gathered for a birthday party, authorities said. At some point during the ... San Diego gunman was distraught over break-up; 'zero' evidence of hate crime, police say Los Angeles Times Suspected San Diego shooter was distraught over recent breakup, police say ABC News Pool party gunman Peter Selis wasn't driven by racism: police New York Daily News New York Times - The San Diego Union-Tribune - fox5sandiego.com all 357 news articles »
+CNN Police: San Diego shooter was 'despondent' over breakup CNN San Diego (CNN) Despondent over the end of a relationship, a gunman entered the pool area of his San Diego apartment complex Sunday and began shooting indiscriminately at people gathered for a birthday party, authorities said. At some point during the ... San Diego gunman was distraught over break-up; 'zero' evidence of hate crime, police say Los Angeles Times Pool party gunman Peter Selis wasn't driven by racism: police New York Daily News Suspected San Diego shooter was distraught over recent breakup, police say ABC News CBS 8 San Diego - The San Diego Union-Tribune - fox5sandiego.com - Los Angeles Times all 230 news articles »
 
 
 Full story on F3News: [Police: San Diego shooter was 'despondent' over breakup - CNN](http://www.f3nws.com/n/YmPSkD)
