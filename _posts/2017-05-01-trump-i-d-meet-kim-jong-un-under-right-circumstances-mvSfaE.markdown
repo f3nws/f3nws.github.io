@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: I'd meet Kim Jong Un under 'right circumstances'"
-date: 2017-05-01 18:48:00Z
+date: 2017-05-01 22:03:11Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Monday he would be willing to meet with North Korean
 
 Full story on F3News: [Trump: I'd meet Kim Jong Un under 'right circumstances'](http://www.f3nws.com/n/mvSfaE)
 
-> Posted on: Monday, May 1, 2017 11:48:00 PM
+> Posted on: Tuesday, May 2, 2017 3:03:11 AM
