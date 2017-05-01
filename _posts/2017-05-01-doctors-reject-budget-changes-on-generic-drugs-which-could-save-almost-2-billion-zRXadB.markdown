@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Doctors reject budget changes on generic drugs which could save almost $2 billion](http://www.abc.net.au/news/image/3575250-1x1-700x700.jpg)
 
-The Federal government is planning to make budget changes to force Australians to use more generic medicines.
+The Federal Government is planning to make budget changes to force Australians to use more generic medicines.
 
 
 Full story on F3News: [Doctors reject budget changes on generic drugs which could save almost $2 billion](http://www.f3nws.com/n/zRXadB)
