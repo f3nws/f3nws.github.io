@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Shockingly high' losses for Afghan forces over winter"
-date: 2017-05-01 12:07:43Z
+date: 2017-05-01 15:43:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Levels of violence generally dip in winter months, but this year Taliban carried
 
 Full story on F3News: ['Shockingly high' losses for Afghan forces over winter](http://www.f3nws.com/n/rDWs2G)
 
-> Posted on: Monday, May 1, 2017 5:07:43 PM
+> Posted on: Monday, May 1, 2017 8:43:28 PM
