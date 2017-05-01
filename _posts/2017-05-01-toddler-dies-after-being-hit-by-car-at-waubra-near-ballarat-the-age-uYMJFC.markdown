@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Toddler dies after being hit by car at Waubra near Ballarat - The Age](http://www.theage.com.au/content/dam/images/g/h/j/1/u/i/image.related.socialLead.620x349.gvwgaa.png/1493631044480.jpg)
 
-The Age Toddler dies after being hit by car at Waubra near Ballarat The Age A toddler has died after being hit by a reversing car driven by his father in country Victoria. The boy, believed to have been 18 months old, was playing in the yard of his family's rural home in Waubra, near Ballarat, when the tragedy unfolded. Play ... Toddler killed after being struck by car in Waubra, near Ballarat Herald Sun Reversing car fatally strikes Vic toddler The Australian Toddler dies after being hit by reversing car near Ballarat 9news.com.au all 10 news articles »
+The Age Toddler dies after being hit by car at Waubra near Ballarat The Age A toddler has died after being hit by a reversing car driven by his father in country Victoria. The boy, believed to have been 18 months old, was playing in the yard of his family's rural home in Waubra, near Ballarat, when the tragedy unfolded. Play ... Toddler killed after being struck by car in Waubra, near Ballarat Herald Sun Victorian toddler killed in rural driveway 9news.com.au Toddler dies after “terrible tragedy” in Waubra Ballarat Courier Daily Mail - The West Australian all 12 news articles »
 
 
 Full story on F3News: [Toddler dies after being hit by car at Waubra near Ballarat - The Age](http://www.f3nws.com/n/uYMJFC)
