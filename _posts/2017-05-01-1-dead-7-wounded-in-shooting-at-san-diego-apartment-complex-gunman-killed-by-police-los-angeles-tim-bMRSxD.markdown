@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times"
-date: 2017-05-01 05:55:00Z
+date: 2017-05-01 05:59:44Z
 categories: google-news-top-stories
 ---
 
-![1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times](http://www.trbimg.com/img-5906d4fe/turbine/la-me-ln-la-jolla-shooting-20170430)
+![1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times](http://www.trbimg.com/img-5906dafc/turbine/la-me-ln-la-jolla-shooting-20170430)
 
-Los Angeles Times 1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police Los Angeles Times One woman was killed and seven people were wounded, several critically, when a man opened fire Sunday at a San Diego apartment complex swimming pool where a number of adults were attending a birthday party. Police rushed to the apartment building ... 8 injured, gunman dead in San Diego poolside shooting New York Post 1 Dead, 7 Wounded in Shooting at San Diego Apartment Complex KTLA 8 people shot at San Diego apartment complex, suspect killed by police CBS News NBC Southern California - KABC-TV - fox5sandiego.com - ABC News all 59 news articles »
+Los Angeles Times 1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police Los Angeles Times One woman was killed and seven people were wounded, several critically, when a man opened fire Sunday at a San Diego apartment complex swimming pool where a number of adults were attending a birthday party. Police rushed to the apartment building ... One killed, seven wounded in San Diego pool party shooting New York Daily News Gunman in San Diego kills 1, wounds 7 at apartment complex swimming pool cleveland.com 1 Dead, 7 Injured in San Diego Pool Shooting: Police NBC New York KTLA - Fox News - fox5sandiego.com - KABC-TV all 66 news articles »
 
 
 Full story on F3News: [1 dead, 7 wounded in shooting at San Diego apartment complex; gunman killed by police - Los Angeles Times](http://www.f3nws.com/n/bMRSxD)
 
-> Posted on: Monday, May 1, 2017 10:55:00 AM
+> Posted on: Monday, May 1, 2017 10:59:44 AM
