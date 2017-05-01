@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best Google Easter eggs"
-date: 2017-05-01 21:30:09Z
+date: 2017-05-01 21:30:25Z
 categories: digital-trends
 ---
 
@@ -12,4 +12,4 @@ Google is known for playing pranks every year in April, but the fun doesn't stop
 
 Full story on F3News: [Best Google Easter eggs](http://www.f3nws.com/n/JZaGv)
 
-> Posted on: Tuesday, May 2, 2017 2:30:09 AM
+> Posted on: Tuesday, May 2, 2017 2:30:25 AM
