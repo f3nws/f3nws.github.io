@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamas accepts Palestinian state with 1967 borders"
-date: 2017-05-01 18:53:34Z
+date: 2017-05-01 19:08:53Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Khaled Meshaal presents new document in which Hamas accepts 1967 borders without
 
 Full story on F3News: [Hamas accepts Palestinian state with 1967 borders](http://www.f3nws.com/n/JATYKE)
 
-> Posted on: Monday, May 1, 2017 11:53:34 PM
+> Posted on: Tuesday, May 2, 2017 12:08:53 AM
