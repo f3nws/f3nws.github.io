@@ -5,6 +5,8 @@ date: 2017-04-30 22:50:01Z
 categories: cnn-com-world
 ---
 
+![The Trump spectacle continues to dazzle](http://i2.cdn.cnn.com/cnnnext/dam/assets/170430145803-trump-speech-super-tease.jpg)
+
 Having failed, at least so far, to deliver on his promises on healthcare, a border wall and tax cuts, President Donald Trump ended his first 100 days in office the way they began, with a deeply negative, divisive speech that served as a booster shot for his followers' rage. Included in the tirade, which he delivered in Harrisburg, Pennsylvania, were attacks on the press, immigrants and progressives.
 
 
