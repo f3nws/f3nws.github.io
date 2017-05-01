@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Blood on the ceiling': Dozens injured after flight turbulence"
-date: 2017-05-01 14:36:31Z
+date: 2017-05-01 17:00:10Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ At least 27 passengers were injured when an Aeroflot flight from Moscow to Bangk
 
 Full story on F3News: ['Blood on the ceiling': Dozens injured after flight turbulence](http://www.f3nws.com/n/PSRFkC)
 
-> Posted on: Monday, May 1, 2017 7:36:31 PM
+> Posted on: Monday, May 1, 2017 10:00:10 PM
