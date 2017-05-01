@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ryan Seacrest is Kelly Ripa's new co-host on 'Live,' sources say"
-date: 2017-05-01 12:01:46Z
+date: 2017-05-01 12:24:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The decision jump-starts a new era in the morning TV race.
 
 Full story on F3News: [Ryan Seacrest is Kelly Ripa's new co-host on 'Live,' sources say](http://www.f3nws.com/n/yeN4t)
 
-> Posted on: Monday, May 1, 2017 5:01:46 PM
+> Posted on: Monday, May 1, 2017 5:24:29 PM
