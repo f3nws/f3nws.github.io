@@ -5,7 +5,7 @@ date: 2017-04-30 19:08:01Z
 categories: abc-top-stories
 ---
 
-![Meet the maths teacher you wish you had in high school](http://www.abc.net.au/news/image/8480466-1x1-700x700.jpg)
+![Meet the maths teacher you wish you had in high school](http://www.abc.net.au/news/image/8481410-1x1-700x700.jpg)
 
 Teacher Eddie Woo is changing the face of mathematics in Australia, reaching students far beyond his Sydney classroom by posting his lessons online.
 
