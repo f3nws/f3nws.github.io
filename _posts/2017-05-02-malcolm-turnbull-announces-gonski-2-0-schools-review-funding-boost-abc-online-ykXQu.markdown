@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Malcolm Turnbull announces 'Gonski 2.0' schools review, funding boost - ABC Online](http://www.abc.net.au/news/image/8490274-1x1-700x700.jpg)
 
-ABC Online Malcolm Turnbull announces 'Gonski 2.0' schools review, funding boost ABC Online The Federal Government says it will overhaul education funding in a bid to end "the school funding wars", but Labor has condemned the plan as "an act of political bastardry". Key points: Proposal to provide $242.3b — 75pc increase in recurrent ... Schools funding: Malcolm Turnbull dubs new $19b education policy Gonski 2.0 The Sydney Morning Herald PM gives a Gonski, puts $18.6b in schools NEWS.com.au Gonski 2.0: review revived for PM's plan The Australian The Australian Financial Review - Sky News Australia - The Advertiser - The Age all 44 news articles »
+ABC Online Malcolm Turnbull announces 'Gonski 2.0' schools review, funding boost ABC Online The Federal Government says it will overhaul education funding in a bid to end "the school funding wars", but Labor has condemned the plan as "an act of political bastardry". Key points: Proposal to provide $242.3b — 75pc increase in recurrent ... NSW minister threatens court move on Gonski funding overhaul dailytelegraph.com.au Schools funding: Malcolm Turnbull dubs new $19b education policy Gonski 2.0 The Sydney Morning Herald PM gives a Gonski, puts $18.6b in schools NEWS.com.au The Australian - The Australian Financial Review - Sky News Australia - The Advertiser all 45 news articles »
 
 
 Full story on F3News: [Malcolm Turnbull announces 'Gonski 2.0' schools review, funding boost - ABC Online](http://www.f3nws.com/n/ykXQu)

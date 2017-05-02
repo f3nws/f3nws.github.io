@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 7 deals in May 2017"
-date: 2017-05-02 11:17:00Z
+date: 2017-05-02 11:20:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Three's 30GB deal is the champion this month, with strong deals available on eac
 
 Full story on F3News: [The best iPhone 7 deals in May 2017](http://www.f3nws.com/n/uSCpWG)
 
-> Posted on: Tuesday, May 2, 2017 4:17:00 PM
+> Posted on: Tuesday, May 2, 2017 4:20:00 PM
