@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Infighting in Syria's Ghouta leaves nearly 100 dead"
-date: 2017-05-02 04:27:25Z
+date: 2017-05-02 10:02:32Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Clashes between armed groups in Damascus suburbs leave at least 95 people killed
 
 Full story on F3News: [Infighting in Syria's Ghouta leaves nearly 100 dead](http://www.f3nws.com/n/vyWhk)
 
-> Posted on: Tuesday, May 2, 2017 9:27:25 AM
+> Posted on: Tuesday, May 2, 2017 3:02:32 PM
