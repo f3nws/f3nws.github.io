@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![PM announces 'Gonski 2.0' schools review, funding boost](http://www.abc.net.au/news/image/8490274-1x1-700x700.jpg)
 
-The Federal Government announces an overhaul of schools funding, and a new education review dubbed "Gonski 2.0", saying it is time to bring the "school funding wars" to an end.
+The Federal Government says it will overhaul education funding in a bid to end "the school funding wars", but Labor has condemned the plan as "an act of political bastardry".
 
 
 Full story on F3News: [PM announces 'Gonski 2.0' schools review, funding boost](http://www.f3nws.com/n/ykXQu)
