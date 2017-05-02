@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![FBI translator married ISIS terrorist she was supposed to investigate - New York Post](https://thenypost.files.wordpress.com/2017/05/170501-isis-feature.jpg?quality=90&strip=all&w=1200)
 
-New York Post FBI translator married ISIS terrorist she was supposed to investigate New York Post An FBI translator who was assigned to investigate a bloodthirsty ISIS terrorist wound up falling head-over-heels in love with the man — and married him instead, a report says. Daniela Greene, 38, was apparently so lovestruck by the German-born ... The FBI translator who went rogue and married an ISIS terrorist CNN International The FBI translator who went rogue and married an ISIS terrorist CNN all 50 news articles »
+New York Post FBI translator married ISIS terrorist she was supposed to investigate New York Post An FBI translator who was assigned to investigate a bloodthirsty ISIS terrorist wound up falling head-over-heels in love with the man — and married him instead, a report says. Daniela Greene, 38, was apparently so lovestruck by the German-born ... and more »
 
 
 Full story on F3News: [FBI translator married ISIS terrorist she was supposed to investigate - New York Post](http://www.f3nws.com/n/vRC3QC)

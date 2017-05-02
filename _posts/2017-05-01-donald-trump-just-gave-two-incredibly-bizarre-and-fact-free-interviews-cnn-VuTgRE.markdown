@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump just gave two incredibly bizarre (and fact-free) interviews - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170429195058-trump-day-100-super-tease.jpg)
 
-CNN Donald Trump just gave two incredibly bizarre (and fact-free) interviews CNN (CNN) To commemorate his 100th day in office -- a "ridiculous" marker created by the "fake news" media! -- President Donald Trump gave a series of long interviews to a variety of news outlets. And, holy cow did he talk -- and talk. Let's start with ... Proposal would put Oregon at forefront in renter protections Boston Herald World history according to Trump: Gabriel Schoenfeld USA TODAY Trump: 'You make a mistake here, there is nothing to work out' Washington Examiner Washington Examiner all 294 news articles »
+CNN Donald Trump just gave two incredibly bizarre (and fact-free) interviews CNN (CNN) To commemorate his 100th day in office -- a "ridiculous" marker created by the "fake news" media! -- President Donald Trump gave a series of long interviews to a variety of news outlets. And, holy cow did he talk -- and talk. Let's start with ... When is it okay to say the president might be nuts? Washington Post (blog) World history according to Trump: Gabriel Schoenfeld USA TODAY Trump: 'You make a mistake here, there is nothing to work out' Washington Examiner Washington Examiner all 312 news articles »
 
 
 Full story on F3News: [Donald Trump just gave two incredibly bizarre (and fact-free) interviews - CNN](http://www.f3nws.com/n/VuTgRE)
