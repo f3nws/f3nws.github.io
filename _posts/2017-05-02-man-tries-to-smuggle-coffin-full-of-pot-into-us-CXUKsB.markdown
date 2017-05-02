@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man tries to smuggle coffin full of pot into US"
-date: 2017-05-02 19:04:29Z
+date: 2017-05-02 20:35:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sometimes you have to set aside the whole "illegal smuggling" part for a minute 
 
 Full story on F3News: [Man tries to smuggle coffin full of pot into US](http://www.f3nws.com/n/CXUKsB)
 
-> Posted on: Wednesday, May 3, 2017 12:04:29 AM
+> Posted on: Wednesday, May 3, 2017 1:35:12 AM
