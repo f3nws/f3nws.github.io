@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UNESCO passes Jerusalem resolution critical of Israel"
-date: 2017-05-02 17:38:28Z
+date: 2017-05-02 18:55:54Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UN cultural agency calls on 'occupying power' to end projects aimed at altering 
 
 Full story on F3News: [UNESCO passes Jerusalem resolution critical of Israel](http://www.f3nws.com/n/3vp4NG)
 
-> Posted on: Tuesday, May 2, 2017 10:38:28 PM
+> Posted on: Tuesday, May 2, 2017 11:55:54 PM

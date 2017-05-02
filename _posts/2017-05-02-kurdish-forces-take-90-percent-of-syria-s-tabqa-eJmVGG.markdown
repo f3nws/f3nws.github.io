@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kurdish forces 'take 90 percent' of Syria's Tabqa"
-date: 2017-05-02 15:51:44Z
+date: 2017-05-02 18:56:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US-backed forces have advanced in Tabqa as they eye the ISIL stronghold of Raqqa
 
 Full story on F3News: [Kurdish forces 'take 90 percent' of Syria's Tabqa](http://www.f3nws.com/n/eJmVGG)
 
-> Posted on: Tuesday, May 2, 2017 8:51:44 PM
+> Posted on: Tuesday, May 2, 2017 11:56:37 PM

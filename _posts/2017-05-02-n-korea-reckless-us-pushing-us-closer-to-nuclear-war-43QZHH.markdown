@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "N. Korea: Reckless US pushing us closer to nuclear war"
+date: 2017-05-02 14:43:55Z
+categories: cnn-com-top-stories
+---
+
+A controversial US missile defense system is up and running in South Korea, a week before the country's Presidential election is expected to bring in a government critical of its deployment.
+
+
+Full story on F3News: [N. Korea: Reckless US pushing us closer to nuclear war](http://www.f3nws.com/n/43QZHH)
+
+> Posted on: Tuesday, May 2, 2017 7:43:55 PM
