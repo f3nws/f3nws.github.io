@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump just gave two incredibly bizarre (and fact-free) interviews - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170429195058-trump-day-100-super-tease.jpg)
 
-Washington Post Donald Trump just gave two incredibly bizarre (and fact-free) interviews CNN (CNN) To commemorate his 100th day in office -- a "ridiculous" marker created by the "fake news" media! -- President Donald Trump gave a series of long interviews to a variety of news outlets. And, holy cow did he talk -- and talk. Let's start with ... Trump Appears to Question Necessity of Civil War New York Times Trump's totally bizarre claim about avoiding the Civil War Washington Post Trump spurs outrage, mockery with Civil War comments The Hill TIME - Washington Examiner - NBCNews.com - The Atlantic all 154 news articles »
+CNN Donald Trump just gave two incredibly bizarre (and fact-free) interviews CNN (CNN) To commemorate his 100th day in office -- a "ridiculous" marker created by the "fake news" media! -- President Donald Trump gave a series of long interviews to a variety of news outlets. And, holy cow did he talk -- and talk. Let's start with ... May 2: Andrew Jackson, Linda Sarsour and Joe Mixon New York Daily News Trump: Andrew Jackson saw the Civil War coming The Hill Trump doubles down on Civil War and Andrew Jackson comments: 'Saw it coming' Los Angeles Times Washington Examiner - Washington Examiner - Washington Examiner all 294 news articles »
 
 
 Full story on F3News: [Donald Trump just gave two incredibly bizarre (and fact-free) interviews - CNN](http://www.f3nws.com/n/VuTgRE)
