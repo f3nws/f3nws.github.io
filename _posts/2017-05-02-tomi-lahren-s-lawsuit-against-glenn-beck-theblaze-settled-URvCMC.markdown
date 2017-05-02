@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tomi Lahren's lawsuit against Glenn Beck, TheBlaze settled"
-date: 2017-05-02 11:15:00Z
+date: 2017-05-02 18:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Tomi Lahren has agreed to a settlement that ends her lawsuit against Glenn Beck 
 
 Full story on F3News: [Tomi Lahren's lawsuit against Glenn Beck, TheBlaze settled](http://www.f3nws.com/n/URvCMC)
 
-> Posted on: Tuesday, May 2, 2017 4:15:00 PM
+> Posted on: Tuesday, May 2, 2017 11:00:00 PM

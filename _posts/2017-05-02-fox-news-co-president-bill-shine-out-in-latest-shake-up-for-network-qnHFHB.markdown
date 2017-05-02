@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News co-president Bill Shine out in latest shake-up for network"
-date: 2017-05-02 00:04:52Z
+date: 2017-05-02 18:01:07Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Fox News co-president Bill Shine out in latest shake-up for network](http://www.f3nws.com/n/qnHFHB)
 
-> Posted on: Tuesday, May 2, 2017 5:04:52 AM
+> Posted on: Tuesday, May 2, 2017 11:01:07 PM

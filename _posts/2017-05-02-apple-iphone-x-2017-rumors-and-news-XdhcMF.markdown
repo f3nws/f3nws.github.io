@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone X (2017) rumors and news"
-date: 2017-05-02 18:00:07Z
+date: 2017-05-02 18:00:47Z
 categories: digital-trends
 ---
 
@@ -12,4 +12,4 @@ The iPhone 7S and 7S Plus may not be the only iPhones arriving from Apple in 201
 
 Full story on F3News: [Apple iPhone X (2017) rumors and news](http://www.f3nws.com/n/XdhcMF)
 
-> Posted on: Tuesday, May 2, 2017 11:00:07 PM
+> Posted on: Tuesday, May 2, 2017 11:00:47 PM

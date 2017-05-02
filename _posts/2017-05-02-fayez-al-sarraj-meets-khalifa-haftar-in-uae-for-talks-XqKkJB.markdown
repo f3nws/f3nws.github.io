@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fayez al-Sarraj meets Khalifa Haftar in UAE for talks"
-date: 2017-05-02 16:49:34Z
+date: 2017-05-02 18:02:35Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Head of Tripoli-based government and rival general meet in Abu Dhabi for direct 
 
 Full story on F3News: [Fayez al-Sarraj meets Khalifa Haftar in UAE for talks](http://www.f3nws.com/n/XqKkJB)
 
-> Posted on: Tuesday, May 2, 2017 9:49:34 PM
+> Posted on: Tuesday, May 2, 2017 11:02:35 PM
