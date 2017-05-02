@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ivanka Trump's West Wing Agenda - New York Times](https://static01.nyt.com/images/2017/05/03/us/03Ivanka1/02Ivanka1-facebookJumbo.jpg)
 
-New York Times Ivanka Trump's West Wing Agenda New York Times Ivanka Trump said in an interview that her goal was to be a moderating influence on the administration of her father, President Trump. Credit Brendan Smialowski/Agence France-Presse — Getty Images. A month before Donald J. Trump was elected president, ... How much influence does Ivanka Trump really have over her father? Washington Post (blog) Mark Wilson/Getty PEOPLE.com Ivanka Trump Is Jeered in Berlin After Defending Her Father New York Times CBS News - Today.com - Jezebel all 236 news articles »
+New York Times Ivanka Trump's West Wing Agenda New York Times Ivanka Trump said in an interview that her goal was to be a moderating influence on the administration of her father, President Trump. Credit Brendan Smialowski/Agence France-Presse — Getty Images. A month before Donald J. Trump was elected president, ... How much influence does Ivanka Trump really have over her father? Washington Post (blog) Mark Wilson/Getty PEOPLE.com Ivanka Trump's Book Celebrates the Unlimited Possibilities Open to Women With Full-Time Help Slate Magazine New York Times - CBS News - Today.com - Jezebel all 237 news articles »
 
 
 Full story on F3News: [Ivanka Trump's West Wing Agenda - New York Times](http://www.f3nws.com/n/VdSAUE)
