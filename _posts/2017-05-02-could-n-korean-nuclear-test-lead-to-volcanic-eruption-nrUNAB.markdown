@@ -5,6 +5,8 @@ date: 2017-05-02 07:16:08Z
 categories: cnn-com-top-stories
 ---
 
+![Could N. Korean nuclear test lead to volcanic eruption?](http://i2.cdn.cnn.com/cnnnext/dam/assets/170501101017-01-mount-paektu-file-restricted-super-tease.jpg)
+
 When North Korea tests a nuclear weapon, the blast sends a jolt of energy through the Earth -- one that could potentially trigger a volcanic eruption on its border with China.
 
 

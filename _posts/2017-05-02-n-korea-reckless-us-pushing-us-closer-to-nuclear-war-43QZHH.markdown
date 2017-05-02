@@ -5,6 +5,8 @@ date: 2017-05-02 14:43:55Z
 categories: cnn-com-top-stories
 ---
 
+![N. Korea: Reckless US pushing us closer to nuclear war](http://i2.cdn.cnn.com/cnnnext/dam/assets/160219195609-b-1-bomber-ellsworth-afb-super-tease.jpg)
+
 A controversial US missile defense system is up and running in South Korea, a week before the country's Presidential election is expected to bring in a government critical of its deployment.
 
 

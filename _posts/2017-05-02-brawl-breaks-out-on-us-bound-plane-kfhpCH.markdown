@@ -5,6 +5,8 @@ date: 2017-05-02 14:43:22Z
 categories: cnn-com-top-stories
 ---
 
+![Brawl breaks out on US-bound plane](http://i2.cdn.cnn.com/cnnnext/dam/assets/170502084410-plane-brawl-2-super-tease.jpg)
+
 A violent brawl broke out on a US-bound flight from Japan as a flight attendant tried to break up the passengers.
 
 

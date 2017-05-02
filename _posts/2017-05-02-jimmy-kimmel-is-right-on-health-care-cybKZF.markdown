@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel is right on health care"
-date: 2017-05-02 16:30:46Z
+date: 2017-05-02 19:02:08Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A late-night comedian isn't supposed to make you cry. But on Monday night, Jimmy
 
 Full story on F3News: [Jimmy Kimmel is right on health care](http://www.f3nws.com/n/cybKZF)
 
-> Posted on: Tuesday, May 2, 2017 9:30:46 PM
+> Posted on: Wednesday, May 3, 2017 12:02:08 AM
