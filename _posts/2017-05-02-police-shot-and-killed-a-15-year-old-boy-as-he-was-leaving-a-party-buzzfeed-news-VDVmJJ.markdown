@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party - BuzzFeed News"
-date: 2017-05-02 01:45:41Z
+date: 2017-05-02 01:41:15Z
 categories: google-news-top-stories
 ---
 
-![Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party - BuzzFeed News](https://img.buzzfeed.com/buzzfeed-static/static/2017-05/1/21/campaign_images/buzzfeed-prod-fastlane-02/police-shot-and-killed-a-15-year-old-boy-trying-t-2-14015-1493689419-0_dblbig.jpg)
+![Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party - BuzzFeed News](https://img.buzzfeed.com/buzzfeed-static/static/2017-05/2/0/campaign_images/buzzfeed-prod-fastlane-01/police-shot-and-killed-a-15-year-old-boy-trying-t-2-16265-1493700444-0_dblbig.jpg)
 
-BuzzFeed News Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party BuzzFeed News Jordan Edwards was sitting in the passenger side of a car Saturday night when a police officer shot and killed him. On Monday, police admitted that the car was pulling away from officers, reversing their initial account. Originally posted on May 1 ... Police chief clarifies how Texas teen Jordan Edwards was shot dead by officer CBS News Police-involved shooting of teen killed by rifle as he left house party ruled a homicide ABC News Fatal Shooting of Jordan Edwards, 15, Did Not Meet 'Core Values': Police NBCNews.com CBS DFW - Washington Post - Dallas News - Facebook all 140 news articles »
+BuzzFeed News Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party BuzzFeed News Jordan Edwards was sitting in the passenger side of a car Saturday night when a police officer shot and killed him. On Monday, police admitted that the car was pulling away from officers, reversing their initial account. Originally posted on May 1 ... 15-Year-Old Boy Shot, Killed By Balch Springs Officer CBS DFW Shooting of black teen in Dallas suburb did not meet 'our core values,' police chief says Washington Post Car was driving away from officer when he shot boy with rifle, Balch Springs chief says Dallas News Facebook - WFAA all 149 news articles »
 
 
 Full story on F3News: [Police Shot And Killed A 15-Year-Old Boy As He Was Leaving A Party - BuzzFeed News](http://www.f3nws.com/n/VDVmJJ)
 
-> Posted on: Tuesday, May 2, 2017 6:45:41 AM
+> Posted on: Tuesday, May 2, 2017 6:41:15 AM
