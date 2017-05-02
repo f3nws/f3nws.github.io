@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![With Fox News in Tumult, Another Executive, Bill Shine, Is Ousted - New York Times](https://static01.nyt.com/images/2017/05/02/business/02SHINE/02SHINE-facebookJumbo.jpg)
 
-New York Times With Fox News in Tumult, Another Executive, Bill Shine, Is Ousted New York Times From left, Rupert Murdoch and the Fox News co-presidents Jack Abernethy and Bill Shine leaving a Manhattan restaurant last month. Mr. Shine was let go on Monday. Credit Mark Lennihan/Associated Press. Fox News forced out one of its most senior ... Bill Shine Resigns As Co-President Fox News Deadline Sean Hannity in the Spotlight as Bill Shine Departs From Fox News Variety Fox News will only suffer if it loses anti-establishment shine The Hill (blog) Hollywood Reporter - Los Angeles Times - Huffington Post - ABC News all 274 news articles »
+New York Times With Fox News in Tumult, Another Executive, Bill Shine, Is Ousted New York Times From left, Rupert Murdoch and the Fox News co-presidents Jack Abernethy and Bill Shine leaving a Manhattan restaurant last month. Mr. Shine was let go on Monday. Credit Mark Lennihan/Associated Press. Fox News forced out one of its most senior ... At Fox News, Turmoil Rages on as Bill Shine Exits Variety Bill Shine Resigns As Co-President Fox News Deadline Fox News will only suffer if it loses anti-establishment shine The Hill (blog) Hollywood Reporter - Los Angeles Times - CBS News - Huffington Post all 276 news articles »
 
 
 Full story on F3News: [With Fox News in Tumult, Another Executive, Bill Shine, Is Ousted - New York Times](http://www.f3nws.com/n/QzfhSH)
