@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maduro wants 'people's body' to rewrite constitution"
-date: 2017-05-02 08:04:04Z
+date: 2017-05-02 08:34:04Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The opposition parties decry the government move and urge Venezuelans to protest
 
 Full story on F3News: [Maduro wants 'people's body' to rewrite constitution](http://www.f3nws.com/n/VxRvNH)
 
-> Posted on: Tuesday, May 2, 2017 1:04:04 PM
+> Posted on: Tuesday, May 2, 2017 1:34:04 PM
