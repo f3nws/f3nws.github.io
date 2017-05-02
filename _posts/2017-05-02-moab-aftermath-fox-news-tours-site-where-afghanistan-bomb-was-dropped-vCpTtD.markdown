@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'MOAB' aftermath: Fox News tours site where Afghanistan bomb was dropped"
-date: 2017-05-02 14:00:08Z
+date: 2017-05-02 14:30:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ With lush sprawling greens, grazing cattle and snow-capped mountains in the dist
 
 Full story on F3News: ['MOAB' aftermath: Fox News tours site where Afghanistan bomb was dropped](http://www.f3nws.com/n/vCpTtD)
 
-> Posted on: Tuesday, May 2, 2017 7:00:08 PM
+> Posted on: Tuesday, May 2, 2017 7:30:02 PM
