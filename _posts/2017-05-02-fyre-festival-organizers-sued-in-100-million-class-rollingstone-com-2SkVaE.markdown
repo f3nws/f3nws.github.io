@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Fyre Festival Organizers Sued in $100 Million Class... - RollingStone.com](http://img.wennermedia.com/social/ja-rule-fyre-festival-sued-100-million-dollars-5c1484fb-4829-43ad-aa53-ae5d6ed8bcc9.jpg)
 
-RollingStone.com Fyre Festival Organizers Sued in $100 Million Class... RollingStone.com An attendee of the disastrous Fyre Festival in the Bahamas has filed a $100 million class action lawsuit against founders Billy McFarland and Ja Rule. Credit: John Parra/Getty. By Daniel Kreps. 21 hours ago ... Bahamas Ministry of Tourism Defends Island of Great Exuma Post-Fyre Festival Billboard Fyre Festival lawsuit claims guests were locked inside airport New York Daily News Fyre Festival Organizers Face Fraud Lawsuit After Cancellation New York Times Atlanta Journal Constitution - Vanity Fair - Variety - RollingStone.com all 423 news articles »
+RollingStone.com Fyre Festival Organizers Sued in $100 Million Class... RollingStone.com An attendee of the disastrous Fyre Festival in the Bahamas has filed a $100 million class action lawsuit against founders Billy McFarland and Ja Rule. Credit: John Parra/Getty. By Daniel Kreps. 22 hours ago ... Bahamas Ministry of Tourism Defends Island of Great Exuma Post-Fyre Festival Billboard Fyre Festival Organizers Face Fraud Lawsuit After Cancellation New York Times Organizers of failed Fyre Festival named in class action lawsuit Atlanta Journal Constitution Vanity Fair - New York Daily News - Variety - RollingStone.com all 429 news articles »
 
 
 Full story on F3News: [Fyre Festival Organizers Sued in $100 Million Class... - RollingStone.com](http://www.f3nws.com/n/2SkVaE)
