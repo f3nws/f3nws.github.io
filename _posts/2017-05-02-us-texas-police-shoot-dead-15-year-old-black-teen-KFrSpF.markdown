@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![US: Texas police shoot dead 15-year-old black teen](http://www.aljazeera.com/mritems/Images/2017/5/2/7dc1ff9ada9946d282413c4edeb6f91c_18.jpg)
 
-Police in the US state of Texas admit that their initial account of the killing of unarmed boy's death was inaccurate.
+Police in the US state of Texas admit that their initial account of the killing of an unarmed boy was inaccurate.
 
 
 Full story on F3News: [US: Texas police shoot dead 15-year-old black teen](http://www.f3nws.com/n/KFrSpF)

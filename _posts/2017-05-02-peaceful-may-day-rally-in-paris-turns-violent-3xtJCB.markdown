@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peaceful May Day rally in Paris turns violent"
-date: 2017-05-02 08:44:24Z
+date: 2017-05-02 09:09:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Protesters demand equality and rights with less than a week until presidential p
 
 Full story on F3News: [Peaceful May Day rally in Paris turns violent](http://www.f3nws.com/n/3xtJCB)
 
-> Posted on: Tuesday, May 2, 2017 1:44:24 PM
+> Posted on: Tuesday, May 2, 2017 2:09:16 PM
