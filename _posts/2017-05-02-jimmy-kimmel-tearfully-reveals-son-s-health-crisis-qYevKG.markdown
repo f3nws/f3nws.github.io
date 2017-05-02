@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel tearfully reveals son's health crisis"
-date: 2017-05-02 11:25:32Z
+date: 2017-05-02 13:52:05Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jimmy Kimmel used his monologue Monday night to get both personal and political.
 
 Full story on F3News: [Jimmy Kimmel tearfully reveals son's health crisis](http://www.f3nws.com/n/qYevKG)
 
-> Posted on: Tuesday, May 2, 2017 4:25:32 PM
+> Posted on: Tuesday, May 2, 2017 6:52:05 PM
