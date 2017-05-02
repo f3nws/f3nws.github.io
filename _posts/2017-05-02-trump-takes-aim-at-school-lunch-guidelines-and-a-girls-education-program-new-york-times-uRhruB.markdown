@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Takes Aim at School Lunch Guidelines and a Girls' Education Program - New York Times](https://static01.nyt.com/images/2017/05/02/us/02school/02school-facebookJumbo.jpg)
 
-New York Times Trump Takes Aim at School Lunch Guidelines and a Girls' Education Program New York Times Michelle Obama joined students for lunch at Parklawn Elementary School in Alexandria, Va., in 2012. Credit Alex Wong/Getty Images. WASHINGTON — The Trump administration took aim Monday at two signature programs of the former first lady Michelle ... New USDA secretary announces rollback of Obama-era nutrition standards for school lunches Los Angeles Times Hey kids, salt stays and grains go in school meals Washington Post all 226 news articles »
+New York Times Trump Takes Aim at School Lunch Guidelines and a Girls' Education Program New York Times Michelle Obama joined students for lunch at Parklawn Elementary School in Alexandria, Va., in 2012. Credit Alex Wong/Getty Images. WASHINGTON — The Trump administration took aim Monday at two signature programs of the former first lady Michelle ... Hey kids, salt stays and grains go in school meals Washington Post all 224 news articles »
 
 
 Full story on F3News: [Trump Takes Aim at School Lunch Guidelines and a Girls' Education Program - New York Times](http://www.f3nws.com/n/uRhruB)

@@ -5,7 +5,7 @@ date: 2017-05-01 23:05:00Z
 categories: abc-top-stories
 ---
 
-![Dairy processor Murray Goulburn to close factories and shed staff](http://www.abc.net.au/cm/rimage/6097488-1x1-large.jpg?v=7)
+![Dairy processor Murray Goulburn to close factories and shed staff](http://www.abc.net.au/cm/rimage/8489684-1x1-large.jpg?v=2)
 
 Dairy processor Murray Goulburn is to close three factories in response to falling milk supplies, leaving 360 workers in limbo.
 
