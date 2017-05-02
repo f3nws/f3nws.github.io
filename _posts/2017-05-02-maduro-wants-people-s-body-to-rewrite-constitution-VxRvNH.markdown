@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maduro wants 'people's body' to rewrite constitution"
-date: 2017-05-02 10:30:10Z
+date: 2017-05-02 10:32:34Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Move to exclude political parties from constitution-writing entity seen by oppos
 
 Full story on F3News: [Maduro wants 'people's body' to rewrite constitution](http://www.f3nws.com/n/VxRvNH)
 
-> Posted on: Tuesday, May 2, 2017 3:30:10 PM
+> Posted on: Tuesday, May 2, 2017 3:32:34 PM
