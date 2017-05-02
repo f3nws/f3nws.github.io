@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus - The Age"
-date: 2017-05-02 04:37:58Z
+date: 2017-05-02 07:38:10Z
 categories: google-news-australia
 ---
 
-![Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus - The Age](http://www.theage.com.au/content/dam/images/g/v/w/4/4/l/image.related.socialLead.620x349.gvw8n9.png/1493700761948.jpg)
+![Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus - The Age](http://www.theage.com.au/content/dam/images/g/v/w/4/4/l/image.related.socialLead.620x349.gvw8n9.png/1493711793186.jpg)
 
-The Age Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus The Age Nearly $2 billion will be spent to tackle the scourge of family violence in Victoria, with the state's public sector told to find savings to pay for the historic investment. The unprecedented investment in family violence forms the centrepiece of ... Land Titles Office on block in big spending Victorian budget The Australian Financial Review Vic 'a real infrastructure budget': lobby The Australian Victoria Budget 2017-18: Freeways upgraded, cars taken off choked inner city streets Herald Sun 9news.com.au - Pro Bono Australia - ABC Online - The Border Mail all 61 news articles »
+The Age Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus The Age Nearly $2 billion will be spent to tackle family violence in Victoria, with the state's public sector being told to find savings, with possible job cuts, to pay for the investment. The "unprecedented" investment in countering family violence is the ... Victorian budget: 'Brilliant' $1.9b family violence package will save lives, advocates say ABC Online Victoria's $1.9m family violence crusade The Australian Big spending Victorian budget a down payment for next year's election The Australian Financial Review 9news.com.au - Sky News Australia - Pro Bono Australia - NEWS.com.au all 76 news articles »
 
 
 Full story on F3News: [Victorian state budget 2017-18: Family violence, crime focus of budget with $8.3billion surplus - The Age](http://www.f3nws.com/n/zCCMqB)
 
-> Posted on: Tuesday, May 2, 2017 9:37:58 AM
+> Posted on: Tuesday, May 2, 2017 12:38:10 PM
