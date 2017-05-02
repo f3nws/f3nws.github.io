@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US B-1 bombers fly over Korean Peninsula"
-date: 2017-05-02 16:49:14Z
+date: 2017-05-02 21:36:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Air Force B-1 bombers have flown over the Korean Peninsula twice in the past 
 
 Full story on F3News: [US B-1 bombers fly over Korean Peninsula](http://www.f3nws.com/n/dBAuFB)
 
-> Posted on: Tuesday, May 2, 2017 9:49:14 PM
+> Posted on: Wednesday, May 3, 2017 2:36:49 AM
