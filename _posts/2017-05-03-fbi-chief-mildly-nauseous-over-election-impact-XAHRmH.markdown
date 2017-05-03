@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI chief 'mildly nauseous' over election impact"
-date: 2017-05-03 16:57:29Z
+date: 2017-05-03 17:54:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ FBI Director James Comey will testify Wednesday on the Capitol Hill, the day aft
 
 Full story on F3News: [FBI chief 'mildly nauseous' over election impact](http://www.f3nws.com/n/XAHRmH)
 
-> Posted on: Wednesday, May 3, 2017 9:57:29 PM
+> Posted on: Wednesday, May 3, 2017 10:54:53 PM
