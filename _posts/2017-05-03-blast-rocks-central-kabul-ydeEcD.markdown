@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blast rocks central Kabul"
-date: 2017-05-03 05:30:08Z
+date: 2017-05-03 05:54:53Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least four people killed in large explosion in centre of Afghanistan's capita
 
 Full story on F3News: [Blast rocks central Kabul](http://www.f3nws.com/n/ydeEcD)
 
-> Posted on: Wednesday, May 3, 2017 10:30:08 AM
+> Posted on: Wednesday, May 3, 2017 10:54:53 AM
