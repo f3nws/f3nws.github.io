@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mahmoud Abbas set to meet Donald Trump in US visit"
-date: 2017-05-03 08:30:02Z
+date: 2017-05-03 08:31:52Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Palestinian Authority president to meet Donald Trump for the first time on Wedne
 
 Full story on F3News: [Mahmoud Abbas set to meet Donald Trump in US visit](http://www.f3nws.com/n/3eecxD)
 
-> Posted on: Wednesday, May 3, 2017 1:30:02 PM
+> Posted on: Wednesday, May 3, 2017 1:31:52 PM
