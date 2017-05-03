@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Sextortion' case fuels legal debate over phone passwords"
-date: 2017-05-03 13:29:02Z
+date: 2017-05-03 13:39:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An extortion case involving bikini-clad models, social media celebrities and rac
 
 Full story on F3News: ['Sextortion' case fuels legal debate over phone passwords](http://www.f3nws.com/n/ugQDcG)
 
-> Posted on: Wednesday, May 3, 2017 6:29:02 PM
+> Posted on: Wednesday, May 3, 2017 6:39:20 PM
