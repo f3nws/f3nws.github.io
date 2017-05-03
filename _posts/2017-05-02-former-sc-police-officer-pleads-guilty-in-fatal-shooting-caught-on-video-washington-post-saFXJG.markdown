@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Former SC police officer pleads guilty in fatal shooting caught on video - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/02/National-Security/Images/APTOPIX_Police_Shooting_North_Charleston-62625.jpg)
 
-Washington Post Former SC police officer pleads guilty in fatal shooting caught on video Washington Post The former South Carolina police officer caught on video opening fire at a black man who was running away pleaded guilty Tuesday to a federal civil rights charge, authorities said. Michael Slager, who worked for the North Charleston Police Department ... Ex-officer Michael Slager pleads guilty in shooting death of Walter Scott CNN Michael Slager pleads guilty to civil rights count in Scott death New York Daily News Michael Slager pleads guilty to civil rights charge in Walter Scott shooting CBS News Los Angeles Times - New York Times - BBC News all 155 news articles »
+Washington Post Former SC police officer pleads guilty in fatal shooting caught on video Washington Post The former South Carolina police officer caught on video opening fire at a black man who was running away pleaded guilty Tuesday to a federal civil rights charge, authorities said. Michael Slager, who worked for the North Charleston Police Department ... Ex-officer Michael Slager pleads guilty in shooting death of Walter Scott CNN Cop who killed Walter Scott pleads guilty to civil rights charge New York Daily News Michael Slager pleads guilty to civil rights charge in Walter Scott shooting CBS News New York Times all 156 news articles »
 
 
 Full story on F3News: [Former SC police officer pleads guilty in fatal shooting caught on video - Washington Post](http://www.f3nws.com/n/saFXJG)

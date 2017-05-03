@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton: 'If election had been on Oct. 27, I'd be your president'"
-date: 2017-05-02 18:31:54Z
+date: 2017-05-02 23:13:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hillary Clinton delivered her most forceful critique of President Donald Trump's
 
 Full story on F3News: [Clinton: 'If election had been on Oct. 27, I'd be your president'](http://www.f3nws.com/n/mp3knH)
 
-> Posted on: Tuesday, May 2, 2017 11:31:54 PM
+> Posted on: Wednesday, May 3, 2017 4:13:43 AM
