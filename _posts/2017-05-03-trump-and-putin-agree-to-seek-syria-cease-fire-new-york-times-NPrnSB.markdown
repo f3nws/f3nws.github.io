@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump and Putin Agree to Seek Syria Cease-Fire - New York Times](https://static01.nyt.com/images/2017/05/03/world/03prexy/03prexy-facebookJumbo.jpg)
 
-New York Times Trump and Putin Agree to Seek Syria Cease-Fire New York Times President Vladimir V. Putin of Russia at the Bocharov Ruchei state residence in Sochi on Tuesday. Credit Pool photo by Alexey Nikolsky. WASHINGTON — President Trump reopened direct communications with President Vladimir V. Putin of Russia on ... Trump and Putin discuss cease-fire in Syria in first conversation since US airstrikes Washington Post The Putin Interviews | Teaser Trailer | Oliver Stone & Vladimir Putin SHOWTIME Documentary YouTube Oliver Stone's new film on Vladimir Putin will have a Dr Strangelove touch The Sydney Morning Herald all 431 news articles »
+New York Times Trump and Putin Agree to Seek Syria Cease-Fire New York Times President Vladimir V. Putin of Russia at the Bocharov Ruchei state residence in Sochi on Tuesday. Credit Pool photo by Alexey Nikolsky. WASHINGTON — President Trump reopened direct communications with President Vladimir V. Putin of Russia on ... Trump and Putin discuss cease-fire in Syria in first conversation since US airstrikes Washington Post The Putin Interviews | Teaser Trailer | Oliver Stone & Vladimir Putin SHOWTIME Documentary YouTube Oliver Stone's new film on Vladimir Putin will have a Dr Strangelove touch The Sydney Morning Herald all 433 news articles »
 
 
 Full story on F3News: [Trump and Putin Agree to Seek Syria Cease-Fire - New York Times](http://www.f3nws.com/n/NPrnSB)
