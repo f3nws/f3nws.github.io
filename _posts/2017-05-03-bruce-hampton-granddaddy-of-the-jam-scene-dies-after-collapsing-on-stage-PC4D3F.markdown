@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bruce Hampton, 'granddaddy of the jam scene,' dies after collapsing on stage"
-date: 2017-05-03 04:25:54Z
+date: 2017-05-03 09:03:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Death came for Bruce Hampton as he celebrated his 70th birthday doing what he di
 
 Full story on F3News: [Bruce Hampton, 'granddaddy of the jam scene,' dies after collapsing on stage](http://www.f3nws.com/n/PC4D3F)
 
-> Posted on: Wednesday, May 3, 2017 9:25:54 AM
+> Posted on: Wednesday, May 3, 2017 2:03:11 PM
