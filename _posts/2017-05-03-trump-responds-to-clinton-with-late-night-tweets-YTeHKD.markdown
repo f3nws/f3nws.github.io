@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump responds to Clinton with late-night tweets"
-date: 2017-05-03 04:04:05Z
+date: 2017-05-03 05:01:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, in a series of late night tweets on Tuesday, both revisi
 
 Full story on F3News: [Trump responds to Clinton with late-night tweets](http://www.f3nws.com/n/YTeHKD)
 
-> Posted on: Wednesday, May 3, 2017 9:04:05 AM
+> Posted on: Wednesday, May 3, 2017 10:01:41 AM
