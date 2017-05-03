@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![$8 Billion Deal Gives Crucial Momentum to GOP Health Bill - New York Times](https://static01.nyt.com/images/2017/05/04/us/04health2/04health2-facebookJumbo.jpg)
 
-New York Times $8 Billion Deal Gives Crucial Momentum to GOP Health Bill New York Times From left, Republican Representatives Fred Upton, of Michigan; Michael C. Burgess, of Texas; Greg Walden, of Oregon and Billy Long of Missouri spoke to reporters after discussing health care legislation with President Trump at the White House on ... Pelosi: New ObamaCare repeal bill is a 'a very sad, deadly joke' The Hill GOP Struggles to Find Last Few Votes to Pass Obamacare Repeal Bloomberg New momentum for GOP health care bill after key votes flip CNN Huffington Post - Washington Post - Politico - ABC News all 698 news articles »
+New York Times $8 Billion Deal Gives Crucial Momentum to GOP Health Bill New York Times From left, Republican Representatives Fred Upton, of Michigan; Michael C. Burgess, of Texas; Greg Walden, of Oregon and Billy Long of Missouri spoke to reporters after discussing health care legislation with President Trump at the White House on ... GOP Struggles to Find Last Few Votes to Pass Obamacare Repeal Bloomberg ObamaCare repeal gains votes and momentum The Hill New momentum for GOP health care bill after key votes flip CNN Huffington Post - Washington Post - Politico - ABC News all 631 news articles »
 
 
 Full story on F3News: [$8 Billion Deal Gives Crucial Momentum to GOP Health Bill - New York Times](http://www.f3nws.com/n/xFzTAD)
