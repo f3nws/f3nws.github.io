@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "African victims of racism in India share their stories"
-date: 2017-05-03 06:17:18Z
+date: 2017-05-03 14:22:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ categories: al-jazeera-english
 
 Full story on F3News: [African victims of racism in India share their stories](http://www.f3nws.com/n/2GrmaC)
 
-> Posted on: Wednesday, May 3, 2017 11:17:18 AM
+> Posted on: Wednesday, May 3, 2017 7:22:27 PM
