@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car bomb kills 8 near US Embassy in Kabul"
-date: 2017-05-03 08:27:31Z
+date: 2017-05-03 13:07:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A car bomb targeting a convoy of foreign troops exploded near the US Embassy in 
 
 Full story on F3News: [Car bomb kills 8 near US Embassy in Kabul](http://www.f3nws.com/n/ehMR2H)
 
-> Posted on: Wednesday, May 3, 2017 1:27:31 PM
+> Posted on: Wednesday, May 3, 2017 6:07:00 PM
