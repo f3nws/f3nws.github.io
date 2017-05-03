@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin: Russia-Turkey recovery process 'complete'"
-date: 2017-05-03 16:00:07Z
+date: 2017-05-03 16:02:06Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Leaders Putin and Erdogan agree on boosting trade and on need for a political so
 
 Full story on F3News: [Putin: Russia-Turkey recovery process 'complete'](http://www.f3nws.com/n/dWgEgG)
 
-> Posted on: Wednesday, May 3, 2017 9:00:07 PM
+> Posted on: Wednesday, May 3, 2017 9:02:06 PM

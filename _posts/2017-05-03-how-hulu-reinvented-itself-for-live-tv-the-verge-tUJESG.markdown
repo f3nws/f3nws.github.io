@@ -7,7 +7,7 @@ categories: the-verge
 
 ![How Hulu reinvented itself for live TV - The Verge](https://cdn0.vox-cdn.com/thumbor/Fe53uTc4P2A0b_msXIjMdErRtWE=/1x0:2040x1147/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54598029/DSCF1631_5.0.jpg)
 
-The Verge How Hulu reinvented itself for live TV The Verge It's mid-February and I'm seated in a dark room at Hulu's Santa Monica headquarters. Flanked by the company's user experience research experts, we're all peering through a one-way glass mirror into a brightly lit “living room” test lab. The subject is ... Hulu Live TV Service Launches With 50 Channels for $40 Monthly Variety Hulu stokes 'Handmaid's' hot streak by launching live TV too CNET The interface of Hulu's new live-TV streaming service on multiple devices. Courtesy of Hulu Fortune Gizmodo - ComingSoon.net - USA TODAY - Forbes all 63 news articles »
+The Verge How Hulu reinvented itself for live TV The Verge It's mid-February and I'm seated in a dark room at Hulu's Santa Monica headquarters. Flanked by the company's user experience research experts, we're all peering through a one-way glass mirror into a brightly lit “living room” test lab. The subject is ... Hulu Live TV Service Launches With 50 Channels for $40 Monthly Variety You can now watch 50-plus channels of live TV on Hulu with $39.99 upgrade USA TODAY Hulu debuts $40-per-month live TV streaming service with over 50 channels Ars Technica CNET - ComingSoon.net - Fortune - Gizmodo all 73 news articles »
 
 
 Full story on F3News: [How Hulu reinvented itself for live TV - The Verge](http://www.f3nws.com/n/tUJESG)
