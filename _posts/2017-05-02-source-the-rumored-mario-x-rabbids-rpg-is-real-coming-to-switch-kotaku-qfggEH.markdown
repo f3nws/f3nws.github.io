@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Source: The Rumored Mario x Rabbids RPG Is Real, Coming To Switch - Kotaku"
-date: 2017-05-02 20:32:31Z
+date: 2017-05-02 19:29:00Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku Source: The Rumored Mario x Rabbids RPG Is Real, Coming To Switch Kotaku 
 
 Full story on F3News: [Source: The Rumored Mario x Rabbids RPG Is Real, Coming To Switch - Kotaku](http://www.f3nws.com/n/qfggEH)
 
-> Posted on: Wednesday, May 3, 2017 1:32:31 AM
+> Posted on: Wednesday, May 3, 2017 12:29:00 AM
