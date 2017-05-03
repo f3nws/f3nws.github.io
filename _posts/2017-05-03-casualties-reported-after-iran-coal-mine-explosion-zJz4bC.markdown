@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Casualties reported after Iran coal mine explosion"
-date: 2017-05-03 16:41:17Z
+date: 2017-05-03 17:09:38Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 25 people are believed to be trapped in coal mine outside the northern 
 
 Full story on F3News: [Casualties reported after Iran coal mine explosion](http://www.f3nws.com/n/zJz4bC)
 
-> Posted on: Wednesday, May 3, 2017 9:41:17 PM
+> Posted on: Wednesday, May 3, 2017 10:09:38 PM
