@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NATO convoy targeted in Kabul suicide bombing, at least 8 dead"
-date: 2017-05-03 16:30:05Z
+date: 2017-05-03 19:30:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least eight civilians were killed early Wednesday in a suicide attack against
 
 Full story on F3News: [NATO convoy targeted in Kabul suicide bombing, at least 8 dead](http://www.f3nws.com/n/j3tx4H)
 
-> Posted on: Wednesday, May 3, 2017 9:30:05 PM
+> Posted on: Thursday, May 4, 2017 12:30:08 AM

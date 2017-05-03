@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steve Bannon's White House whiteboard revealed"
-date: 2017-05-03 15:56:57Z
+date: 2017-05-03 18:57:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Here it is: our first visual glimpse at the hive mind where Trump's chief strate
 
 Full story on F3News: [Steve Bannon's White House whiteboard revealed](http://www.f3nws.com/n/bvgqXE)
 
-> Posted on: Wednesday, May 3, 2017 8:56:57 PM
+> Posted on: Wednesday, May 3, 2017 11:57:31 PM
