@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Australian Baxter Reid detained in US for overstaying visa 'by 90 minutes' to face court - ABC Online](http://www.abc.net.au/news/image/8489504-1x1-700x700.jpg)
 
-ABC Online Australian Baxter Reid detained in US for overstaying visa 'by 90 minutes' to face court ABC Online A Canberra man who was detained in the United States for reportedly overstaying his visa by less than two hours has been handed a date to face court. Family and friends of Baxter Reid said the 26-year-old was being held at the Buffalo Federal Detention ... Canberra man arrested in US over visa granted court date The Sydney Morning Herald Australian man detained in the US for overstaying visa by one hour The Australian Australian man held in US detention centre after overstaying visa by 'a single hour' NEWS.com.au Starts at 60 - GoFundMe - The Canberra Times all 29 news articles »
+ABC Online Australian Baxter Reid detained in US for overstaying visa 'by 90 minutes' to face court ABC Online A Canberra man who was detained in the United States for reportedly overstaying his visa by less than two hours has been handed a date to face court. Family and friends of Baxter Reid said the 26-year-old was being held at the Buffalo Federal Detention ... Canberra man arrested in US over visa granted court date The Sydney Morning Herald Australian man detained in the US for overstaying visa by one hour The Australian Australian man held in US detention centre after overstaying visa by 'a single hour' NEWS.com.au The Canberra Times - Starts at 60 - GoFundMe all 29 news articles »
 
 
 Full story on F3News: [Australian Baxter Reid detained in US for overstaying visa 'by 90 minutes' to face court - ABC Online](http://www.f3nws.com/n/a4heZF)
