@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Revealed: the private schools set to have their funding cut - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/u/5/l/f/c/image.related.socialLead.620x349.gvxwwp.png/1493778483523.jpg)
 
-The Sydney Morning Herald Revealed: the private schools set to have their funding cut The Sydney Morning Herald High-fee private schools in Sydney's wealthy northern suburbs dominate the list of schools set to have have their federal funding cut next year under the Turnbull government's new funding model, Fairfax Media can reveal. Many of Canberra's private ... “Stop playing with the lives of our kids.” NEWS.com.au Turnbull risks school funding row The Australian Catholic schools 'could close': chief dailytelegraph.com.au ABC Online - The Advertiser - Courier Mail - The Canberra Times all 103 news articles »
+The Sydney Morning Herald Revealed: the private schools set to have their funding cut The Sydney Morning Herald High-fee private schools in Sydney's wealthy northern suburbs dominate the list of schools set to have have their federal funding cut next year under the Turnbull government's new funding model, Fairfax Media can reveal. Many of Canberra's private ... “Stop playing with the lives of our kids.” NEWS.com.au Turnbull risks school funding row The Australian Catholic schools 'could close': chief dailytelegraph.com.au ABC Online - The Advertiser - Courier Mail - The Canberra Times all 104 news articles »
 
 
 Full story on F3News: [Revealed: the private schools set to have their funding cut - The Sydney Morning Herald](http://www.f3nws.com/n/3U42X)

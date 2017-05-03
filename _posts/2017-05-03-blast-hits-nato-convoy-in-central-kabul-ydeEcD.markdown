@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blast hits NATO convoy in central Kabul"
-date: 2017-05-03 06:37:41Z
+date: 2017-05-03 07:40:47Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least eight people killed in attack near US embassy in centre of Afghanistan'
 
 Full story on F3News: [Blast hits NATO convoy in central Kabul](http://www.f3nws.com/n/ydeEcD)
 
-> Posted on: Wednesday, May 3, 2017 11:37:41 AM
+> Posted on: Wednesday, May 3, 2017 12:40:47 PM
