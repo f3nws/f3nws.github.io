@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blast hits NATO convoy in central Kabul"
-date: 2017-05-03 09:31:27Z
+date: 2017-05-03 15:32:25Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ ISIL claims responsibility for attack on NATO convoy in Afghan capital that kill
 
 Full story on F3News: [Blast hits NATO convoy in central Kabul](http://www.f3nws.com/n/ydeEcD)
 
-> Posted on: Wednesday, May 3, 2017 2:31:27 PM
+> Posted on: Wednesday, May 3, 2017 8:32:25 PM
