@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ex-Officer Who Shot Walter Scott Pleads Guilty in Charleston - New York Times](https://static01.nyt.com/images/2017/05/03/us/03charleston/03charleston-facebookJumbo.jpg)
 
-New York Times Ex-Officer Who Shot Walter Scott Pleads Guilty in Charleston New York Times Michael T. Slager, right, arriving at court in Charleston, S.C., in December. Credit Chuck Burton/Associated Press. CHARLESTON, S.C. — More than two years after a North Charleston, S.C., police officer fired eight rounds to the back of a fleeing and ... Ex-officer Michael Slager pleads guilty in shooting death of Walter Scott CNN Cop who killed Walter Scott pleads guilty to civil rights charge New York Daily News Michael Slager, officer who fatally shot Walter Scott in South Carolina, pleads guilty in federal case Los Angeles Times BBC News - Slate Magazine (blog) - NBCNews.com - BuzzFeed News all 152 news articles »
+New York Times Ex-Officer Who Shot Walter Scott Pleads Guilty in Charleston New York Times Michael T. Slager, right, arriving at court in Charleston, S.C., in December. Credit Chuck Burton/Associated Press. CHARLESTON, S.C. — More than two years after a North Charleston, S.C., police officer fired eight rounds to the back of a fleeing and ... Ex-officer Michael Slager pleads guilty in shooting death of Walter Scott CNN White ex-officer pleads guilty in black man's slaying Washington Post Michael Slager, officer who fatally shot Walter Scott in South Carolina, pleads guilty in federal case Los Angeles Times New York Daily News - Yahoo News - BBC News - Slate Magazine (blog) all 169 news articles »
 
 
 Full story on F3News: [Ex-Officer Who Shot Walter Scott Pleads Guilty in Charleston - New York Times](http://www.f3nws.com/n/HxVzgE)
