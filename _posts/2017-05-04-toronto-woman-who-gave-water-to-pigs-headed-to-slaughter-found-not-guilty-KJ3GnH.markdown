@@ -5,7 +5,7 @@ date: 2017-05-04 13:27:50Z
 categories: toronto-star
 ---
 
-![Toronto woman who gave water to pigs headed to slaughter found not guilty](https://www.thestar.com/content/dam/thestar/news/crime/2017/05/04/verdict-expected-today-for-woman-who-gave-water-to-pigs-headed-to-slaughter/anita-krajnc2.jpg)
+![Toronto woman who gave water to pigs headed to slaughter found not guilty](https://www.thestar.com/content/dam/thestar/news/2017/05/04/toronto-woman-who-gave-water-to-pigs-acquitted/5421891331001-videoStillImage.jpg)
 
 Anita Krajnc, an activist with the group Toronto Pig Save, gave water to pigs in a truck that was headed to a slaughterhouse in Burlington, Ont.
 
