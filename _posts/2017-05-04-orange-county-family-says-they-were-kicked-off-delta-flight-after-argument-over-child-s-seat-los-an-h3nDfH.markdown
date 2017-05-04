@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Orange County family says they were kicked off Delta flight after argument over child's seat - Los Angeles Times](http://www.trbimg.com/img-590b7ae7/turbine/la-me-ln-delta-flight-orange-county-20170504)
 
-Los Angeles Times Orange County family says they were kicked off Delta flight after argument over child's seat Los Angeles Times An Orange County couple says they were kicked off a Los Angeles-bound Delta flight last month after airline staff insisted their 2-year-old son could not sit by himself, even though the family had already paid for the seat. Brian and Brittany Schear of ... Family With Infant Children Booted Off Delta Flight YouTube SoCal family thrown off overbooked Delta flight over child's seating KABC-TV Flying with Children & Unaccompanied Minors : Delta Air Lines Delta FAA - CBS Los Angeles all 96 news articles »
+Los Angeles Times Orange County family says they were kicked off Delta flight after argument over child's seat Los Angeles Times An Orange County couple says they were kicked off a Los Angeles-bound Delta flight last month after airline staff insisted their 2-year-old son could not sit by himself, even though the family had already paid for the seat. Brian and Brittany Schear of ... Family booted from Delta flight and threatened with jail after refusing to give up toddler's seat Washington Post California family booted from Delta Air Lines flight after refusing to give up son's seat Fox News Family With Infant Children Booted Off Delta Flight YouTube KABC-TV - Delta - FAA - CBS Los Angeles all 107 news articles »
 
 
 Full story on F3News: [Orange County family says they were kicked off Delta flight after argument over child's seat - Los Angeles Times](http://www.f3nws.com/n/h3nDfH)
