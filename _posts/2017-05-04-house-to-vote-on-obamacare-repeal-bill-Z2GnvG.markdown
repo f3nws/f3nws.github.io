@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House to vote on Obamacare repeal bill"
-date: 2017-05-04 02:28:03Z
+date: 2017-05-04 05:05:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House will vote Thursday on the Republican bill to repeal and replace Obamac
 
 Full story on F3News: [House to vote on Obamacare repeal bill](http://www.f3nws.com/n/Z2GnvG)
 
-> Posted on: Thursday, May 4, 2017 7:28:03 AM
+> Posted on: Thursday, May 4, 2017 10:05:57 AM
