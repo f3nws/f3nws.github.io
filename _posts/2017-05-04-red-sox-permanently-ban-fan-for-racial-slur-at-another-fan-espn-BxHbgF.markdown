@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Red Sox permanently ban fan for racial slur at another fan - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2015%2F0413%2Fbos_g_fenway_d1_1296x729.jpg)
 
-ESPN Red Sox permanently ban fan for racial slur at another fan ESPN BOSTON -- The Red Sox on Wednesday permanently banned from Fenway Park a man they said used a racial slur toward another fan at Tuesday's game, a separate confrontation from the insults directed at Baltimore Orioles outfielder Adam Jones a night ... Ejection leaves Orioles' starter TBA for finale vs. Sox (May 04, 2017) FOXSports.com A slur intrudes again at Fenway Park, and the Red Sox quickly condemn the incident The Boston Globe MLB told the O's and Red Sox to cool it. Then the game — and the ejections — began. Washington Post Boston Herald - CBSSports.com - USA TODAY all 1,368 news articles »
+ESPN Red Sox permanently ban fan for racial slur at another fan ESPN BOSTON -- The Red Sox on Wednesday permanently banned from Fenway Park a man they said used a racial slur toward another fan at Tuesday's game, a separate confrontation from the insults directed at Baltimore Orioles outfielder Adam Jones a night ... A slur intrudes again at Fenway Park, and the Red Sox quickly condemn the incident The Boston Globe MLB told the O's and Red Sox to cool it. Then the game — and the ejections — began. Washington Post Red Sox ban fan from Fenway Park for life after using racial slur FOXSports.com USA TODAY all 1,301 news articles »
 
 
 Full story on F3News: [Red Sox permanently ban fan for racial slur at another fan - ESPN](http://www.f3nws.com/n/BxHbgF)
