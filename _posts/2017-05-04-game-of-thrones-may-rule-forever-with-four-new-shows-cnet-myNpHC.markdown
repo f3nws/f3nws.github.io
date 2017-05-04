@@ -5,7 +5,7 @@ date: 2017-05-04 20:12:11Z
 categories: cnet
 ---
 
-!['Game of Thrones' may rule forever with four new shows     - CNET](https://cnet3.cbsistatic.com/img/t-fP3VFofwpSZZ6AJu4y81SmguY=/670x503/2017/05/04/fb61d5d2-812a-405e-8437-5baab4cc3ce1/gameofthronestitlecard.jpg)
+!['Game of Thrones' may rule forever with four new shows     - CNET](https://cnet4.cbsistatic.com/img/ntoW2gQZwY-2S_SIJQQcgOf6rN0=/670x503/2017/03/30/8bfdd24a-8c93-43b8-9551-b164b602199b/got.jpg)
 
 HBO announces the shows will explore different time periods within George R.R. Martin's vast universe.
 
