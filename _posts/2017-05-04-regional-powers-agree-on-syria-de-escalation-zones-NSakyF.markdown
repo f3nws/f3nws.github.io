@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Regional powers agree on Syria 'de-escalation zones'"
-date: 2017-05-04 15:16:53Z
+date: 2017-05-04 20:18:09Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Russia, Turkey and Iran to create de-escalation areas in Syria, as opposition ve
 
 Full story on F3News: [Regional powers agree on Syria 'de-escalation zones'](http://www.f3nws.com/n/NSakyF)
 
-> Posted on: Thursday, May 4, 2017 8:16:53 PM
+> Posted on: Friday, May 5, 2017 1:18:09 AM
