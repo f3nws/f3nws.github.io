@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stephen Colbert responds to #FireColbert backlash"
-date: 2017-05-04 01:59:29Z
+date: 2017-05-04 05:39:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Stephen Colbert responds to #FireColbert backlash](http://www.f3nws.com/n/q4z4MC)
 
-> Posted on: Thursday, May 4, 2017 6:59:29 AM
+> Posted on: Thursday, May 4, 2017 10:39:06 AM
