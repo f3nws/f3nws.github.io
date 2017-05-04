@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Obama adviser Rice says she won't testify"
-date: 2017-05-03 21:31:25Z
+date: 2017-05-03 23:02:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Susan Rice, President Barak Obama's former national security adviser, on Wednesd
 
 Full story on F3News: [Former Obama adviser Rice says she won't testify](http://www.f3nws.com/n/xXC2FH)
 
-> Posted on: Thursday, May 4, 2017 2:31:25 AM
+> Posted on: Thursday, May 4, 2017 4:02:54 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Susan Rice declines to testify on Russian hacking before Senate panel - The Hill](http://thehill.com/sites/default/files/article_images/rice-susan-getty_1.jpg)
 
-The Hill Susan Rice declines to testify on Russian hacking before Senate panel The Hill Susan Rice will not testify before a Senate subcommittee next week about alleged Russian meddling in the 2016 race. The former national security adviser under President Obama declined an invitation from Sen. Lindsey Graham · Lindsey GrahamFeinstein: ... Susan Rice declines to testify before Senate subcommittee Politico all 22 news articles »
+The Hill Susan Rice declines to testify on Russian hacking before Senate panel The Hill Susan Rice will not testify before a Senate subcommittee next week about alleged Russian meddling in the 2016 race. The former national security adviser under President Obama declined an invitation from Sen. Lindsey Graham · Lindsey GrahamFeinstein: ... Susan Rice declines to testify before Senate subcommittee Politico Former Obama security adviser declines invite to testify ABC News all 25 news articles »
 
 
 Full story on F3News: [Susan Rice declines to testify on Russian hacking before Senate panel - The Hill](http://www.f3nws.com/n/gPNZt)
