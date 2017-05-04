@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Code Pink activist convicted for 'laughing' at Sessions](http://www.aljazeera.com/mritems/Images/2017/5/4/38aab904fab4411990b002fc09468ffc_18.jpg)
 
-Desiree Ali-Fairooz could be jailed over noise she let out at confirmation hearing of Attorney General Jeff Sessions.
+Desiree Ali-Fairooz could be jailed over a noise she made at the confirmation hearing of Attorney General Jeff Sessions.
 
 
 Full story on F3News: [Code Pink activist convicted for 'laughing' at Sessions](http://www.f3nws.com/n/hmEEa)
