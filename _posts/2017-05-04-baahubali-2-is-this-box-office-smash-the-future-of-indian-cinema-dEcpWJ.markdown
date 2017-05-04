@@ -5,6 +5,8 @@ date: 2017-05-04 05:52:07Z
 categories: cnn-com-entertainment
 ---
 
+!['Baahubali 2': Is this box office smash the future of Indian cinema?](http://i2.cdn.cnn.com/cnnnext/dam/assets/170503200050-baahubali-2-poster-super-tease.jpg)
+
 It's being called Indian cinema's crowning glory.
 
 
