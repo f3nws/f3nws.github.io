@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Code Pink activist convicted for 'laughing' at Sessions"
-date: 2017-05-04 01:57:43Z
+date: 2017-05-04 02:17:05Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Desiree Ali-Fairooz could be jailed over noise she let out at confirmation heari
 
 Full story on F3News: [Code Pink activist convicted for 'laughing' at Sessions](http://www.f3nws.com/n/hmEEa)
 
-> Posted on: Thursday, May 4, 2017 6:57:43 AM
+> Posted on: Thursday, May 4, 2017 7:17:05 AM

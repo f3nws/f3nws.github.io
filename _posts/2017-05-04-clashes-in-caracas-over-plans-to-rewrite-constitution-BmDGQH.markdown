@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clashes in Caracas over plans to rewrite constitution"
-date: 2017-05-04 00:12:59Z
+date: 2017-05-04 02:11:57Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Opponents of Venezuela's President Maduro say his move to rewrite the constituti
 
 Full story on F3News: [Clashes in Caracas over plans to rewrite constitution](http://www.f3nws.com/n/BmDGQH)
 
-> Posted on: Thursday, May 4, 2017 5:12:59 AM
+> Posted on: Thursday, May 4, 2017 7:11:57 AM
