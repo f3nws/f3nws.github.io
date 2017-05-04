@@ -5,6 +5,8 @@ date: 2017-05-04 07:24:51Z
 categories: cnn-com-top-stories
 ---
 
+![Is US steering clear of South China Sea under Trump?](http://i2.cdn.cnn.com/cnnnext/dam/assets/170418133100-uss-wayne-e-meyer-south-china-sea-super-tease.jpg)
+
 The Trump administration looks to be easing up on Beijing in the South China Sea.
 
 
