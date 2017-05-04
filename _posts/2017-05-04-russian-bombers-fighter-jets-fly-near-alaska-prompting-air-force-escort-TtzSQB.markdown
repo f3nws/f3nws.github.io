@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian bombers, fighter jets fly near Alaska, prompting Air Force escort"
-date: 2017-05-04 13:00:00Z
+date: 2017-05-04 13:53:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ U.S. Air Force jets intercepted a pair of Russian bombers and two Russian fighte
 
 Full story on F3News: [Russian bombers, fighter jets fly near Alaska, prompting Air Force escort](http://www.f3nws.com/n/TtzSQB)
 
-> Posted on: Thursday, May 4, 2017 6:00:00 PM
+> Posted on: Thursday, May 4, 2017 6:53:00 PM
