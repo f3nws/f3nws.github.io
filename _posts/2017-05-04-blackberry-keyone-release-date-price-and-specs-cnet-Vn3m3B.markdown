@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "BlackBerry KeyOne Release Date, Price and Specs     - CNET"
-date: 2017-05-04 13:00:09Z
+date: 2017-05-04 15:07:42Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Here's what I think after some time with the BlackBerry's ambitious keyboard pho
 
 Full story on F3News: [BlackBerry KeyOne Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/Vn3m3B)
 
-> Posted on: Thursday, May 4, 2017 6:00:09 PM
+> Posted on: Thursday, May 4, 2017 8:07:42 PM

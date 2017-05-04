@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "E3 2017: Everything you need to know about this year's gaming extravaganza"
-date: 2017-05-04 11:43:30Z
+date: 2017-05-04 15:04:30Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Here's everything we're expecting from gaming's biggest show.
 
 Full story on F3News: [E3 2017: Everything you need to know about this year's gaming extravaganza](http://www.f3nws.com/n/cKCnvH)
 
-> Posted on: Thursday, May 4, 2017 4:43:30 PM
+> Posted on: Thursday, May 4, 2017 8:04:30 PM
