@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Prince Philip to step down from all public engagements](http://www.abc.net.au/news/image/8257340-1x1-700x700.jpg)
 
-Prince Philip will step down from all public engagements from August after fulfilling current appointments, Buckingham Palace says.
+Prince Philip will fulfil current appointments but will step down from all public engagements after August, Buckingham Palace says.
 
 
 Full story on F3News: [Prince Philip to step down from all public engagements](http://www.f3nws.com/n/Y4EETE)
