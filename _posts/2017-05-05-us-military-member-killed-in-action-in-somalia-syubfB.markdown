@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US military member killed in action in Somalia"
-date: 2017-05-05 16:15:51Z
+date: 2017-05-05 17:01:54Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A US military member was killed and two others were wounded in Somalia Friday wh
 
 Full story on F3News: [US military member killed in action in Somalia](http://www.f3nws.com/n/syubfB)
 
-> Posted on: Friday, May 5, 2017 9:15:51 PM
+> Posted on: Friday, May 5, 2017 10:01:54 PM

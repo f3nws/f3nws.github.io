@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans put their careers on the line..."
-date: 2017-05-05 15:20:25Z
+date: 2017-05-05 15:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rep. Chris Collins (R-NY) said he didn't read the bill, and didn't understand it
 
 Full story on F3News: [Republicans put their careers on the line...](http://www.f3nws.com/n/xn4Pc)
 
-> Posted on: Friday, May 5, 2017 8:20:25 PM
+> Posted on: Friday, May 5, 2017 8:20:00 PM
