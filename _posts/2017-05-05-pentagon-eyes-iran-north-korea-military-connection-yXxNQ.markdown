@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pentagon eyes Iran-North Korea military connection"
-date: 2017-05-05 20:31:55Z
+date: 2017-05-05 21:00:09Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ When Iran attempted to launch a cruise missile from a “midget” submarine ear
 
 Full story on F3News: [Pentagon eyes Iran-North Korea military connection](http://www.f3nws.com/n/yXxNQ)
 
-> Posted on: Saturday, May 6, 2017 1:31:55 AM
+> Posted on: Saturday, May 6, 2017 2:00:09 AM
