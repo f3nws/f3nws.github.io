@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US special operations member killed in Somalia"
-date: 2017-05-05 12:30:00Z
+date: 2017-05-05 14:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A U.S. special operations member was killed Thursday fighting terror group Al Sh
 
 Full story on F3News: [US special operations member killed in Somalia](http://www.f3nws.com/n/rh4S3B)
 
-> Posted on: Friday, May 5, 2017 5:30:00 PM
+> Posted on: Friday, May 5, 2017 7:15:00 PM
