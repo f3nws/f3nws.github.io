@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Daily newspaper columnist who defended NRA quits after suspension"
-date: 2017-05-05 19:00:50Z
+date: 2017-05-05 20:01:26Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A conservative columnist who was suspended by the St. Louis Post-Dispatch after 
 
 Full story on F3News: [Daily newspaper columnist who defended NRA quits after suspension](http://www.f3nws.com/n/2jkpaC)
 
-> Posted on: Saturday, May 6, 2017 12:00:50 AM
+> Posted on: Saturday, May 6, 2017 1:01:26 AM

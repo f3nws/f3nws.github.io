@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cord cutter curious? 10 considerations before you cancel cable TV     - CNET"
-date: 2017-05-05 18:57:44Z
+date: 2017-05-05 19:22:08Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Save a bunch of money! Kick that ancient box to the curb! Ditch all those channe
 
 Full story on F3News: [Cord cutter curious? 10 considerations before you cancel cable TV     - CNET](http://www.f3nws.com/n/UaFsaB)
 
-> Posted on: Friday, May 5, 2017 11:57:44 PM
+> Posted on: Saturday, May 6, 2017 12:22:08 AM
