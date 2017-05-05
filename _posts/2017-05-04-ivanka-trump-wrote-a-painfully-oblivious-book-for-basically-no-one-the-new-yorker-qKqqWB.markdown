@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Ivanka Trump Wrote a Painfully Oblivious Book for Basically No One - The New Yorker](http://www.newyorker.com/wp-content/uploads/2017/05/Tolentino-book-4-1200x630-1493936938.jpg)
 
-The New Yorker Ivanka Trump Wrote a Painfully Oblivious Book for Basically No One The New Yorker Ivanka Trump, a daughter of and aide to the man whose election drove women to mount the largest protest in American history, has published a new book. It's about how women can best achieve personal satisfaction and professional success. This is an ... State Dept. deletes retweet promoting Ivanka Trump's book ABC News Jane Goodall has some advice for Ivanka Trump CNNMoney Many Working Women Won't See Themselves In 'Women Who Work' NPR Twitter all 95 news articles »
+The New Yorker Ivanka Trump Wrote a Painfully Oblivious Book for Basically No One The New Yorker Ivanka Trump, a daughter of and aide to the man whose election drove women to mount the largest protest in American history, has published a new book. It's about how women can best achieve personal satisfaction and professional success. This is an ... Jane Goodall has some advice for Ivanka Trump CNNMoney Many Working Women Won't See Themselves In 'Women Who Work' NPR Reshma Saujani on Twitter: ".@ivankatrump don't use my story in #WomenWhoWork unless you are going to stop ... Twitter PEOPLE.com all 108 news articles »
 
 
 Full story on F3News: [Ivanka Trump Wrote a Painfully Oblivious Book for Basically No One - The New Yorker](http://www.f3nws.com/n/qKqqWB)
