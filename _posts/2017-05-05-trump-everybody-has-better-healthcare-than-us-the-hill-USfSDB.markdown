@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump: 'Everybody' has better healthcare than US - The Hill](http://thehill.com/sites/default/files/article_images/trumpdonald_033017getty.jpg)
 
-The Hill Trump: 'Everybody' has better healthcare than US The Hill “Of course the Australians have better healthcare than we do --everybody does. ObamaCare is dead! But our healthcare will soon be great,” Trump tweeted. Of course the Australians have better healthcare than we do --everybody does. ObamaCare is dead! Trump wasn't actually endorsing Australia's universal health care, White House says USA TODAY Donald Trump doesn't understand health care. Shouldn't the press say so? Salon all 653 news articles »
+The Hill Trump: 'Everybody' has better healthcare than US The Hill “Of course the Australians have better healthcare than we do --everybody does. ObamaCare is dead! But our healthcare will soon be great,” Trump tweeted. Of course the Australians have better healthcare than we do --everybody does. ObamaCare is dead! President Trump tweets that 'everybody' has better health care than US because Obamacare is so bad CNBC Trump defends comment on Australia having better health care than US Politico Trump wasn't actually endorsing Australia's universal health care, White House says USA TODAY all 662 news articles »
 
 
 Full story on F3News: [Trump: 'Everybody' has better healthcare than US - The Hill](http://www.f3nws.com/n/USfSDB)
