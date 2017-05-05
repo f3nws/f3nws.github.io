@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's forbidden love: Single-payer health care - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/15/National-Politics/Images/Trump_Health_Overhaul_94276-6faaf-3793.jpg)
 
-Washington Post Trump's forbidden love: Single-payer health care Washington Post President Trump claimed a victory Thursday after the House approved a more free-market approach to health care. Then he capped it off by praising a country with government-run, universal health care. Alongside Australian Prime Minister Malcolm Turnbull ... The Trump-Turnbull Handshake New York Times Trump praises Australia's universal health care after Obamacare repeal CNN WATCH: Donald Trump praises Australia's single-payer health care system Salon The Boston Globe - Seattle Times all 477 news articles »
+Washington Post Trump's forbidden love: Single-payer health care Washington Post President Trump claimed a victory Thursday after the House approved a more free-market approach to health care. Then he capped it off by praising a country with government-run, universal health care. Alongside Australian Prime Minister Malcolm Turnbull ... The Trump-Turnbull Handshake New York Times WATCH: Donald Trump praises Australia's single-payer health care system Salon Trump Today: A surprising statement on Australia's universal health care The Boston Globe Seattle Times all 493 news articles »
 
 
 Full story on F3News: [Trump's forbidden love: Single-payer health care - Washington Post](http://www.f3nws.com/n/KbJpUD)

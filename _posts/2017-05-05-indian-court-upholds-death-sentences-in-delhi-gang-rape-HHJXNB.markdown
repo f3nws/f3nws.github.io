@@ -5,6 +5,8 @@ date: 2017-05-05 12:33:02Z
 categories: cnn-com-world
 ---
 
+![Indian court upholds death sentences in Delhi gang rape](http://i2.cdn.cnn.com/cnnnext/dam/assets/130913110232-india-protests-rape-story-top.jpg)
+
 Four men convicted of a gang rape that shocked India and attracted worldwide attention will be executed.
 
 
