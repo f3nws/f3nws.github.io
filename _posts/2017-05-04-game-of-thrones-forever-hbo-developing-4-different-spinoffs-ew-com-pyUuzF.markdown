@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Game of Thrones forever: HBO developing 4 different spinoffs - EW.com](http://i1.wp.com/ewedit.files.wordpress.com/2017/05/gameofthrones.jpg?crop=0px%2C229px%2C2700px%2C1419px&resize=1200%2C630&ssl=1)
 
-EW.com Game of Thrones forever: HBO developing 4 different spinoffs EW.com HBO is doubling down — no, quadrupling down — on its epic quest to replace Game of Thrones. The pay TV network is determined to find a way to continue the most popular series in the company's history and has taken the highly unusual step of ... 'Game of Thrones': HBO Exploring Four Different Follow-Up Series Hollywood Reporter Four 'Game Of Thrones' Offshoot Series In Works At HBO With George R. R. Martin Deadline 'Game of Thrones' Spin-Offs: Of the Four Options, There's Already an Obvious Winner IndieWire Vulture - E! Online - Variety - Vanity Fair all 125 news articles »
+EW.com Game of Thrones forever: HBO developing 4 different spinoffs EW.com HBO is doubling down — no, quadrupling down — on its epic quest to replace Game of Thrones. The pay TV network is determined to find a way to continue the most popular series in the company's history and has taken the highly unusual step of ... 'Game of Thrones': HBO Exploring Four Different Follow-Up Series Hollywood Reporter Four 'Game Of Thrones' Offshoot Series In Works At HBO With George R. R. Martin Deadline 6 Game of Thrones Spinoffs We'd Like to See Vulture IndieWire - E! Online - Variety - ComingSoon.net all 130 news articles »
 
 
 Full story on F3News: [Game of Thrones forever: HBO developing 4 different spinoffs - EW.com](http://www.f3nws.com/n/pyUuzF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Game of Thrones' may rule forever with four new shows     - CNET"
-date: 2017-05-04 20:12:11Z
+date: 2017-05-04 23:18:14Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ HBO announces the shows will explore different time periods within George R.R. M
 
 Full story on F3News: ['Game of Thrones' may rule forever with four new shows     - CNET](http://www.f3nws.com/n/myNpHC)
 
-> Posted on: Friday, May 5, 2017 1:12:11 AM
+> Posted on: Friday, May 5, 2017 4:18:14 AM
