@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Colbert mocks House Republicans after American Health Care Act passes"
-date: 2017-05-05 05:44:55Z
+date: 2017-05-05 11:12:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Colbert mocks House Republicans after American Health Care Act passes](http://www.f3nws.com/n/JK2skG)
 
-> Posted on: Friday, May 5, 2017 10:44:55 AM
+> Posted on: Friday, May 5, 2017 4:12:04 PM
