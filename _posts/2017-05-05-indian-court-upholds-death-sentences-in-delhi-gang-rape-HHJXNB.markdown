@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Indian court upholds death sentences in Delhi gang rape"
-date: 2017-05-05 15:32:07Z
+date: 2017-05-05 18:41:14Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Four men convicted of a gang rape that shocked India and attracted worldwide att
 
 Full story on F3News: [Indian court upholds death sentences in Delhi gang rape](http://www.f3nws.com/n/HHJXNB)
 
-> Posted on: Friday, May 5, 2017 8:32:07 PM
+> Posted on: Friday, May 5, 2017 11:41:14 PM

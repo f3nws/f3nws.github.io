@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Guardians of the Galaxy' somewhat bucks the Marvel sequel trend"
-date: 2017-05-05 18:04:00Z
+date: 2017-05-05 18:35:15Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ There was no better demonstration of Marvel's box-office magic than turning the 
 
 Full story on F3News: ['Guardians of the Galaxy' somewhat bucks the Marvel sequel trend](http://www.f3nws.com/n/xsTTMC)
 
-> Posted on: Friday, May 5, 2017 11:04:00 PM
+> Posted on: Friday, May 5, 2017 11:35:15 PM
