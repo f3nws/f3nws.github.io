@@ -5,9 +5,9 @@ date: 2017-05-05 12:09:39Z
 categories: google-news-top-stories
 ---
 
-![Local and mayoral results: Conservatives make gains - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/12189/production/_95912147_warwickshire.jpg)
+![Local and mayoral results: Conservatives make gains - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/169BA/production/_95920629_mediaitem95920627.jpg)
 
-BBC News Local and mayoral results: Conservatives make gains BBC News The Conservatives have gained ground in local elections across Britain at the expense of Labour and UKIP. They have taken control of five councils in England and Wales, such as Lincolnshire and Monmouthshire, and are also making headway in Scotland. UKIP faces wipeout in Britain's local elections CNN all 744 news articles »
+BBC News Local and mayoral results: Conservatives make gains BBC News The Conservatives have gained ground in local elections across Britain at the expense of Labour and UKIP. They have taken control of seven councils in England and Wales, such as Lincolnshire and Monmouthshire, and are also making headway in ... UKIP faces wipeout in Britain's local elections CNN all 776 news articles »
 
 
 Full story on F3News: [Local and mayoral results: Conservatives make gains - BBC News](http://www.f3nws.com/n/3nxDzG)
