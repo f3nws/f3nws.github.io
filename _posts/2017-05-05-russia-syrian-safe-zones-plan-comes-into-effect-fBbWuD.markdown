@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia: Syrian safe zones plan comes into effect"
-date: 2017-05-05 21:32:03Z
+date: 2017-05-05 22:40:42Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Russia says it will be a month before 'de-escalation zones' are fully establishe
 
 Full story on F3News: [Russia: Syrian safe zones plan comes into effect](http://www.f3nws.com/n/fBbWuD)
 
-> Posted on: Saturday, May 6, 2017 2:32:03 AM
+> Posted on: Saturday, May 6, 2017 3:40:42 AM
