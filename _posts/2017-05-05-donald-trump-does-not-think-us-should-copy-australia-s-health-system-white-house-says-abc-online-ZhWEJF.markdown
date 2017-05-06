@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Donald Trump does not think US should copy Australia's health system, White House says - ABC Online](http://www.abc.net.au/news/image/8501332-1x1-700x700.jpg)
 
-ABC Online Donald Trump does not think US should copy Australia's health system, White House says ABC Online As Prime Minister Malcolm Turnbull flies back to Australia following a meeting with US President Donald Trump, the White House has clarified Mr Trump's comments calling Australia's universal healthcare system "better" than the US system. Mr Turnbull ... White House backs down on Trump comment praising Australia's health care The Sydney Morning Herald Trump feels like 'family', PM says NEWS.com.au Stars flock to Trump-Turnbull battleship dinner dailytelegraph.com.au The Australian - 9news.com.au - The Advertiser - The Guardian all 672 news articles »
+ABC Online Donald Trump does not think US should copy Australia's health system, White House says ABC Online As Prime Minister Malcolm Turnbull flies back to Australia following a meeting with US President Donald Trump, the White House has clarified Mr Trump's comments calling Australia's universal healthcare system "better" than the US system. Mr Turnbull ... White House backs down on Trump comment praising Australia's health care The Sydney Morning Herald Trump feels like 'family', PM says NEWS.com.au Stars flock to Trump-Turnbull battleship dinner dailytelegraph.com.au Sky News Australia - 9news.com.au - The Guardian - PRI all 721 news articles »
 
 
 Full story on F3News: [Donald Trump does not think US should copy Australia's health system, White House says - ABC Online](http://www.f3nws.com/n/ZhWEJF)
