@@ -12,4 +12,4 @@ Barely a month after Kendall Jenner appeared in a Pepsi commercial that drew suc
 
 Full story on F3News: [Vogue India cover lands Kendall Jenner in more trouble](http://www.f3nws.com/n/c2bQDF)
 
-> Posted on: Saturday, May 6, 2017 11:09:17 PM
+> Posted on: 06 May 2017 17:09:17

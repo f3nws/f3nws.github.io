@@ -12,4 +12,4 @@ A French politician has died after collapsing on stage while making a speech at 
 
 Full story on F3News: [French politician dies at rally for Emmanuel Macron](http://www.f3nws.com/n/KsRSjD)
 
-> Posted on: Sunday, May 7, 2017 12:52:51 AM
+> Posted on: 06 May 2017 18:52:51

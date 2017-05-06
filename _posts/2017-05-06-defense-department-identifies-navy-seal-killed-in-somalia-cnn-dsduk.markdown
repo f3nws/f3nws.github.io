@@ -12,4 +12,4 @@ CNN Defense Department identifies Navy SEAL killed in Somalia CNN Washington (CN
 
 Full story on F3News: [Defense Department identifies Navy SEAL killed in Somalia - CNN](http://www.f3nws.com/n/dsduk)
 
-> Posted on: Saturday, May 6, 2017 9:28:19 PM
+> Posted on: 06 May 2017 15:28:19

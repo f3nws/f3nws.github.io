@@ -12,4 +12,4 @@ The Latest on the shooting of a black teenager by a white police officer in subu
 
 Full story on F3News: [The Latest: Experts say convictions rare in police shootings](http://www.f3nws.com/n/gxkPqD)
 
-> Posted on: Saturday, May 6, 2017 10:34:04 PM
+> Posted on: 06 May 2017 16:34:04

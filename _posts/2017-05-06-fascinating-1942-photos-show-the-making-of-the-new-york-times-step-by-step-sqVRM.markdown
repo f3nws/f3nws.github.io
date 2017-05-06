@@ -12,4 +12,4 @@ The sports section is assembled in the composing room. Image: Library of Congres
 
 Full story on F3News: [Fascinating 1942 photos show the making of the New York Times, step by step](http://www.f3nws.com/n/sqVRM)
 
-> Posted on: Saturday, May 6, 2017 7:00:00 PM
+> Posted on: 06 May 2017 13:00:00

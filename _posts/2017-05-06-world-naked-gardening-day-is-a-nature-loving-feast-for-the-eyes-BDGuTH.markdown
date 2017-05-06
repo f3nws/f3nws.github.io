@@ -12,4 +12,4 @@ It's World Naked Gardening Day, the only day of the year when exposing your priv
 
 Full story on F3News: [World Naked Gardening Day is a nature loving feast for the eyes](http://www.f3nws.com/n/BDGuTH)
 
-> Posted on: Saturday, May 6, 2017 10:08:39 PM
+> Posted on: 06 May 2017 16:08:39

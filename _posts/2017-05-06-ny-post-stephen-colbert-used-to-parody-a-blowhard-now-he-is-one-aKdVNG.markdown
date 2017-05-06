@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [NY Post: Stephen Colbert Used To Parody A Blowhard — Now He Is One](http://www.f3nws.com/n/aKdVNG)
 
-> Posted on: Sunday, May 7, 2017 12:59:22 AM
+> Posted on: 06 May 2017 18:59:22

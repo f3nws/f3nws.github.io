@@ -12,4 +12,4 @@ Live every day at 15:00 GMT, our interactive news bulletin gives you the opportu
 
 Full story on F3News: [NewsGrid - Al Jazeera's interactive news hour](http://www.f3nws.com/n/uKjrBG)
 
-> Posted on: Saturday, May 6, 2017 8:05:06 PM
+> Posted on: 06 May 2017 14:05:06

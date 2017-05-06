@@ -12,4 +12,4 @@ categories: google-news-australia
 
 Full story on F3News: [League: Sharks boss regretful - New Zealand Herald](http://www.f3nws.com/n/vpGuSC)
 
-> Posted on: Saturday, May 6, 2017 10:05:35 PM
+> Posted on: 06 May 2017 16:05:35

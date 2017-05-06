@@ -12,4 +12,4 @@ BET Hip-Hop, It's Time to Slam The Door Closed on White Girls Like Miley Cyrus B
 
 Full story on F3News: [Hip-Hop, It's Time to Slam The Door Closed on White Girls Like Miley Cyrus - BET](http://www.f3nws.com/n/RmTzjB)
 
-> Posted on: Saturday, May 6, 2017 10:32:28 PM
+> Posted on: 06 May 2017 16:32:28

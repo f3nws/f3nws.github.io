@@ -12,4 +12,4 @@ Eighty-three Chibok schoolgirls kidnapped three years ago by Boko Haram extremis
 
 Full story on F3News: [Nigerian official says 83 Chibok girls have been released](http://www.f3nws.com/n/QDx2XB)
 
-> Posted on: Sunday, May 7, 2017 2:25:00 AM
+> Posted on: 06 May 2017 20:25:00

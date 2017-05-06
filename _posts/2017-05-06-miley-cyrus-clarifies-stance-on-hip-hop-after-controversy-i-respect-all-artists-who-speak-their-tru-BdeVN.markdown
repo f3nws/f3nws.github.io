@@ -12,4 +12,4 @@ E! Online Miley Cyrus Clarifies Stance on Hip-Hop After Controversy: "I Respect 
 
 Full story on F3News: [Miley Cyrus Clarifies Stance on Hip-Hop After Controversy: "I Respect ALL Artists Who Speak Their Truth" - E! Online](http://www.f3nws.com/n/BdeVN)
 
-> Posted on: Saturday, May 6, 2017 7:54:09 PM
+> Posted on: 06 May 2017 13:54:09

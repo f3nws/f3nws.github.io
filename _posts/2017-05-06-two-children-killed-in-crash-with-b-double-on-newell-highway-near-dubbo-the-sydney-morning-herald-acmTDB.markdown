@@ -12,4 +12,4 @@ The Sydney Morning Herald Two children killed in crash with B-Double on Newell H
 
 Full story on F3News: [Two children killed in crash with B-Double on Newell Highway near Dubbo - The Sydney Morning Herald](http://www.f3nws.com/n/acmTDB)
 
-> Posted on: Saturday, May 6, 2017 8:04:00 PM
+> Posted on: 06 May 2017 14:04:00

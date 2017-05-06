@@ -12,4 +12,4 @@ Hollywood Reporter Weekend Box Office: 'Guardians of the Galaxy 2' Rockets to $5
 
 Full story on F3News: [Weekend Box Office: 'Guardians of the Galaxy 2' Rockets to $56.3M Friday - Hollywood Reporter](http://www.f3nws.com/n/3PGQxF)
 
-> Posted on: Saturday, May 6, 2017 7:59:21 PM
+> Posted on: 06 May 2017 13:59:21

@@ -12,4 +12,4 @@ On Saturday, Twitter user @minnysconsin tweeted a photo of himself with House Sp
 
 Full story on F3News: [Dude takes a pic with Paul Ryan, promptly enters the trolling hall of fame](http://www.f3nws.com/n/4kQYFG)
 
-> Posted on: Sunday, May 7, 2017 2:36:32 AM
+> Posted on: 06 May 2017 20:36:32

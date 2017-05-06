@@ -12,4 +12,4 @@ New York Post Stephen Colbert used to parody a blowhard — now he is one New Yo
 
 Full story on F3News: [Stephen Colbert used to parody a blowhard — now he is one - New York Post](http://www.f3nws.com/n/vBSJGG)
 
-> Posted on: Saturday, May 6, 2017 6:04:00 PM
+> Posted on: 06 May 2017 12:04:00

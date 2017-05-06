@@ -12,4 +12,4 @@ Bitcoin is still on a major upswing. The price of the cryptocurrency broke $1,50
 
 Full story on F3News: [Bitcoin's price breaks records, yet again](http://www.f3nws.com/n/SA43uF)
 
-> Posted on: Saturday, May 6, 2017 10:32:23 PM
+> Posted on: 06 May 2017 16:32:23

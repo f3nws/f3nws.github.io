@@ -12,4 +12,4 @@ The Hill GOP senator blasts 'drastic' WH cuts to anti-drug office The Hill Sen. 
 
 Full story on F3News: [GOP senator blasts 'drastic' WH cuts to anti-drug office - The Hill](http://www.f3nws.com/n/ExYtYF)
 
-> Posted on: Saturday, May 6, 2017 6:49:09 PM
+> Posted on: 06 May 2017 12:49:09

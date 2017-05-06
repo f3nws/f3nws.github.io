@@ -12,4 +12,4 @@ Top elected Democrats are taking their opposition to the ObamaCare overhaul plan
 
 Full story on F3News: [Top Democrats say Americans will 'die' from ObamaCare overhaul passed by GOP House](http://www.f3nws.com/n/fRsaYH)
 
-> Posted on: Saturday, May 6, 2017 9:36:00 PM
+> Posted on: 06 May 2017 15:36:00

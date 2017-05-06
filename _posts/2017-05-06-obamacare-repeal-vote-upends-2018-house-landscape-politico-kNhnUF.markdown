@@ -12,4 +12,4 @@ Politico Obamacare repeal vote upends 2018 House landscape Politico This week's 
 
 Full story on F3News: [Obamacare repeal vote upends 2018 House landscape - Politico](http://www.f3nws.com/n/kNhnUF)
 
-> Posted on: Saturday, May 6, 2017 6:01:00 PM
+> Posted on: 06 May 2017 12:01:00

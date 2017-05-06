@@ -12,4 +12,4 @@ Nigerian government source tells Al Jazeera that 62 pupils seized by Boko Haram 
 
 Full story on F3News: [62 Chibok schoolgirls kidnapped by Boko Haram freed](http://www.f3nws.com/n/QsKTEB)
 
-> Posted on: Sunday, May 7, 2017 2:56:25 AM
+> Posted on: 06 May 2017 20:56:25

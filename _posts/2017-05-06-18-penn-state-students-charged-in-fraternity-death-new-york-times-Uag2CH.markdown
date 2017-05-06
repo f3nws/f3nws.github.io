@@ -12,4 +12,4 @@ New York Times 18 Penn State Students Charged in Fraternity Death New York Times
 
 Full story on F3News: [18 Penn State Students Charged in Fraternity Death - New York Times](http://www.f3nws.com/n/Uag2CH)
 
-> Posted on: Saturday, May 6, 2017 7:46:26 AM
+> Posted on: 06 May 2017 01:46:26

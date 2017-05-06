@@ -12,4 +12,4 @@ The Navy SEAL killed in action in Somalia this week was a distinguished 15-year 
 
 Full story on F3News: [US Navy SEAL killed in Somalia identified as 15-year veteran](http://www.f3nws.com/n/qxnBpD)
 
-> Posted on: Saturday, May 6, 2017 9:35:00 PM
+> Posted on: 06 May 2017 15:35:00

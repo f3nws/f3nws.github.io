@@ -12,4 +12,4 @@ New York Times Measure on Pre-Existing Conditions Energizes Opposition to Health
 
 Full story on F3News: [Measure on Pre-Existing Conditions Energizes Opposition to Health Bill - New York Times](http://www.f3nws.com/n/D2PHDC)
 
-> Posted on: Saturday, May 6, 2017 6:28:11 AM
+> Posted on: 06 May 2017 00:28:11

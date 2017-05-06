@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [This is what you’re drinking if you swallow sea water](http://www.f3nws.com/n/eHXhrE)
 
-> Posted on: Saturday, May 6, 2017 10:00:01 PM
+> Posted on: 06 May 2017 16:00:01

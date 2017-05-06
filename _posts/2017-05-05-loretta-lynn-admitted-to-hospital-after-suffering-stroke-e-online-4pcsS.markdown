@@ -12,4 +12,4 @@ E! Online Loretta Lynn Admitted to Hospital After Suffering Stroke E! Online A s
 
 Full story on F3News: [Loretta Lynn Admitted to Hospital After Suffering Stroke - E! Online](http://www.f3nws.com/n/4pcsS)
 
-> Posted on: Saturday, May 6, 2017 4:54:47 AM
+> Posted on: 05 May 2017 22:54:47

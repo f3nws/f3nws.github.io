@@ -12,4 +12,4 @@ E! Online Chrissy Teigen Clarifies Plastic Surgery Comments: "Reminder to Never 
 
 Full story on F3News: [Chrissy Teigen Clarifies Plastic Surgery Comments: "Reminder to Never Ever Joke, Ever" - E! Online](http://www.f3nws.com/n/pdgafB)
 
-> Posted on: Saturday, May 6, 2017 8:27:43 PM
+> Posted on: 06 May 2017 14:27:43

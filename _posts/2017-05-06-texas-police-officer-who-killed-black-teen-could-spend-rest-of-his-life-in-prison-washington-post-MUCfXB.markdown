@@ -7,9 +7,9 @@ categories: google-news-top-stories
 
 ![Texas police officer who killed black teen could spend rest of his life in prison - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/news/post-nation/wp-content/uploads/sites/23/2017/05/RoyOliverFeatured.jpg&w=1484&op=resize&opt=1&filter=antialias)
 
-Washington Post Texas police officer who killed black teen could spend rest of his life in prison Washington Post A Texas police officer turned himself in on Friday after he was charged with murder in the shooting death of a 15-year-old. Roy Durwood Oliver, a patrol officer in the Dallas suburb of Balch Springs since July 2011, was released on $300,000 bail. Experts: Convicting ex-officer in teen's death will be tough ABC News Balch Springs Chief: Car Driving Away When Officer Fatally Shot Teen NBC 5 Dallas-Fort Worth Balch Springs police fire Officer Roy Oliver, who fatally shot Jordan Edwards with rifle Dallas News Dallas News all 461 news articles »
+Washington Post Texas police officer who killed black teen could spend rest of his life in prison Washington Post A Texas police officer turned himself in on Friday after he was charged with murder in the shooting death of a 15-year-old. Roy Durwood Oliver, a patrol officer in the Dallas suburb of Balch Springs since July 2011, was released on $300,000 bail. Balch Springs Chief: Car Driving Away When Officer Fatally Shot Teen NBC 5 Dallas-Fort Worth Balch Springs police fire Officer Roy Oliver, who fatally shot Jordan Edwards with rifle Dallas News Fired Balch Springs officer who killed Jordan Edwards arrested on murder charge Dallas News all 464 news articles »
 
 
 Full story on F3News: [Texas police officer who killed black teen could spend rest of his life in prison - Washington Post](http://www.f3nws.com/n/MUCfXB)
 
-> Posted on: Saturday, May 6, 2017 9:47:00 PM
+> Posted on: 06 May 2017 15:47:00

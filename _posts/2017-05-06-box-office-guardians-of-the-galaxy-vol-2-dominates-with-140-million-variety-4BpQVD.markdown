@@ -12,4 +12,4 @@ Variety Box Office: 'Guardians of the Galaxy Vol. 2' Dominates With $140 Million
 
 Full story on F3News: [Box Office: 'Guardians of the Galaxy Vol. 2' Dominates With $140 Million - Variety](http://www.f3nws.com/n/4BpQVD)
 
-> Posted on: Saturday, May 6, 2017 8:08:08 PM
+> Posted on: 06 May 2017 14:08:08

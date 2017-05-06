@@ -12,4 +12,4 @@ Animals hanging out in airports are usually kept in carriers, sometimes held clo
 
 Full story on F3News: [A delightful little raccoon is hanging out in the ceiling of the Toronto airport](http://www.f3nws.com/n/YznUWD)
 
-> Posted on: Sunday, May 7, 2017 2:40:10 AM
+> Posted on: 06 May 2017 20:40:10

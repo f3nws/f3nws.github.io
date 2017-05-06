@@ -12,4 +12,4 @@ Joy Reid and her panel discuss the numerous red flags regarding Mike Flynn that 
 
 Full story on F3News: [Nance: Was Flynn recruited by foreign powers?](http://www.f3nws.com/n/2dKAtF)
 
-> Posted on: Saturday, May 6, 2017 7:35:08 PM
+> Posted on: 06 May 2017 13:35:08

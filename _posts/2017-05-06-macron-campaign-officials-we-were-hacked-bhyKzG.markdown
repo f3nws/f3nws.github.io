@@ -12,4 +12,4 @@ Leading French presidential candidate Emmanuel Macron has been the victim of a "
 
 Full story on F3News: [Macron campaign officials: We were hacked](http://www.f3nws.com/n/bhyKzG)
 
-> Posted on: Saturday, May 6, 2017 11:25:19 PM
+> Posted on: 06 May 2017 17:25:19
