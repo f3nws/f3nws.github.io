@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Crayola Gives The People What They Want: A New Blue Crayon - NPR](https://media.npr.org/assets/img/2017/05/05/yinmnbluecrayon-lablifestyle_digital_01_wide-150368297b430e761215845d0061385cdb1dd5ed.jpg?s=1400)
 
-NPR Crayola Gives The People What They Want: A New Blue Crayon NPR If you were feeling blue after Crayola's March announcement that the company would be retiring the bright yellow hue, Dandelion, you'll soon have a new blue crayon to color in your tears with. The company announced in March that a member of the blue ... Crayola needs help naming its new color Atlanta Journal Constitution The newest Crayola crayon color comes straight from the lab Washington Post New Color | Crayola | crayola.com Crayola all 46 news articles »
+NPR Crayola Gives The People What They Want: A New Blue Crayon NPR If you were feeling blue after Crayola's March announcement that the company would be retiring the bright yellow hue, Dandelion, you'll soon have a new blue crayon to color in your tears with. The company announced in March that a member of the blue ... Crayola needs help naming its new color Atlanta Journal Constitution New Color | Crayola | crayola.com Crayola all 48 news articles »
 
 
 Full story on F3News: [Crayola Gives The People What They Want: A New Blue Crayon - NPR](http://www.f3nws.com/n/cWmrPD)

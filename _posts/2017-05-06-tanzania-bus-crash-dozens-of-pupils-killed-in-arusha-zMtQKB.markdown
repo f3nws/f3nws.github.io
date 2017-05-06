@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tanzania bus crash: Dozens of pupils killed in Arusha"
-date: 2017-05-06 14:30:11Z
+date: 2017-05-06 14:40:02Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Bus veers off road and plunges into Arusha region river, resulting to the death 
 
 Full story on F3News: [Tanzania bus crash: Dozens of pupils killed in Arusha](http://www.f3nws.com/n/zMtQKB)
 
-> Posted on: Saturday, May 6, 2017 7:30:11 PM
+> Posted on: Saturday, May 6, 2017 7:40:02 PM
