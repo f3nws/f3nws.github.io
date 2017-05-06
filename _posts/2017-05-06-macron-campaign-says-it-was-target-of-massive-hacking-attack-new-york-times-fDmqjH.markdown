@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Macron Campaign Says It Was Target of 'Massive' Hacking Attack - New York Times](https://static01.nyt.com/images/2017/05/06/world/06FRANCE-a1/06FRANCE-a1-facebookJumbo.jpg)
 
-New York Times Macron Campaign Says It Was Target of 'Massive' Hacking Attack New York Times The French presidential candidate Emmanuel Macron in Rodez, France, on Friday. His campaign staff said it was the target of a hacking operation. Credit Regis Duvignau/Reuters. PARIS — On the eve of the most consequential French presidential election ... Emmanuel Macron's presidential campaign hacked, officials say CNN French campaign watchdog examines election-eve Macron leak Washington Post French candidate Macron claims massive hack as emails leaked Reuters BBC News - The Hill - NBCNews.com - Newsweek all 2,648 news articles »
+New York Times Macron Campaign Says It Was Target of 'Massive' Hacking Attack New York Times The French presidential candidate Emmanuel Macron in Rodez, France, on Friday. His campaign staff said it was the target of a hacking operation. Credit Regis Duvignau/Reuters. PARIS — On the eve of the most consequential French presidential election ... Emmanuel Macron's presidential campaign hacked, officials say CNN French campaign watchdog examines election-eve Macron leak Washington Post French candidate Macron claims massive hack as emails leaked Reuters BBC News - The Hill - Fox News - NBCNews.com all 2,632 news articles »
 
 
 Full story on F3News: [Macron Campaign Says It Was Target of 'Massive' Hacking Attack - New York Times](http://www.f3nws.com/n/fDmqjH)
