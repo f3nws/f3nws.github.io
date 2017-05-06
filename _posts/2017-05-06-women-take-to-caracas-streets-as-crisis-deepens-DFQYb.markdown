@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Women take to Caracas streets as crisis deepens"
-date: 2017-05-06 16:39:12Z
+date: 2017-05-06 22:02:22Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Opposition and government hold two rival women's marches amidst controversy over
 
 Full story on F3News: [Women take to Caracas streets as crisis deepens](http://www.f3nws.com/n/DFQYb)
 
-> Posted on: Saturday, May 6, 2017 9:39:12 PM
+> Posted on: Sunday, May 7, 2017 3:02:22 AM

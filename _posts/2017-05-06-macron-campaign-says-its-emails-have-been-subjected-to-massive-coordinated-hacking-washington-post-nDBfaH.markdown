@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Macron campaign says its emails have been subjected to 'massive, coordinated' hacking - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/06/Foreign/Images/05946111-4686.jpg)
 
-Washington Post Macron campaign says its emails have been subjected to 'massive, coordinated' hacking Washington Post PARIS — It was only the latest plot twist in a long, bitter campaign defined by rancor and uncertainty. The day before France's most momentous presidential election in recent history, authorities were still investigating the “massive and coordinated ... As French Elections Nears, So Does a Step Into the Unknown New York Times France discourages spread of hacked Macron data before election New York Daily News French media warned to avoid publishing Macron leaks The Hill BBC News - NPR - U.S. News & World Report - The Atlantic all 3,153 news articles »
+Washington Post Macron campaign says its emails have been subjected to 'massive, coordinated' hacking Washington Post PARIS — It was only the latest plot twist in a long, bitter campaign defined by rancor and uncertainty. The day before France's most momentous presidential election in recent history, authorities were still investigating the “massive and coordinated ... As French Elections Nears, So Does a Step Into the Unknown New York Times How Abstaining Far-Left French Voters Could Hand Le Pen Victory NBCNews.com French election: Hollande vows 'response' to Macron hack attack BBC News New York Daily News - Syracuse.com - The Hill - NPR all 3,170 news articles »
 
 
 Full story on F3News: [Macron campaign says its emails have been subjected to 'massive, coordinated' hacking - Washington Post](http://www.f3nws.com/n/nDBfaH)
