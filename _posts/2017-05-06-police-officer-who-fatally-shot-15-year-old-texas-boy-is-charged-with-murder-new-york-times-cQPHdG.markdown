@@ -12,4 +12,4 @@ New York Times Police Officer Who Fatally Shot 15-Year-Old Texas Boy Is Charged 
 
 Full story on F3News: [Police Officer Who Fatally Shot 15-Year-Old Texas Boy Is Charged With Murder - New York Times](http://www.f3nws.com/n/cQPHdG)
 
-> Posted on: Saturday, May 6, 2017 6:55:18 AM
+> Posted on: Saturday, May 6, 2017 12:55:18 AM

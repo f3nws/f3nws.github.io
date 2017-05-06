@@ -12,4 +12,4 @@ Richard Engel, NBC News chief foreign correspondent, talks with Rachel Maddow ab
 
 Full story on F3News: [Cyber attack hits favored French candidate](http://www.f3nws.com/n/PcRVh)
 
-> Posted on: Saturday, May 6, 2017 6:00:02 AM
+> Posted on: Saturday, May 6, 2017 12:00:02 AM

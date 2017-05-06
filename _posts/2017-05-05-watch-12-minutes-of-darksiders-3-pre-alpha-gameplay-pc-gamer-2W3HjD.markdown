@@ -12,4 +12,4 @@ PC Gamer Watch 12 minutes of Darksiders 3 'pre-alpha' gameplay PC Gamer Darkside
 
 Full story on F3News: [Watch 12 minutes of Darksiders 3 'pre-alpha' gameplay - PC Gamer](http://www.f3nws.com/n/2W3HjD)
 
-> Posted on: Saturday, May 6, 2017 2:23:23 AM
+> Posted on: Friday, May 5, 2017 8:23:23 PM

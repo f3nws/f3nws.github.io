@@ -12,4 +12,4 @@ In the south of France, heartland of far-right presidential candidate Marine Le 
 
 Full story on F3News: [Defiant French community opens its doors to refugees](http://www.f3nws.com/n/SAKsvG)
 
-> Posted on: Friday, May 5, 2017 8:56:46 PM
+> Posted on: Friday, May 5, 2017 2:56:46 PM

@@ -12,4 +12,4 @@ Now with the Samsung Chromebook Pro, these are the best Chromebooks that we've r
 
 Full story on F3News: [The 7 best Chromebooks of 2017: the top Chromebooks ranked](http://www.f3nws.com/n/am4rnH)
 
-> Posted on: Friday, May 5, 2017 7:00:00 PM
+> Posted on: Friday, May 5, 2017 1:00:00 PM

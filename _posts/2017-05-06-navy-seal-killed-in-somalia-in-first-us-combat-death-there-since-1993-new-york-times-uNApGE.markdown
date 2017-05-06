@@ -12,4 +12,4 @@ New York Times Navy SEAL Killed in Somalia in First US Combat Death There Since 
 
 Full story on F3News: [Navy SEAL Killed in Somalia in First US Combat Death There Since 1993 - New York Times](http://www.f3nws.com/n/uNApGE)
 
-> Posted on: Saturday, May 6, 2017 5:04:24 AM
+> Posted on: Friday, May 5, 2017 11:04:24 PM

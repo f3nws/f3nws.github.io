@@ -12,4 +12,4 @@ Trump's first pick for Army Secretary was forced to withdraw. Trump's second pic
 
 Full story on F3News: [In another embarrassment, Trump's Army...](http://www.f3nws.com/n/KvTceD)
 
-> Posted on: Saturday, May 6, 2017 1:36:36 AM
+> Posted on: Friday, May 5, 2017 7:36:36 PM

@@ -12,4 +12,4 @@ The Obama administration’s White House counsel was directly involved in delibe
 
 Full story on F3News: [Obama White House counsel part of early talks on Clinton email release, notes show](http://www.f3nws.com/n/vxJrrC)
 
-> Posted on: Saturday, May 6, 2017 3:03:00 AM
+> Posted on: Friday, May 5, 2017 9:03:00 PM

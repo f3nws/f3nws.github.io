@@ -12,4 +12,4 @@ E! Online Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy
 
 Full story on F3News: [Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy With Twins - E! Online](http://www.f3nws.com/n/jfDxdE)
 
-> Posted on: Friday, May 5, 2017 11:30:04 PM
+> Posted on: Friday, May 5, 2017 5:30:04 PM

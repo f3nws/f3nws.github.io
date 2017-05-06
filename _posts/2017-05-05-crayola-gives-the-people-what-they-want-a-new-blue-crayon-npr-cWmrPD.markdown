@@ -12,4 +12,4 @@ NPR Crayola Gives The People What They Want: A New Blue Crayon NPR If you were f
 
 Full story on F3News: [Crayola Gives The People What They Want: A New Blue Crayon - NPR](http://www.f3nws.com/n/cWmrPD)
 
-> Posted on: Friday, May 5, 2017 9:23:00 PM
+> Posted on: Friday, May 5, 2017 3:23:00 PM

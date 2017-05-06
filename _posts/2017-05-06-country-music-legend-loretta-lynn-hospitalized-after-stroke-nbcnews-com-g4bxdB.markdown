@@ -12,4 +12,4 @@ NBCNews.com Country Music Legend Loretta Lynn Hospitalized After Stroke NBCNews.
 
 Full story on F3News: [Country Music Legend Loretta Lynn Hospitalized After Stroke - NBCNews.com](http://www.f3nws.com/n/g4bxdB)
 
-> Posted on: Saturday, May 6, 2017 5:29:44 AM
+> Posted on: Friday, May 5, 2017 11:29:44 PM

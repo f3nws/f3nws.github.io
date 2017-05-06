@@ -12,4 +12,4 @@ New York Times Macron Campaign Says It Was Target of 'Massive' Hacking Attack Ne
 
 Full story on F3News: [Macron Campaign Says It Was Target of 'Massive' Hacking Attack - New York Times](http://www.f3nws.com/n/fDmqjH)
 
-> Posted on: Saturday, May 6, 2017 9:08:33 AM
+> Posted on: Saturday, May 6, 2017 3:08:33 AM

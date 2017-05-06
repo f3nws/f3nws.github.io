@@ -12,4 +12,4 @@ Washington Post Texas officer who killed black teenager leaving party is charged
 
 Full story on F3News: [Texas officer who killed black teenager leaving party is charged with murder - Washington Post](http://www.f3nws.com/n/exedx)
 
-> Posted on: Saturday, May 6, 2017 5:30:13 AM
+> Posted on: Friday, May 5, 2017 11:30:13 PM

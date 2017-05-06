@@ -12,4 +12,4 @@ NJ.com Penn State fraternity, 18 members charged in death of N.J. pledge NJ.com 
 
 Full story on F3News: [Penn State fraternity, 18 members charged in death of N.J. pledge - NJ.com](http://www.f3nws.com/n/KarcmH)
 
-> Posted on: Friday, May 5, 2017 8:02:23 PM
+> Posted on: Friday, May 5, 2017 2:02:23 PM

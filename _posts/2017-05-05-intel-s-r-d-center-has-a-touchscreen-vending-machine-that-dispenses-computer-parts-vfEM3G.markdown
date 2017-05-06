@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Intel’s R&D center has a touchscreen vending machine that dispenses computer parts](http://www.f3nws.com/n/vfEM3G)
 
-> Posted on: Friday, May 5, 2017 10:17:51 PM
+> Posted on: Friday, May 5, 2017 4:17:51 PM

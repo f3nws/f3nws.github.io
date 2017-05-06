@@ -12,4 +12,4 @@ As Malcolm Turnbull flies back to Australia following a meeting with Donald Trum
 
 Full story on F3News: [Trump doesn't think US should copy Australia's health system, White House says](http://www.f3nws.com/n/ZhWEJF)
 
-> Posted on: Saturday, May 6, 2017 3:04:06 AM
+> Posted on: Friday, May 5, 2017 9:04:06 PM

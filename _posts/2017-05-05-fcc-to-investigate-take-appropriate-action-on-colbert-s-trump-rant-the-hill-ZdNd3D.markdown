@@ -12,4 +12,4 @@ The Hill FCC to investigate, 'take appropriate action' on Colbert's Trump rant T
 
 Full story on F3News: [FCC to investigate, 'take appropriate action' on Colbert's Trump rant - The Hill](http://www.f3nws.com/n/ZdNd3D)
 
-> Posted on: Saturday, May 6, 2017 1:04:40 AM
+> Posted on: Friday, May 5, 2017 7:04:40 PM

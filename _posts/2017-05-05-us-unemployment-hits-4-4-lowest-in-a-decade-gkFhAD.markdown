@@ -12,4 +12,4 @@ America's job market rebounded in April.
 
 Full story on F3News: [US unemployment hits 4.4%, lowest in a decade](http://www.f3nws.com/n/gkFhAD)
 
-> Posted on: Friday, May 5, 2017 8:38:05 PM
+> Posted on: Friday, May 5, 2017 2:38:05 PM

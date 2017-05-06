@@ -12,4 +12,4 @@ A man faces court for allegedly selling cocaine to two players from the Kiwis, c
 
 Full story on F3News: [Man allegedly sold cocaine to Kiwis players in Canberra after Anzac Test](http://www.f3nws.com/n/ZReQTF)
 
-> Posted on: Saturday, May 6, 2017 7:01:15 AM
+> Posted on: Saturday, May 6, 2017 1:01:15 AM

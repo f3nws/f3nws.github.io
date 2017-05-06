@@ -12,4 +12,4 @@ New York Times Fact Check: Rumors, Claims and Context on GOP Health Bill New Yor
 
 Full story on F3News: [Fact Check: Rumors, Claims and Context on GOP Health Bill - New York Times](http://www.f3nws.com/n/p2TuU)
 
-> Posted on: Saturday, May 6, 2017 5:27:00 AM
+> Posted on: Friday, May 5, 2017 11:27:00 PM

@@ -12,4 +12,4 @@ Thunderstorms and wind had delayed the Hindenburg's arrival in New Jersey from G
 
 Full story on F3News: [Last Hindenburg survivor, 88, recalls: 'The air was on fire'](http://www.f3nws.com/n/UX2fkH)
 
-> Posted on: Saturday, May 6, 2017 2:51:00 AM
+> Posted on: Friday, May 5, 2017 8:51:00 PM
