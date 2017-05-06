@@ -12,4 +12,4 @@ The Hill Trump Army secretary nominee withdraws amid fierce opposition The Hill 
 
 Full story on F3News: [Trump Army secretary nominee withdraws amid fierce opposition - The Hill](http://www.f3nws.com/n/KTayvC)
 
-> Posted on: 05 May 2017 19:25:20
+> Posted on: Saturday, May 6, 2017 1:25:20 AM

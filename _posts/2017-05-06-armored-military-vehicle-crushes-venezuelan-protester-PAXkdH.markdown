@@ -12,4 +12,4 @@ An armored military truck rolled over 22-year-old Pedro Michell Yaminne during p
 
 Full story on F3News: [Armored military vehicle crushes Venezuelan protester](http://www.f3nws.com/n/PAXkdH)
 
-> Posted on: 06 May 2017 03:34:46
+> Posted on: Saturday, May 6, 2017 9:34:46 AM

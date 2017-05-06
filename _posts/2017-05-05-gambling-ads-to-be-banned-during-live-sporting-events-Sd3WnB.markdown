@@ -12,4 +12,4 @@ Prime Minister Malcolm Turnbull confirms the Government will ban gambling advert
 
 Full story on F3News: [Gambling ads to be banned during live sporting events](http://www.f3nws.com/n/Sd3WnB)
 
-> Posted on: 05 May 2017 20:30:34
+> Posted on: Saturday, May 6, 2017 2:30:34 AM

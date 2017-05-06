@@ -12,4 +12,4 @@ The Age Man charged over stabbing of three people in Doveton The Age A man has b
 
 Full story on F3News: [Man charged over stabbing of three people in Doveton - The Age](http://www.f3nws.com/n/tsxRdC)
 
-> Posted on: 06 May 2017 09:19:53
+> Posted on: Saturday, May 6, 2017 3:19:53 PM

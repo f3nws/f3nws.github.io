@@ -12,4 +12,4 @@ The Verge The OnePlus 5 will arrive this summer The Verge OnePlus has exclusivel
 
 Full story on F3News: [The OnePlus 5 will arrive this summer - The Verge](http://www.f3nws.com/n/GaHhbD)
 
-> Posted on: 05 May 2017 12:00:05
+> Posted on: Friday, May 5, 2017 6:00:05 PM

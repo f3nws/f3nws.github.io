@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Watch this dancing Pikachu get dragged mercilessly offstage for deflating mid-performance](http://www.f3nws.com/n/sfXRNG)
 
-> Posted on: 05 May 2017 12:54:15
+> Posted on: Friday, May 5, 2017 6:54:15 PM

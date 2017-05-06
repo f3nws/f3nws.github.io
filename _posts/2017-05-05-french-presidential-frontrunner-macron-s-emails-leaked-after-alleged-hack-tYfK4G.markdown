@@ -12,4 +12,4 @@ Private emails from the campaign of the leading candidate in France’s presiden
 
 Full story on F3News: [French presidential frontrunner Macron’s emails leaked after alleged hack](http://www.f3nws.com/n/tYfK4G)
 
-> Posted on: 05 May 2017 22:31:49
+> Posted on: Saturday, May 6, 2017 4:31:49 AM

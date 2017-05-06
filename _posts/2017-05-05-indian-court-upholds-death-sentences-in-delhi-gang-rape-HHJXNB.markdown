@@ -12,4 +12,4 @@ Four men convicted of a gang rape that shocked India and attracted worldwide att
 
 Full story on F3News: [Indian court upholds death sentences in Delhi gang rape](http://www.f3nws.com/n/HHJXNB)
 
-> Posted on: 05 May 2017 17:41:14
+> Posted on: Friday, May 5, 2017 11:41:14 PM

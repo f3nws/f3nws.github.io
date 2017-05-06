@@ -12,4 +12,4 @@ Never pay for Word again. These free alternatives offer full support for Microso
 
 Full story on F3News: [The best free alternative to Microsoft Word 2017](http://www.f3nws.com/n/meJbaH)
 
-> Posted on: 05 May 2017 13:00:56
+> Posted on: Friday, May 5, 2017 7:00:56 PM

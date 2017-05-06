@@ -12,4 +12,4 @@ Senator Bernie Sanders could hardly contain his laughter after Donald Trump admi
 
 Full story on F3News: [Bernie Sanders laughs as Donald Trump admits universal healthcare is better](http://www.f3nws.com/n/EdGNS)
 
-> Posted on: 05 May 2017 12:06:00
+> Posted on: Friday, May 5, 2017 6:06:00 PM

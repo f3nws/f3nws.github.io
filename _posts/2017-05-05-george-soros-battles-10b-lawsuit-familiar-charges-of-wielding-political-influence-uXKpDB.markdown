@@ -10,4 +10,4 @@ A $10 billion suit against George Soros accuses the self-styled humanitarian of 
 
 Full story on F3News: [George Soros battles $10B lawsuit, familiar charges of wielding political influence](http://www.f3nws.com/n/uXKpDB)
 
-> Posted on: 05 May 2017 17:37:00
+> Posted on: Friday, May 5, 2017 11:37:00 PM

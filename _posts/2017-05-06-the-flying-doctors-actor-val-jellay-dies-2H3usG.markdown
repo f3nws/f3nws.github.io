@@ -12,4 +12,4 @@ Australian actor and vaudevillian Val Jellay, best known for her role in The Fly
 
 Full story on F3News: [The Flying Doctors actor Val Jellay dies](http://www.f3nws.com/n/2H3usG)
 
-> Posted on: 06 May 2017 06:27:18
+> Posted on: Saturday, May 6, 2017 12:27:18 PM

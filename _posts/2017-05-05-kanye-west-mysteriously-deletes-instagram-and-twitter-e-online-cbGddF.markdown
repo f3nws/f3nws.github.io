@@ -12,4 +12,4 @@ E! Online Kanye West Mysteriously Deletes Instagram and Twitter E! Online The 39
 
 Full story on F3News: [Kanye West Mysteriously Deletes Instagram and Twitter - E! Online](http://www.f3nws.com/n/cbGddF)
 
-> Posted on: 05 May 2017 18:00:51
+> Posted on: Saturday, May 6, 2017 12:00:51 AM

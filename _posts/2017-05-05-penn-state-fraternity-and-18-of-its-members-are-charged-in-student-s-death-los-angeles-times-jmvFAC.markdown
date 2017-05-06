@@ -12,4 +12,4 @@ Los Angeles Times Penn State fraternity and 18 of its members are charged in stu
 
 Full story on F3News: [Penn State fraternity and 18 of its members are charged in student's death - Los Angeles Times](http://www.f3nws.com/n/jmvFAC)
 
-> Posted on: 05 May 2017 16:00:13
+> Posted on: Friday, May 5, 2017 10:00:13 PM

@@ -12,4 +12,4 @@ Washington Post Mark Green withdraws as Trump's Army secretary nominee, citing '
 
 Full story on F3News: [Mark Green withdraws as Trump's Army secretary nominee, citing 'false and misleading attacks' - Washington Post](http://www.f3nws.com/n/4TA4UJ)
 
-> Posted on: 05 May 2017 23:29:26
+> Posted on: Saturday, May 6, 2017 5:29:26 AM

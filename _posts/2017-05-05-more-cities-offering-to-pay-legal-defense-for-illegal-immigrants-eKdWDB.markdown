@@ -10,4 +10,4 @@ Sacramento became the latest city this week to go above and beyond â€˜sanctuaryâ
 
 Full story on F3News: [More cities offering to pay legal defense for illegal immigrants](http://www.f3nws.com/n/eKdWDB)
 
-> Posted on: 05 May 2017 16:14:00
+> Posted on: Friday, May 5, 2017 10:14:00 PM

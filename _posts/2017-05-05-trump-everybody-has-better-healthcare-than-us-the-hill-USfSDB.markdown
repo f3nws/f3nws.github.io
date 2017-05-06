@@ -12,4 +12,4 @@ The Hill Trump: 'Everybody' has better healthcare than US The Hill “Of course 
 
 Full story on F3News: [Trump: 'Everybody' has better healthcare than US - The Hill](http://www.f3nws.com/n/USfSDB)
 
-> Posted on: 05 May 2017 18:37:43
+> Posted on: Saturday, May 6, 2017 12:37:43 AM

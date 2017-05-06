@@ -12,4 +12,4 @@ ws.com/2014/12/hackers-can-read-your-private-sms-and.html" target="_blank">explo
 
 Full story on F3News: [Real-World SS7 Attack — Hackers Are Stealing Money From Bank Accounts](http://www.f3nws.com/n/RgESGE)
 
-> Posted on: 05 May 2017 14:53:47
+> Posted on: Friday, May 5, 2017 8:53:47 PM

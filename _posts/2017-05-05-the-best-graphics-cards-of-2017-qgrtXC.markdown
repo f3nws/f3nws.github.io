@@ -12,4 +12,4 @@ All the best graphics cards in one place – always up to date.
 
 Full story on F3News: [The best graphics cards of 2017](http://www.f3nws.com/n/qgrtXC)
 
-> Posted on: 05 May 2017 19:50:00
+> Posted on: Saturday, May 6, 2017 1:50:00 AM

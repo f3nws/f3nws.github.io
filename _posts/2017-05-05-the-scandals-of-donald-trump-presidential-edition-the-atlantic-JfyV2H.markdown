@@ -12,4 +12,4 @@ The Atlantic The Scandals of Donald Trump: Presidential Edition The Atlantic Sub
 
 Full story on F3News: [The Scandals of Donald Trump: Presidential Edition - The Atlantic](http://www.f3nws.com/n/JfyV2H)
 
-> Posted on: 05 May 2017 17:31:00
+> Posted on: Friday, May 5, 2017 11:31:00 PM
