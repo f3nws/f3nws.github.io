@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Rape charges to be dropped against immigrant teens in Md. case - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/05/Local/Images/ROCKVILLE001.JPG)
 
-Washington Post Rape charges to be dropped against immigrant teens in Md. case Washington Post Maryland prosecutors said they will drop rape and sex offense charges against two immigrant teens accused of attacking a 14-year-old classmate in a high school bathroom stall in a case that shocked local parents, attracted international and White House ... and more »
+Washington Post Rape charges to be dropped against immigrant teens in Md. case Washington Post Maryland prosecutors said they will drop rape and sex offense charges against two immigrant teens accused of attacking a 14-year-old classmate in a high school bathroom stall in a case that attracted international and White House attention and stoked ... and more »
 
 
 Full story on F3News: [Rape charges to be dropped against immigrant teens in Md. case - Washington Post](http://www.f3nws.com/n/vcdHBC)
