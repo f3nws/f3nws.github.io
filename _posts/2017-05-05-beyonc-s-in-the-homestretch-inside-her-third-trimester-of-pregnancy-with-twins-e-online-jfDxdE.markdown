@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy With Twins - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017330/rs_600x600-170430100420-600-beyonce-042917.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy With Twins E! Online The 35-year-old star is in the third trimester of her pregnancy—the homestretch!. Beyoncé announced on Feb. 1 via a lingerie pic that showed off a large baby bump that she and husband Jay Zare expecting twins. They will join big sister Blue Ivy, 5. Beyonce Rep Slams MediaTakeOut For False Lip Injections Claim (EXCLUSIVE) Gossip Cop SOMETHING WEIRD Is Going On With Beyonce's Face . . . Looks Like She Got KYLIE JENNER LIP INJECTIONS MTONews.com all 84 news articles »
+E! Online Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy With Twins E! Online The 35-year-old star is in the third trimester of her pregnancy—the homestretch!. Beyoncé announced on Feb. 1 via a lingerie pic that showed off a large baby bump that she and husband Jay Zare expecting twins. They will join big sister Blue Ivy, 5. Beyonce Rep Slams MediaTakeOut For False Lip Injections Claim (EXCLUSIVE) Gossip Cop SOMETHING WEIRD Is Going On With Beyonce's Face . . . Looks Like She Got KYLIE JENNER LIP INJECTIONS MTONews.com all 83 news articles »
 
 
 Full story on F3News: [Beyoncé's In the Homestretch! Inside Her Third Trimester of Pregnancy With Twins - E! Online](http://www.f3nws.com/n/jfDxdE)
