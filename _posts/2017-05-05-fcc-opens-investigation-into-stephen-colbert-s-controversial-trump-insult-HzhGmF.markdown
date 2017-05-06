@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [FCC opens investigation into Stephen Colbert’s controversial Trump insult](http://www.f3nws.com/n/HzhGmF)
 
-> Posted on: Friday, May 5, 2017 9:31:27 PM
+> Posted on: Saturday, May 6, 2017 3:31:27 AM

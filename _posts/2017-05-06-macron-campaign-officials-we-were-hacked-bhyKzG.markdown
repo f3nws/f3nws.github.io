@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron campaign officials: We were hacked"
-date: 2017-05-06 11:50:20Z
+date: 2017-05-06 14:21:17Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Leading French presidential candidate Emmanuel Macron has been the victim of a "
 
 Full story on F3News: [Macron campaign officials: We were hacked](http://www.f3nws.com/n/bhyKzG)
 
-> Posted on: Saturday, May 6, 2017 4:50:20 PM
+> Posted on: Saturday, May 6, 2017 7:21:17 PM

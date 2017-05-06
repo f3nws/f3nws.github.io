@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Ismail Haniya elected new political chief of Hamas"
-date: 2017-05-06 13:09:02Z
+date: 2017-05-06 13:43:35Z
 categories: al-jazeera-english
 ---
 
 ![Ismail Haniya elected new political chief of Hamas](http://www.aljazeera.com/mritems/Images/2017/5/6/f53495f6790c4c84ab38f34e33941ad1_18.jpg)
 
-Khalid Meshaal, who preceded Haniya as leader of the political bureau, confirms transition to Al Jazeera.
+Khaled Meshaal, who preceded Haniya as leader of the political bureau, confirms transition to Al Jazeera.
 
 
 Full story on F3News: [Ismail Haniya elected new political chief of Hamas](http://www.f3nws.com/n/3PY3XE)
 
-> Posted on: Saturday, May 6, 2017 6:09:02 PM
+> Posted on: Saturday, May 6, 2017 6:43:35 PM
