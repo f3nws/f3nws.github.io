@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "62 Chibok schoolgirls kidnapped by Boko Haram freed"
-date: 2017-05-06 21:29:56Z
+date: 2017-05-06 21:56:25Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Nigerian government source tells Al Jazeera that 62 pupils seized by Boko Haram 
 
 Full story on F3News: [62 Chibok schoolgirls kidnapped by Boko Haram freed](http://www.f3nws.com/n/QsKTEB)
 
-> Posted on: Sunday, May 7, 2017 2:29:56 AM
+> Posted on: Sunday, May 7, 2017 2:56:25 AM
