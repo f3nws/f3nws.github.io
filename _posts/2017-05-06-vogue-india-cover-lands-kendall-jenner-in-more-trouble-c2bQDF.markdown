@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vogue India cover lands Kendall Jenner in more trouble"
-date: 2017-05-06 01:20:45Z
+date: 2017-05-06 01:43:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Barely a month after Kendall Jenner appeared in a Pepsi commercial that drew suc
 
 Full story on F3News: [Vogue India cover lands Kendall Jenner in more trouble](http://www.f3nws.com/n/c2bQDF)
 
-> Posted on: Saturday, May 6, 2017 6:20:45 AM
+> Posted on: Saturday, May 6, 2017 6:43:42 AM
