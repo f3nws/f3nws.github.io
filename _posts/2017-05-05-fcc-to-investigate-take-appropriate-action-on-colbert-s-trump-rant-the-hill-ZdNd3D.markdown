@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![FCC to investigate, 'take appropriate action' on Colbert's Trump rant - The Hill](http://thehill.com/sites/default/files/blogs/colbertstephen_0.png)
 
-The Hill FCC to investigate, 'take appropriate action' on Colbert's Trump rant The Hill Late night talk show host Stephen Colbert's controversial joke about President Trump drew the attention of the Federal Communications Commission. The agency received “a number” of complaints about Colbert's commentary earlier in the week, according to ... FCC to Investigate Stephen Colbert's Controversial Trump Joke: Chairman NBCNews.com Stephen Colbert investigated over 'homophobic' anti-Trump joke BBC News The FCC is investigating Stephen Colbert over controversial Trump joke Business Insider Washington Times - CNNMoney - USA TODAY - Slate Magazine (blog) all 159 news articles »
+The Hill FCC to investigate, 'take appropriate action' on Colbert's Trump rant The Hill Late night talk show host Stephen Colbert's controversial joke about President Trump drew the attention of the Federal Communications Commission. The agency received “a number” of complaints about Colbert's commentary earlier in the week, according to ... Stephen Colbert investigated over 'homophobic' anti-Trump joke BBC News FCC to Investigate Stephen Colbert's Controversial Trump Joke: Chairman NBCNews.com FCC Will Review Complaints About Colbert Joke, Chairman Says New York Times Business Insider - Washington Times - CNNMoney - USA TODAY all 158 news articles »
 
 
 Full story on F3News: [FCC to investigate, 'take appropriate action' on Colbert's Trump rant - The Hill](http://www.f3nws.com/n/ZdNd3D)
