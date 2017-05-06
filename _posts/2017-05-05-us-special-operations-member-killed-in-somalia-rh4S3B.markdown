@@ -12,4 +12,4 @@ A U.S. special operations member was killed Thursday fighting terror group Al Sh
 
 Full story on F3News: [US special operations member killed in Somalia](http://www.f3nws.com/n/rh4S3B)
 
-> Posted on: Friday, May 5, 2017 7:15:00 PM
+> Posted on: 05 May 2017 13:15:00

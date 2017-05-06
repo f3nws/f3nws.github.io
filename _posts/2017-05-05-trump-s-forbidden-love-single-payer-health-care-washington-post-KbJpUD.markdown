@@ -12,4 +12,4 @@ Washington Post Trump's forbidden love: Single-payer health care Washington Post
 
 Full story on F3News: [Trump's forbidden love: Single-payer health care - Washington Post](http://www.f3nws.com/n/KbJpUD)
 
-> Posted on: Friday, May 5, 2017 5:49:29 PM
+> Posted on: 05 May 2017 11:49:29

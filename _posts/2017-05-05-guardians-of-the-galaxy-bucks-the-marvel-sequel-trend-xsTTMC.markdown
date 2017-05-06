@@ -12,4 +12,4 @@ There was no better demonstration of Marvel's box-office magic than turning the 
 
 Full story on F3News: ['Guardians of the Galaxy' bucks the Marvel sequel trend](http://www.f3nws.com/n/xsTTMC)
 
-> Posted on: Friday, May 5, 2017 11:35:15 PM
+> Posted on: 05 May 2017 17:35:15

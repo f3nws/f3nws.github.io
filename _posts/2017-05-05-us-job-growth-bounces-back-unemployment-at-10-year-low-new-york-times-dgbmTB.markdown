@@ -12,4 +12,4 @@ New York Times US Job Growth Bounces Back; Unemployment at 10-Year Low New York 
 
 Full story on F3News: [US Job Growth Bounces Back; Unemployment at 10-Year Low - New York Times](http://www.f3nws.com/n/dgbmTB)
 
-> Posted on: Friday, May 5, 2017 8:57:06 PM
+> Posted on: 05 May 2017 14:57:06

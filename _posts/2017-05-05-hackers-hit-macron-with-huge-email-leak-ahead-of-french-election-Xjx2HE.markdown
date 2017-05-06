@@ -12,4 +12,4 @@ The campaign of French presidential candidate Emmanuel Macron confirms it's been
 
 Full story on F3News: [Hackers Hit Macron With Huge Email Leak Ahead of French Election](http://www.f3nws.com/n/Xjx2HE)
 
-> Posted on: Saturday, May 6, 2017 4:32:40 AM
+> Posted on: 05 May 2017 22:32:40

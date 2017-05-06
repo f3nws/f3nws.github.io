@@ -12,4 +12,4 @@ Washington Post France starts probing 'massive' hack of emails and documents rep
 
 Full story on F3News: [France starts probing 'massive' hack of emails and documents reported by Macron campaign - Washington Post](http://www.f3nws.com/n/u3P2FC)
 
-> Posted on: Saturday, May 6, 2017 1:37:30 PM
+> Posted on: 06 May 2017 07:37:30

@@ -12,4 +12,4 @@ Airship crash became the first multimedia air disaster of the 20th century, and 
 
 Full story on F3News: [Hindenburg anniversary marks 80-year broadcast history](http://www.f3nws.com/n/FyM2nF)
 
-> Posted on: Saturday, May 6, 2017 12:21:59 PM
+> Posted on: 06 May 2017 06:21:59

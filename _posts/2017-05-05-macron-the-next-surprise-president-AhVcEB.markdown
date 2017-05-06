@@ -12,4 +12,4 @@ He was once the subject of mockery in French political circles. Now it appears t
 
 Full story on F3News: [Macron: The next surprise president?](http://www.f3nws.com/n/AhVcEB)
 
-> Posted on: Friday, May 5, 2017 8:52:40 PM
+> Posted on: 05 May 2017 14:52:40

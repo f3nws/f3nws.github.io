@@ -12,4 +12,4 @@ A US military member was killed and two others were wounded in Somalia Friday wh
 
 Full story on F3News: [US military member killed in action in Somalia](http://www.f3nws.com/n/syubfB)
 
-> Posted on: Friday, May 5, 2017 10:01:54 PM
+> Posted on: 05 May 2017 16:01:54

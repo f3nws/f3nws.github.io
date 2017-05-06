@@ -12,4 +12,4 @@ Ellen tells Matt Lauer: Trump 'against everything I stand for' The Hill (blog) E
 
 Full story on F3News: [Ellen tells Matt Lauer: Trump 'against everything I stand for' - The Hill (blog)](http://www.f3nws.com/n/3fkfx)
 
-> Posted on: Friday, May 5, 2017 7:25:00 PM
+> Posted on: 05 May 2017 13:25:00

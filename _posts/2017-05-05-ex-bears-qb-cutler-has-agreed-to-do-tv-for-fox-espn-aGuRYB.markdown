@@ -12,4 +12,4 @@ ESPN Ex-Bears QB Cutler has agreed to do TV for Fox ESPN Former Chicago Bears qu
 
 Full story on F3News: [Ex-Bears QB Cutler has agreed to do TV for Fox - ESPN](http://www.f3nws.com/n/aGuRYB)
 
-> Posted on: Friday, May 5, 2017 6:35:07 PM
+> Posted on: 05 May 2017 12:35:07

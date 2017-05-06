@@ -12,4 +12,4 @@ Politico Trump busting presidential norms with weekend getaways Politico Forget 
 
 Full story on F3News: [Trump busting presidential norms with weekend getaways - Politico](http://www.f3nws.com/n/uJQBJ)
 
-> Posted on: Saturday, May 6, 2017 12:54:56 AM
+> Posted on: 05 May 2017 18:54:56

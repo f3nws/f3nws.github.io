@@ -12,4 +12,4 @@ New York Times Senate Asks Trump Associates for Records of Communication With Ru
 
 Full story on F3News: [Senate Asks Trump Associates for Records of Communication With Russians - New York Times](http://www.f3nws.com/n/fZQBq)
 
-> Posted on: Friday, May 5, 2017 8:54:49 PM
+> Posted on: 05 May 2017 14:54:49

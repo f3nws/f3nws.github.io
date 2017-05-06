@@ -12,4 +12,4 @@ Washington Post Rape charges to be dropped against immigrant teens in Md. case W
 
 Full story on F3News: [Rape charges to be dropped against immigrant teens in Md. case - Washington Post](http://www.f3nws.com/n/vcdHBC)
 
-> Posted on: Saturday, May 6, 2017 12:06:41 AM
+> Posted on: 05 May 2017 18:06:41

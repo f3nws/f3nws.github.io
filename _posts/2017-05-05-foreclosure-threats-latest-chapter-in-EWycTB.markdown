@@ -12,4 +12,4 @@ Rep. Dan Kildee (D-MI) discusses the outrage over thousands of Flint, Mich. resi
 
 Full story on F3News: [Foreclosure Threats Latest Chapter in...](http://www.f3nws.com/n/EWycTB)
 
-> Posted on: Saturday, May 6, 2017 3:28:52 AM
+> Posted on: 05 May 2017 21:28:52

@@ -12,4 +12,4 @@ Human rights advocates cautiously welcome royal decree by Saudi Arabia loosening
 
 Full story on F3News: [Cautious welcome to Saudi decree over guardian system](http://www.f3nws.com/n/Qvu2hC)
 
-> Posted on: Saturday, May 6, 2017 3:15:37 AM
+> Posted on: 05 May 2017 21:15:37

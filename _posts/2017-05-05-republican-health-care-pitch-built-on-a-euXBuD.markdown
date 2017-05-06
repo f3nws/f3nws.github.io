@@ -12,4 +12,4 @@ The Republicans trying to affect your family's health security can't bring thems
 
 Full story on F3News: [Republican health care pitch built on a...](http://www.f3nws.com/n/euXBuD)
 
-> Posted on: Friday, May 5, 2017 5:00:25 PM
+> Posted on: 05 May 2017 11:00:25

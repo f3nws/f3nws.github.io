@@ -12,4 +12,4 @@ US serviceman dies during operation near Barii, about 64km west of the capital, 
 
 Full story on F3News: [US military member killed by al-Shabab in Somalia raid](http://www.f3nws.com/n/nDJCgF)
 
-> Posted on: Friday, May 5, 2017 8:11:33 PM
+> Posted on: 05 May 2017 14:11:33

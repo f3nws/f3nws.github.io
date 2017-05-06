@@ -12,4 +12,4 @@ Your dream parents Goldie Hawn and Kurt Russell reached a major Hollywood milest
 
 Full story on F3News: [Goldie Hawn and Kurt Russell had a delightful time on the Walk of Fame](http://www.f3nws.com/n/UxFbmG)
 
-> Posted on: Saturday, May 6, 2017 2:34:35 AM
+> Posted on: 05 May 2017 20:34:35

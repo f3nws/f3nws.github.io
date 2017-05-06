@@ -12,4 +12,4 @@ NBCNews.com Senate Committee Asks Carter Page to Reveal Russian Contacts NBCNews
 
 Full story on F3News: [Senate Committee Asks Carter Page to Reveal Russian Contacts - NBCNews.com](http://www.f3nws.com/n/3pGcDF)
 
-> Posted on: Friday, May 5, 2017 11:37:39 PM
+> Posted on: 05 May 2017 17:37:39

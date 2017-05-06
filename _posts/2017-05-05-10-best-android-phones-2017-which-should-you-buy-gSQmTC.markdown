@@ -12,4 +12,4 @@ Not taken with the iPhone 7? These are the top Android smartphones money can buy
 
 Full story on F3News: [10 best Android phones 2017: which should you buy?](http://www.f3nws.com/n/gSQmTC)
 
-> Posted on: Friday, May 5, 2017 9:38:00 PM
+> Posted on: 05 May 2017 15:38:00

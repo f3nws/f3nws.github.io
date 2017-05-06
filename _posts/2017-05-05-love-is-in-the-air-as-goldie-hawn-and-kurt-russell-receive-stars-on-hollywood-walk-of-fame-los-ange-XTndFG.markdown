@@ -12,4 +12,4 @@ Los Angeles Times Love is in the air as Goldie Hawn and Kurt Russell receive sta
 
 Full story on F3News: [Love is in the air as Goldie Hawn and Kurt Russell receive stars on Hollywood Walk of Fame - Los Angeles Times](http://www.f3nws.com/n/XTndFG)
 
-> Posted on: Saturday, May 6, 2017 1:54:00 AM
+> Posted on: 05 May 2017 19:54:00

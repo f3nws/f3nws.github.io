@@ -12,4 +12,4 @@ CNN Indian Supreme Court upholds death sentences in Delhi gang rape CNN New Delh
 
 Full story on F3News: [Indian Supreme Court upholds death sentences in Delhi gang rape - CNN](http://www.f3nws.com/n/rAr23D)
 
-> Posted on: Friday, May 5, 2017 5:01:47 PM
+> Posted on: 05 May 2017 11:01:47

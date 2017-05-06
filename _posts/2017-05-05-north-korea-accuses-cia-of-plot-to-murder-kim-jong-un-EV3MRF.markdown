@@ -12,4 +12,4 @@ Pyongyang accuses US and South Korea spy agencies of attempt to assassinate coun
 
 Full story on F3News: [North Korea accuses CIA of plot to murder Kim Jong-un](http://www.f3nws.com/n/EV3MRF)
 
-> Posted on: Friday, May 5, 2017 7:25:27 PM
+> Posted on: 05 May 2017 13:25:27

@@ -12,4 +12,4 @@ Rape charges against the two teenage illegal immigrants accused of raping a 14-y
 
 Full story on F3News: [Rape charges dropped against immigrant teens in Maryland high school case](http://www.f3nws.com/n/4njkxG)
 
-> Posted on: Friday, May 5, 2017 8:42:00 PM
+> Posted on: 05 May 2017 14:42:00

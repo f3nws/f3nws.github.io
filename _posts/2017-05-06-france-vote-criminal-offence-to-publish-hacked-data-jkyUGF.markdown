@@ -12,4 +12,4 @@ Nine gigabytes of data from French presidential candidate's team posted online, 
 
 Full story on F3News: [France vote: 'Criminal offence' to publish hacked data](http://www.f3nws.com/n/jkyUGF)
 
-> Posted on: Saturday, May 6, 2017 2:59:45 PM
+> Posted on: 06 May 2017 08:59:45

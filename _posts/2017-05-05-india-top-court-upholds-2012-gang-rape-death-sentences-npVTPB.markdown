@@ -12,4 +12,4 @@ Supreme Court upholds death penalty for four men convicted of rape that sparked 
 
 Full story on F3News: [India top court upholds 2012 gang rape death sentences](http://www.f3nws.com/n/npVTPB)
 
-> Posted on: Friday, May 5, 2017 5:05:39 PM
+> Posted on: 05 May 2017 11:05:39

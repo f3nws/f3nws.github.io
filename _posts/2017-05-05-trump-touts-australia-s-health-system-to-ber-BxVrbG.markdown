@@ -12,4 +12,4 @@ Australia has a government-funded system of universal health care, which Donald 
 
 Full story on F3News: [Trump touts Australia's health system (to Ber](http://www.f3nws.com/n/BxVrbG)
 
-> Posted on: Friday, May 5, 2017 6:22:25 PM
+> Posted on: 05 May 2017 12:22:25

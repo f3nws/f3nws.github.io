@@ -12,4 +12,4 @@ From compacts to full-frame cameras, we pick out the best digital cameras you ca
 
 Full story on F3News: [The 10 best digital cameras in 2017](http://www.f3nws.com/n/SxjvuD)
 
-> Posted on: Friday, May 5, 2017 7:50:00 PM
+> Posted on: 05 May 2017 13:50:00

@@ -12,4 +12,4 @@ Comicbook.com Marvel Releases First Teaser For The Inhumans Comicbook.com After 
 
 Full story on F3News: [Marvel Releases First Teaser For The Inhumans - Comicbook.com](http://www.f3nws.com/n/XjNNmD)
 
-> Posted on: Friday, May 5, 2017 6:25:47 PM
+> Posted on: 05 May 2017 12:25:47

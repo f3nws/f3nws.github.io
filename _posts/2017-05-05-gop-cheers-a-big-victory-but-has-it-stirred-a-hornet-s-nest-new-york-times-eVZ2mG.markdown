@@ -12,4 +12,4 @@ New York Times GOP Cheers a Big Victory. But Has It Stirred a 'Hornet's Nest'? N
 
 Full story on F3News: [GOP Cheers a Big Victory. But Has It Stirred a 'Hornet's Nest'? - New York Times](http://www.f3nws.com/n/eVZ2mG)
 
-> Posted on: Friday, May 5, 2017 7:14:35 PM
+> Posted on: 05 May 2017 13:14:35
