@@ -5,7 +5,7 @@ date: 2017-05-06 16:39:12Z
 categories: al-jazeera-english
 ---
 
-![Women take to Caracas streets as crisis deepens](http://www.aljazeera.com/mritems/Images/2017/5/6/0a2a29c1976a45a5a4b99b268f833636_18.jpg)
+![Women take to Caracas streets as crisis deepens](http://www.aljazeera.com/mritems/Images/2017/5/6/b58bfd673e7b4a048b66cd7071dedcfa_18.jpg)
 
 Opposition and government hold two rival women's marches amidst controversy over arrests in the army.
 
