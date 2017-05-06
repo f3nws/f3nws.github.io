@@ -12,4 +12,4 @@ A conservative columnist who was suspended by the St. Louis Post-Dispatch after 
 
 Full story on F3News: [Daily newspaper columnist who defended NRA quits after suspension](http://www.f3nws.com/n/2jkpaC)
 
-> Posted on: Friday, May 5, 2017 7:36:00 PM
+> Posted on: Saturday, May 6, 2017 1:36:00 AM

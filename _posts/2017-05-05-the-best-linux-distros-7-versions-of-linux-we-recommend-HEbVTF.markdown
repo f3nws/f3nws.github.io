@@ -12,4 +12,4 @@ We evaluate seven Linux distros aimed at beginners, intermediate and advanced us
 
 Full story on F3News: [The best Linux distros: 7 versions of Linux we recommend](http://www.f3nws.com/n/HEbVTF)
 
-> Posted on: Friday, May 5, 2017 6:24:00 PM
+> Posted on: Saturday, May 6, 2017 12:24:00 AM

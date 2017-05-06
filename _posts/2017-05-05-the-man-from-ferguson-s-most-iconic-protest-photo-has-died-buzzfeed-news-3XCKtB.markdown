@@ -12,4 +12,4 @@ BuzzFeed News The Man From Ferguson's Most Iconic Protest Photo Has Died BuzzFee
 
 Full story on F3News: [The Man From Ferguson's Most Iconic Protest Photo Has Died - BuzzFeed News](http://www.f3nws.com/n/3XCKtB)
 
-> Posted on: Friday, May 5, 2017 3:15:42 PM
+> Posted on: Friday, May 5, 2017 9:15:42 PM

@@ -12,4 +12,4 @@ Wikileaks has published a new batch of the Vault 7 leak, detailing a man-in-the-
 
 Full story on F3News: [Wikileaks Unveils CIA's Man-in-the-Middle Attack Tool](http://www.f3nws.com/n/4QyGBG)
 
-> Posted on: Saturday, May 6, 2017 8:13:08 AM
+> Posted on: Saturday, May 6, 2017 2:13:08 PM

@@ -12,4 +12,4 @@ Nine gigabytes of data from French presidential candidate's team posted online i
 
 Full story on F3News: [#MacronLeaks: Macron's campaign hit by hacking attack](http://www.f3nws.com/n/aaKEP)
 
-> Posted on: Saturday, May 6, 2017 8:47:47 AM
+> Posted on: Saturday, May 6, 2017 2:47:47 PM

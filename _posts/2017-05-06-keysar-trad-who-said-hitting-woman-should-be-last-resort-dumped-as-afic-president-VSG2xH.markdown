@@ -12,4 +12,4 @@ Keysar Trad, who said men should only hit women as a "last resort", is replaced 
 
 Full story on F3News: [Keysar Trad, who said hitting woman should be 'last resort', dumped as AFIC president](http://www.f3nws.com/n/VSG2xH)
 
-> Posted on: Saturday, May 6, 2017 2:17:04 AM
+> Posted on: Saturday, May 6, 2017 8:17:04 AM

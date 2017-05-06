@@ -12,4 +12,4 @@ We've organized a frequently updated list of the year's best gaming keyboards.
 
 Full story on F3News: [The 10 best gaming keyboards of 2017](http://www.f3nws.com/n/xUUvfE)
 
-> Posted on: Friday, May 5, 2017 6:21:00 PM
+> Posted on: Saturday, May 6, 2017 12:21:00 AM

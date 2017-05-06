@@ -12,4 +12,4 @@ A police officer has been shot in the face at a Massachusetts motel, where the s
 
 Full story on F3News: [Officer shot in the face, shooter found dead after standoff in motel room](http://www.f3nws.com/n/uvYzSD)
 
-> Posted on: Saturday, May 6, 2017 10:09:00 AM
+> Posted on: Saturday, May 6, 2017 4:09:00 PM

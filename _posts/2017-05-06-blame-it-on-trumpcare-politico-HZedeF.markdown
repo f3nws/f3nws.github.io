@@ -12,4 +12,4 @@ Politico Blame it on Trumpcare Politico Call it Obamacare, Trumpcare or GOPcare,
 
 Full story on F3News: [Blame it on Trumpcare - Politico](http://www.f3nws.com/n/HZedeF)
 
-> Posted on: Saturday, May 6, 2017 10:16:00 AM
+> Posted on: Saturday, May 6, 2017 4:16:00 PM

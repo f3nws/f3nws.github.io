@@ -12,4 +12,4 @@ Washington Post Flynn was warned by Trump transition officials about contacts wi
 
 Full story on F3News: [Flynn was warned by Trump transition officials about contacts with Russian ambassador - Washington Post](http://www.f3nws.com/n/cmfA2F)
 
-> Posted on: Friday, May 5, 2017 9:18:41 PM
+> Posted on: Saturday, May 6, 2017 3:18:41 AM

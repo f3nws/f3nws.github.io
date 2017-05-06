@@ -12,4 +12,4 @@ Country music star Loretta Lynn, 85, suffered a stroke Thursday at her home in H
 
 Full story on F3News: [Country music star Loretta Lynn hospitalized](http://www.f3nws.com/n/dXPmF)
 
-> Posted on: Saturday, May 6, 2017 2:31:27 AM
+> Posted on: Saturday, May 6, 2017 8:31:27 AM

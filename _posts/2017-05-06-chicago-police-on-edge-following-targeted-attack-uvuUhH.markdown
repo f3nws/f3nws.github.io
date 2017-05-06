@@ -12,4 +12,4 @@ The hosts of ‘The Five’ on Friday discussed the problem of Chicago’s gang 
 
 Full story on F3News: [Chicago police on edge following targeted attack](http://www.f3nws.com/n/uvuUhH)
 
-> Posted on: Saturday, May 6, 2017 12:04:00 AM
+> Posted on: Saturday, May 6, 2017 6:04:00 AM

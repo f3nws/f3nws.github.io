@@ -12,4 +12,4 @@ Khalid Meshaal, who preceded Haniya as leader of the political bureau, confirms 
 
 Full story on F3News: [Ismail Haniya elected new political chief of Hamas](http://www.f3nws.com/n/3PY3XE)
 
-> Posted on: Saturday, May 6, 2017 12:09:02 PM
+> Posted on: Saturday, May 6, 2017 6:09:02 PM

@@ -12,4 +12,4 @@ ESPN Court reveals Hernandez's final note to fiancée ESPN Massachusetts court o
 
 Full story on F3News: [Court reveals Hernandez's final note to fiancée - ESPN](http://www.f3nws.com/n/mDxbEF)
 
-> Posted on: Saturday, May 6, 2017 1:46:25 AM
+> Posted on: Saturday, May 6, 2017 7:46:25 AM

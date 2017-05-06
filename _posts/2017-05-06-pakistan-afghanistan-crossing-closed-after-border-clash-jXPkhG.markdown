@@ -12,4 +12,4 @@ Afghan and Pakistani forces accuse each other in deadly cross-border battle duri
 
 Full story on F3News: [Pakistan-Afghanistan crossing closed after border clash](http://www.f3nws.com/n/jXPkhG)
 
-> Posted on: Saturday, May 6, 2017 11:43:41 AM
+> Posted on: Saturday, May 6, 2017 5:43:41 PM

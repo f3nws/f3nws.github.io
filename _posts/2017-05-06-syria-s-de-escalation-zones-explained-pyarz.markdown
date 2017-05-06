@@ -12,4 +12,4 @@ A deal signed by Russia, Turkey and Iran to create 'safe zones' went into effect
 
 Full story on F3News: [Syria's 'de-escalation zones' explained](http://www.f3nws.com/n/pyarz)
 
-> Posted on: Saturday, May 6, 2017 7:09:54 AM
+> Posted on: Saturday, May 6, 2017 1:09:54 PM

@@ -12,4 +12,4 @@ New York Times Trump's 2nd Nominee for Army Secretary Withdraws New York Times M
 
 Full story on F3News: [Trump's 2nd Nominee for Army Secretary Withdraws - New York Times](http://www.f3nws.com/n/gYCMmD)
 
-> Posted on: Friday, May 5, 2017 9:34:04 PM
+> Posted on: Saturday, May 6, 2017 3:34:04 AM

@@ -12,4 +12,4 @@ Now featuring the Synology RT2600ac, these are the best wireless routers we've s
 
 Full story on F3News: [The 10 best wireless routers of 2017](http://www.f3nws.com/n/zSPduG)
 
-> Posted on: Friday, May 5, 2017 1:05:00 PM
+> Posted on: Friday, May 5, 2017 7:05:00 PM

@@ -12,4 +12,4 @@ Rep. Chris Collins (R-NY) said he didn't read the bill, and didn't understand it
 
 Full story on F3News: [Republicans put their careers on the line...](http://www.f3nws.com/n/xn4Pc)
 
-> Posted on: Friday, May 5, 2017 2:20:00 PM
+> Posted on: Friday, May 5, 2017 8:20:00 PM

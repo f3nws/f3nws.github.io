@@ -12,4 +12,4 @@ Variety 'American Idol': Deal in Place at ABC to Revive Competition Series (EXCL
 
 Full story on F3News: ['American Idol': Deal in Place at ABC to Revive Competition Series (EXCLUSIVE) - Variety](http://www.f3nws.com/n/tJkWXG)
 
-> Posted on: Friday, May 5, 2017 9:04:06 PM
+> Posted on: Saturday, May 6, 2017 3:04:06 AM
