@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Here's our look at the Trump administration and the rest of Washington: - Los Angeles Times](http://www.trbimg.com/img-590b8229/turbine/la-na-essential-washington-updates-the-preexisting-conditions-that-1493921633)
 
-Los Angeles Times Here's our look at the Trump administration and the rest of Washington: Los Angeles Times The Affordable Care Act, also known as Obamacare, prohibits insurers from turning away consumers with preexisting medical conditions, a practice that was once standard in the industry. Among the conditions that once commonly made insurers deny ... Mark Green withdraws as Trump's Army secretary nominee, citing 'false and misleading attacks' Washington Post Trump's 2nd Nominee for Army Secretary Withdraws New York Times Sen. John McCain: Army secretary nominee's past comments 'very concerning' USA TODAY Muslim Advocates - Twitter - Washington Examiner all 133 news articles »
+Los Angeles Times Here's our look at the Trump administration and the rest of Washington: Los Angeles Times The Affordable Care Act, also known as Obamacare, prohibits insurers from turning away consumers with preexisting medical conditions, a practice that was once standard in the industry. Among the conditions that once commonly made insurers deny ... Mark Green withdraws as Trump's Army secretary nominee, citing 'false and misleading attacks' Washington Post Trump's 2nd Nominee for Army Secretary Withdraws New York Times Trump's 2nd Nominee To Serve As Army Secretary Withdraws NPR AL.com - USA TODAY - USA TODAY - Twitter all 137 news articles »
 
 
 Full story on F3News: [Here's our look at the Trump administration and the rest of Washington: - Los Angeles Times](http://www.f3nws.com/n/TxGD3B)
