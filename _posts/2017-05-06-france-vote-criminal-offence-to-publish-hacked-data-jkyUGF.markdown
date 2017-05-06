@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France vote: 'Criminal offence' to publish hacked data"
-date: 2017-05-06 09:54:36Z
+date: 2017-05-06 09:59:45Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Nine gigabytes of data from French presidential candidate's team posted online, 
 
 Full story on F3News: [France vote: 'Criminal offence' to publish hacked data](http://www.f3nws.com/n/jkyUGF)
 
-> Posted on: Saturday, May 6, 2017 2:54:36 PM
+> Posted on: Saturday, May 6, 2017 2:59:45 PM
