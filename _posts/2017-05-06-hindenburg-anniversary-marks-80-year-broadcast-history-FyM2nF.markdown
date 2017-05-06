@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hindenburg anniversary marks 80-year broadcast history"
-date: 2017-05-06 06:10:28Z
+date: 2017-05-06 07:21:59Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Airship crash became the first multimedia air disaster of the 20th century, and 
 
 Full story on F3News: [Hindenburg anniversary marks 80-year broadcast history](http://www.f3nws.com/n/FyM2nF)
 
-> Posted on: Saturday, May 6, 2017 11:10:28 AM
+> Posted on: Saturday, May 6, 2017 12:21:59 PM
