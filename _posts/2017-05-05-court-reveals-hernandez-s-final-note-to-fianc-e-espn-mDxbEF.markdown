@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Court reveals Hernandez's final note to fiancée - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0419%2Fr201159_1296x729_16%2D9.jpg)
 
-ESPN Court reveals Hernandez's final note to fiancée ESPN Massachusetts court officials on Friday released an excerpt of the letter that Aaron Hernandez wrote to his fiancée, Shayanna Jenkins Hernandez, before he killed himself last month. "Shay, you have always been my soul-mate and i want you to live life ... Court releases Aaron Hernandez's suicide note to his fiancée NBCSports.com Prison inmates provide details of Aaron Hernandez in final days before suicide Yahoo Sports Police release full, detailed report on prison suicide of Aaron Hernandez CBSSports.com ABC News - Bleacher Report - CNN - fox8.com all 207 news articles »
+ESPN Court reveals Hernandez's final note to fiancée ESPN Massachusetts court officials on Friday released an excerpt of the letter that Aaron Hernandez wrote to his fiancée, Shayanna Jenkins Hernandez, before he killed himself last month. "Shay, you have always been my soul-mate and i want you to live life ... Prison inmates provide details of Aaron Hernandez in final days before suicide Yahoo Sports Court releases Aaron Hernandez's suicide note to his fiancée NBCSports.com Aaron Hernandez found with 'John 3:16' written in ink on forehead, report says ABC News Chicago Tribune - Bleacher Report - CNN - fox8.com all 207 news articles »
 
 
 Full story on F3News: [Court reveals Hernandez's final note to fiancée - ESPN](http://www.f3nws.com/n/mDxbEF)
