@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['American Idol': Deal in Place at ABC to Revive Competition Series (EXCLUSIVE) - Variety](https://pmcvariety.files.wordpress.com/2016/04/reuters234.jpg?w=1000&h=750&crop=1)
 
-Variety 'American Idol': Deal in Place at ABC to Revive Competition Series (EXCLUSIVE) Variety The broadcast network and the production company have settled on a framework for an agreement to bring back the long-running singing-competition series. According to sources, the Alphabet is eyeing a March premiere for the show, which would potentially ... 'American Idol': ABC Close To A Deal For A Reboot – Update Deadline Will Ryan Seacrest Return to an American Idol Reboot? 'He Has a Lot of Affection for the Show,' Source Says PEOPLE.com 'American Idol' 'Insane' Offer from FOX TMZ.com USA TODAY - Bustle - Billboard - BuzzFeed News all 118 news articles »
+Variety 'American Idol': Deal in Place at ABC to Revive Competition Series (EXCLUSIVE) Variety ABC has a deal in place with FremantleMedia and co-owner Core Media Group to revive “American Idol.” The broadcast network and the production company have settled on a framework for an agreement to bring back the long-running singing-competition ... American Idol Return Near Deal at ABC PEOPLE.com 'American Idol': ABC Close To A Deal For A Reboot, Fox Makes Offer – Update Deadline 'American Idol' Revival Update: ABC Outbids FOX For Reboot; Which Judges Will Return? International Business Times TVbytheNumbers - USA TODAY - TMZ.com - Billboard all 135 news articles »
 
 
 Full story on F3News: ['American Idol': Deal in Place at ABC to Revive Competition Series (EXCLUSIVE) - Variety](http://www.f3nws.com/n/tJkWXG)
