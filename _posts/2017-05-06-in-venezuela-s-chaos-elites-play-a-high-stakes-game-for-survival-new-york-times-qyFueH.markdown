@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In Venezuela's Chaos, Elites Play a High-Stakes Game for Survival - New York Times](https://static01.nyt.com/images/2017/05/07/world/07int-venezuela1/07int-venezuela1-facebookJumbo.jpg)
 
-New York Times In Venezuela's Chaos, Elites Play a High-Stakes Game for Survival New York Times Antigovernment protesters marching last month, carrying a sign that says, “No More Dictatorship.” Hundreds of thousands of protesters have taken to the streets of Caracas and other cities demanding elections in Venezuela. Credit Meridith Kohut for The ... Maduro wants 'people's body' to rewrite constitution Aljazeera.com all 439 news articles »
+New York Times In Venezuela's Chaos, Elites Play a High-Stakes Game for Survival New York Times Antigovernment protesters marching last month, carrying a sign that says, “No More Dictatorship.” Hundreds of thousands of protesters have taken to the streets of Caracas and other cities demanding elections in Venezuela. Credit Meridith Kohut for The ... Protesters march in Venezuela, destroy Chavez statue New York Daily News Maduro wants 'people's body' to rewrite constitution Aljazeera.com all 440 news articles »
 
 
 Full story on F3News: [In Venezuela's Chaos, Elites Play a High-Stakes Game for Survival - New York Times](http://www.f3nws.com/n/qyFueH)
