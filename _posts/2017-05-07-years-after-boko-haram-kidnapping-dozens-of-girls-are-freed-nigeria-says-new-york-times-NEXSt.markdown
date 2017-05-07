@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says - New York Times"
-date: 2017-05-07 06:43:34Z
+date: 2017-05-07 13:54:47Z
 categories: google-news-top-stories
 ---
 
-![Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says - New York Times](https://static01.nyt.com/images/2017/05/07/world/07BOKO/07BOKO-facebookJumbo.jpg)
+![Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says - New York Times](https://static01.nyt.com/images/2017/05/08/world/07BOKO2/07BOKO2-facebookJumbo.jpg)
 
-New York Times Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says New York Times A group of Chibok girls who were released by Boko Haram in Abuja, Nigeria, in October 2016. About 80 more girls have been freed, a Nigerian official said on Saturday. Credit Philip Ojisua/Agence France-Presse — Getty Images. DAKAR, Senegal — Dozens ... The Latest: Red Cross tweets image of freed Chibok girls Washington Post Freed Chibok girls to meet Nigeria's Buhari after swap deal Yahoo News Nigeria exchanges 82 Chibok girls kidnapped by Boko Haram for prisoners Reuters CNN all 362 news articles »
+New York Times Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says New York Times Nigerian schoolgirls kidnapped by Boko Haram three years ago after their release. On Sunday they were in Abuja, the capital, where they were to meet President Muhammadu Buhari. Credit Olamikan Gbemiga/Associated Press. DAKAR, Senegal — Dozens ... 82 freed Chibok schoolgirls arrive in Nigeria's capital Washington Post 82 released Chibok schoolgirls arrive in capital CNN The Latest: Rights group warns against 'publicity stunt' Yahoo News all 435 news articles »
 
 
 Full story on F3News: [Years After Boko Haram Kidnapping, Dozens of Girls Are Freed, Nigeria Says - New York Times](http://www.f3nws.com/n/NEXSt)
 
-> Posted on: Sunday, May 7, 2017 11:43:34 AM
+> Posted on: Sunday, May 7, 2017 6:54:47 PM
