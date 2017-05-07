@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0506%2Fr207353_1296x729_16%2D9.jpg)
 
-ESPN Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official ESPN LAS VEGAS -- Mexican supremacy goes to Canelo Alvarez, whose battle for national pride against Julio Cesar Chavez Jr. on Cinco de Mayo weekend turned out to be an annihilation of the highest order. After all three judges scored Saturday night's fight a ... Canelo Alvarez vs. Gennady Golovkin signed before Canelo-Chavez took place USA TODAY Canelo Alvarez's domination of Julio Cesar Chavez Jr. was a glorified sparring session Los Angeles Times Finally, boxing delivers and we get Alvarez-Golovkin ... let's just hope it's not too late Yahoo Sports all 516 news articles »
+ESPN Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official ESPN LAS VEGAS -- Mexican supremacy goes to Canelo Alvarez, whose battle for national pride against Julio Cesar Chavez Jr. on Cinco de Mayo weekend turned out to be an annihilation of the highest order. After all three judges scored Saturday night's fight a ... Canelo Alvarez vs. Gennady Golovkin signed before Canelo-Chavez took place USA TODAY Photos: Lucas Matthysse Returns in Style, Crushes Taylor at 147 BoxingScene.com Canelo Alvarez's domination of Julio Cesar Chavez Jr. was a glorified sparring session Los Angeles Times Yahoo Sports all 535 news articles »
 
 
 Full story on F3News: [Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official - ESPN](http://www.f3nws.com/n/4XSaGH)
