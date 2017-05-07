@@ -5,6 +5,8 @@ date: 2017-05-06 18:59:52Z
 categories: cnn-com-world
 ---
 
+![Thousands to evacuate after World War II bombs found in German city](http://i2.cdn.cnn.com/cnnnext/dam/assets/170506134250-01-germany-bombs-evacuation-0505-super-tease.jpg)
+
 More than 50,000 people will be evacuated Sunday from the German city of Hanover as bomb disposal teams work to defuse unexploded World War II bombs, according to Hanover officials.
 
 
