@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Over 80 Chibok schoolgirls released by Boko Haram in prisoner swap – Nigeria"
-date: 2017-05-07 00:56:22Z
+date: 2017-05-07 00:56:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Terrorist group Boko Haram has freed 82 girls it captured in a raid on a Chibok 
 
 Full story on F3News: [Over 80 Chibok schoolgirls released by Boko Haram in prisoner swap – Nigeria](http://www.f3nws.com/n/KHYZYH)
 
-> Posted on: Sunday, May 7, 2017 5:56:22 AM
+> Posted on: Sunday, May 7, 2017 5:56:00 AM
