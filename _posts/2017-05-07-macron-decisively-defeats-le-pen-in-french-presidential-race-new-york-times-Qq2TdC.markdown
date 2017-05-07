@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Macron Decisively Defeats Le Pen in French Presidential Race - New York Times](https://static01.nyt.com/images/2017/05/08/world/08France-Macron/08France-Macron-facebookJumbo.jpg)
 
-New York Times Macron Decisively Defeats Le Pen in French Presidential Race New York Times Emmanuel Macron greeting supporters after voting at a polling station in Le Touquet in northern France on Sunday. Credit Benoit Tessier/Reuters. PARIS — Emmanuel Macron, a youthful former investment banker, handily won France's presidential election ... The Latest: Greek leader: Macron win fresh breath for France Fox News Brigitte Trogneux: From Macron's teacher to France's first lady CNN Emmanuel Macron's extraordinary political achievement Washington Post Reuters - The Hill - BBC News - NPR all 4,780 news articles »
+New York Times Macron Decisively Defeats Le Pen in French Presidential Race New York Times France's president-elect, Emmanuel Macron, celebrated after delivering a victory speech on Sunday at the Louvre in Paris. Credit Christophe Petit Tesson/European Pressphoto Agency. PARIS — Emmanuel Macron, a youthful former investment banker, ... In Le Pen defeat, Europe's far-right wave crashes to a halt Washington Post The Latest: Macron inauguration to be held by May 14 Fox News Macron faces an uphill battle from here CNN Chicago Tribune - Reuters - BuzzFeed News - The Boston Globe all 4,843 news articles »
 
 
 Full story on F3News: [Macron Decisively Defeats Le Pen in French Presidential Race - New York Times](http://www.f3nws.com/n/Qq2TdC)
