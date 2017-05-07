@@ -12,4 +12,4 @@ New York Times 'No District Is Off the Table': Health Vote Could Put House in Pl
 
 Full story on F3News: ['No District Is Off the Table': Health Vote Could Put House in Play - New York Times](http://www.f3nws.com/n/gsYGTB)
 
-> Posted on: 06 May 2017 15:19:11
+> Posted on: Saturday, May 6, 2017 9:19:11 PM

@@ -12,4 +12,4 @@ New York Times As French Elections Nears, So Does a Step Into the Unknown New Yo
 
 Full story on F3News: [As French Elections Nears, So Does a Step Into the Unknown - New York Times](http://www.f3nws.com/n/urvUDC)
 
-> Posted on: 06 May 2017 15:27:32
+> Posted on: Saturday, May 6, 2017 9:27:32 PM

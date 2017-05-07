@@ -12,4 +12,4 @@ A publicist for country music legend Loretta Lynn says she has been hospitalized
 
 Full story on F3News: [Country singer Loretta Lynn had stroke, hospitalized](http://www.f3nws.com/n/AaNFSJ)
 
-> Posted on: 05 May 2017 23:05:00
+> Posted on: Saturday, May 6, 2017 5:05:00 AM

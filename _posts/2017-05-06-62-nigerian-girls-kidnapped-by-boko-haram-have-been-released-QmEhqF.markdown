@@ -12,4 +12,4 @@ An unknown number of schoolgirls kidnapped three years ago by Boko Haram extremi
 
 Full story on F3News: [62 Nigerian girls kidnapped by Boko Haram have been released](http://www.f3nws.com/n/QmEhqF)
 
-> Posted on: 06 May 2017 20:25:00
+> Posted on: Sunday, May 7, 2017 2:25:00 AM

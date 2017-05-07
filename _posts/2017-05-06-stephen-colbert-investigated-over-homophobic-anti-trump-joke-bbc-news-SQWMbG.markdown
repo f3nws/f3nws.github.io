@@ -12,4 +12,4 @@ BBC News Stephen Colbert investigated over 'homophobic' anti-Trump joke BBC News
 
 Full story on F3News: [Stephen Colbert investigated over 'homophobic' anti-Trump joke - BBC News](http://www.f3nws.com/n/SQWMbG)
 
-> Posted on: 06 May 2017 12:55:08
+> Posted on: Saturday, May 6, 2017 6:55:08 PM

@@ -10,4 +10,4 @@ Fox News Interior tags 27 designated monuments for review, days after Trump orde
 
 Full story on F3News: [Interior tags 27 designated monuments for review, days after Trump orders audit of 'land grab' - Fox News](http://www.f3nws.com/n/dtcYRB)
 
-> Posted on: 06 May 2017 20:53:37
+> Posted on: Sunday, May 7, 2017 2:53:37 AM

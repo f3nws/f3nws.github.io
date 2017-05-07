@@ -12,4 +12,4 @@ Los Angeles Times Here's our look at the Trump administration and the rest of Wa
 
 Full story on F3News: [Here's our look at the Trump administration and the rest of Washington: - Los Angeles Times](http://www.f3nws.com/n/TxGD3B)
 
-> Posted on: 05 May 2017 23:54:12
+> Posted on: Saturday, May 6, 2017 5:54:12 AM

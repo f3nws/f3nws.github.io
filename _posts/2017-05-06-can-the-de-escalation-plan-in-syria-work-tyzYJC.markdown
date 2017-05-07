@@ -12,4 +12,4 @@ So-called 'de-escalation zones' have been created in four mainly opposition-held
 
 Full story on F3News: [Can the 'de-escalation' plan in Syria work?](http://www.f3nws.com/n/tyzYJC)
 
-> Posted on: 06 May 2017 20:09:53
+> Posted on: Sunday, May 7, 2017 2:09:53 AM

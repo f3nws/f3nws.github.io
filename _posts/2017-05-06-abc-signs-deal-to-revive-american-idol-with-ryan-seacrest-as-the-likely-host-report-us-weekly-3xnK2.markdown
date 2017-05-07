@@ -12,4 +12,4 @@ Us Weekly ABC Signs Deal to Revive 'American Idol' With Ryan Seacrest as the Lik
 
 Full story on F3News: [ABC Signs Deal to Revive 'American Idol' With Ryan Seacrest as the Likely Host: Report - Us Weekly](http://www.f3nws.com/n/3xnK2)
 
-> Posted on: 06 May 2017 16:22:45
+> Posted on: Saturday, May 6, 2017 10:22:45 PM

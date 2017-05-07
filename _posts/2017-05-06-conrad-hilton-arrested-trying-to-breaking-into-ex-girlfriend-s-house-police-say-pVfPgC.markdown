@@ -12,4 +12,4 @@ Conrad Hilton, the little brother of reality star Paris Hilton, was arrested ear
 
 Full story on F3News: [Conrad Hilton arrested trying to breaking into ex-girlfriend's house, police say](http://www.f3nws.com/n/pVfPgC)
 
-> Posted on: 06 May 2017 16:55:00
+> Posted on: Saturday, May 6, 2017 10:55:00 PM

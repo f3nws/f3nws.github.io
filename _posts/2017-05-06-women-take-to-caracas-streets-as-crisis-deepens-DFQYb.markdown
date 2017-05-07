@@ -12,4 +12,4 @@ Opposition and government hold two rival women's marches amidst controversy over
 
 Full story on F3News: [Women take to Caracas streets as crisis deepens](http://www.f3nws.com/n/DFQYb)
 
-> Posted on: 06 May 2017 21:02:22
+> Posted on: Sunday, May 7, 2017 3:02:22 AM

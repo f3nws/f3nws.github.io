@@ -12,4 +12,4 @@ Congresswoman Carolyn Maloney, D-NY, expresses her astonishment that so many pat
 
 Full story on F3News: [Rep. Maloney: Trump healthcare an "assault...](http://www.f3nws.com/n/NWmjJC)
 
-> Posted on: 06 May 2017 12:09:34
+> Posted on: Saturday, May 6, 2017 6:09:34 PM

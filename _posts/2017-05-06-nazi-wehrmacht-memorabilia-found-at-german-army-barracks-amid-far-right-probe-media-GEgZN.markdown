@@ -12,4 +12,4 @@ Numerous Nazi-era military awards, propaganda posters, and steel Wehrmacht helme
 
 Full story on F3News: [Nazi Wehrmacht memorabilia found at German army barracks amid far-right probe – media](http://www.f3nws.com/n/GEgZN)
 
-> Posted on: 06 May 2017 17:15:10
+> Posted on: Saturday, May 6, 2017 11:15:10 PM

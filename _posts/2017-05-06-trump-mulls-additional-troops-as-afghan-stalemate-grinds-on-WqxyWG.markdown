@@ -12,4 +12,4 @@ President Trump could be asked next week to send more troops to Afghanistan as t
 
 Full story on F3News: [Trump mulls additional troops as Afghan stalemate grinds on](http://www.f3nws.com/n/WqxyWG)
 
-> Posted on: 06 May 2017 13:31:00
+> Posted on: Saturday, May 6, 2017 7:31:00 PM

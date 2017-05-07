@@ -12,4 +12,4 @@ Runner's World After a Near Sub-2 Marathon, What's Next? Runner's World Eliud Ki
 
 Full story on F3News: [After a Near Sub-2 Marathon, What's Next? - Runner's World](http://www.f3nws.com/n/BHbUpE)
 
-> Posted on: 06 May 2017 17:33:51
+> Posted on: Saturday, May 6, 2017 11:33:51 PM

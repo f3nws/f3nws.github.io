@@ -12,4 +12,4 @@ BBC News Nigeria Chibok girls: At least 80 freed by Boko Haram BBC News Islamist
 
 Full story on F3News: [Nigeria Chibok girls: At least 80 freed by Boko Haram - BBC News](http://www.f3nws.com/n/rcemJC)
 
-> Posted on: 06 May 2017 20:15:02
+> Posted on: Sunday, May 7, 2017 2:15:02 AM

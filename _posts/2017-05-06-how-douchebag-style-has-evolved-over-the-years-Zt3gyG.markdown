@@ -12,4 +12,4 @@ Although the term "douchebag" didn't always mean what means today, douchebags ha
 
 Full story on F3News: [How douchebag style has evolved over the years](http://www.f3nws.com/n/Zt3gyG)
 
-> Posted on: 06 May 2017 19:38:20
+> Posted on: Sunday, May 7, 2017 1:38:20 AM

@@ -12,4 +12,4 @@ Bus veers off road and plunges into Arusha region river, resulting in the death 
 
 Full story on F3News: [Tanzania bus crash: Dozens of pupils killed in Arusha](http://www.f3nws.com/n/zMtQKB)
 
-> Posted on: 06 May 2017 20:59:25
+> Posted on: Sunday, May 7, 2017 2:59:25 AM

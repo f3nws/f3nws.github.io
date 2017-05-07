@@ -12,4 +12,4 @@ Pepe the Frog is dead, killed off by his own creator after he watched Pepe turn 
 
 Full story on F3News: [Pepe the Frog became a hate icon so his creator killed him off](http://www.f3nws.com/n/evsKX)
 
-> Posted on: 06 May 2017 16:16:00
+> Posted on: Saturday, May 6, 2017 10:16:00 PM

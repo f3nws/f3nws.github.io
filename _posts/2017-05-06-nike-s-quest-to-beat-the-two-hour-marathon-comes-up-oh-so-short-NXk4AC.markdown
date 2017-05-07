@@ -12,4 +12,4 @@ It was close, but the two-hour marathon remains unbroken. For now. The post Nike
 
 Full story on F3News: [Nike’s Quest to Beat the Two-Hour Marathon Comes Up Oh So Short](http://www.f3nws.com/n/NXk4AC)
 
-> Posted on: 06 May 2017 07:00:07
+> Posted on: Saturday, May 6, 2017 1:00:07 PM

@@ -12,4 +12,4 @@ categories: al-jazeera-english
 
 Full story on F3News: [Poland: Anti-government rally draws tens of thousands](http://www.f3nws.com/n/YnJqhD)
 
-> Posted on: 06 May 2017 17:46:17
+> Posted on: Saturday, May 6, 2017 11:46:17 PM

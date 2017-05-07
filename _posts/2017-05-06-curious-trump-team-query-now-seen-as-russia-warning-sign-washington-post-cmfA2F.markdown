@@ -12,4 +12,4 @@ Washington Post Curious Trump team query now seen as Russia warning sign Washing
 
 Full story on F3News: [Curious Trump team query now seen as Russia warning sign - Washington Post](http://www.f3nws.com/n/cmfA2F)
 
-> Posted on: 06 May 2017 05:38:39
+> Posted on: Saturday, May 6, 2017 11:38:39 AM

@@ -12,4 +12,4 @@ Washington Post French watchdog: Macron data mixed in with fake news in leak Was
 
 Full story on F3News: [French watchdog: Macron data mixed in with fake news in leak - Washington Post](http://www.f3nws.com/n/u3P2FC)
 
-> Posted on: 06 May 2017 13:51:22
+> Posted on: Saturday, May 6, 2017 7:51:22 PM

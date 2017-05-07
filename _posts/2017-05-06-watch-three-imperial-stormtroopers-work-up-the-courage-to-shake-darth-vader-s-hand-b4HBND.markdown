@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Watch three Imperial stormtroopers work up the courage to shake Darth Vader’s hand](http://www.f3nws.com/n/b4HBND)
 
-> Posted on: 06 May 2017 15:13:37
+> Posted on: Saturday, May 6, 2017 9:13:37 PM

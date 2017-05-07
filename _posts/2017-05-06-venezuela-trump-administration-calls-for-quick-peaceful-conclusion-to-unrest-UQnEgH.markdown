@@ -12,4 +12,4 @@ The Trump administration is engaging with Venezuelan instability, agreeing there
 
 Full story on F3News: [Venezuela: Trump administration calls for quick, peaceful conclusion to unrest](http://www.f3nws.com/n/UQnEgH)
 
-> Posted on: 06 May 2017 18:22:00
+> Posted on: Sunday, May 7, 2017 12:22:00 AM

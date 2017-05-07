@@ -12,4 +12,4 @@ New York Times Kentucky Derby 2017: Who the Experts Pick to Win, Place and Show 
 
 Full story on F3News: [Kentucky Derby 2017: Who the Experts Pick to Win, Place and Show - New York Times](http://www.f3nws.com/n/DZfK2G)
 
-> Posted on: 06 May 2017 16:33:15
+> Posted on: Saturday, May 6, 2017 10:33:15 PM

@@ -12,4 +12,4 @@ E! Online Pregnant Beyoncé and Kelly Rowland Celebrate Cinco de Mayo and Get in
 
 Full story on F3News: [Pregnant Beyoncé and Kelly Rowland Celebrate Cinco de Mayo and Get into the Holiday Spirit - E! Online](http://www.f3nws.com/n/xZWZCD)
 
-> Posted on: 06 May 2017 15:05:41
+> Posted on: Saturday, May 6, 2017 9:05:41 PM

@@ -12,4 +12,4 @@ Can they save a divided party? Joy Reid and her panel get into a heated debate o
 
 Full story on F3News: [Obama and Clinton are back!](http://www.f3nws.com/n/vBJad)
 
-> Posted on: 06 May 2017 14:15:39
+> Posted on: Saturday, May 6, 2017 8:15:39 PM

@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [This minimalist cell phone is designed to be as basic as possible](http://www.f3nws.com/n/phEUZH)
 
-> Posted on: 06 May 2017 20:45:02
+> Posted on: Sunday, May 7, 2017 2:45:02 AM

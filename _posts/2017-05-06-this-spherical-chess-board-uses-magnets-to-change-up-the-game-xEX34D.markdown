@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [This spherical chess board uses magnets to change up the game](http://www.f3nws.com/n/xEX34D)
 
-> Posted on: 06 May 2017 18:00:01
+> Posted on: Sunday, May 7, 2017 12:00:01 AM

@@ -12,4 +12,4 @@ Conrad Hilton, the little brother of reality star Paris Hilton has reportedly be
 
 Full story on F3News: [Conrad Hilton, brother of Paris, reportedly arrested](http://www.f3nws.com/n/rnYqxG)
 
-> Posted on: 06 May 2017 15:20:00
+> Posted on: Saturday, May 6, 2017 9:20:00 PM

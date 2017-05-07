@@ -12,4 +12,4 @@ An email has been sent to staff at the Food and Drug Administration (FDA) announ
 
 Full story on F3News: [US federal staff being forced to watch Fox News instead of CNN, leaked email suggests](http://www.f3nws.com/n/JdeVGB)
 
-> Posted on: 06 May 2017 15:22:45
+> Posted on: Saturday, May 6, 2017 9:22:45 PM
