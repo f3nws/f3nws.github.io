@@ -5,7 +5,7 @@ date: 2017-05-06 21:56:25Z
 categories: al-jazeera-english
 ---
 
-![62 Chibok schoolgirls kidnapped by Boko Haram freed](http://www.aljazeera.com/mritems/Images/2017/5/6/93404c1764084c6a9c47def6d63a1ea3_18.jpg)
+![62 Chibok schoolgirls kidnapped by Boko Haram freed](http://www.aljazeera.com/mritems/Images/2017/5/7/a8fc265b25da45689db15e871be6dc88_18.jpg)
 
 Nigerian government source tells Al Jazeera that 62 pupils seized by Boko Haram fighters in 2014 have been released.
 
