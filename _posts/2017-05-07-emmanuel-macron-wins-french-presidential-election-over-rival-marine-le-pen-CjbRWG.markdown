@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmanuel Macron wins French presidential election over rival Marine Le Pen"
-date: 2017-05-07 16:00:00Z
+date: 2017-05-07 21:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Voters across France are casting ballots in a presidential election runoff that 
 
 Full story on F3News: [Emmanuel Macron wins French presidential election over rival Marine Le Pen](http://www.f3nws.com/n/CjbRWG)
 
-> Posted on: Sunday, May 7, 2017 9:00:00 PM
+> Posted on: Monday, May 8, 2017 2:30:00 AM
