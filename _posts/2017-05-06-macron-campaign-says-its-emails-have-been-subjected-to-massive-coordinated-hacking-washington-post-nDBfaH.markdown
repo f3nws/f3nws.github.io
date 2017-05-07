@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Macron campaign says its emails have been subjected to 'massive, coordinated' hacking - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/06/Foreign/Images/05946111-4686.jpg)
 
-Washington Post Macron campaign says its emails have been subjected to 'massive, coordinated' hacking Washington Post PARIS — It was only the latest plot twist in a long, bitter campaign defined by rancor and uncertainty. The day before France's most momentous presidential election in recent history, authorities were still investigating the “massive and coordinated ... As French Elections Nears, So Does a Step Into the Unknown New York Times How Abstaining Far-Left French Voters Could Hand Le Pen Victory NBCNews.com Why don't we vote on weekends? The Boston Globe Reuters - BBC News - The Hill - New York Daily News all 3,294 news articles »
+Washington Post Macron campaign says its emails have been subjected to 'massive, coordinated' hacking Washington Post PARIS — It was only the latest plot twist in a long, bitter campaign defined by rancor and uncertainty. The day before France's most momentous presidential election in recent history, authorities were still investigating the “massive and coordinated ... How Abstaining Far-Left French Voters Could Hand Le Pen Victory NBCNews.com French elections: Voters decide between Macron and Le Pen BBC News Macron is opinion polls favorite as France elects new president Sunday Reuters The Hill - New York Daily News - Los Angeles Times - ABC News all 3,368 news articles »
 
 
 Full story on F3News: [Macron campaign says its emails have been subjected to 'massive, coordinated' hacking - Washington Post](http://www.f3nws.com/n/nDBfaH)
