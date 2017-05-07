@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0506%2Fr207353_1296x729_16%2D9.jpg)
 
-ESPN Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official ESPN LAS VEGAS -- Mexican supremacy goes to Canelo Alvarez, whose battle for national pride against Julio Cesar Chavez Jr. on Cinco de Mayo weekend turned out to be an annihilation of the highest order. After all three judges scored Saturday night's fight a ... Canelo Alvarez vs. Gennady Golovkin: Boxing's Biggest Fight at the Perfect Time Bleacher Report The biggest fight in boxing is finally happening FOXSports.com Recap! Canelo Alvarez cruises past Julio Cesar Chavez Jr. last night MMAmania.com Los Angeles Times all 575 news articles »
+USA TODAY Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official ESPN LAS VEGAS -- Mexican supremacy goes to Canelo Alvarez, whose battle for national pride against Julio Cesar Chavez Jr. on Cinco de Mayo weekend turned out to be an annihilation of the highest order. After all three judges scored Saturday night's fight a ... The biggest fight in boxing is finally happening FOXSports.com Canelo Alvarez vs. Gennady Golovkin: Boxing's Biggest Fight at the Perfect Time Bleacher Report Recap! Canelo Alvarez cruises past Julio Cesar Chavez Jr. last night MMAmania.com Los Angeles Times all 558 news articles »
 
 
 Full story on F3News: [Canelo Alvarez routs Julio Cesar Chavez Jr.; Golovkin fight official - ESPN](http://www.f3nws.com/n/4XSaGH)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Le Pen or Macron? France votes for president"
-date: 2017-05-07 14:16:57Z
+date: 2017-05-07 14:40:53Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ French voters headed to the polls Sunday for the final act in one of the most tu
 
 Full story on F3News: [Le Pen or Macron? France votes for president](http://www.f3nws.com/n/EyTFVF)
 
-> Posted on: Sunday, May 7, 2017 7:16:57 PM
+> Posted on: Sunday, May 7, 2017 7:40:53 PM
