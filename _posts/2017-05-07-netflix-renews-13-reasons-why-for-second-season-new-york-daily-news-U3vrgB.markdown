@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Netflix renews '13 Reasons Why' for second season - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3144564.1494172364!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/tv-13-reasons.jpg)
 
-New York Daily News Netflix renews '13 Reasons Why' for second season New York Daily News The Netflix series "13 Reasons Why" has officially been picked up for a second season following its controversial debut. Executive producer Selena Gomez announced the news on Instagram Sunday, sharing an eerie teaser with her 119 million followers. Netflix's 13 Reasons Why Renewed for Second Season TIME '13 Reasons Why' Renewed For Season 2 By Netflix Deadline '13 Reasons Why' Renewed for Season 2, Selena Gomez Shares Teaser Entertainment Tonight USA TODAY - Vanity Fair - RollingStone.com - Bustle all 133 news articles »
+New York Daily News Netflix renews '13 Reasons Why' for second season New York Daily News The Netflix series "13 Reasons Why" has officially been picked up for a second season following its controversial debut. Executive producer Selena Gomez announced the news on Instagram Sunday, sharing an eerie teaser with her 119 million followers. Netflix's 13 Reasons Why Renewed for Second Season TIME '13 Reasons Why' Renewed For Season 2 By Netflix Deadline '13 Reasons Why' gets renewed for second season by Netflix USA TODAY Entertainment Tonight - RollingStone.com - Vanity Fair - Bustle all 137 news articles »
 
 
 Full story on F3News: [Netflix renews '13 Reasons Why' for second season - New York Daily News](http://www.f3nws.com/n/U3vrgB)
