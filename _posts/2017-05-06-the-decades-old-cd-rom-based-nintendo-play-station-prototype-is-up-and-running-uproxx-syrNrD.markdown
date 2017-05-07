@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![The Decades-Old CD-ROM-Based 'Nintendo Play Station' Prototype Is Up And Running - UPROXX](https://uproxx.files.wordpress.com/2017/05/playstation-snes.jpg?quality=100&w=650)
 
-The Decades-Old CD-ROM-Based 'Nintendo Play Station' Prototype Is Up And Running UPROXX The SNES-CD system dates back to 1991 when Nintendo was still holding tight to the cartridge format while Sega was looking at all types of add-ons to the Genesis. With its pricey and clunky 32x and Sega CD, the Genesis certainly did what Nintendon't ... and more »
+Digital Trends The Decades-Old CD-ROM-Based 'Nintendo Play Station' Prototype Is Up And Running UPROXX The SNES-CD system dates back to 1991 when Nintendo was still holding tight to the cartridge format while Sega was looking at all types of add-ons to the Genesis. With its pricey and clunky 32x and Sega CD, the Genesis certainly did what Nintendon't ... Nintendo PlayStation Prototype: Finally Working! YouTube all 30 news articles »
 
 
 Full story on F3News: [The Decades-Old CD-ROM-Based 'Nintendo Play Station' Prototype Is Up And Running - UPROXX](http://www.f3nws.com/n/syrNrD)
