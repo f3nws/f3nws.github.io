@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Huge Scam Alert: Don't Open that Google Doc - CIO Today](http://www.cio-today.com/images/super/larger-16-Big-Data-Analytics-laptop-team2.jpg)
 
-Engadget Huge Scam Alert: Don't Open that Google Doc CIO Today Google appears to have shut down a phishing scam that this week tricked numerous Gmail users into accepting bogus invitations to share a Google Doc with people they know. However, it's possible that those who fell for the scam, as well as anyone in ... Google explains how it's preventing future email phishing scams Engadget Server-side tests have broken Google Now and the Play Store for some users Android Police How to Stop the Next Google Docs Freakout Fortune Yahoo News - Reddit - G Suite Update Alerts - My Account - Google all 99 news articles »
+Engadget Huge Scam Alert: Don't Open that Google Doc CIO Today Google appears to have shut down a phishing scam that this week tricked numerous Gmail users into accepting bogus invitations to share a Google Doc with people they know. However, it's possible that those who fell for the scam, as well as anyone in ... Google explains how it's preventing future email phishing scams Engadget Server-side tests have broken Google Now and the Play Store for some users Android Police How to Stop the Next Google Docs Freakout Fortune Yahoo News - Reddit - G Suite Update Alerts - My Account - Google all 100 news articles »
 
 
 Full story on F3News: [Huge Scam Alert: Don't Open that Google Doc - CIO Today](http://www.f3nws.com/n/QgaRuC)
