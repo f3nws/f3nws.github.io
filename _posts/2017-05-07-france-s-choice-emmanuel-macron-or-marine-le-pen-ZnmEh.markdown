@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France's choice: Emmanuel Macron or Marine Le Pen"
-date: 2017-05-07 10:50:26Z
+date: 2017-05-07 13:14:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Independent centrist Emmanuel Macron and far-right leader Marine Le Pen vie for 
 
 Full story on F3News: [France's choice: Emmanuel Macron or Marine Le Pen](http://www.f3nws.com/n/ZnmEh)
 
-> Posted on: Sunday, May 7, 2017 3:50:26 PM
+> Posted on: Sunday, May 7, 2017 6:14:28 PM

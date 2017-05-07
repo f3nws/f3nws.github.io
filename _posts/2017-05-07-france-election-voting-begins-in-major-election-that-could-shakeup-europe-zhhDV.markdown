@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France election: Voting begins in major election that could shakeup Europe"
-date: 2017-05-07 11:30:00Z
+date: 2017-05-07 12:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Voters across France are casting ballots in a presidential election runoff that 
 
 Full story on F3News: [France election: Voting begins in major election that could shakeup Europe](http://www.f3nws.com/n/zhhDV)
 
-> Posted on: Sunday, May 7, 2017 4:30:00 PM
+> Posted on: Sunday, May 7, 2017 5:30:00 PM
