@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meghan Markle Scored the Invite to Pippa Middleton's Wedding - E! Online"
-date: 2017-05-08 17:50:04Z
+date: 2017-05-08 17:51:29Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ E! Online Meghan Markle Scored the Invite to Pippa Middleton's Wedding E! Online
 
 Full story on F3News: [Meghan Markle Scored the Invite to Pippa Middleton's Wedding - E! Online](http://www.f3nws.com/n/xAXPVC)
 
-> Posted on: Monday, May 8, 2017 10:50:04 PM
+> Posted on: Monday, May 8, 2017 10:51:29 PM
