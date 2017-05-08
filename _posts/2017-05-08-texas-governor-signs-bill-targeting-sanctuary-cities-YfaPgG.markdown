@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas governor signs bill targeting sanctuary cities"
-date: 2017-05-08 00:45:00Z
+date: 2017-05-08 02:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Texas Gov. Greg Abbott signed a bill Sunday prohibiting the state's cities and c
 
 Full story on F3News: [Texas governor signs bill targeting sanctuary cities](http://www.f3nws.com/n/YfaPgG)
 
-> Posted on: Monday, May 8, 2017 5:45:00 AM
+> Posted on: Monday, May 8, 2017 7:30:00 AM
