@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Yates says she warned White House Flynn could be 'blackmailed' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/08/National-Politics/Images/YATES1002.JPG)
 
-Washington Post Yates says she warned White House Flynn could be 'blackmailed' Washington Post Former acting attorney general Sally Yates said Monday she warned the top lawyer in the White House that then-national security adviser Michael Flynn could be blackmailed by Russia, and gave the White House a private warning “so that they could take ... WATCH LIVE: Sally Yates Testifies: 'We Believed Gen. Flynn Was Compromised' NPR Sally Yates says she warned White House that Flynn was a blackmail risk CNN Obama Warned Trump About Hiring Flynn, Officials Say New York Times Politico - ABC News - Chicago Tribune - NBCNews.com all 716 news articles »
+Washington Post Yates says she warned White House Flynn could be 'blackmailed' Washington Post Former acting attorney general Sally Yates said Monday she warned the top lawyer in the White House that then-national security adviser Michael Flynn could be blackmailed by Russia, and gave the White House a private warning “so that they could take ... Sally Yates says she warned White House that Flynn was a blackmail risk CNN WATCH LIVE: Sally Yates Testifies: 'We Believed Gen. Flynn Was Compromised' NPR Sally Yates Says She Told White House Flynn Was Susceptible to Blackmail New York Times Politico - NBCNews.com - ABC News - Fox News all 763 news articles »
 
 
 Full story on F3News: [Yates says she warned White House Flynn could be 'blackmailed' - Washington Post](http://www.f3nws.com/n/NeScnH)
