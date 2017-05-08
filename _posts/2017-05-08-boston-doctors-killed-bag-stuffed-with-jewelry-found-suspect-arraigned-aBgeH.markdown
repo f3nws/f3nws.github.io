@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boston doctors killed: Bag stuffed with jewelry found, suspect arraigned"
-date: 2017-05-08 19:15:00Z
+date: 2017-05-08 21:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The suspect accused in the brutal murders of two engaged doctors at their pentho
 
 Full story on F3News: [Boston doctors killed: Bag stuffed with jewelry found, suspect arraigned](http://www.f3nws.com/n/aBgeH)
 
-> Posted on: Tuesday, May 9, 2017 12:15:00 AM
+> Posted on: Tuesday, May 9, 2017 2:45:00 AM
