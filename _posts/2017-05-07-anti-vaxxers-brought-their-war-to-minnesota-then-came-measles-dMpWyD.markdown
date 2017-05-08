@@ -5,6 +5,8 @@ date: 2017-05-07 11:00:46Z
 categories: wired-top-stories
 ---
 
+![Anti-Vaxxers Brought Their War to Minnesota—Then Came Measles](https://www.wired.com/wp-content/uploads/2017/05/Measles_HP-102493123-1200x630.jpg)
+
 Misinformation targeted at Somali-American communities in Minneapolis is fueling the state's biggest outbreak in three decades. The post Anti-Vaxxers Brought Their War to Minnesota—Then Came Measles appeared first on WIRED .
 
 
