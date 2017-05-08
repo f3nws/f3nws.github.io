@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Beware The Twist! Bill Clinton Plans To Pen A Thriller With James Patterson - NPR](https://media.npr.org/assets/img/2017/05/08/gettyimages-621680154_wide-7a54f3762abe2835441980d519e15796bb020692.jpg?s=1400)
 
-NPR Beware The Twist! Bill Clinton Plans To Pen A Thriller With James Patterson NPR James Patterson has a long history of collaboration. Of his dozens of books, the blockbuster thriller writer has written at least 50 — yes, five-zero — with the name of a co-author emblazoned on the cover. Still, it's fair to say none of them has the ... James Patterson and Bill Clinton Team Up to Write a Novel New York Times Bill Clinton and James Patterson co-writing a thriller Washington Post Bill Clinton and James Patterson are writing a novel CNN Los Angeles Times - Hollywood Reporter all 66 news articles »
+NPR Beware The Twist! Bill Clinton Plans To Pen A Thriller With James Patterson NPR James Patterson has a long history of collaboration. Of his dozens of books, the blockbuster thriller writer has written at least 50 — yes, five-zero — with the name of a co-author emblazoned on the cover. Still, it's fair to say none of them has the ... Bill Clinton and James Patterson co-writing a thriller Washington Post Bill Clinton and James Patterson are writing a novel CNN Bill Clinton and James Patterson are writing a book together Los Angeles Times The Hill - Bustle - Hollywood Reporter all 69 news articles »
 
 
 Full story on F3News: [Beware The Twist! Bill Clinton Plans To Pen A Thriller With James Patterson - NPR](http://www.f3nws.com/n/MxqWEG)
