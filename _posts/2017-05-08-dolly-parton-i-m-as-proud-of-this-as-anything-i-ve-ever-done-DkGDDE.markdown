@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dolly Parton: I'm as proud of this as anything I've ever done"
-date: 2017-05-08 13:12:48Z
+date: 2017-05-08 22:06:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Everybody who knows anything about me knows I was born and raised in the Smoky M
 
 Full story on F3News: [Dolly Parton: I'm as proud of this as anything I've ever done](http://www.f3nws.com/n/DkGDDE)
 
-> Posted on: Monday, May 8, 2017 6:12:48 PM
+> Posted on: Tuesday, May 9, 2017 3:06:55 AM
