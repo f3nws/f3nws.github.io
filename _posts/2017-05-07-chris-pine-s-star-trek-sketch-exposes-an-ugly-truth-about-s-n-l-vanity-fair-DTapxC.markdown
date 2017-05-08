@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Chris Pine's Star Trek Sketch Exposes an Ugly Truth About S.N.L. - Vanity Fair](http://media.vanityfair.com/photos/590f2d8db2b5c96b5f052e4b/16:9/w_1200,h_630,c_limit/sulu-snl.jpg)
 
-Vanity Fair Chris Pine's Star Trek Sketch Exposes an Ugly Truth About S.N.L. Vanity Fair When Star Trek leading man Chris Pine was picked to host Saturday Night Live this weekend, it felt inevitable that the late-night comedy show would, at one point, have him captaining a space ship. (And, no, not just because they had that other handsome ... Saturday Night Live Recap: Chris Pine Gets Goofy Vulture 'Saturday Night Live' Ratings Slip With Host Chris Pine; Audience Largest For May Telecast In 5 Years Deadline all 107 news articles »
+Vanity Fair Chris Pine's Star Trek Sketch Exposes an Ugly Truth About S.N.L. Vanity Fair When Star Trek leading man Chris Pine was picked to host Saturday Night Live this weekend, it felt inevitable that the late-night comedy show would, at one point, have him captaining a space ship. (And, no, not just because they had that other handsome ... Saturday Night Live recap: Chris Pine EW.com (blog) Saturday Night Live Recap: Chris Pine Gets Goofy Vulture 'Saturday Night Live' Ratings Slip With Host Chris Pine; Audience Largest For May Telecast In 5 Years Deadline Comicbook.com - YouTube all 110 news articles »
 
 
 Full story on F3News: [Chris Pine's Star Trek Sketch Exposes an Ugly Truth About S.N.L. - Vanity Fair](http://www.f3nws.com/n/DTapxC)

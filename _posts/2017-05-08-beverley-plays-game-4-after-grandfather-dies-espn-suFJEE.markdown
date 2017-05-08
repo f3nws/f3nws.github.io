@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Beverley plays Game 4 after grandfather dies - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0326%2Fr194051_1296x729_16%2D9.jpg)
 
-ESPN Beverley plays Game 4 after grandfather dies ESPN HOUSTON -- Rockets guard Patrick Beverley came through with an inspirational performance in Sunday's series-evening victory hours after learning of the death of his grandfather who helped raise him. Rheese Morris died earlier Sunday, and Beverley ... 'Today was tough': Rockets' Patrick Beverley plays despite death of grandfather Washington Post The Rockets' Series Against The Spurs Turns On Its Human Elements Sports Illustrated Rockets vs. Spurs: Five takeaways from Game 4 USA TODAY FOXSports.com - Bleacher Report - CBSSports.com - Yahoo Sports all 409 news articles »
+Washington Times Beverley plays Game 4 after grandfather dies ESPN HOUSTON -- Rockets guard Patrick Beverley came through with an inspirational performance in Sunday's series-evening victory hours after learning of the death of his grandfather who helped raise him. Rheese Morris died earlier Sunday, and Beverley ... The Rockets' Series Against The Spurs Turns On Its Human Elements Sports Illustrated Rockets vs. Spurs: Five takeaways from Game 4 USA TODAY The Rockets pushed the pace and made their 3s to tie the Spurs at 2-2 Yahoo Sports CBSSports.com - FOXSports.com - NBA.com - Washington Post all 410 news articles »
 
 
 Full story on F3News: [Beverley plays Game 4 after grandfather dies - ESPN](http://www.f3nws.com/n/suFJEE)
