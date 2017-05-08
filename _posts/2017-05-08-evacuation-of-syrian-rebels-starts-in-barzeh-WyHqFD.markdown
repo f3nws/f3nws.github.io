@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Evacuation of Syrian rebels starts in Barzeh"
-date: 2017-05-08 11:48:24Z
+date: 2017-05-08 15:11:57Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Hundreds of opposition fighters and their family members travelling to rebel-hel
 
 Full story on F3News: [Evacuation of Syrian rebels starts in Barzeh](http://www.f3nws.com/n/WyHqFD)
 
-> Posted on: Monday, May 8, 2017 4:48:24 PM
+> Posted on: Monday, May 8, 2017 8:11:57 PM
