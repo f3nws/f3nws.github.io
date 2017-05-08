@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![North Korea detains second US professor working at Pyongyang university - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170413141629-08-kim-jong-un-april-13-super-tease.jpg)
 
-CNN North Korea detains second US professor working at Pyongyang university CNN Seoul, South Korea (CNN) North Korea has detained a US citizen on suspicion of "hostile acts" against the regime, the state-run Korean Central News Agency reported Sunday. The regime described Kim Hak-song as "a man who was doing business in ... North Korea claims plot reveals US state-sponsored terrorism Washington Post North Korea accuses CIA of biochemical plot to kill Kim Jong-un The Guardian North Korea accuses CIA of 'bio-chemical' plot against leadership Reuters USA TODAY - BBC News all 345 news articles »
+CNN North Korea detains second US professor working at Pyongyang university CNN Seoul, South Korea (CNN) North Korea has detained a US citizen on suspicion of "hostile acts" against the regime, the state-run Korean Central News Agency reported Sunday. The regime described Kim Hak-song as "a man who was doing business in ... North Korea accuses CIA of biochemical plot to kill Kim Jong-un The Guardian North Korea accuses CIA of 'bio-chemical' plot against leadership Reuters North Korea accuses CIA of 'vicious plot' to kill leader Kim Jong Un USA TODAY Fox News all 226 news articles »
 
 
 Full story on F3News: [North Korea detains second US professor working at Pyongyang university - CNN](http://www.f3nws.com/n/pc3fRE)
