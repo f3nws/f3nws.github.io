@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels - Washington Post"
-date: 2017-05-08 17:11:19Z
+date: 2017-05-08 17:47:40Z
 categories: google-news-top-stories
 ---
 
 ![EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/29/Production/Daily/A-Section/Images/668169314.jpg)
 
-Washington Post EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels Washington Post Both the Environmental Protection Agency and the Interior Department are overhauling a slew of outside advisory boards that inform how their agencies assess the science underpinning policies, the first step in a broader effort by Republicans to change ... Pruitt removes scientists from key EPA board CNN Trump Scientific Adviser Shakeup Could Mean More Industry Advice Bloomberg Perez jabs Trump's 'aggressive stupidity' on environment The Hill ThinkProgress - Yahoo News - New York Times - US EPA all 182 news articles »
+Washington Post EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels Washington Post Both the Environmental Protection Agency and the Interior Department are overhauling a slew of outside advisory boards that inform how their agencies assess the science underpinning policies, the first step in a broader effort by Republicans to change ... Watch live: Sally Yates, James Clapper testify on Russian election meddling Los Angeles Times Pruitt removes scientists from key EPA board CNN Perez jabs Trump's 'aggressive stupidity' on environment The Hill Bloomberg - New York Times - Twitter all 153 news articles »
 
 
 Full story on F3News: [EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels - Washington Post](http://www.f3nws.com/n/EdVrtF)
 
-> Posted on: Monday, May 8, 2017 10:11:19 PM
+> Posted on: Monday, May 8, 2017 10:47:40 PM
