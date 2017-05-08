@@ -5,7 +5,7 @@ date: 2017-05-07 21:49:55Z
 categories: al-jazeera-english
 ---
 
-![Emmanuel Macron elected next French president](http://www.aljazeera.com/mritems/Images/2017/5/7/8ade3439fd1246739c68d7825b37232d_18.jpg)
+![Emmanuel Macron elected next French president](http://www.aljazeera.com/mritems/Images/2017/5/8/05748e5e16d24d15aeaaf8e6ae2f3412_18.jpg)
 
 Centrist candidate beats out far-right rival Marine Le Pen, just one year after establishing En Marche! movement.
 
