@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mitch McConnell and his 12 angry men..."
-date: 2017-05-08 14:00:47Z
+date: 2017-05-08 14:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ All 13 are men. All 13 are conservative Republicans. Twelve of the 13 represent 
 
 Full story on F3News: [Mitch McConnell and his 12 angry men...](http://www.f3nws.com/n/csVtqG)
 
-> Posted on: Monday, May 8, 2017 7:00:47 PM
+> Posted on: Monday, May 8, 2017 7:00:00 PM
