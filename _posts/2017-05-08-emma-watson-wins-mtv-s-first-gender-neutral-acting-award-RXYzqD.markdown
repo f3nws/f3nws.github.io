@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emma Watson wins MTV's first gender neutral acting award"
-date: 2017-05-08 12:45:05Z
+date: 2017-05-08 15:33:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ MTV abolished gender-specific categories for its acting awards this year, giving
 
 Full story on F3News: [Emma Watson wins MTV's first gender neutral acting award](http://www.f3nws.com/n/RXYzqD)
 
-> Posted on: Monday, May 8, 2017 5:45:05 PM
+> Posted on: Monday, May 8, 2017 8:33:21 PM
