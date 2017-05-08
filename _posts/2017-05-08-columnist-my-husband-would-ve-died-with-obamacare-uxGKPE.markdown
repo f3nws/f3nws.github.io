@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Columnist: My Husband Would've Died with ObamaCare"
-date: 2017-05-08 13:00:16Z
+date: 2017-05-08 13:30:19Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Columnist: My Husband Would've Died with ObamaCare](http://www.f3nws.com/n/uxGKPE)
 
-> Posted on: Monday, May 8, 2017 6:00:16 PM
+> Posted on: Monday, May 8, 2017 6:30:19 PM
