@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![France rejects Le Pen's nationalism to elect centrist Macron](http://www.abc.net.au/news/image/8505722-1x1-700x700.jpg)
 
-French voters elect centrist Emmanuel Macron as the country's youngest president ever, delivering a resounding victory to the unabashedly pro-European former investment banker and strengthening France's place as a central pillar of the European Union.
+Ripping up France's political map, French voters elect independent centrist Emmanuel Macron as the country's youngest president, delivering a resounding victory to the unabashedly pro-European former investment banker and dashing the populist dream of far-right rival Marine Le Pen.
 
 
 Full story on F3News: [France rejects Le Pen's nationalism to elect centrist Macron](http://www.f3nws.com/n/ebNJdB)
