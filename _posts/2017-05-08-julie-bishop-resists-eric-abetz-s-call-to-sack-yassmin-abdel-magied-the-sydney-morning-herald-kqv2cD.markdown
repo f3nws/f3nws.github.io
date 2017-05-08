@@ -5,9 +5,9 @@ date: 2017-05-08 07:39:14Z
 categories: google-news-australia
 ---
 
-![Julie Bishop resists Eric Abetz's call to sack Yassmin Abdel-Magied - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/r/r/i/n/l/image.related.articleLeadwide.620x349.gw0cbb.png/1494229090058.jpg)
+![Julie Bishop resists Eric Abetz's call to sack Yassmin Abdel-Magied - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/r/r/i/n/l/image.related.articleLeadwide.620x349.gw0cbb.png/1494242325659.jpg)
 
-The Sydney Morning Herald Julie Bishop resists Eric Abetz's call to sack Yassmin Abdel-Magied The Sydney Morning Herald Foreign Minister Julie Bishop has resisted calls to sack Yassmin Abdel-Magied from a government advisory board over controversial Anzac Day comments because the ABC presenter has apologised for her "highly inappropriate" social media post and ... Yassmin Abdel-Magied to keep Foreign Affairs job after Julie Bishop probe The Australian Bishop won't sack Abdel-Magied from CAAR Sky News Australia Julie Bishop keeps Abdel-Magied on Australian-Arab board The Conversation AU all 10 news articles »
+The Sydney Morning Herald Julie Bishop resists Eric Abetz's call to sack Yassmin Abdel-Magied The Sydney Morning Herald Foreign Minister Julie Bishop has resisted calls to sack Yassmin Abdel-Magied from a government advisory board over controversial Anzac Day comments because the ABC presenter has apologised for her "highly inappropriate" social media post and ... Julie Bishop sticks by Yassmin Abdel-Magied SBS Yassmin Abdel-Magied to keep Foreign Affairs job after Julie Bishop probe The Australian Bishop won't sack Abdel-Magied from CAAR Sky News Australia The Conversation AU all 10 news articles »
 
 
 Full story on F3News: [Julie Bishop resists Eric Abetz's call to sack Yassmin Abdel-Magied - The Sydney Morning Herald](http://www.f3nws.com/n/kqv2cD)
