@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![EPA dismisses half of its scientific advisers on key board, citing 'clean break' with Obama administration - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/29/Production/Daily/A-Section/Images/668169314.jpg)
 
-Washington Post EPA dismisses half of its scientific advisers on key board, citing 'clean break' with Obama administration Washington Post Environmental Protection Agency Administrator Scott Pruitt has chosen to replace half of the members on one of its key scientific review boards, the first step in a broader effort by Republicans to change the way the agency evaluates the scientific ... Trump's war on science continues with EPA firings New York Daily News Page being updated | US EPA US EPA Apple and Walmart Stand By Climate Change Policies Despite Trump's Executive Order Fortune Globalnews.ca - New York Times all 109 news articles »
+Washington Post EPA dismisses half of its scientific advisers on key board, citing 'clean break' with Obama administration Washington Post Environmental Protection Agency Administrator Scott Pruitt has chosen to replace half of the members on one of its key scientific review boards, the first step in a broader effort by Republicans to change the way the agency evaluates the scientific ... Page being updated | US EPA US EPA Apple and Walmart Stand By Climate Change Policies Despite Trump's Executive Order Fortune EPA Dismisses Members of Major Scientific Review Board New York Times Globalnews.ca all 109 news articles »
 
 
 Full story on F3News: [EPA dismisses half of its scientific advisers on key board, citing 'clean break' with Obama administration - Washington Post](http://www.f3nws.com/n/EdVrtF)

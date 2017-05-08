@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boston doctors killed: Horrific scene emerges at penthouse"
-date: 2017-05-08 13:15:00Z
+date: 2017-05-08 13:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities who found two Massachusetts doctors dead in their apartment said the
 
 Full story on F3News: [Boston doctors killed: Horrific scene emerges at penthouse](http://www.f3nws.com/n/qUkVvE)
 
-> Posted on: Monday, May 8, 2017 6:15:00 PM
+> Posted on: Monday, May 8, 2017 6:30:00 PM

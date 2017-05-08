@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hearing May Shed Light on What White House Knew About Flynn - New York Times](https://static01.nyt.com/images/2017/05/09/world/09Russiahearing/09Russiahearing-facebookJumbo.jpg)
 
-New York Times Hearing May Shed Light on What White House Knew About Flynn New York Times Sally Q. Yates at a Senate Judiciary Committee hearing in 2015 on her nomination as acting attorney general. Credit Pablo Martinez Monsivais/Associated Press. WASHINGTON — Sally Q. Yates, the former acting attorney general, is scheduled to testify at ... Sally Yates is about to bring back the Russia story in a big way CNN The Note: Sally Yates goes under oath on Russia ABC News Trump: 'Flynn was given the highest security clearance by the Obama Administration' The Hill WPXI Pittsburgh - The Week Magazine - Salon - New York Daily News all 241 news articles »
+New York Times Hearing May Shed Light on What White House Knew About Flynn New York Times Sally Q. Yates at a Senate Judiciary Committee hearing in 2015 on her nomination as acting attorney general. Credit Pablo Martinez Monsivais/Associated Press. WASHINGTON — Sally Q. Yates, the former acting attorney general, is scheduled to testify at ... Sally Yates is about to bring back the Russia story in a big way CNN After being fired by Trump, Sally Yates to testify on Russia Washington Post The Note: Sally Yates goes under oath on Russia ABC News Politico - The Hill - WPXI Pittsburgh - Business Insider all 259 news articles »
 
 
 Full story on F3News: [Hearing May Shed Light on What White House Knew About Flynn - New York Times](http://www.f3nws.com/n/BdErRH)
