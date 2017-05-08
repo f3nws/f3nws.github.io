@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Mark Latham joins 'party of freedom' Liberal Democrats](http://www.abc.net.au/news/image/6703648-1x1-700x700.jpg)
 
-Former Labor opposition leader and prime ministerial candidate Mark Latham says he will join the Liberal Democrats Party, applauding their "room for dissent" and "diversity of opinion".
+Former Labor opposition leader and prime ministerial candidate Mark Latham says he will join the Liberal Democrats, applauding the party for its "room for dissent" and "diversity of opinion".
 
 
 Full story on F3News: [Mark Latham joins 'party of freedom' Liberal Democrats](http://www.f3nws.com/n/KxgfUH)
