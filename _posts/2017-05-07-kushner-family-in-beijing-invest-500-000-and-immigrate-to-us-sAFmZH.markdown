@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kushner family in Beijing: 'Invest $500,000 and immigrate' to US"
-date: 2017-05-07 19:40:46Z
+date: 2017-05-07 23:36:15Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [Kushner family in Beijing: 'Invest $500,000 and immigrate' to US](http://www.f3nws.com/n/sAFmZH)
 
-> Posted on: Monday, May 8, 2017 12:40:46 AM
+> Posted on: Monday, May 8, 2017 4:36:15 AM
