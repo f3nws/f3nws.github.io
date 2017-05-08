@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Oliver rants about net neutrality again, FCC site goes down     - CNET"
-date: 2017-05-08 21:01:14Z
+date: 2017-05-08 22:40:08Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: With the arrival of a new FCC chairman, the HBO comedian returns to 
 
 Full story on F3News: [John Oliver rants about net neutrality again, FCC site goes down     - CNET](http://www.f3nws.com/n/VdcUjH)
 
-> Posted on: Tuesday, May 9, 2017 2:01:14 AM
+> Posted on: Tuesday, May 9, 2017 3:40:08 AM
