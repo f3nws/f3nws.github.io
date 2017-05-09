@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US considers 'boosting troop presence' in Afghanistan"
-date: 2017-05-09 15:59:05Z
+date: 2017-05-09 17:56:45Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Recommendation is made after broad review and comes while NATO asks UK for more 
 
 Full story on F3News: [US considers 'boosting troop presence' in Afghanistan](http://www.f3nws.com/n/tSZARF)
 
-> Posted on: Tuesday, May 9, 2017 8:59:05 PM
+> Posted on: Tuesday, May 9, 2017 10:56:45 PM
