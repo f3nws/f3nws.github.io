@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French voters react to Emmanuel Macron's election win"
-date: 2017-05-09 10:01:34Z
+date: 2017-05-09 11:48:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Al Jazeera speaks to people in Paris about their mixed emotions over Emmanuel Ma
 
 Full story on F3News: [French voters react to Emmanuel Macron's election win](http://www.f3nws.com/n/3aTKPH)
 
-> Posted on: Tuesday, May 9, 2017 3:01:34 PM
+> Posted on: Tuesday, May 9, 2017 4:48:08 PM

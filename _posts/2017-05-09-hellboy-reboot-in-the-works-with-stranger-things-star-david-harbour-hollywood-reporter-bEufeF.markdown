@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Hellboy' Reboot in the Works With 'Stranger Things' Star David Harbour - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/05/horizontal_split_1296_730_preta.jpg)
 
-Hollywood Reporter 'Hellboy' Reboot in the Works With 'Stranger Things' Star David Harbour Hollywood Reporter Millennium is in negotiations with producers Larry Gordon and Lloyd Levin for a new installment. Hellboy, the demonic comic book hero turned Guillermo del Toro film franchise, is poised to return to the big screen, this time without the filmmaker at ... Another Hellboy Movie Is Happening, But With Some Huge Changes Cinema Blend Neil Marshall to Direct Hellboy Reboot Starring David Harbour! ComingSoon.net Okay, here's some news-- There IS going... - artofmikemignola.com | Facebook Facebook all 82 news articles »
+Hollywood Reporter 'Hellboy' Reboot in the Works With 'Stranger Things' Star David Harbour Hollywood Reporter Millennium is in negotiations with producers Larry Gordon and Lloyd Levin for a new installment. Hellboy, the demonic comic book hero turned Guillermo del Toro film franchise, is poised to return to the big screen, this time without the filmmaker at ... 'Hellboy' creator reveals reboot in the works EW.com (blog) Mike Mignola announces Hellboy reboot starring Stranger Things' David Harbour Blastr Another Hellboy Movie Is Happening, But With Some Huge Changes Cinema Blend ComingSoon.net - Facebook all 85 news articles »
 
 
 Full story on F3News: ['Hellboy' Reboot in the Works With 'Stranger Things' Star David Harbour - Hollywood Reporter](http://www.f3nws.com/n/bEufeF)
