@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hanford Nuclear Reservation tunnel collapse triggers alert"
-date: 2017-05-09 18:14:00Z
+date: 2017-05-09 18:34:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Thousands of workers were warned to take cover after a tunnel collapsed Tuesday 
 
 Full story on F3News: [Hanford Nuclear Reservation tunnel collapse triggers alert](http://www.f3nws.com/n/cavcEB)
 
-> Posted on: Tuesday, May 9, 2017 11:14:00 PM
+> Posted on: Tuesday, May 9, 2017 11:34:00 PM
