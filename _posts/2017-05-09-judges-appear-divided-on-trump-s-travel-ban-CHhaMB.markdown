@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judges appear divided on Trump's travel ban"
-date: 2017-05-09 00:14:16Z
+date: 2017-05-09 09:28:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Federal appeals court judges appeared divided Monday after hearing the Trump adm
 
 Full story on F3News: [Judges appear divided on Trump's travel ban](http://www.f3nws.com/n/CHhaMB)
 
-> Posted on: Tuesday, May 9, 2017 5:14:16 AM
+> Posted on: Tuesday, May 9, 2017 2:28:54 PM
