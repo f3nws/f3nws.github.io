@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Pepe the Frog Is Dead, or So His Creator Hopes - New York Times](https://static01.nyt.com/images/2017/05/08/us/09xp-pepefrog/09xp-pepefrog-facebookJumbo.jpg)
 
-New York Times Pepe the Frog Is Dead, or So His Creator Hopes New York Times The Anti-Defamation League designated Pepe the Frog as a hate symbol in 2016, and later pledged to help its artist reclaim it. Credit Damon Winter/The New York Times. After a brief and tumultuous life, Pepe the Frog is dead. Or at least, that's how he ... Pepe the Frog became a hate symbol. Now he's just a dead hate symbol. Washington Post Pepe the Frog's Creator: I'm Reclaiming Him. He Was Never About Hate TIME Pepe the Frog Is Dead: Creator Kills the White Supremacist-Hijacked Icon CBR all 64 news articles »
+New York Times Pepe the Frog Is Dead, or So His Creator Hopes New York Times The Anti-Defamation League designated Pepe the Frog as a hate symbol in 2016, and later pledged to help its artist reclaim it. Credit Damon Winter/The New York Times. After a brief and tumultuous life, Pepe the Frog is dead. Or at least, that's how he ... Pepe the Frog became a hate symbol. Now he's just a dead hate symbol. Washington Post Pepe the Frog's Creator: I'm Reclaiming Him. He Was Never About Hate TIME Pepe the Frog Is Dead: Creator Kills the White Supremacist-Hijacked Icon CBR all 65 news articles »
 
 
 Full story on F3News: [Pepe the Frog Is Dead, or So His Creator Hopes - New York Times](http://www.f3nws.com/n/4SCBuH)
