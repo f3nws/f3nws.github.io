@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liberal Moon Jae-in set to win South Korean presidency"
-date: 2017-05-09 15:28:03Z
+date: 2017-05-09 15:39:11Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Moon said he will be a 'president for all' as he claimed a victory that will end
 
 Full story on F3News: [Liberal Moon Jae-in set to win South Korean presidency](http://www.f3nws.com/n/BRNTcC)
 
-> Posted on: Tuesday, May 9, 2017 8:28:03 PM
+> Posted on: Tuesday, May 9, 2017 8:39:11 PM

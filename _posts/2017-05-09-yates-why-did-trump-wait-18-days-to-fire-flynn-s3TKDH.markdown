@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yates: Why did Trump wait 18 days to fire Flynn?"
-date: 2017-05-09 15:29:02Z
+date: 2017-05-09 15:32:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sally Yates didn't bring a smoking gun to the latest episode of the long-running
 
 Full story on F3News: [Yates: Why did Trump wait 18 days to fire Flynn?](http://www.f3nws.com/n/s3TKDH)
 
-> Posted on: Tuesday, May 9, 2017 8:29:02 PM
+> Posted on: Tuesday, May 9, 2017 8:32:06 PM
