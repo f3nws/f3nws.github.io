@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Owners of dead giant rabbit want United to pay up"
-date: 2017-05-09 08:56:10Z
+date: 2017-05-09 10:36:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Owners of dead giant rabbit want United to pay up](http://www.f3nws.com/n/nnEUHG)
 
-> Posted on: Tuesday, May 9, 2017 1:56:10 PM
+> Posted on: Tuesday, May 9, 2017 3:36:32 PM
