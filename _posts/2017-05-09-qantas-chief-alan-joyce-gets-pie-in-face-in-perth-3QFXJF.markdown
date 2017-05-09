@@ -5,7 +5,7 @@ date: 2017-05-09 01:39:59Z
 categories: abc-top-stories
 ---
 
-![Qantas chief Alan Joyce gets pie in face in Perth](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
+![Qantas chief Alan Joyce gets pie in face in Perth](http://www.abc.net.au/news/image/8510424-1x1-700x700.jpg)
 
 A man in his 60s launches a lemon meringue pie at Qantas chief executive Alan Joyce, hitting him in the face as he delivers an address at a business breakfast in Perth.
 
