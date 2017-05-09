@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Man who defecated on Devils Marbles 'shitting on our culture'](http://www.abc.net.au/news/image/8509840-1x1-700x700.jpg)
 
-Traditional owners a calling for a man who defecated at the Devils Marbles sacred site in Central Australia to be prosecuted.
+Traditional owners are calling for a man who defecated at the Devils Marbles sacred site in Central Australia to be prosecuted.
 
 
 Full story on F3News: [Man who defecated on Devils Marbles 'shitting on our culture'](http://www.f3nws.com/n/nPbzXE)
