@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US journalist asked to leave 'Kushner family event' in China"
-date: 2017-05-09 06:36:06Z
+date: 2017-05-09 12:23:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After seeing advertisements for what was described as a "Kushner event featuring
 
 Full story on F3News: [US journalist asked to leave 'Kushner family event' in China](http://www.f3nws.com/n/avhtE)
 
-> Posted on: Tuesday, May 9, 2017 11:36:06 AM
+> Posted on: Tuesday, May 9, 2017 5:23:59 PM
