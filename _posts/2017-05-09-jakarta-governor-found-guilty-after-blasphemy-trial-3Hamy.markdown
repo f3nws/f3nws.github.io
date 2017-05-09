@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jakarta governor found guilty after blasphemy trial"
-date: 2017-05-09 08:55:17Z
+date: 2017-05-09 09:04:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jakarta governor Basuki Tjahaja Purnama, commonly known as Ahok, has been senten
 
 Full story on F3News: [Jakarta governor found guilty after blasphemy trial](http://www.f3nws.com/n/3Hamy)
 
-> Posted on: Tuesday, May 9, 2017 1:55:17 PM
+> Posted on: Tuesday, May 9, 2017 2:04:21 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The modern Titanic you can live on"
-date: 2017-05-09 01:47:04Z
+date: 2017-05-09 09:03:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Stepping onto The World feels like boarding a 21st-century Titanic.
 
 Full story on F3News: [The modern Titanic you can live on](http://www.f3nws.com/n/jspyGJ)
 
-> Posted on: Tuesday, May 9, 2017 6:47:04 AM
+> Posted on: Tuesday, May 9, 2017 2:03:31 PM
