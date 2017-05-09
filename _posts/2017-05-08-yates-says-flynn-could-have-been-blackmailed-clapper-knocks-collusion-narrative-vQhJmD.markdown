@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yates says Flynn could have been ‘blackmailed,’ Clapper knocks collusion narrative"
-date: 2017-05-08 20:06:00Z
+date: 2017-05-08 23:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump’s ousted national security adviser Michael Flynn took more hit
 
 Full story on F3News: [Yates says Flynn could have been ‘blackmailed,’ Clapper knocks collusion narrative](http://www.f3nws.com/n/vQhJmD)
 
-> Posted on: Tuesday, May 9, 2017 1:06:00 AM
+> Posted on: Tuesday, May 9, 2017 4:15:00 AM
