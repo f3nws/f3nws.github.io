@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI chief was wrong on Clinton emails"
-date: 2017-05-09 17:05:27Z
+date: 2017-05-09 22:53:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ FBI Director James Comey erroneously told Congress last week that former Hillary
 
 Full story on F3News: [FBI chief was wrong on Clinton emails](http://www.f3nws.com/n/bkHqsB)
 
-> Posted on: Tuesday, May 9, 2017 10:05:27 PM
+> Posted on: Wednesday, May 10, 2017 3:53:30 AM
