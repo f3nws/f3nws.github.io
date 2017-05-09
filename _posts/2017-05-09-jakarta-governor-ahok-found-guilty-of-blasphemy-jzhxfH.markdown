@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jakarta governor Ahok found guilty of blasphemy"
-date: 2017-05-09 05:00:07Z
+date: 2017-05-09 05:03:42Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Police deployed in Jakarta as opponents demand outgoing Governor Basuki 'Ahok' P
 
 Full story on F3News: [Jakarta governor Ahok found guilty of blasphemy](http://www.f3nws.com/n/jzhxfH)
 
-> Posted on: Tuesday, May 9, 2017 10:00:07 AM
+> Posted on: Tuesday, May 9, 2017 10:03:42 AM

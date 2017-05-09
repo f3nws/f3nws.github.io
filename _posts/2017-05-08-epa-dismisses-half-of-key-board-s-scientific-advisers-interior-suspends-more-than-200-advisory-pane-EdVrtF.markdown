@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/04/29/Production/Daily/A-Section/Images/668169314.jpg)
 
-Washington Post EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels Washington Post Both the Environmental Protection Agency and the Interior Department are overhauling a slew of outside advisory boards that inform how their agencies assess the science underpinning policies, the first step in a broader effort by Republicans to change ... Watch live: Sally Yates, James Clapper testify on Russian election meddling Los Angeles Times Pruitt removes scientists from key EPA board CNN EPA: Shakeup of science advisers is to inject new blood on board Washington Examiner New York Times - Twitter all 161 news articles »
+Washington Post EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels Washington Post Both the Environmental Protection Agency and the Interior Department are overhauling a slew of outside advisory boards that inform how their agencies assess the science underpinning policies, the first step in a broader effort by Republicans to change ... Trump's EPA dismisses half of the scientists on its advisory board Los Angeles Times Pruitt removes scientists from key EPA board CNN EPA Dismisses Members of Major Scientific Review Board New York Times Twitter - EPA all 164 news articles »
 
 
 Full story on F3News: [EPA dismisses half of key board's scientific advisers; Interior suspends more than 200 advisory panels - Washington Post](http://www.f3nws.com/n/EdVrtF)
