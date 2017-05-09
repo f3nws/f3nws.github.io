@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parental burnout: It's really a thing"
-date: 2017-05-09 09:19:11Z
+date: 2017-05-09 20:22:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Like most parents, my weekends are consumed with getting my girls, ages 9 and 11
 
 Full story on F3News: [Parental burnout: It's really a thing](http://www.f3nws.com/n/gqcvcB)
 
-> Posted on: Tuesday, May 9, 2017 2:19:11 PM
+> Posted on: Wednesday, May 10, 2017 1:22:29 AM
