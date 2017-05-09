@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liberal Moon Jae-in set to win South Korean presidency"
-date: 2017-05-09 16:21:08Z
+date: 2017-05-09 16:45:39Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Exit polls project landslide victory for liberal candidate, a result that ends n
 
 Full story on F3News: [Liberal Moon Jae-in set to win South Korean presidency](http://www.f3nws.com/n/BRNTcC)
 
-> Posted on: Tuesday, May 9, 2017 9:21:08 PM
+> Posted on: Tuesday, May 9, 2017 9:45:39 PM
