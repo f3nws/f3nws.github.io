@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Montreal declares state of emergency over flooding"
-date: 2017-05-09 01:57:12Z
+date: 2017-05-09 03:23:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Montreal's mayor has declared a state of emergency as rising flood waters threat
 
 Full story on F3News: [Montreal declares state of emergency over flooding](http://www.f3nws.com/n/dvYMmG)
 
-> Posted on: Tuesday, May 9, 2017 6:57:12 AM
+> Posted on: Tuesday, May 9, 2017 8:23:45 AM
