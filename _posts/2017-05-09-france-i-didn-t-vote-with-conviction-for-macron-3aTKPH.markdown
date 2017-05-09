@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France: 'I didn't vote with conviction for Macron'"
-date: 2017-05-09 06:30:01Z
+date: 2017-05-09 06:43:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Al Jazeera speaks to people in Paris about their mixed emotions over Emmanuel Ma
 
 Full story on F3News: [France: 'I didn't vote with conviction for Macron'](http://www.f3nws.com/n/3aTKPH)
 
-> Posted on: Tuesday, May 9, 2017 11:30:01 AM
+> Posted on: Tuesday, May 9, 2017 11:43:28 AM
