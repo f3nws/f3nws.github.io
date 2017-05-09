@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nuclear site evacuated after tunnel collapse"
-date: 2017-05-09 20:55:27Z
+date: 2017-05-09 21:13:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The federal government evacuated some workers Tuesday at the Hanford Site, a for
 
 Full story on F3News: [Nuclear site evacuated after tunnel collapse](http://www.f3nws.com/n/WsMSxD)
 
-> Posted on: Wednesday, May 10, 2017 1:55:27 AM
+> Posted on: Wednesday, May 10, 2017 2:13:51 AM

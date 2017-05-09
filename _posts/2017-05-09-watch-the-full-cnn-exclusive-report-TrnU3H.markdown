@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Watch the full CNN exclusive report"
-date: 2017-05-09 20:57:00Z
+date: 2017-05-09 21:29:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Toddlers gasping for air, their parents convulsing beside them- these were the h
 
 Full story on F3News: [Watch the full CNN exclusive report](http://www.f3nws.com/n/TrnU3H)
 
-> Posted on: Wednesday, May 10, 2017 1:57:00 AM
+> Posted on: Wednesday, May 10, 2017 2:29:28 AM
