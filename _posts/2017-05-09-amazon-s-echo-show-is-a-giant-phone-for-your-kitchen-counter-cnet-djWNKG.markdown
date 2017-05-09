@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon's Echo Show is a giant phone for your kitchen counter     - CNET"
-date: 2017-05-09 16:47:02Z
+date: 2017-05-09 18:11:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The $230 device includes a built-in touchscreen that can be used for video calls
 
 Full story on F3News: [Amazon's Echo Show is a giant phone for your kitchen counter     - CNET](http://www.f3nws.com/n/djWNKG)
 
-> Posted on: Tuesday, May 9, 2017 9:47:02 PM
+> Posted on: Tuesday, May 9, 2017 11:11:39 PM
