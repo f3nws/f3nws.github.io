@@ -5,7 +5,7 @@ date: 2017-05-09 18:21:44Z
 categories: toronto-star
 ---
 
-![TDSB shuts down Snapchat, Netflix and Instagram in schools](https://www.thestar.com/content/dam/thestar/news/gta/2017/05/09/tdsb-shuts-down-snapchat-netflix-and-instagram-in-schools/instagram.jpg)
+![TDSB shuts down Snapchat, Netflix and Instagram in schools](https://www.thestar.com/content/dam/thestar/news/gta/2017/05/09/tdsb-shuts-down-snapchat-netflix-and-instagram-in-schools/tdsb-snapchat3.jpg)
 
 The Toronto District School Board says that the three sites alone use up 20 per cent of their daily internet traffic
 
