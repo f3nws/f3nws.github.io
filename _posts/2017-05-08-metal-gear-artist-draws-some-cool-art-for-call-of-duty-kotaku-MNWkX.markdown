@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Metal Gear Artist Draws Some Cool Art For Call of Duty - Kotaku"
-date: 2017-05-08 20:46:29Z
+date: 2017-05-08 20:45:00Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku Metal Gear Artist Draws Some Cool Art For Call of Duty Kotaku If you star
 
 Full story on F3News: [Metal Gear Artist Draws Some Cool Art For Call of Duty - Kotaku](http://www.f3nws.com/n/MNWkX)
 
-> Posted on: Tuesday, May 9, 2017 1:46:29 AM
+> Posted on: Tuesday, May 9, 2017 1:45:00 AM
