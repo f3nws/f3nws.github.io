@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obama touts climate work as Trump mulls ditching Paris accord"
-date: 2017-05-09 13:58:55Z
+date: 2017-05-09 14:28:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former US President Barack Obama will make a keynote address on food security an
 
 Full story on F3News: [Obama touts climate work as Trump mulls ditching Paris accord](http://www.f3nws.com/n/TPUCDE)
 
-> Posted on: Tuesday, May 9, 2017 6:58:55 PM
+> Posted on: Tuesday, May 9, 2017 7:28:04 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S. Korea votes: Candidate favoring N. Korea diplomacy leads -- poll"
-date: 2017-05-09 13:27:02Z
+date: 2017-05-09 14:18:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Koreans started casting their votes Tuesday to fill the void left by the i
 
 Full story on F3News: [S. Korea votes: Candidate favoring N. Korea diplomacy leads -- poll](http://www.f3nws.com/n/AKjQBE)
 
-> Posted on: Tuesday, May 9, 2017 6:27:02 PM
+> Posted on: Tuesday, May 9, 2017 7:18:01 PM
