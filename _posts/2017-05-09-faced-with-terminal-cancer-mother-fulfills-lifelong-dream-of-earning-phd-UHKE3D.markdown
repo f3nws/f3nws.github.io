@@ -5,7 +5,7 @@ date: 2017-05-09 10:00:00Z
 categories: toronto-star
 ---
 
-![Faced with terminal cancer, mother fulfills lifelong dream of earning PhD](https://www.thestar.com/content/dam/thestar/yourtoronto/education/2017/05/09/faced-with-terminal-cancer-mother-fulfills-lifelong-dream-of-earning-phd/precilla.jpg)
+![Faced with terminal cancer, mother fulfills lifelong dream of earning PhD](https://www.thestar.com/content/dam/thestar/news/2017/05/09/precilla-veigas-u-of-t-phd-graduate/5427204504001-videoStillImage.jpg)
 
 With her prognosis still uncertain, Precilla Veigas will receive her PhD in medical science at a special early convocation ceremony at the University of Toronto on Tuesday.
 

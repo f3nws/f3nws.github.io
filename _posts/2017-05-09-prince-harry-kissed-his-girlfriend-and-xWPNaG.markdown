@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Harry kissed his girlfriend and...."
-date: 2017-05-09 03:59:18Z
+date: 2017-05-09 14:38:15Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Royal watchers were not horsing around when Prince Harry's girlfriend showed up 
 
 Full story on F3News: [Prince Harry kissed his girlfriend and....](http://www.f3nws.com/n/xWPNaG)
 
-> Posted on: Tuesday, May 9, 2017 8:59:18 AM
+> Posted on: Tuesday, May 9, 2017 7:38:15 PM
