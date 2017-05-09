@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flight canceled, brawl breaks out"
-date: 2017-05-09 11:00:12Z
+date: 2017-05-09 11:01:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Screams and commotion took over Fort Lauderdale's airport Monday as travelers cl
 
 Full story on F3News: [Flight canceled, brawl breaks out](http://www.f3nws.com/n/AXHMUH)
 
-> Posted on: Tuesday, May 9, 2017 4:00:12 PM
+> Posted on: Tuesday, May 9, 2017 4:01:27 PM

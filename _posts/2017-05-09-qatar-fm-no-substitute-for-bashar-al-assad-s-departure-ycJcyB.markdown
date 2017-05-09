@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Qatar FM: No substitute for Bashar al-Assad's departure"
-date: 2017-05-09 10:13:27Z
+date: 2017-05-09 11:23:07Z
 categories: al-jazeera-english
 ---
 
-![Qatar FM: No substitute for Bashar al-Assad's departure](http://www.aljazeera.com/mritems/Images/2017/5/4/96c47f920f1447218086c656244f3479_18.jpg)
+![Qatar FM: No substitute for Bashar al-Assad's departure](http://www.aljazeera.com/mritems/Images/2017/5/9/7b3708c9e28f4baca599137e8a5f55b5_18.jpg)
 
 Qatari foreign minister says 'de-escalation zones' are a step towards reaching a solution and not the solution itself.
 
 
 Full story on F3News: [Qatar FM: No substitute for Bashar al-Assad's departure](http://www.f3nws.com/n/ycJcyB)
 
-> Posted on: Tuesday, May 9, 2017 3:13:27 PM
+> Posted on: Tuesday, May 9, 2017 4:23:07 PM
