@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Liberal Moon Jae-in set to win South Korean presidency"
-date: 2017-05-09 14:08:40Z
+date: 2017-05-09 15:28:03Z
 categories: al-jazeera-english
 ---
 
-![Liberal Moon Jae-in set to win South Korean presidency](http://www.aljazeera.com/mritems/Images/2017/5/9/a0b4e77f8ab644479ba4a74ee8fb4d07_18.jpg)
+![Liberal Moon Jae-in set to win South Korean presidency](http://www.aljazeera.com/mritems/Images/2017/5/9/d290e819868047538a1f8cca2582abfc_18.jpg)
 
-Exit polls show Moon leading conservative challenger Hoon Joon-pyo, 41.4 to 23.3 percent.
+Moon said he will be a 'president for all' as he claimed a victory that will end nearly a decade of conservative rule.
 
 
 Full story on F3News: [Liberal Moon Jae-in set to win South Korean presidency](http://www.f3nws.com/n/BRNTcC)
 
-> Posted on: Tuesday, May 9, 2017 7:08:40 PM
+> Posted on: Tuesday, May 9, 2017 8:28:03 PM

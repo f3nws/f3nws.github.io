@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump sent 4 tweets on Yates. Not one of them was entirely accurate"
-date: 2017-05-09 14:00:33Z
+date: 2017-05-09 15:11:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Between 6:41 p.m. and 6:50 p.m. ET Monday night, President Donald Trump sent fou
 
 Full story on F3News: [Trump sent 4 tweets on Yates. Not one of them was entirely accurate](http://www.f3nws.com/n/Qgp4NE)
 
-> Posted on: Tuesday, May 9, 2017 7:00:33 PM
+> Posted on: Tuesday, May 9, 2017 8:11:07 PM
