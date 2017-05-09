@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fired Attorney General: Why did Trump wait 18 days to fire Flynn?"
-date: 2017-05-09 12:30:36Z
+date: 2017-05-09 13:28:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sally Yates didn't bring a smoking gun to the latest episode of the long-running
 
 Full story on F3News: [Fired Attorney General: Why did Trump wait 18 days to fire Flynn?](http://www.f3nws.com/n/s3TKDH)
 
-> Posted on: Tuesday, May 9, 2017 5:30:36 PM
+> Posted on: Tuesday, May 9, 2017 6:28:24 PM
