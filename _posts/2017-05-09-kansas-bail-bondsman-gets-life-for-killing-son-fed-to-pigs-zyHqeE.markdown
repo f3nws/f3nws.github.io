@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kansas bail bondsman gets life for killing son fed to pigs"
-date: 2017-05-09 19:00:01Z
+date: 2017-05-09 22:00:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A former Kansas bail bondsman was sentenced to life in prison Monday for killing
 
 Full story on F3News: [Kansas bail bondsman gets life for killing son fed to pigs](http://www.f3nws.com/n/zyHqeE)
 
-> Posted on: Wednesday, May 10, 2017 12:00:01 AM
+> Posted on: Wednesday, May 10, 2017 3:00:10 AM
