@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian senator makes history by breastfeeding in Parliament"
-date: 2017-05-10 08:39:13Z
+date: 2017-05-10 17:27:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The little girl, named Alia Joy, is the newborn daughter of Queensland Senator L
 
 Full story on F3News: [Australian senator makes history by breastfeeding in Parliament](http://www.f3nws.com/n/DBYdKH)
 
-> Posted on: Wednesday, May 10, 2017 1:39:13 PM
+> Posted on: Wednesday, May 10, 2017 10:27:39 PM

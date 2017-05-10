@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Day after Comey firing, Sean Spicer to miss White House briefing"
-date: 2017-05-10 15:27:00Z
+date: 2017-05-10 17:25:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Day after Comey firing, Sean Spicer to miss White House briefing](http://www.f3nws.com/n/4KJXsD)
 
-> Posted on: Wednesday, May 10, 2017 8:27:00 PM
+> Posted on: Wednesday, May 10, 2017 10:25:54 PM
