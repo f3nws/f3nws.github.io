@@ -5,6 +5,8 @@ date: 2017-05-10 20:29:01Z
 categories: cnn-com-top-stories
 ---
 
+![Source close to Comey: Russia probe was only part of why FBI director was dumped](http://i2.cdn.cnn.com/cnnnext/dam/assets/170510112128-james-comey-president-trump-split-composite-super-tease.jpg)
+
 There are two reasons why President Donald Trump fired James Comey, according to a source close to the now-former FBI director:
 
 
