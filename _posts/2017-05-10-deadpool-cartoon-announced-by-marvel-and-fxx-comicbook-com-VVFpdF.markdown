@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Deadpool Cartoon Announced By Marvel And FXX - Comicbook.com](http://media.comicbook.com/2017/05/deadpoolcartoon-995473-640x320.jpg)
 
-Comicbook.com Deadpool Cartoon Announced By Marvel And FXX Comicbook.com FXX today put in a series for an untitled Marvel's Deadpool animated adult action-comedy TV series from Marvel Television and FX Productions. Donald Glover, the Golden Globe Award-winning creator of Atlanta, and Stephen Glover will serve as ... Marvel's Deadpool Animated TV Series From Donald Glover Ordered By FXX Deadline Deadpool TV series coming from Donald Glover EW.com (blog) When Does Donald Glover's 'Deadpool' Animated Series Premiere? He's A Very Good Multitasker Bustle ComingSoon.net - Bleeding Cool News - Vanity Fair - Variety all 123 news articles »
+Comicbook.com Deadpool Cartoon Announced By Marvel And FXX Comicbook.com FXX today put in a series for an untitled Marvel's Deadpool animated adult action-comedy TV series from Marvel Television and FX Productions. Donald Glover, the Golden Globe Award-winning creator of Atlanta, and Stephen Glover will serve as ... Marvel's Deadpool Animated TV Series From Donald Glover Ordered By FXX Deadline Deadpool TV series coming from Donald Glover EW.com (blog) Donald Glover to Executive Produce Deadpool Animated Series! ComingSoon.net Bleeding Cool News - Bustle - Vanity Fair - Variety all 125 news articles »
 
 
 Full story on F3News: [Deadpool Cartoon Announced By Marvel And FXX - Comicbook.com](http://www.f3nws.com/n/VVFpdF)
