@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Rob & Big Star Christopher ''Big Black'' Boykin Dead at 45 - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/201749/rs_600x600-170509165556-600-christopher-boykin.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Rob & Big Star Christopher ''Big Black'' Boykin Dead at 45 E! Online TMZ, who was first to break the news, reports the MTV personality died Tuesday morning at the age of 45. No other information was readily available. "MTV is deeply saddened to learn the news of Christopher 'Big Black' Boykin's passing," the network ... Rob and Big Star Christopher 'Big Black' Boykin Dies at 45 PEOPLE.com 'Rob & Big' Star Christopher 'Big Black' Boykin Dead at 45 TMZ.com Christopher 'Big Black' Boykin, 'Rob & Big' Star, Dies at 45 Variety all 108 news articles »
+E! Online Rob & Big Star Christopher ''Big Black'' Boykin Dead at 45 E! Online TMZ, who was first to break the news, reports the MTV personality died Tuesday morning at the age of 45. No other information was readily available. "MTV is deeply saddened to learn the news of Christopher 'Big Black' Boykin's passing," the network ... Rob and Big Star Christopher 'Big Black' Boykin Dies at 45 PEOPLE.com Rob Dyrdek Remembers Friend & Co-Star Christopher 'Big Black' Boykin: 'My Heart is Broken' Entertainment Tonight Big Black dead: MTV's 'Rob & Big' star Christopher Boykin dies suddenly at 45 Syracuse.com Variety - Heavy.com - Us Weekly - UPI.com all 110 news articles »
 
 
 Full story on F3News: [Rob & Big Star Christopher ''Big Black'' Boykin Dead at 45 - E! Online](http://www.f3nws.com/n/sKJDZC)
