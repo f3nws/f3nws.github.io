@@ -5,6 +5,8 @@ date: 2017-05-10 16:33:59Z
 categories: cnn-com-world
 ---
 
+![Trump puts his interests before national interest](http://i2.cdn.cnn.com/cnnnext/dam/assets/170509184450-0509-comey-trump-split-super-tease.jpg)
+
 True to form, Donald Trump put himself first -- this time ahead of the national interest -- as he suddenly fired Federal Bureau of Investigation director James Comey on Tuesday. The action evoked memories of Richard Nixon's firing of Watergate prosecutor Archibald Cox, which led to a constitutional crisis and Nixon's eventual resignation.
 
 

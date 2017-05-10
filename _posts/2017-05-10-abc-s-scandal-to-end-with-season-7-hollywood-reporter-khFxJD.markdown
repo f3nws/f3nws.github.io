@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![ABC's 'Scandal' to End With Season 7 - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2015/10/140840_0180.jpg)
 
-Hollywood Reporter ABC's 'Scandal' to End With Season 7 Hollywood Reporter The network is expected to announce at next week's upfront presentation that the Shonda Rhimes drama starring Kerry Washington will end with its previously announced seventh season. ABC, producers ABC Studios and Shondaland declined comment. Scandal to End After Season 7: Report E! Online 'Scandal' reportedly ending after Season 7 Los Angeles Times 'Scandal' Reportedly Set to End After Season 7 Variety PEOPLE.com - EW.com - HuffPost - Slate Magazine (blog) all 48 news articles »
+Hollywood Reporter ABC's 'Scandal' to End With Season 7 Hollywood Reporter The network is expected to announce at next week's upfront presentation that the Shonda Rhimes drama starring Kerry Washington will end with its previously announced seventh season. ABC, producers ABC Studios and Shondaland declined comment. 'Scandal' reportedly ending after Season 7 Los Angeles Times Scandal to End After Season 7: Report E! Online 'Scandal' Reportedly Set to End After Season 7 Variety PEOPLE.com - EW.com - Vanity Fair - HuffPost all 54 news articles »
 
 
 Full story on F3News: [ABC's 'Scandal' to End With Season 7 - Hollywood Reporter](http://www.f3nws.com/n/khFxJD)
