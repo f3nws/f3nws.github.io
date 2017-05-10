@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI director's decision not to file charges over Clinton's email cited for his dismissal"
-date: 2017-05-09 22:49:36Z
+date: 2017-05-09 23:16:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Tuesday fired FBI Director James Comey after his attor
 
 Full story on F3News: [FBI director's decision not to file charges over Clinton's email cited for his dismissal](http://www.f3nws.com/n/R4B2NE)
 
-> Posted on: Wednesday, May 10, 2017 3:49:36 AM
+> Posted on: Wednesday, May 10, 2017 4:16:13 AM

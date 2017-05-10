@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sen. Graham supports Trump firing of FBI director Comey"
-date: 2017-05-09 22:31:50Z
+date: 2017-05-09 23:20:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Lindsey Graham, who is leading one of four investigations into Russia's int
 
 Full story on F3News: [Sen. Graham supports Trump firing of FBI director Comey](http://www.f3nws.com/n/PfdkxB)
 
-> Posted on: Wednesday, May 10, 2017 3:31:50 AM
+> Posted on: Wednesday, May 10, 2017 4:20:08 AM
