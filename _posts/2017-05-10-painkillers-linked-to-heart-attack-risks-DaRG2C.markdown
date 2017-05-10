@@ -5,6 +5,8 @@ date: 2017-05-10 15:31:36Z
 categories: cnn-com-top-stories
 ---
 
+![Painkillers linked to heart attack risks](http://i2.cdn.cnn.com/cnnnext/dam/assets/170509095357-painkillers-heart-attack-super-tease.jpg)
+
 Taking even over-the-counter doses of common painkillers known as NSAIDs -- nonsteroidal anti-inflammatory drugs -- has been linked to an increased risk of heart attack in a new study.
 
 

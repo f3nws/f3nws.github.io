@@ -5,6 +5,8 @@ date: 2017-05-10 17:42:41Z
 categories: cnn-com-top-stories
 ---
 
+![Trump: 'Very, very good' meeting with Lavrov](http://i2.cdn.cnn.com/cnnnext/dam/assets/170412142829-01-sergey-lavrov-0412-super-tease.jpg)
+
 US President Donald Trump is due to meet Russian Foreign Minister Sergey Lavrov on Wednesday, a day after firing FBI chief James Comey amid a swirl of controversy over the FBI's investigations into Russia's alleged election meddling.
 
 

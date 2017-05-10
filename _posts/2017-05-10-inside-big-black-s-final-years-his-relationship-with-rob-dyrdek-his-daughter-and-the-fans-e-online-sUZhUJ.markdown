@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Inside Big Black's Final Years: His Relationship With Rob Dyrdek, His Daughter and the Fans - E! Online"
+date: 2017-05-10 18:24:01Z
+categories: google-news-entertaintment
+---
+
+![Inside Big Black's Final Years: His Relationship With Rob Dyrdek, His Daughter and the Fans - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/201749/rs_600x600-170509165556-600-christopher-boykin.jpg?downsize=450:*&crop=450:350;left,top)
+
+E! Online Inside Big Black's Final Years: His Relationship With Rob Dyrdek, His Daughter and the Fans E! Online The former star of MTV's Rob & Big died Tuesday at age 45 after suffering a heart attack, his rep had confirmed to E! News. He is survived by a 9-year-old daughter, Isis, whose mother is his ex-wife Shannon Turley. Rob & Big saw Big Black and pro ... Rob & Big Star Christopher 'Big Black' Boykin Dead at 45 TMZ.com Rob and Big Star Christopher 'Big Black' Boykin Dies at 45 PEOPLE.com Christopher 'Big Black' Boykin, 'Rob & Big' Star, Dies at 45 Variety all 196 news articles »
+
+
+Full story on F3News: [Inside Big Black's Final Years: His Relationship With Rob Dyrdek, His Daughter and the Fans - E! Online](http://www.f3nws.com/n/sUZhUJ)
+
+> Posted on: Wednesday, May 10, 2017 11:24:01 PM
