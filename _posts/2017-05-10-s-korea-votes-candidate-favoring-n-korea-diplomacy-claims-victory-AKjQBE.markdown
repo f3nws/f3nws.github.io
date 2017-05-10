@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S. Korea votes: Candidate favoring N. Korea diplomacy claims victory"
-date: 2017-05-10 01:45:23Z
+date: 2017-05-10 03:06:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Koreans started casting their votes Tuesday to fill the void left by the i
 
 Full story on F3News: [S. Korea votes: Candidate favoring N. Korea diplomacy claims victory](http://www.f3nws.com/n/AKjQBE)
 
-> Posted on: Wednesday, May 10, 2017 6:45:23 AM
+> Posted on: Wednesday, May 10, 2017 8:06:56 AM

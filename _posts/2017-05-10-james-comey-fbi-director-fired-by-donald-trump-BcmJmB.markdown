@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "James Comey, FBI director, fired by Donald Trump"
-date: 2017-05-10 02:53:03Z
+date: 2017-05-10 03:28:18Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US president sacks James Comey over his handling of the probe into Hillary Clint
 
 Full story on F3News: [James Comey, FBI director, fired by Donald Trump](http://www.f3nws.com/n/BcmJmB)
 
-> Posted on: Wednesday, May 10, 2017 7:53:03 AM
+> Posted on: Wednesday, May 10, 2017 8:28:18 AM
