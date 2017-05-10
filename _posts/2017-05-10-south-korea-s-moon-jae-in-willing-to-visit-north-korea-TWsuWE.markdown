@@ -5,7 +5,7 @@ date: 2017-05-10 06:46:20Z
 categories: al-jazeera-english
 ---
 
-![South Korea's Moon Jae-In willing to visit North Korea](http://www.aljazeera.com/mritems/Images/2017/5/10/5804b25fa00b4eeda5891da79d978b56_18.jpg)
+![South Korea's Moon Jae-In willing to visit North Korea](http://www.aljazeera.com/mritems/Images/2017/5/10/3e28dce1bd8d42b78f55e379ffc933ad_18.jpg)
 
 After taking oath of office, president says he is open to visiting the nuclear-armed North under the 'right conditions'.
 
