@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump may meet with Russian Foreign Minister Lavrov"
-date: 2017-05-10 01:57:45Z
+date: 2017-05-10 02:54:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US official said a meeting between President Donald Trump and Russian Foreign 
 
 Full story on F3News: [Trump may meet with Russian Foreign Minister Lavrov](http://www.f3nws.com/n/zpTkHF)
 
-> Posted on: Wednesday, May 10, 2017 6:57:45 AM
+> Posted on: Wednesday, May 10, 2017 7:54:38 AM
