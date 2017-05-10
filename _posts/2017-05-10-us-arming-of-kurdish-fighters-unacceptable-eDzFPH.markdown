@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US arming of Kurdish fighters 'unacceptable'"
-date: 2017-05-10 12:22:14Z
+date: 2017-05-10 12:30:44Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Responding to Trump's move to send arms supplies to YPG in battle for Raqqa, Tur
 
 Full story on F3News: [US arming of Kurdish fighters 'unacceptable'](http://www.f3nws.com/n/eDzFPH)
 
-> Posted on: Wednesday, May 10, 2017 5:22:14 PM
+> Posted on: Wednesday, May 10, 2017 5:30:44 PM
