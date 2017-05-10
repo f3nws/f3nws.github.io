@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton aides react to Comey firing with concern, not joy"
-date: 2017-05-10 00:30:13Z
+date: 2017-05-10 00:30:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There were few people who despised James Comey more than those political operati
 
 Full story on F3News: [Clinton aides react to Comey firing with concern, not joy](http://www.f3nws.com/n/QmaPFD)
 
-> Posted on: Wednesday, May 10, 2017 5:30:13 AM
+> Posted on: Wednesday, May 10, 2017 5:30:58 AM
