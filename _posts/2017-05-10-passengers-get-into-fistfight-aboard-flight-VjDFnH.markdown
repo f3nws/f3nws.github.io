@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passengers get into fistfight aboard flight"
-date: 2017-05-10 06:30:50Z
+date: 2017-05-10 12:07:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two passengers got into a fight on a Southwest flight shortly after the plane la
 
 Full story on F3News: [Passengers get into fistfight aboard flight](http://www.f3nws.com/n/VjDFnH)
 
-> Posted on: Wednesday, May 10, 2017 11:30:50 AM
+> Posted on: Wednesday, May 10, 2017 5:07:48 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paul Callan: In firing Comey, Trump is playing with fire"
-date: 2017-05-10 04:18:28Z
+date: 2017-05-10 16:10:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Historians may one day remember May 9, 2017 as a fateful day in American history
 
 Full story on F3News: [Paul Callan: In firing Comey, Trump is playing with fire](http://www.f3nws.com/n/bWnVuB)
 
-> Posted on: Wednesday, May 10, 2017 9:18:28 AM
+> Posted on: Wednesday, May 10, 2017 9:10:53 PM
