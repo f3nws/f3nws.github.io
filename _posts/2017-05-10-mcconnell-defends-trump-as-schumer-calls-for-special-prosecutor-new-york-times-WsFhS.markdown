@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McConnell Defends Trump as Schumer Calls for Special Prosecutor - New York Times](https://static01.nyt.com/images/2017/05/11/us/11cong/11cong-facebookJumbo.jpg)
 
-New York Times McConnell Defends Trump as Schumer Calls for Special Prosecutor New York Times Mitch McConnell, the Senate majority leader. “Today we'll no doubt hear calls for a new investigation,” Mr. McConnell said on the Senate floor on Wednesday, “which can only serve to impede the current work being done.” Credit Eric Thayer for The New ... McConnell: 'Too much is at stake' for new investigation after Comey firing CNN Senate Majority Leader Mitch McConnell declines to criticize Trump's firing of FBI Director James Comey Los Angeles Times Schumer wants Sessions, Rosenstein to appear before Senate The Boston Globe TIME - CNBC - Washington Times - Politico all 103 news articles »
+New York Times McConnell Defends Trump as Schumer Calls for Special Prosecutor New York Times Mitch McConnell, the Senate majority leader. “Today we'll no doubt hear calls for a new investigation,” Mr. McConnell said on the Senate floor on Wednesday, “which can only serve to impede the current work being done.” Credit Eric Thayer for The New ... McConnell defends Trump decision to fire Comey The Hill The Latest: Expanded search underway for interim FBI chief New York Daily News McConnell: 'Too much is at stake' for new investigation after Comey firing CNN The Boston Globe - TIME - CNBC - KTLA all 92 news articles »
 
 
 Full story on F3News: [McConnell Defends Trump as Schumer Calls for Special Prosecutor - New York Times](http://www.f3nws.com/n/WsFhS)
