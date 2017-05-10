@@ -5,6 +5,8 @@ date: 2017-05-10 00:05:11Z
 categories: mashable
 ---
 
+![Even Edward Snowden thinks Trump firing James Comey was messed up](http://i.amz.mshcdn.com/5nbt0BAptM9eCxRMfGvKO0oSrIs=/1200x630/2017%2F05%2F09%2Fdb%2Fe1f311c0ba7f4574b3ed8d74511dab22.f36c4.jpg)
+
 President Donald Trump fired FBI Director James Comey on Tuesday, which came as shocking news, even in the times of President Trump. While countless people of all kinds called out Trump for suddenly firing Comey, so did one of Comey's most notorious rivals, Edward Snowden. SEE ALSO: Obama's White House photographer trolls Trump after FBI director gets fired Set aside politics: every American should condemn such political interference in the Bureau's work https://t.co/hROwSMg1vd — Edward Snowden (@Snowden) May 9, 2017 "Every American should condemn such political interference in the Bureau's work," Snowden tweeted with a link to the news of Comey's firing, urging Americans to "set aside politics." Read more... More about Watercooler , Edward Snowden , James Comey , and Watercooler
 
 
