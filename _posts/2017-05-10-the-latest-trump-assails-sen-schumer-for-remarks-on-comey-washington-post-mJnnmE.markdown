@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Latest: Trump assails Sen. Schumer for remarks on Comey - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/09/National-Security/Images/Congress_FBI_88633-bb0a2.jpg)
 
-Washington Post The Latest: Trump assails Sen. Schumer for remarks on Comey Washington Post WASHINGTON — The Latest on the firing of FBI Director James Comey (all times local):. 12:50 a.m.. President Donald Trump is criticizing Senate Minority Leader Chuck Schumer for comments the New York Democrat made in response to the firing of FBI ... Preet Bharara, Sally Yates and James Comey: Fired while investigating Donald Trump CNN Democrats Charge Comey Firing Nixonian, Demand Special Prosecutor NBCNews.com Comey Ouster Threatens to Backfire on Troubled Trump White House Bloomberg BBC News - New York Daily News - U.S. News & World Report - The Boston Globe all 2,226 news articles »
+Washington Post The Latest: Trump assails Sen. Schumer for remarks on Comey Washington Post WASHINGTON — The Latest on the firing of FBI Director James Comey (all times local):. 12:50 a.m.. President Donald Trump is criticizing Senate Minority Leader Chuck Schumer for comments the New York Democrat made in response to the firing of FBI ... Reactions to FBI Director Comey's firing: 'Devastating,' 'surprising' CNN Democrats Charge Comey Firing Nixonian, Demand Special Prosecutor NBCNews.com Comey Ouster Threatens to Backfire on Troubled Trump White House Bloomberg Salon - Newsweek - The Boston Globe - New York Times all 2,262 news articles »
 
 
 Full story on F3News: [The Latest: Trump assails Sen. Schumer for remarks on Comey - Washington Post](http://www.f3nws.com/n/mJnnmE)
