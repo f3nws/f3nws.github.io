@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Washington: 24 hours of craziness"
-date: 2017-05-11 09:49:07Z
+date: 2017-05-11 10:27:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ You couldn't make it up.
 
 Full story on F3News: [Trump's Washington: 24 hours of craziness](http://www.f3nws.com/n/qPpnWC)
 
-> Posted on: Thursday, May 11, 2017 2:49:07 PM
+> Posted on: Thursday, May 11, 2017 3:27:13 PM
