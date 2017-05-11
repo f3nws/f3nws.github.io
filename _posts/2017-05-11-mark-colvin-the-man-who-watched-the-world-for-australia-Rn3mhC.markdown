@@ -5,7 +5,7 @@ date: 2017-05-11 02:03:22Z
 categories: abc-top-stories
 ---
 
-![Mark Colvin, the man who watched the world for Australia](http://www.abc.net.au/news/image/8514706-1x1-700x700.jpg)
+![Mark Colvin, the man who watched the world for Australia](http://www.abc.net.au/news/image/8511648-1x1-700x700.jpg)
 
 He was the familiar voice and fierce intellect behind the radio microphone who explained the world to Australians every day. But despite reporting the news from across the globe, Mark Colvin didn't dream of being a journalist.
 
