@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Poll: Trump's approval rating slips to 36 percent - The Hill](http://thehill.com/sites/default/files/article_images/trumprally3_042917getty.jpg)
 
-The Hill Poll: Trump's approval rating slips to 36 percent The Hill President Trump's approval rating has reached near-record lows, according to a Quinnipiac University poll released Wednesday. The survey of registered voters found that 36 percent say they approve of Trump's job performance, compared to 58 percent who ... National (US) Poll - May 10, 2017 - U.S. Voters Send Trump Approva | Quinnipiac University Connecticut Quinnipiac University Poll all 50 news articles »
+The Hill Poll: Trump's approval rating slips to 36 percent The Hill President Trump's approval rating has reached near-record lows, according to a Quinnipiac University poll released Wednesday. The survey of registered voters found that 36 percent say they approve of Trump's job performance, compared to 58 percent who ... Trump's first 100 days 'were mainly a failure,' poll says NJ.com Poll: What words come to mind when voters think of Trump? CBS News National (US) Poll - May 10, 2017 - U.S. Voters Send Trump Approva | Quinnipiac University Connecticut Quinnipiac University Poll all 55 news articles »
 
 
 Full story on F3News: [Poll: Trump's approval rating slips to 36 percent - The Hill](http://www.f3nws.com/n/P4kUr)
