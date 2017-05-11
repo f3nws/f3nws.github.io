@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate Intelligence Committee subpoenas Flynn"
-date: 2017-05-11 00:14:21Z
+date: 2017-05-11 04:50:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Senate intelligence committee Wednesday issued a subpoena to former National
 
 Full story on F3News: [Senate Intelligence Committee subpoenas Flynn](http://www.f3nws.com/n/kGuNnC)
 
-> Posted on: Thursday, May 11, 2017 5:14:21 AM
+> Posted on: Thursday, May 11, 2017 9:50:53 AM

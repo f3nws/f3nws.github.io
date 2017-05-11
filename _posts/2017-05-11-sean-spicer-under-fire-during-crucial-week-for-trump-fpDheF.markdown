@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sean Spicer under fire during crucial week for Trump"
-date: 2017-05-11 03:27:52Z
+date: 2017-05-11 04:44:07Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Sean Spicer under fire during crucial week for Trump](http://www.f3nws.com/n/fpDheF)
 
-> Posted on: Thursday, May 11, 2017 8:27:52 AM
+> Posted on: Thursday, May 11, 2017 9:44:07 AM
