@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wall collapse kills guests at Bharatpur wedding"
-date: 2017-05-11 08:06:45Z
+date: 2017-05-11 08:34:00Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Guests were taking shelter from a dust storm in the state of Rajasthan when the 
 
 Full story on F3News: [Wall collapse kills guests at Bharatpur wedding](http://www.f3nws.com/n/xxmstD)
 
-> Posted on: Thursday, May 11, 2017 1:06:45 PM
+> Posted on: Thursday, May 11, 2017 1:34:00 PM
