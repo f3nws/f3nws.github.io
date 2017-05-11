@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The alarming rise of female genital mutilation in US"
-date: 2017-05-11 13:12:00Z
+date: 2017-05-11 16:08:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The alarming rise of female genital mutilation in US](http://www.f3nws.com/n/zTfBsB)
 
-> Posted on: Thursday, May 11, 2017 6:12:00 PM
+> Posted on: Thursday, May 11, 2017 9:08:50 PM
