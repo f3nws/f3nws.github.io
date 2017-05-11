@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Changing story: White House's explanations totally unraveling"
-date: 2017-05-11 13:00:46Z
+date: 2017-05-11 13:42:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House just can't get its story straight about why President Trump deci
 
 Full story on F3News: [Changing story: White House's explanations totally unraveling](http://www.f3nws.com/n/zzYkfC)
 
-> Posted on: Thursday, May 11, 2017 6:00:46 PM
+> Posted on: Thursday, May 11, 2017 6:42:20 PM
