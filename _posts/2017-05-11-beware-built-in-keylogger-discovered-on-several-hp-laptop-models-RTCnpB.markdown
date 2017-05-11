@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beware! Built-in Keylogger Discovered On Several HP Laptop Models"
-date: 2017-05-11 16:13:01Z
+date: 2017-05-11 16:45:46Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Do you own a Hewlett-Packard (HP) laptop? Yes? Just stop whatever you are doing 
 
 Full story on F3News: [Beware! Built-in Keylogger Discovered On Several HP Laptop Models](http://www.f3nws.com/n/RTCnpB)
 
-> Posted on: Thursday, May 11, 2017 9:13:01 PM
+> Posted on: Thursday, May 11, 2017 9:45:46 PM
