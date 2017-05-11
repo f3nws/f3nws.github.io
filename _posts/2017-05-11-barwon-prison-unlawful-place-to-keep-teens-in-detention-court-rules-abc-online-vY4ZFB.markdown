@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Barwon prison unlawful place to keep teens in detention, court rules - ABC Online](http://www.abc.net.au/news/image/5572492-1x1-700x700.jpg)
 
-ABC Online Barwon prison unlawful place to keep teens in detention, court rules ABC Online The detention of teenagers at Victoria's maximum security adult prison has been ruled unlawful for a second time by the Supreme Court, forcing the State Government to find another place to house the juvenile detainees. Justice John Dixon found ... Children held in Barwon Prison illegally, Supreme Court rules Herald Sun Victorian Supreme Court rules kids shouldn't be in adult jail The Australian Supreme Court rules, again, that children should not be held in adult prison The Age The Guardian all 13 news articles »
+ABC Online Barwon prison unlawful place to keep teens in detention, court rules ABC Online The detention of teenagers at Victoria's maximum security adult prison has been ruled unlawful for a second time by the Supreme Court, forcing the State Government to find another place to house the juvenile detainees. Justice John Dixon found ... Children held in Barwon Prison illegally, Supreme Court rules Herald Sun Victorian Supreme Court rules kids shouldn't be in adult jail The Australian Supreme Court rules, again, that children should not be held in adult prison The Age SBS - NEWS.com.au - The Guardian - 9news.com.au all 15 news articles »
 
 
 Full story on F3News: [Barwon prison unlawful place to keep teens in detention, court rules - ABC Online](http://www.f3nws.com/n/vY4ZFB)
