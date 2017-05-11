@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How close was Comey getting to the truth?"
-date: 2017-05-10 16:19:32Z
+date: 2017-05-10 23:24:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ James Comey was the one man that both Hillary Clinton and Donald Trump would lik
 
 Full story on F3News: [How close was Comey getting to the truth?](http://www.f3nws.com/n/YQQ3n)
 
-> Posted on: Wednesday, May 10, 2017 9:19:32 PM
+> Posted on: Thursday, May 11, 2017 4:24:47 AM
