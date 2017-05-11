@@ -5,6 +5,8 @@ date: 2017-05-11 14:59:41Z
 categories: cnn-com-top-stories
 ---
 
+![Happening now: Live updates on FBI Comey's firing](http://i2.cdn.cnn.com/cnnnext/dam/assets/170511091520-trump-comey-live-super-tease.jpg)
+
 
 
 
