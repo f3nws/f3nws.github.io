@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "English artist accused of copying Nigerian art"
-date: 2017-05-11 07:40:51Z
+date: 2017-05-11 11:24:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ English artist Damien Hirst has been accused of cultural appropriation after his
 
 Full story on F3News: [English artist accused of copying Nigerian art](http://www.f3nws.com/n/qUSbfB)
 
-> Posted on: Thursday, May 11, 2017 12:40:51 PM
+> Posted on: Thursday, May 11, 2017 4:24:48 PM
