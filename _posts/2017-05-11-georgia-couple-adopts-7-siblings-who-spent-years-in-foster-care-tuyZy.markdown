@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Georgia couple adopts 7 siblings who spent years in foster care"
-date: 2017-05-11 14:30:01Z
+date: 2017-05-11 16:00:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Georgia couple officially turned their family of three to 10 on Tuesday when t
 
 Full story on F3News: [Georgia couple adopts 7 siblings who spent years in foster care](http://www.f3nws.com/n/tuyZy)
 
-> Posted on: Thursday, May 11, 2017 7:30:01 PM
+> Posted on: Thursday, May 11, 2017 9:00:01 PM
