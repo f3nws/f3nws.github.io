@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sources: BioWare Montreal Scaled Down, Mass Effect Put On Ice For Now - Kotaku"
-date: 2017-05-10 19:39:55Z
+date: 2017-05-10 19:37:18Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku Sources: BioWare Montreal Scaled Down, Mass Effect Put On Ice For Now Kot
 
 Full story on F3News: [Sources: BioWare Montreal Scaled Down, Mass Effect Put On Ice For Now - Kotaku](http://www.f3nws.com/n/qxQF4E)
 
-> Posted on: Thursday, May 11, 2017 12:39:55 AM
+> Posted on: Thursday, May 11, 2017 12:37:18 AM
