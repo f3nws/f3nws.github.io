@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Broad support:' New FBI head contradicts WH on Comey"
-date: 2017-05-11 21:05:45Z
+date: 2017-05-11 22:06:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Andrew McCabe, the man who stepped into FBI Director James Comey's shoes when he
 
 Full story on F3News: ['Broad support:' New FBI head contradicts WH on Comey](http://www.f3nws.com/n/nh2YeF)
 
-> Posted on: Friday, May 12, 2017 2:05:45 AM
+> Posted on: Friday, May 12, 2017 3:06:04 AM

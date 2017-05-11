@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All OnePlus Devices Vulnerable to Remote Attacks Due to 4  Unpatched Flaws"
-date: 2017-05-11 21:41:41Z
+date: 2017-05-11 22:15:56Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ There is a bad news for all OnePlus lovers. A security researcher has discovered
 
 Full story on F3News: [All OnePlus Devices Vulnerable to Remote Attacks Due to 4  Unpatched Flaws](http://www.f3nws.com/n/r4pKmE)
 
-> Posted on: Friday, May 12, 2017 2:41:41 AM
+> Posted on: Friday, May 12, 2017 3:15:56 AM

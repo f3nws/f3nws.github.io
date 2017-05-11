@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Time interview: Trump gets 2 scoops of ice cream, others get 1"
-date: 2017-05-11 16:50:11Z
+date: 2017-05-11 22:19:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is living every child's dream: More ice cream.
 
 Full story on F3News: [Time interview: Trump gets 2 scoops of ice cream, others get 1](http://www.f3nws.com/n/KnZTvB)
 
-> Posted on: Thursday, May 11, 2017 9:50:11 PM
+> Posted on: Friday, May 12, 2017 3:19:16 AM
