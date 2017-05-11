@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Reporter Arrested in West Virginia After Persistently Asking Questions of Tom Price - New York Times](https://static01.nyt.com/images/2017/05/10/us/11xp-arrest2/11xp-arrest2-facebookJumbo.png)
 
-New York Times Reporter Arrested in West Virginia After Persistently Asking Questions of Tom Price New York Times Dan Heyman, left, a reporter for the Public News Service in West Virginia, and his lawyer, J. Timothy DiPiero. Credit American Civil Liberties Union of West Virginia, via Facebook Live. As Tom Price, the secretary of the Department of Health and Human ... A Reporter Was Arrested After Shouting Questions At The Health Secretary BuzzFeed News Report: Journalist arrested after asking HHS secretary question CBS News Reporter arrested while trying to question Cabinet member ABC News NPR - CNBC - USA TODAY - NBCNews.com all 119 news articles »
+New York Times Reporter Arrested in West Virginia After Persistently Asking Questions of Tom Price New York Times Dan Heyman, left, a reporter for the Public News Service in West Virginia, and his lawyer, J. Timothy DiPiero. Credit American Civil Liberties Union of West Virginia, via Facebook Live. As Tom Price, the secretary of the Department of Health and Human ... The Latest: Price says journalist's arrest 'not my decision' Washington Post Reporter arrested while trying to question Cabinet member ABC News West Virginia Reporter Arrested For Yelling Question At HHS Secretary NPR NBCNews.com - BuzzFeed News - CNBC - USA TODAY all 124 news articles »
 
 
 Full story on F3News: [Reporter Arrested in West Virginia After Persistently Asking Questions of Tom Price - New York Times](http://www.f3nws.com/n/JdtQE)
