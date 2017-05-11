@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Contradictory account: Trump says FBI was 'in turmoil'"
-date: 2017-05-11 17:56:18Z
+date: 2017-05-11 18:24:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Thursday that he had already decided to fire ousted 
 
 Full story on F3News: [Contradictory account: Trump says FBI was 'in turmoil'](http://www.f3nws.com/n/zAUU2E)
 
-> Posted on: Thursday, May 11, 2017 10:56:18 PM
+> Posted on: Thursday, May 11, 2017 11:24:09 PM
