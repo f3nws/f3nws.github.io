@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Microsoft's next mobile strategy is to make iOS and Android better - The Verge](https://cdn0.vox-cdn.com/thumbor/jql8CuEbiaTxM58fFdeSdVLlyQA=/0x0:1920x1080/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54741851/windowslovesdevices.0.jpg)
 
-The Verge Microsoft's next mobile strategy is to make iOS and Android better The Verge Microsoft hasn't had a great time with mobile. While we can debate whether or not Windows Phone is finally dead, Microsoft is certainly ready to move on. After missing the mobile boat, Microsoft is now trying to sneak onto iOS and Android devices like ... Windows 10 Fall Creators Update and everything else at Microsoft Build CNET Remotely Exploitable Type Confusion in Windows 8, 8.1, 10... - Monorail - The Chromium Projects Monorail - The Chromium Projects Natalie Silvanovich (@natashenka) | Twitter Twitter all 761 news articles »
+The Verge Microsoft's next mobile strategy is to make iOS and Android better The Verge Microsoft hasn't had a great time with mobile. While we can debate whether or not Windows Phone is finally dead, Microsoft is certainly ready to move on. After missing the mobile boat, Microsoft is now trying to sneak onto iOS and Android devices like ... Microsoft makes Windows play nice with Android and iPhone CNET Microsoft to add support for SUSE, Fedora Bash shells to Windows 10 ZDNet Microsoft's new mobile app enables Windows developers to test on iOS PCWorld TIME - Ars Technica - VentureBeat - Fast Company all 793 news articles »
 
 
 Full story on F3News: [Microsoft's next mobile strategy is to make iOS and Android better - The Verge](http://www.f3nws.com/n/UGQqQJ)

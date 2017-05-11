@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House said Dept of Justice memo spurred Trump to fire FBI chief, but Trump said he'd already decided"
-date: 2017-05-11 18:37:02Z
+date: 2017-05-11 21:10:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Thursday that he had already decided to fire ousted 
 
 Full story on F3News: [White House said Dept of Justice memo spurred Trump to fire FBI chief, but Trump said he'd already decided](http://www.f3nws.com/n/zAUU2E)
 
-> Posted on: Thursday, May 11, 2017 11:37:02 PM
+> Posted on: Friday, May 12, 2017 2:10:02 AM

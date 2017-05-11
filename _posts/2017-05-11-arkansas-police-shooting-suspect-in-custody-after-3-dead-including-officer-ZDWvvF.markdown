@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas police shooting: Suspect in custody after 3 dead, including officer"
-date: 2017-05-11 20:05:00Z
+date: 2017-05-11 21:05:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A standoff in Arkansas came to an end Thursday with the arrest of a suspect afte
 
 Full story on F3News: [Arkansas police shooting: Suspect in custody after 3 dead, including officer](http://www.f3nws.com/n/ZDWvvF)
 
-> Posted on: Friday, May 12, 2017 1:05:00 AM
+> Posted on: Friday, May 12, 2017 2:05:00 AM
