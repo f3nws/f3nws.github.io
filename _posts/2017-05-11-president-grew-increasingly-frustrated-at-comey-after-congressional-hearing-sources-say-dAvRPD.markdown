@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President grew increasingly frustrated at Comey after congressional hearing, sources say"
-date: 2017-05-11 07:30:03Z
+date: 2017-05-11 07:31:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump kept his decision to fire FBI Director James Comey extrao
 
 Full story on F3News: [President grew increasingly frustrated at Comey after congressional hearing, sources say](http://www.f3nws.com/n/dAvRPD)
 
-> Posted on: Thursday, May 11, 2017 12:30:03 PM
+> Posted on: Thursday, May 11, 2017 12:31:11 PM
