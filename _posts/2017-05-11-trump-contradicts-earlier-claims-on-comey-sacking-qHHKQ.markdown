@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump contradicts earlier claims on Comey sacking"
-date: 2017-05-11 20:00:00Z
+date: 2017-05-11 20:01:40Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ President says he planned to fire FBI boss regardless of recommendations, in con
 
 Full story on F3News: [Trump contradicts earlier claims on Comey sacking](http://www.f3nws.com/n/qHHKQ)
 
-> Posted on: Friday, May 12, 2017 1:00:00 AM
+> Posted on: Friday, May 12, 2017 1:01:40 AM
