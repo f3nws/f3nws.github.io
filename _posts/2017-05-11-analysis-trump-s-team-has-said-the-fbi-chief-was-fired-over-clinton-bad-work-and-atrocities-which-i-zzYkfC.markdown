@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Trump's team has said the FBI chief was fired over Clinton, bad work and 'atrocities.' Which is it?"
-date: 2017-05-11 14:11:30Z
+date: 2017-05-11 15:20:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House just can't get its story straight about why President Trump deci
 
 Full story on F3News: [Analysis: Trump's team has said the FBI chief was fired over Clinton, bad work and 'atrocities.' Which is it?](http://www.f3nws.com/n/zzYkfC)
 
-> Posted on: Thursday, May 11, 2017 7:11:30 PM
+> Posted on: Thursday, May 11, 2017 8:20:18 PM
