@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emirates airline profits plunge 82.5% in past year"
-date: 2017-05-11 17:38:59Z
+date: 2017-05-11 19:12:20Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Carrier posts first drop in annual profits for five years, hit by US dollar's ri
 
 Full story on F3News: [Emirates airline profits plunge 82.5% in past year](http://www.f3nws.com/n/EsPzhH)
 
-> Posted on: Thursday, May 11, 2017 10:38:59 PM
+> Posted on: Friday, May 12, 2017 12:12:20 AM

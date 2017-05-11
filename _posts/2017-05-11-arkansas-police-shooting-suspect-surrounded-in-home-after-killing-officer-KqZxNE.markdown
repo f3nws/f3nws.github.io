@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arkansas police shooting: Suspect surrounded in home after killing officer"
-date: 2017-05-11 16:17:00Z
+date: 2017-05-11 19:01:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Police in Arkansas surrounded a home Thursday with a suspect inside accused of s
 
 Full story on F3News: [Arkansas police shooting: Suspect surrounded in home after killing officer](http://www.f3nws.com/n/KqZxNE)
 
-> Posted on: Thursday, May 11, 2017 9:17:00 PM
+> Posted on: Friday, May 12, 2017 12:01:00 AM
