@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Warning to Comey Prompts Questions on 'Tapes' - New York Times](https://static01.nyt.com/images/2017/05/12/us/12comeytrump/12comeytrump-facebookJumbo-v2.jpg)
 
-New York Times Trump Warning to Comey Prompts Questions on 'Tapes' New York Times President Trump during an event in the East Room for Mother's Day on Friday. Credit Al Drago/The New York Times. WASHINGTON — President Trump on Friday warned James B. Comey, the former F.B.I. director he fired this week, against leaking anything ... No, presidents should not ask FBI directors if they're under investigation Washington Post Trump appears to threaten Comey with existence of tapes of talks New York Daily News Trump actions push Republicans to get serious on Russia CNN Daily Beast - HuffPost - Reuters - National Review all 13,051 news articles »
+New York Times Trump Warning to Comey Prompts Questions on 'Tapes' New York Times President Trump during an event in the East Room for Mother's Day on Friday. Credit Al Drago/The New York Times. WASHINGTON — President Trump on Friday warned James B. Comey, the former F.B.I. director he fired this week, against leaking anything ... No, presidents should not ask FBI directors if they're under investigation Washington Post Trump appears to threaten Comey with existence of tapes of talks New York Daily News White House Refuses to Say Whether Trump Tapes Conversations Bloomberg HuffPost - National Review - BBC News - Politico all 12,732 news articles »
 
 
 Full story on F3News: [Trump Warning to Comey Prompts Questions on 'Tapes' - New York Times](http://www.f3nws.com/n/N3VGUE)
