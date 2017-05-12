@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AFL-CIO 'Paywatch' report slams CEO pay but not the high pay of its own execs"
-date: 2017-05-12 18:30:07Z
+date: 2017-05-12 19:30:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The AFL-CIO, one of the country’s largest union organizations, has released a 
 
 Full story on F3News: [AFL-CIO 'Paywatch' report slams CEO pay but not the high pay of its own execs](http://www.f3nws.com/n/RdhjQE)
 
-> Posted on: Friday, May 12, 2017 11:30:07 PM
+> Posted on: Saturday, May 13, 2017 12:30:10 AM
