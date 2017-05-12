@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best VPN services 2017"
-date: 2017-05-12 08:35:26Z
+date: 2017-05-12 11:35:26Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've tested the best VPN services and scoured the web for the best VPN deals.
 
 Full story on F3News: [The best VPN services 2017](http://www.f3nws.com/n/ZgvNpF)
 
-> Posted on: Friday, May 12, 2017 1:35:26 PM
+> Posted on: Friday, May 12, 2017 4:35:26 PM

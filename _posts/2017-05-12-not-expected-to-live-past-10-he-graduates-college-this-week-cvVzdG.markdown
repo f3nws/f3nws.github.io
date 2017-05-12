@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Not expected to live past 10, he graduates college this week"
-date: 2017-05-12 12:55:16Z
+date: 2017-05-12 13:14:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Saturday, 29-year-old Ryan Dant will walk across the stage in his cap and gow
 
 Full story on F3News: [Not expected to live past 10, he graduates college this week](http://www.f3nws.com/n/cvVzdG)
 
-> Posted on: Friday, May 12, 2017 5:55:16 PM
+> Posted on: Friday, May 12, 2017 6:14:56 PM
