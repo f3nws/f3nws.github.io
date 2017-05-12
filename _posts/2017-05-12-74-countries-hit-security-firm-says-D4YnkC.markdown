@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "74 countries hit, security firm says"
-date: 2017-05-12 20:32:38Z
+date: 2017-05-12 21:07:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of ransomware attacks are targeting organizations around the w
 
 Full story on F3News: [74 countries hit, security firm says](http://www.f3nws.com/n/D4YnkC)
 
-> Posted on: Saturday, May 13, 2017 1:32:38 AM
+> Posted on: Saturday, May 13, 2017 2:07:17 AM
