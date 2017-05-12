@@ -5,7 +5,7 @@ date: 2017-05-11 22:36:27Z
 categories: abc-top-stories
 ---
 
-![Unemployed Sydney man wins $50 million Powerball prize](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
+![Unemployed Sydney man wins $50 million Powerball prize](http://www.abc.net.au/news/image/4044572-1x1-700x700.jpg)
 
 "It's life changing! I don't even know how many zeros are in $50 million," an unemployed Sydney man says after scooping last night's division one prize pool in Powerball.
 

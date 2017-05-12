@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Picks Voter ID Advocate for Election Fraud Panel - New York Times](https://static01.nyt.com/images/2017/05/12/us/12vote/12vote-facebookJumbo.jpg)
 
-New York Times Trump Picks Voter ID Advocate for Election Fraud Panel New York Times A voter in Wellesley, Mass., in November. A White House official said President Trump would sign an executive order for the purpose of “reviewing alleged voter fraud and suppression.” Credit Cheryl Senter for The New York Times. WASHINGTON ... Democratic lawmakers decry Trump's voter fraud panel CNN Trump creates voter-fraud panel that critics label a 'sham' Washington Post Trump orders voter fraud commission after lodging charges over the 2016 election that he won Los Angeles Times Slate Magazine - TIME - The Hill - Washington Times all 182 news articles »
+New York Times Trump Picks Voter ID Advocate for Election Fraud Panel New York Times A voter in Wellesley, Mass., in November. A White House official said President Trump would sign an executive order for the purpose of “reviewing alleged voter fraud and suppression.” Credit Cheryl Senter for The New York Times. WASHINGTON ... Trump launches commission to investigate voter fraud Washington Post Democratic lawmakers decry Trump's voter fraud panel CNN Trump orders voter fraud commission after lodging charges over the 2016 election that he won Los Angeles Times Slate Magazine - Chicago Tribune - The Hill - Washington Times all 198 news articles »
 
 
 Full story on F3News: [Trump Picks Voter ID Advocate for Election Fraud Panel - New York Times](http://www.f3nws.com/n/UbpejH)
