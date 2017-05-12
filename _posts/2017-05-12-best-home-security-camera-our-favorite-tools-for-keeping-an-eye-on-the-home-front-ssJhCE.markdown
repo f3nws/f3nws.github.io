@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best home security camera: Our favorite tools for keeping an eye on the home front"
-date: 2017-05-12 17:00:12Z
+date: 2017-05-12 17:01:00Z
 categories: pcworld
 ---
 
@@ -12,4 +12,4 @@ Last updated May 12, 2017 to add our review of the SpotCam Sense Pro HD . Rent o
 
 Full story on F3News: [Best home security camera: Our favorite tools for keeping an eye on the home front](http://www.f3nws.com/n/ssJhCE)
 
-> Posted on: Friday, May 12, 2017 10:00:12 PM
+> Posted on: Friday, May 12, 2017 10:01:00 PM
