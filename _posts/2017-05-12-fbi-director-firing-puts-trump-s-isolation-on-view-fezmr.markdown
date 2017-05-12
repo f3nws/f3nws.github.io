@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI director firing puts Trump's isolation on view"
-date: 2017-05-12 15:05:00Z
+date: 2017-05-12 20:40:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Days after his abrupt dismissal of FBI Director James Comey, President Donald Tr
 
 Full story on F3News: [FBI director firing puts Trump's isolation on view](http://www.f3nws.com/n/fezmr)
 
-> Posted on: Friday, May 12, 2017 8:05:00 PM
+> Posted on: Saturday, May 13, 2017 1:40:43 AM
