@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michael D'Antonio: The little boy president"
-date: 2017-05-12 19:04:30Z
+date: 2017-05-12 19:47:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Like most little boys, Donald Trump can be disarmingly honest, as when he once s
 
 Full story on F3News: [Michael D'Antonio: The little boy president](http://www.f3nws.com/n/uyHfXD)
 
-> Posted on: Saturday, May 13, 2017 12:04:30 AM
+> Posted on: Saturday, May 13, 2017 12:47:06 AM
