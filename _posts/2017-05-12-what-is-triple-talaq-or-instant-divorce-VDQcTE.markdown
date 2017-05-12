@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What is 'triple talaq' or instant divorce?"
-date: 2017-05-12 05:00:46Z
+date: 2017-05-12 09:14:41Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ A five-judge bench of India's Supreme Court is hearing petitions by women's grou
 
 Full story on F3News: [What is 'triple talaq' or instant divorce?](http://www.f3nws.com/n/VDQcTE)
 
-> Posted on: Friday, May 12, 2017 10:00:46 AM
+> Posted on: Friday, May 12, 2017 2:14:41 PM
