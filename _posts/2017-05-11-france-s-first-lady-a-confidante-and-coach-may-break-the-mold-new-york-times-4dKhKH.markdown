@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![France's First Lady, a Confidante and Coach, May Break the Mold - New York Times](https://static01.nyt.com/images/2017/05/12/world/europe/12BRIGETTE-6/12BRIGETTE-6-facebookJumbo.jpg)
 
-New York Times France's First Lady, a Confidante and Coach, May Break the Mold New York Times Ms. Macron with her husband, then the French economy minister, at the Élysée Palace, the presidential residence, in Paris in 2015. Credit Philippe Wojazer/Reuters. PARIS — If France's president-elect has broken every rule in the political playbook ... Macron's party announces its parliamentary candidates. Half are political neophytes. Washington Post Did Macron Really Win in France? You'll Know in June Bloomberg If Macron Doesn't Reform Swiftly, He'll Open The Gates For Le Pen In 2022 HuffPost all 447 news articles »
+New York Times France's First Lady, a Confidante and Coach, May Break the Mold New York Times Ms. Macron with her husband, then the French economy minister, at the Élysée Palace, the presidential residence, in Paris in 2015. Credit Philippe Wojazer/Reuters. PARIS — If France's president-elect has broken every rule in the political playbook ... Macron's party announces its parliamentary candidates. Half are political neophytes. Washington Post Did Macron Really Win in France? You'll Know in June Bloomberg French President-elect Macron's team says open to talks with conservatives Reuters all 452 news articles »
 
 
 Full story on F3News: [France's First Lady, a Confidante and Coach, May Break the Mold - New York Times](http://www.f3nws.com/n/4dKhKH)
