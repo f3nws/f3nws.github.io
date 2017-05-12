@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'They tricked us:' WH livid over Russian Oval Office photos"
-date: 2017-05-11 23:30:05Z
+date: 2017-05-11 23:31:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House did not anticipate that the Russian government would allow its s
 
 Full story on F3News: ['They tricked us:' WH livid over Russian Oval Office photos](http://www.f3nws.com/n/mvEhsB)
 
-> Posted on: Friday, May 12, 2017 4:30:05 AM
+> Posted on: Friday, May 12, 2017 4:31:50 AM

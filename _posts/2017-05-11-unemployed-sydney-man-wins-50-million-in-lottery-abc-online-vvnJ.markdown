@@ -5,9 +5,9 @@ date: 2017-05-11 22:42:25Z
 categories: abc-top-stories
 ---
 
-![Unemployed Sydney man wins $50 million in lottery - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
+![Unemployed Sydney man wins $50 million in lottery - ABC Online](http://www.abc.net.au/news/image/4044572-1x1-700x700.jpg)
 
-NEWS.com.au Unemployed Sydney man wins $50 million in lottery ABC Online An unemployed western Sydney man has had his life turned upside down after winning $50 million in Powerball's division one prize pool. The man, aged in his 30s and who wishes to remain anonymous, was the sole division one Powerball winner in ... 'Life changing': Unemployed Sydney man wins $50m Powerball SBS Unemployed man from western Sydney wins $50 million in Powerball lottery The Sydney Morning Herald Western Sydney man wins $50 million dailytelegraph.com.au (blog) Techly - TripleM Sydney - Daily Mail all 29 news articles »
+NEWS.com.au Unemployed Sydney man wins $50 million in lottery ABC Online An unemployed western Sydney man has had his life turned upside down after winning $50 million in Powerball's division one prize pool. The man, aged in his 30s and who wishes to remain anonymous, was the sole division one Powerball winner in ... 'Life changing': Unemployed Sydney man wins $50m Powerball SBS Unemployed man from western Sydney wins $50 million in Powerball lottery The Sydney Morning Herald 'Life changing' $50 million Powerball win The New Daily Techly - TripleM Sydney - Central Telegraph all 31 news articles »
 
 
 Full story on F3News: [Unemployed Sydney man wins $50 million in lottery - ABC Online](http://www.f3nws.com/n/vvnJ)
