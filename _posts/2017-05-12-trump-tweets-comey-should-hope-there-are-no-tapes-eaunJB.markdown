@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets: Comey should hope there are no 'tapes'"
-date: 2017-05-12 18:19:13Z
+date: 2017-05-12 18:43:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump issued a thinly veiled threat Friday to fired FBI Directo
 
 Full story on F3News: [Trump tweets: Comey should hope there are no 'tapes'](http://www.f3nws.com/n/eaunJB)
 
-> Posted on: Friday, May 12, 2017 11:19:13 PM
+> Posted on: Friday, May 12, 2017 11:43:55 PM

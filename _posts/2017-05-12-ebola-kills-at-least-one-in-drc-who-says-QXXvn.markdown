@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ebola kills at least one in DRC, WHO says"
-date: 2017-05-12 16:01:51Z
+date: 2017-05-12 18:33:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An outbreak of Ebola in the Democratic Republic of Congo that began April 22 has
 
 Full story on F3News: [Ebola kills at least one in DRC, WHO says](http://www.f3nws.com/n/QXXvn)
 
-> Posted on: Friday, May 12, 2017 9:01:51 PM
+> Posted on: Friday, May 12, 2017 11:33:40 PM

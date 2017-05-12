@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hospitals in England hit by 'large-scale ransomware' attack"
-date: 2017-05-12 17:53:08Z
+date: 2017-05-12 18:34:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Hospitals in England hit by 'large-scale ransomware' attack](http://www.f3nws.com/n/PTAzVB)
 
-> Posted on: Friday, May 12, 2017 10:53:08 PM
+> Posted on: Friday, May 12, 2017 11:34:50 PM
