@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Controversial Oval Office meeting was..."
-date: 2017-05-12 20:00:08Z
+date: 2017-05-12 20:01:17Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Why in the world did Donald Trump welcome Russian officials into the Oval Office
 
 Full story on F3News: [Controversial Oval Office meeting was...](http://www.f3nws.com/n/thytnF)
 
-> Posted on: Saturday, May 13, 2017 1:00:08 AM
+> Posted on: Saturday, May 13, 2017 1:01:17 AM

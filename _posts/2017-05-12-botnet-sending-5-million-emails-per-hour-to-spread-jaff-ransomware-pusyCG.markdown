@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Botnet Sending 5 Million Emails Per Hour to Spread Jaff Ransomware"
-date: 2017-05-12 18:20:03Z
+date: 2017-05-12 20:18:56Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ A massive malicious email campaign that stems from the Necurs botnet is spreadin
 
 Full story on F3News: [Botnet Sending 5 Million Emails Per Hour to Spread Jaff Ransomware](http://www.f3nws.com/n/pusyCG)
 
-> Posted on: Friday, May 12, 2017 11:20:03 PM
+> Posted on: Saturday, May 13, 2017 1:18:56 AM
