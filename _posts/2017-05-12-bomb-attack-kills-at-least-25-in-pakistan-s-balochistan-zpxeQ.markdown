@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bomb attack kills at least 25 in Pakistan's Balochistan"
-date: 2017-05-12 11:30:10Z
+date: 2017-05-12 11:31:11Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 25 killed as explosion hits convoy of Senate deputy chairman Abdul Ghaf
 
 Full story on F3News: [Bomb attack kills at least 25 in Pakistan's Balochistan](http://www.f3nws.com/n/zpxeQ)
 
-> Posted on: Friday, May 12, 2017 4:30:10 PM
+> Posted on: Friday, May 12, 2017 4:31:11 PM
