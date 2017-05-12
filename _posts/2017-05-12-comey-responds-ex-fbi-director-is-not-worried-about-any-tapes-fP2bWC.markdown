@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey responds: Ex-FBI Director is 'not worried about any tapes'"
-date: 2017-05-12 17:52:25Z
+date: 2017-05-12 18:12:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI Director James Comey is "not worried about any tapes" of conversation
 
 Full story on F3News: [Comey responds: Ex-FBI Director is 'not worried about any tapes'](http://www.f3nws.com/n/fP2bWC)
 
-> Posted on: Friday, May 12, 2017 10:52:25 PM
+> Posted on: Friday, May 12, 2017 11:12:07 PM
