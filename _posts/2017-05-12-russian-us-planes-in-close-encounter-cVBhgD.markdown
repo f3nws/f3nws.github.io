@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian, US planes in close encounter"
-date: 2017-05-12 20:46:47Z
+date: 2017-05-12 22:04:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Russian military jet "came within approximately 20 feet" of a US Navy P-8A Pos
 
 Full story on F3News: [Russian, US planes in close encounter](http://www.f3nws.com/n/cVBhgD)
 
-> Posted on: Saturday, May 13, 2017 1:46:47 AM
+> Posted on: Saturday, May 13, 2017 3:04:34 AM
