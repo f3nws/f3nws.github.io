@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['Attention in the water ... You are paddleboarding next to .... 15 great white sharks' - Los Angeles Times](http://www.trbimg.com/img-5914d821/turbine/la-me-ln-sharks-20170511)
 
-Los Angeles Times 'Attention in the water ... You are paddleboarding next to .... 15 great white sharks' Los Angeles Times Officials in Long Beach issued an advisory Wednesday to beachgoers that several sharks had been spotted in the shallow waters off the coast. By Veronica Rocha Contact Reporter · Swimming · Camp Pendleton · Scripps Memorial Hospital ... and more »
+Los Angeles Times 'Attention in the water ... You are paddleboarding next to .... 15 great white sharks' Los Angeles Times Officials in Long Beach issued an advisory Wednesday to beachgoers that several sharks had been spotted in the shallow waters off the coast. By Veronica Rocha Contact Reporter · Swimming · Camp Pendleton · Scripps Memorial Hospital ... 15 sharks spotted by OC Sheriff's helicopter near beachgoers prompts warning from the sky: 'Exit the water in a calm ... OCRegister all 50 news articles »
 
 
 Full story on F3News: ['Attention in the water ... You are paddleboarding next to .... 15 great white sharks' - Los Angeles Times](http://www.f3nws.com/n/GNFbRJ)
