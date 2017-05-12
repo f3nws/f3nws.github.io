@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Apple's first target for its $1 billion US manufacturing fund is glass supplier Corning](https://cdn0.vox-cdn.com/thumbor/JK4FoBeKgMKS6AM3n56_wVz3Fa0=/0x107:2040x1255/1600x900/cdn0.vox-cdn.com/uploads/chorus_image/image/54753467/DSC_4883.0.jpg)
 
-The Verge Apple's first target for its $1 billion US manufacturing fund is glass supplier Corning The Verge Apple announced today that glass supplier Corning will be the first recipient of funds from the $1 billion US Advanced Manufacturing Fund that Apple CEO Tim Cook announced in the beginning of May. Corning is best known for its incredibly durable ... Apple awards glassmaker Corning $200M to grow made in USA jobs with Advanced Manufacturing Fund AppleInsider (press release) (blog) Apple invests in better glass displays for future iPhones CNET Apple's first Advanced Manufacturing Fund investment is in iPhone glass supplier Corning 9to5Mac CNBC - Apple Newsroom all 26 news articles »
+The Verge Apple's first target for its $1 billion US manufacturing fund is glass supplier Corning The Verge Apple announced today that glass supplier Corning will be the first recipient of funds from the $1 billion US Advanced Manufacturing Fund that Apple CEO Tim Cook announced in the beginning of May. Corning is best known for its incredibly durable ... Apple awards Corning first Advanced Manufacturing Fund investment Apple Newsroom all 28 news articles »
 
 
 Full story on F3News: [Apple's first target for its $1 billion US manufacturing fund is glass supplier Corning](http://www.f3nws.com/n/Zsh2bE)

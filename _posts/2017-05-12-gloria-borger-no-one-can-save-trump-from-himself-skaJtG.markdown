@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gloria Borger: No one can save Trump from himself"
-date: 2017-05-12 13:40:37Z
+date: 2017-05-12 15:05:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ So maybe a few times in your life you have screamed at the television set. And t
 
 Full story on F3News: [Gloria Borger: No one can save Trump from himself](http://www.f3nws.com/n/skaJtG)
 
-> Posted on: Friday, May 12, 2017 6:40:37 PM
+> Posted on: Friday, May 12, 2017 8:05:54 PM

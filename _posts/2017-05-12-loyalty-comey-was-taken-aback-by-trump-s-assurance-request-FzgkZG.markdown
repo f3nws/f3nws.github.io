@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Loyalty: Comey was taken aback by Trump's assurance request"
-date: 2017-05-12 14:44:40Z
+date: 2017-05-12 15:23:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI Director James Comey was "taken aback" by President Donald Trump's re
 
 Full story on F3News: [Loyalty: Comey was taken aback by Trump's assurance request](http://www.f3nws.com/n/FzgkZG)
 
-> Posted on: Friday, May 12, 2017 7:44:40 PM
+> Posted on: Friday, May 12, 2017 8:23:50 PM
