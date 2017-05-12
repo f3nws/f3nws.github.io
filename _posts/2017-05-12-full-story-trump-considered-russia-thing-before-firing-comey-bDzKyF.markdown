@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Full story: Trump considered 'Russia thing' before firing Comey"
-date: 2017-05-12 11:39:09Z
+date: 2017-05-12 12:07:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump said Thursday he was thinking of "this Russian thing" 
 
 Full story on F3News: [Full story: Trump considered 'Russia thing' before firing Comey](http://www.f3nws.com/n/bDzKyF)
 
-> Posted on: Friday, May 12, 2017 4:39:09 PM
+> Posted on: Friday, May 12, 2017 5:07:25 PM
