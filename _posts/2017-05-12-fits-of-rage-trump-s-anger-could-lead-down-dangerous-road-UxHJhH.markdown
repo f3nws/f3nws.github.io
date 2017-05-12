@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fits of rage: Trump's anger could lead down dangerous road"
-date: 2017-05-12 10:12:02Z
+date: 2017-05-12 15:53:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Presidents often get angry, but most go to great lengths to hide their fits of r
 
 Full story on F3News: [Fits of rage: Trump's anger could lead down dangerous road](http://www.f3nws.com/n/UxHJhH)
 
-> Posted on: Friday, May 12, 2017 3:12:02 PM
+> Posted on: Friday, May 12, 2017 8:53:37 PM

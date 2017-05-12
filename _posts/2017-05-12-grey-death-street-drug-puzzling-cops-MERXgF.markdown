@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Grey death' street drug puzzling cops"
-date: 2017-05-12 13:54:52Z
+date: 2017-05-12 15:58:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A new drug called "grey death" has been linked to a handful of lethal overdoses 
 
 Full story on F3News: ['Grey death' street drug puzzling cops](http://www.f3nws.com/n/MERXgF)
 
-> Posted on: Friday, May 12, 2017 6:54:52 PM
+> Posted on: Friday, May 12, 2017 8:58:03 PM
