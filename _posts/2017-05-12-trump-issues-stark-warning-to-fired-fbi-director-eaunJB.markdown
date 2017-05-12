@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump issues stark warning to fired FBI director"
-date: 2017-05-12 15:33:46Z
+date: 2017-05-12 16:08:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump issued a thinly veiled threat Friday to fired FBI Directo
 
 Full story on F3News: [Trump issues stark warning to fired FBI director](http://www.f3nws.com/n/eaunJB)
 
-> Posted on: Friday, May 12, 2017 8:33:46 PM
+> Posted on: Friday, May 12, 2017 9:08:23 PM

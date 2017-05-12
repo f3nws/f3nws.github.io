@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinian shot dead by Israeli forces in Nabi Saleh"
-date: 2017-05-12 16:00:11Z
+date: 2017-05-12 16:01:49Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Saba Nidal Obaid, 20, was shot in the stomach while at demonstrations in support
 
 Full story on F3News: [Palestinian shot dead by Israeli forces in Nabi Saleh](http://www.f3nws.com/n/jrGGpH)
 
-> Posted on: Friday, May 12, 2017 9:00:11 PM
+> Posted on: Friday, May 12, 2017 9:01:49 PM
