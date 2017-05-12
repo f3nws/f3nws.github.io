@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stephen Colbert responds to Trump's insults: 'I won'"
-date: 2017-05-12 04:31:19Z
+date: 2017-05-12 05:52:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Stephen Colbert responds to Trump's insults: 'I won'](http://www.f3nws.com/n/HFxPVE)
 
-> Posted on: Friday, May 12, 2017 9:31:19 AM
+> Posted on: Friday, May 12, 2017 10:52:24 AM
