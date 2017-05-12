@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Best thing:' Trump suggests canceling press briefings"
-date: 2017-05-12 13:16:54Z
+date: 2017-05-12 13:47:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['Best thing:' Trump suggests canceling press briefings](http://www.f3nws.com/n/ntbn3C)
 
-> Posted on: Friday, May 12, 2017 6:16:54 PM
+> Posted on: Friday, May 12, 2017 6:47:14 PM
