@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Resumes Feud With Rosie O'Donnell on Twitter - New York Times"
-date: 2017-05-11 22:45:57Z
+date: 2017-05-11 22:28:12Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ New York Times Trump Resumes Feud With Rosie O'Donnell on Twitter New York Times
 
 Full story on F3News: [Trump Resumes Feud With Rosie O'Donnell on Twitter - New York Times](http://www.f3nws.com/n/zpVJdH)
 
-> Posted on: Friday, May 12, 2017 3:45:57 AM
+> Posted on: Friday, May 12, 2017 3:28:12 AM
