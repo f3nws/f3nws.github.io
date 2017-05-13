@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Global hacking attack infects 57,000 computers"
-date: 2017-05-13 03:30:33Z
+date: 2017-05-13 04:17:38Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Hackers exploit stolen US spy agency tools to launch massive cyber-attack on nea
 
 Full story on F3News: [Global hacking attack infects 57,000 computers](http://www.f3nws.com/n/CBZypH)
 
-> Posted on: Saturday, May 13, 2017 8:30:33 AM
+> Posted on: Saturday, May 13, 2017 9:17:38 AM
