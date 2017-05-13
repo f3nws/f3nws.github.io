@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hackers demand ransom after hitting 99 countries"
-date: 2017-05-13 08:49:30Z
+date: 2017-05-13 11:12:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of ransomware attacks are targeting organizations around the w
 
 Full story on F3News: [Hackers demand ransom after hitting 99 countries](http://www.f3nws.com/n/D4YnkC)
 
-> Posted on: Saturday, May 13, 2017 1:49:30 PM
+> Posted on: Saturday, May 13, 2017 4:12:38 PM
