@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rouhani vows to target all US sanctions if re-elected"
-date: 2017-05-13 04:47:44Z
+date: 2017-05-13 05:18:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ President Hassan Rouhani criticises hardline clerical opponents in final TV deba
 
 Full story on F3News: [Rouhani vows to target all US sanctions if re-elected](http://www.f3nws.com/n/yGVBYC)
 
-> Posted on: Saturday, May 13, 2017 9:47:44 AM
+> Posted on: Saturday, May 13, 2017 10:18:37 AM
