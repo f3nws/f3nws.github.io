@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian jet flies within 20 feet of US plane"
-date: 2017-05-13 00:48:21Z
+date: 2017-05-13 12:23:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Russian military jet "came within approximately 20 feet" of a US Navy P-8A Pos
 
 Full story on F3News: [Russian jet flies within 20 feet of US plane](http://www.f3nws.com/n/cVBhgD)
 
-> Posted on: Saturday, May 13, 2017 5:48:21 AM
+> Posted on: Saturday, May 13, 2017 5:23:14 PM
