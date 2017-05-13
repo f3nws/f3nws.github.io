@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Rent' Set as Fox's Next Live Musical - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2016/09/rent_broadway_closing_night_-_curtain_call_-_h_-_2016_.jpg)
 
-Hollywood Reporter 'Rent' Set as Fox's Next Live Musical Hollywood Reporter The estate of Tony winner Jonathan Larson exec produce the live musical of the HIV/AIDS-themed play. Marc Platt is also on board. Fox has found its follow-up to Grease Live. Following prolonged negotiations, Jonathan Larson's Tony-winning ... Fox Sets Deal To Live-Broadcast Pulitzer Prize Winner 'Rent' Deadline all 74 news articles »
+Hollywood Reporter 'Rent' Set as Fox's Next Live Musical Hollywood Reporter The estate of Tony winner Jonathan Larson exec produce the live musical of the HIV/AIDS-themed play. Marc Platt is also on board. Fox has found its follow-up to Grease Live. Following prolonged negotiations, Jonathan Larson's Tony-winning ... and more »
 
 
 Full story on F3News: ['Rent' Set as Fox's Next Live Musical - Hollywood Reporter](http://www.f3nws.com/n/K3JhqF)

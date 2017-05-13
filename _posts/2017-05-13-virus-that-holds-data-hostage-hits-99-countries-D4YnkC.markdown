@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Virus that holds data hostage hits 99 countries"
-date: 2017-05-13 05:42:12Z
+date: 2017-05-13 06:17:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of ransomware attacks are targeting organizations around the w
 
 Full story on F3News: [Virus that holds data hostage hits 99 countries](http://www.f3nws.com/n/D4YnkC)
 
-> Posted on: Saturday, May 13, 2017 10:42:12 AM
+> Posted on: Saturday, May 13, 2017 11:17:33 AM
