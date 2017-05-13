@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protect Against WannaCry: Microsoft Issues Patch for Unsupported Windows (XP, Vista, 8,...)"
-date: 2017-05-13 11:07:28Z
+date: 2017-05-13 12:51:51Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Note: Dear Readers, If any of you have been infected with WannaCry ransomware, p
 
 Full story on F3News: [Protect Against WannaCry: Microsoft Issues Patch for Unsupported Windows (XP, Vista, 8,...)](http://www.f3nws.com/n/BadpKF)
 
-> Posted on: Saturday, May 13, 2017 4:07:28 PM
+> Posted on: Saturday, May 13, 2017 5:51:51 PM
