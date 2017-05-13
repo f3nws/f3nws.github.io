@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ex-LA County Sheriff Lee Baca sentenced to three years in prison in jail corruption scandal - Los Angeles Times](http://www.trbimg.com/img-59162a56/turbine/la-me-baca-sentenced-jail-sheriff-corruption-20170512)
 
-Los Angeles Times Ex-LA County Sheriff Lee Baca sentenced to three years in prison in jail corruption scandal Los Angeles Times Former Los Angeles County Sheriff Lee Baca, once a towering, respected figure in policing, was sentenced Friday to three years in federal prison for his role in a scheme to obstruct an FBI investigation of abuses in county jails, marking an end to a ... Ex-Los Angeles County Sheriff Lee Baca sentenced for impeding FBI investigation Fox News all 52 news articles »
+Los Angeles Times Ex-LA County Sheriff Lee Baca sentenced to three years in prison in jail corruption scandal Los Angeles Times Former Los Angeles County Sheriff Lee Baca, once a towering, respected figure in policing, was sentenced Friday to three years in federal prison for his role in a scheme to obstruct an FBI investigation of abuses in county jails, marking an end to a ... and more »
 
 
 Full story on F3News: [Ex-LA County Sheriff Lee Baca sentenced to three years in prison in jail corruption scandal - Los Angeles Times](http://www.f3nws.com/n/bdXumB)
