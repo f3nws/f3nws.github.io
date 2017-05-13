@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Week of political bedlam leaves Trump presidency in crisis"
-date: 2017-05-13 13:46:09Z
+date: 2017-05-13 16:37:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A week of political bedlam has left a presidency in crisis, Washington in uproar
 
 Full story on F3News: [Week of political bedlam leaves Trump presidency in crisis](http://www.f3nws.com/n/RaMjVE)
 
-> Posted on: Saturday, May 13, 2017 6:46:09 PM
+> Posted on: Saturday, May 13, 2017 9:37:27 PM
