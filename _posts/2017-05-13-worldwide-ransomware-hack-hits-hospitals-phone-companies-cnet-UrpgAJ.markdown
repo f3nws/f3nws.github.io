@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Worldwide ransomware hack hits hospitals, phone companies     - CNET"
-date: 2017-05-13 19:23:04Z
+date: 2017-05-13 21:38:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The ransomware attack has hit 16 NHS hospitals in the UK and up to 70,000 device
 
 Full story on F3News: [Worldwide ransomware hack hits hospitals, phone companies     - CNET](http://www.f3nws.com/n/UrpgAJ)
 
-> Posted on: Sunday, May 14, 2017 12:23:04 AM
+> Posted on: Sunday, May 14, 2017 2:38:23 AM
