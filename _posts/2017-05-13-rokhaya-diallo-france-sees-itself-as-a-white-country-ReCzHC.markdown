@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rokhaya Diallo: 'France sees itself as a white country'"
-date: 2017-05-13 17:37:58Z
+date: 2017-05-13 18:43:04Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Author, film director and activist Rokhaya Diallo addresses the challenge of rac
 
 Full story on F3News: [Rokhaya Diallo: 'France sees itself as a white country'](http://www.f3nws.com/n/ReCzHC)
 
-> Posted on: Saturday, May 13, 2017 10:37:58 PM
+> Posted on: Saturday, May 13, 2017 11:43:04 PM
