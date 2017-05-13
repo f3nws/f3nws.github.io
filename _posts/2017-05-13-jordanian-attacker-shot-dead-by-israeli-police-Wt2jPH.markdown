@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jordanian 'attacker' shot dead by Israeli police"
-date: 2017-05-13 15:37:38Z
+date: 2017-05-13 20:28:45Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Alleged stabber had entered Israel on a tourist visa, according to police, and a
 
 Full story on F3News: [Jordanian 'attacker' shot dead by Israeli police](http://www.f3nws.com/n/Wt2jPH)
 
-> Posted on: Saturday, May 13, 2017 8:37:38 PM
+> Posted on: Sunday, May 14, 2017 1:28:45 AM
