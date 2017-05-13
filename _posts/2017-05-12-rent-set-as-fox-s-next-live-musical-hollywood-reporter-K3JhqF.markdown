@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Rent' Set as Fox's Next Live Musical - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2016/09/rent_broadway_closing_night_-_curtain_call_-_h_-_2016_.jpg)
 
-Hollywood Reporter 'Rent' Set as Fox's Next Live Musical Hollywood Reporter The estate of Tony winner Jonathan Larson exec produce the live musical of the HIV/AIDS-themed play. Marc Platt is also on board. Fox has found its follow-up to Grease Live. Following prolonged negotiations, Jonathan Larson's Tony-winning ... 'A Christmas Story': Fox To Air Marc Platt-Produced Live Show From 'Dear Evan Hansen' Team Deadline 'Rent' and 'A Christmas Story' Live Musicals Coming to Fox CBS 8 San Diego Fox triple-dog dares you not to love its next live musical CNN Variety all 57 news articles »
+Hollywood Reporter 'Rent' Set as Fox's Next Live Musical Hollywood Reporter The estate of Tony winner Jonathan Larson exec produce the live musical of the HIV/AIDS-themed play. Marc Platt is also on board. Fox has found its follow-up to Grease Live. Following prolonged negotiations, Jonathan Larson's Tony-winning ... 'A Christmas Story': Fox To Air Marc Platt-Produced Live Show From 'Dear Evan Hansen' Team Deadline 'Rent' and 'A Christmas Story' Live Musicals Coming to Fox CBS 8 San Diego 'Rent,' 'A Christmas Story' Set for Fox Live Musicals RollingStone.com CNN - ComingSoon.net all 60 news articles »
 
 
 Full story on F3News: ['Rent' Set as Fox's Next Live Musical - Hollywood Reporter](http://www.f3nws.com/n/K3JhqF)
