@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mutinying soldiers seal off Ivory Coast's Bouake"
-date: 2017-05-13 14:39:52Z
+date: 2017-05-13 19:41:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Disgruntled troops cut off Bouake after staging fresh revolt over a pay dispute 
 
 Full story on F3News: [Mutinying soldiers seal off Ivory Coast's Bouake](http://www.f3nws.com/n/xkTkdE)
 
-> Posted on: Saturday, May 13, 2017 7:39:52 PM
+> Posted on: Sunday, May 14, 2017 12:41:28 AM
