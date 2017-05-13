@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Sessions restores tough drug war policies that trigger mandatory minimum sentences - Los Angeles Times](http://www.trbimg.com/img-59163c48/turbine/la-na-politics-sessions-drugwar-20170511)
 
-Los Angeles Times Sessions restores tough drug war policies that trigger mandatory minimum sentences Los Angeles Times Ordering federal prosecutors on Friday to crack down on drug offenders, Atty. Gen. Jeff Sessions made clear he wants the Justice Department to turn the clock back to an earlier, tougher era in the four-decades-long war on drugs. In a memo, Sessions ... Former attorney general: Trump made the right call on Comey Washington Post Jeff Sessions takes wrong turn on crime CNN Sessions ends Obama-era leniency on sentencing, infuriating civil rights groups Fox News The Hill - ABC News - HuffPost - BuzzFeed News all 375 news articles »
+Los Angeles Times Sessions restores tough drug war policies that trigger mandatory minimum sentences Los Angeles Times Ordering federal prosecutors on Friday to crack down on drug offenders, Atty. Gen. Jeff Sessions made clear he wants the Justice Department to turn the clock back to an earlier, tougher era in the four-decades-long war on drugs. In a memo, Sessions ... Sessions takes federal crime policy back to the '80s Washington Post Jeff Sessions takes wrong turn on crime CNN Sessions ends Obama-era leniency on sentencing, infuriating civil rights groups Fox News The Hill - ABC News - HuffPost - New York Daily News all 394 news articles »
 
 
 Full story on F3News: [Sessions restores tough drug war policies that trigger mandatory minimum sentences - Los Angeles Times](http://www.f3nws.com/n/VRVRSE)
