@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive ransomware attack halted for the price of a couple of lattes     - CNET"
-date: 2017-05-13 21:43:36Z
+date: 2017-05-13 22:41:08Z
 categories: mashable
 ---
 
@@ -12,4 +12,4 @@ A security researcher who still lives at home stopped a billion-dollar hack atta
 
 Full story on F3News: [Massive ransomware attack halted for the price of a couple of lattes     - CNET](http://www.f3nws.com/n/VfGx4B)
 
-> Posted on: Sunday, May 14, 2017 2:43:36 AM
+> Posted on: Sunday, May 14, 2017 3:41:08 AM

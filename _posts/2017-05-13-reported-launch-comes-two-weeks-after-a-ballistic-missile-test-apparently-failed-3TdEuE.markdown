@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reported launch comes two weeks after a ballistic missile test apparently failed"
-date: 2017-05-13 22:25:30Z
+date: 2017-05-13 22:56:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea launched a projectile early Sunday from near Kusong, close to the co
 
 Full story on F3News: [Reported launch comes two weeks after a ballistic missile test apparently failed](http://www.f3nws.com/n/3TdEuE)
 
-> Posted on: Sunday, May 14, 2017 3:25:30 AM
+> Posted on: Sunday, May 14, 2017 3:56:28 AM
