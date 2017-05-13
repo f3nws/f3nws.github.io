@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Edward Island: Anne of Green Gables and so much more"
-date: 2017-05-13 01:39:15Z
+date: 2017-05-13 02:06:07Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ On the surface, figuring out what to do in Prince Edward Island -- or PEI as it'
 
 Full story on F3News: [Prince Edward Island: Anne of Green Gables and so much more](http://www.f3nws.com/n/tZ4De)
 
-> Posted on: Saturday, May 13, 2017 6:39:15 AM
+> Posted on: Saturday, May 13, 2017 7:06:07 AM
