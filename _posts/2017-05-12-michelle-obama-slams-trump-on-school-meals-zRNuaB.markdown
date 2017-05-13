@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michelle Obama slams Trump on school meals"
-date: 2017-05-12 23:54:04Z
+date: 2017-05-12 22:19:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former first lady Michelle Obama expressed concern Friday over the Trump adminis
 
 Full story on F3News: [Michelle Obama slams Trump on school meals](http://www.f3nws.com/n/zRNuaB)
 
-> Posted on: Saturday, May 13, 2017 4:54:04 AM
+> Posted on: Saturday, May 13, 2017 3:19:54 AM
