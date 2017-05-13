@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The high stakes of the Comey controversy - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170224162044-trump-comey-handshake-super-tease.jpg)
 
-CNN The high stakes of the Comey controversy CNN Washington (CNN) President Donald Trump's firing of FBI Director James Comey has uncoiled a whole administration's worth of shocks, contradictions and blockbuster moments. Those shocks will continue to reverberate next week and beyond because the ... Cornyn as FBI director would cause big Senate shakeup Politico What We're Losing in James Comey New York Times At the White House, Comey Damage Control and No Easy Way Out Bloomberg HuffPost - New York Daily News - The Hill - NBCNews.com all 16,549 news articles »
+ABC Online The high stakes of the Comey controversy CNN Washington (CNN) President Donald Trump's firing of FBI Director James Comey has uncoiled a whole administration's worth of shocks, contradictions and blockbuster moments. Those shocks will continue to reverberate next week and beyond because the ... What We're Losing in James Comey New York Times At the White House, Comey Damage Control and No Easy Way Out Bloomberg Cornyn as FBI director would cause big Senate shakeup Politico Los Angeles Times - NPR - The Hill - NBCNews.com all 16,619 news articles »
 
 
 Full story on F3News: [The high stakes of the Comey controversy - CNN](http://www.f3nws.com/n/HSMbNJ)

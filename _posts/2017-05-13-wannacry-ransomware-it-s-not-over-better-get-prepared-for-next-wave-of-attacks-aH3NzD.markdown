@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WannaCry Ransomware: It’s Not Over, Better Get Prepared for Next Wave of Attacks"
-date: 2017-05-13 20:28:06Z
+date: 2017-05-13 20:47:29Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ If you are following the news, by now you might be aware that a security researc
 
 Full story on F3News: [WannaCry Ransomware: It’s Not Over, Better Get Prepared for Next Wave of Attacks](http://www.f3nws.com/n/aH3NzD)
 
-> Posted on: Sunday, May 14, 2017 1:28:06 AM
+> Posted on: Sunday, May 14, 2017 1:47:29 AM
