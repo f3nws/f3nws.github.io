@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clapper: US institutions 'under assault'"
-date: 2017-05-14 15:21:00Z
+date: 2017-05-14 15:34:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Director of National Intelligence James Clapper issued a stern warning Su
 
 Full story on F3News: [Clapper: US institutions 'under assault'](http://www.f3nws.com/n/FvjqRJ)
 
-> Posted on: Sunday, May 14, 2017 8:21:00 PM
+> Posted on: Sunday, May 14, 2017 8:34:59 PM
