@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Launch just days after South Korean election may also be seen as an affront to China"
-date: 2017-05-14 02:25:42Z
+date: 2017-05-14 04:13:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea launched a projectile early Sunday from near Kusong, close to the co
 
 Full story on F3News: [Launch just days after South Korean election may also be seen as an affront to China](http://www.f3nws.com/n/3TdEuE)
 
-> Posted on: Sunday, May 14, 2017 7:25:42 AM
+> Posted on: Sunday, May 14, 2017 9:13:04 AM
