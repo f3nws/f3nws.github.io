@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flashback: Barack Obama In Harvard Essay: The American Dream Is To Be Donald Trump"
-date: 2017-05-14 18:00:07Z
+date: 2017-05-14 19:00:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Flashback: Barack Obama In Harvard Essay: The American Dream Is To Be Donald Trump](http://www.f3nws.com/n/vqBsAC)
 
-> Posted on: Sunday, May 14, 2017 11:00:07 PM
+> Posted on: Monday, May 15, 2017 12:00:02 AM
