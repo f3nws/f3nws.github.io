@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Winner of 62nd Eurovision announced](http://www.abc.net.au/news/image/8524636-1x1-700x700.jpg)
 
-The winner of the 62nd Eurovision is announced after a colourful competition featuring lots of glitter, costumes, and a dancing gorilla. Warning: spoilers ahead.
+Eurovision 2017 takes a few unexpected turns, with a surprise contestant finishing in the top three and a streaker wearing an Australian flag mooning the crowd in Ukraine. Warning: spoilers ahead.
 
 
 Full story on F3News: [Winner of 62nd Eurovision announced](http://www.f3nws.com/n/nkXHJC)
