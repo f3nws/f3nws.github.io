@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missile landed in water 60 miles from the east coast of Russia, US official says"
-date: 2017-05-14 06:28:42Z
+date: 2017-05-14 06:59:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea launched a projectile early Sunday from near Kusong, close to the co
 
 Full story on F3News: [Missile landed in water 60 miles from the east coast of Russia, US official says](http://www.f3nws.com/n/3TdEuE)
 
-> Posted on: Sunday, May 14, 2017 11:28:42 AM
+> Posted on: Sunday, May 14, 2017 11:59:35 AM
