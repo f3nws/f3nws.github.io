@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Portugal's Salvador Sobral Quietly Wins Eurovision Song Contest - Billboard](http://www.billboard.com/files/media/Salvador-Sobral-2017-billboard-1548.jpg)
 
-Billboard Portugal's Salvador Sobral Quietly Wins Eurovision Song Contest Billboard It's been described as a cultural Chernobyl and a freak show fantasy, where music frequently takes a backseat to camp tomfoolery. And at this year's Eurovision Song Contest in Kiev, Ukraine, a series of outré acts once again shimmied onto the stage ... Eurovision winner greeted by ecstatic Portuguese nation Washington Post all 1,044 news articles »
+Billboard Portugal's Salvador Sobral Quietly Wins Eurovision Song Contest Billboard It's been described as a cultural Chernobyl and a freak show fantasy, where music frequently takes a backseat to camp tomfoolery. And at this year's Eurovision Song Contest in Kiev, Ukraine, a series of outré acts once again shimmied onto the stage ... Eurovision winner greeted by ecstatic Portuguese nation Washington Post all 1,046 news articles »
 
 
 Full story on F3News: [Portugal's Salvador Sobral Quietly Wins Eurovision Song Contest - Billboard](http://www.f3nws.com/n/CnjvBD)
