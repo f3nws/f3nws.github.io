@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Spurs coach Gregg Popovich has a hilarious strategy in store for the Warriors - FOXSports.com](http://b.fssta.com/uploads/2017/03/kawhi-leonard-gregg-popovich.vresize.1200.630.high.0.jpg)
 
-FOXSports.com Spurs coach Gregg Popovich has a hilarious strategy in store for the Warriors FOXSports.com As the chess match between the Golden State Warriors and San Antonio Spurs prepares to get underway, one of the biggest questions facing the underdog Spurs is how to combat the Warriors' seemingly endless onslaught of scoring. That strategic problem ... Vote: Which team will win the Western Conference finals? ESPN Golden State Warriors Basketball News, Schedule, Roster, Stats - SB Nation SB Nation San Antonio Spurs Basketball News, Schedule, Roster, Stats - SB Nation SB Nation all 276 news articles »
+FOXSports.com Spurs coach Gregg Popovich has a hilarious strategy in store for the Warriors FOXSports.com As the chess match between the Golden State Warriors and San Antonio Spurs prepares to get underway, one of the biggest questions facing the underdog Spurs is how to combat the Warriors' seemingly endless onslaught of scoring. That strategic problem ... Spurs vs. Warriors: Game 1 Live Updates, Score and Analysis for 2017 NBA Playoffs Bleacher Report (blog) San Antonio Spurs Basketball News, Schedule, Roster, Stats - SB Nation SB Nation Houston Rockets Basketball News, Schedule, Roster, Stats - SB Nation SB Nation SB Nation - FOXSports.com all 260 news articles »
 
 
 Full story on F3News: [Spurs coach Gregg Popovich has a hilarious strategy in store for the Warriors - FOXSports.com](http://www.f3nws.com/n/x4jhn)

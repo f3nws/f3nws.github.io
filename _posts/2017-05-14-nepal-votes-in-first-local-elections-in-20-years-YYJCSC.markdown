@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nepal votes in first local elections in 20 years"
-date: 2017-05-14 16:19:18Z
+date: 2017-05-14 20:05:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Nearly 50,000 candidates vying for various positions in municipal and village co
 
 Full story on F3News: [Nepal votes in first local elections in 20 years](http://www.f3nws.com/n/YYJCSC)
 
-> Posted on: Sunday, May 14, 2017 9:19:18 PM
+> Posted on: Monday, May 15, 2017 1:05:03 AM
