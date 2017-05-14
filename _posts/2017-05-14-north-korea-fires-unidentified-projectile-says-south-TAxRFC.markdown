@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires unidentified projectile, says South"
-date: 2017-05-14 04:46:07Z
+date: 2017-05-14 05:35:40Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ South Korean military says launch of unidentified projectile from near the west 
 
 Full story on F3News: [North Korea fires unidentified projectile, says South](http://www.f3nws.com/n/TAxRFC)
 
-> Posted on: Sunday, May 14, 2017 9:46:07 AM
+> Posted on: Sunday, May 14, 2017 10:35:40 AM

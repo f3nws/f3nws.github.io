@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "It’s Not Over, WannaCry 2.0 Ransomware Just Arrived With No 'Kill-Switch'"
-date: 2017-05-14 04:57:55Z
+date: 2017-05-14 05:34:33Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ If you are following the news, by now you might be aware that a security researc
 
 Full story on F3News: [It’s Not Over, WannaCry 2.0 Ransomware Just Arrived With No 'Kill-Switch'](http://www.f3nws.com/n/aH3NzD)
 
-> Posted on: Sunday, May 14, 2017 9:57:55 AM
+> Posted on: Sunday, May 14, 2017 10:34:33 AM
