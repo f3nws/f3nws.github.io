@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqis close in on Mosul, display dead ISIS fighters on hood"
-date: 2017-05-14 06:59:42Z
+date: 2017-05-14 17:29:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Flies buzz around the drying rivulets of blood seeping from the heads of two cor
 
 Full story on F3News: [Iraqis close in on Mosul, display dead ISIS fighters on hood](http://www.f3nws.com/n/EWmkpE)
 
-> Posted on: Sunday, May 14, 2017 11:59:42 AM
+> Posted on: Sunday, May 14, 2017 10:29:45 PM
