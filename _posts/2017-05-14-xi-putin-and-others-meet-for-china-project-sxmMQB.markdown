@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Xi, Putin and others meet for China project"
-date: 2017-05-14 11:38:18Z
+date: 2017-05-14 13:03:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ China's leaders are ringing in what they hope is a new world order at a major in
 
 Full story on F3News: [Xi, Putin and others meet for China project](http://www.f3nws.com/n/sxmMQB)
 
-> Posted on: Sunday, May 14, 2017 4:38:18 PM
+> Posted on: Sunday, May 14, 2017 6:03:41 PM
