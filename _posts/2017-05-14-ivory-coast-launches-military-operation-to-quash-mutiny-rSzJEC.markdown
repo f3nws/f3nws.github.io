@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivory Coast launches military operation to quash mutiny"
-date: 2017-05-14 21:27:26Z
+date: 2017-05-14 21:53:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Loyalist troops advance on Bouake after soldiers mutinying over pay refuse army 
 
 Full story on F3News: [Ivory Coast launches military operation to quash mutiny](http://www.f3nws.com/n/rSzJEC)
 
-> Posted on: Monday, May 15, 2017 2:27:26 AM
+> Posted on: Monday, May 15, 2017 2:53:10 AM
