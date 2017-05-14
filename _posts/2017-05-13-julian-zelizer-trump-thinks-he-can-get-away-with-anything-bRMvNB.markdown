@@ -5,6 +5,8 @@ date: 2017-05-13 19:24:42Z
 categories: cnn-com-top-stories
 ---
 
+![Julian Zelizer: Trump thinks he can get away with anything](http://i2.cdn.cnn.com/cnnnext/dam/assets/170513112734-trump-commencement-speech-super-tease.jpg)
+
 President Trump thinks he can get away with anything.
 
 
