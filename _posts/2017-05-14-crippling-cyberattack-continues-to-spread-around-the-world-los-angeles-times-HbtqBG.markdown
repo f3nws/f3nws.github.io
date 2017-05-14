@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Crippling cyberattack continues to spread around the world - Los Angeles Times](http://www.trbimg.com/img-5917e43f/turbine/la-fg-global-computer-virus-20170513)
 
-Los Angeles Times Crippling cyberattack continues to spread around the world Los Angeles Times A crippling computer virus that invaded computer systems around the globe triggered a wave of aftershocks Saturday, holding data hostage on tens of thousands of computers in what security experts called the largest ransomware attack in history. The World Is Getting Hacked. Why Don't We Do More to Stop It? New York Times Experts: Conditions behind cyberattack may be hard to mimic Washington Post Lucky break slows cyberattack; what's coming could be worse New York Daily News Milwaukee Journal Sentinel - Forbes - Voice of America - PennLive.com all 253 news articles »
+Los Angeles Times Crippling cyberattack continues to spread around the world Los Angeles Times A crippling computer virus that invaded computer systems around the globe triggered a wave of aftershocks Saturday, holding data hostage on tens of thousands of computers in what security experts called the largest ransomware attack in history. The World Is Getting Hacked. Why Don't We Do More to Stop It? New York Times Old Windows PCs can stop WannaCry ransomware with new Microsoft patch PCWorld Global 'WannaCry' ransomware cyberattack seeks cash for data Washington Post KOMO News - New York Daily News - Gizmodo - The Hill all 357 news articles »
 
 
 Full story on F3News: [Crippling cyberattack continues to spread around the world - Los Angeles Times](http://www.f3nws.com/n/HbtqBG)
