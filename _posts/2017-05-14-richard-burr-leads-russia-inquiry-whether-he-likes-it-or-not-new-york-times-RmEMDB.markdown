@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Richard Burr Leads Russia Inquiry, Whether He Likes It or Not - New York Times](https://static01.nyt.com/images/2017/05/13/us/13burr-1/13burr-1-facebookJumbo.jpg)
 
-New York Times Richard Burr Leads Russia Inquiry, Whether He Likes It or Not New York Times Senator Richard M. Burr of North Carolina, who heads the Intelligence Committee, is known for his unpretentious ways, but recent events have made him more forthcoming about his concerns. Credit Al Drago/The New York Times. WASHINGTON — The ... White House 'systems failed' with Comey firing, but Trump pushed the buttons Washington Post Gov. Jerry Brown: 'Trump is a very polarizing figure' CNN Trump taped phone calls at NYC office before presidency: report New York Daily News The Boston Globe - CBS News - Townhall - Boston Herald all 17,110 news articles »
+New York Times Richard Burr Leads Russia Inquiry, Whether He Likes It or Not New York Times Senator Richard M. Burr of North Carolina, who heads the Intelligence Committee, is known for his unpretentious ways, but recent events have made him more forthcoming about his concerns. Credit Al Drago/The New York Times. WASHINGTON — The ... White House 'systems failed' with Comey firing, but Trump pushed the buttons Washington Post FOX NEWS EXCLUSIVE: Trump talks about obstructions, from the media to Democrats, with Judge Jeanine Pirro Fox News Trump's day in tweets: Saturday, May 13 Los Angeles Times CNN - AZCentral.com - New York Daily News - The Boston Globe all 17,257 news articles »
 
 
 Full story on F3News: [Richard Burr Leads Russia Inquiry, Whether He Likes It or Not - New York Times](http://www.f3nws.com/n/RmEMDB)

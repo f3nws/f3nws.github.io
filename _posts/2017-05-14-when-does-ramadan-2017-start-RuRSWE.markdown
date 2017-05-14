@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "When does Ramadan 2017 start?"
-date: 2017-05-14 05:47:00Z
+date: 2017-05-14 05:56:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ With Ramadan just over one week away, the first day of fasting will be confirmed
 
 Full story on F3News: [When does Ramadan 2017 start?](http://www.f3nws.com/n/RuRSWE)
 
-> Posted on: Sunday, May 14, 2017 10:47:00 AM
+> Posted on: Sunday, May 14, 2017 10:56:21 AM
