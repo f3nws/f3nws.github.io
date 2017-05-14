@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel arrests Palestinian writer Ahmad Qatamesh"
-date: 2017-05-14 10:05:46Z
+date: 2017-05-14 10:07:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Israeli army detains former political prisoner, Ahmad Qatamesh, as 1,300 Palesti
 
 Full story on F3News: [Israel arrests Palestinian writer Ahmad Qatamesh](http://www.f3nws.com/n/ebNRxH)
 
-> Posted on: Sunday, May 14, 2017 3:05:46 PM
+> Posted on: Sunday, May 14, 2017 3:07:28 PM
