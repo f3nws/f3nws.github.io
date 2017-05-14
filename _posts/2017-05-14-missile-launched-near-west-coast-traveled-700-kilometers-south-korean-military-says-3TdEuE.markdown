@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missile launched near west coast traveled 700 kilometers, South Korean military says"
-date: 2017-05-14 00:06:41Z
+date: 2017-05-14 00:57:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea launched a projectile early Sunday from near Kusong, close to the co
 
 Full story on F3News: [Missile launched near west coast traveled 700 kilometers, South Korean military says](http://www.f3nws.com/n/3TdEuE)
 
-> Posted on: Sunday, May 14, 2017 5:06:41 AM
+> Posted on: Sunday, May 14, 2017 5:57:32 AM
