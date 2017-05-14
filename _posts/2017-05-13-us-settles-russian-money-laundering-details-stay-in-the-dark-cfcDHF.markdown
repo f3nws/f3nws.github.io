@@ -5,6 +5,8 @@ date: 2017-05-13 22:44:22Z
 categories: cnn-com-world
 ---
 
+![US settles: Russian money-laundering details stay in the dark](http://i2.cdn.cnn.com/cnnnext/dam/assets/170513162141-sdny-southern-district-courthouse-super-tease.jpg)
+
 A major US investigation into Russian money laundering has come to an abrupt end.
 
 
