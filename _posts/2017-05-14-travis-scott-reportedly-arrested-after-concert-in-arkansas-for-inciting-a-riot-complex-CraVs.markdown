@@ -5,7 +5,7 @@ date: 2017-05-14 21:33:45Z
 categories: google-news-entertaintment
 ---
 
-Complex Travis Scott Reportedly Arrested After Concert in Arkansas for Inciting a Riot Complex Travis Scott was reportedly arrested after he performed a show in Rogers, Arkansas, Saturday night. According to TMZ, the concert ended with police taking Scott away. Officers reportedly met the 25-year-old Houston native as soon as he exited the stage. Travis Scott Left His Concert In Handcuffs For 'Inciting A Riot' MTV.com Travis Scott Arrested for Inciting Riot in Arkansas TMZ.com Travis Scott Arrested & Whisked Away In Cuffs After 'Inciting Riot' — Kylie Freaking Out? Hollywood Life Billboard - HipHopDX - Heavy.com - XXLMAG.COM all 35 news articles »
+Complex Travis Scott Reportedly Arrested After Concert in Arkansas for Inciting a Riot Complex Travis Scott was reportedly arrested after he performed a show in Rogers, Arkansas, Saturday night. According to TMZ, the concert ended with police taking Scott away. Officers reportedly met the 25-year-old Houston native as soon as he exited the stage. Travis Scott Left His Concert In Handcuffs For 'Inciting A Riot' MTV.com Travis Scott Arrested for Inciting Riot in Arkansas TMZ.com Travis Scott Arrested & Whisked Away In Cuffs After 'Inciting Riot' — Kylie Freaking Out? Hollywood Life Billboard - HipHopDX - XXLMAG.COM - Heavy.com all 36 news articles »
 
 
 Full story on F3News: [Travis Scott Reportedly Arrested After Concert in Arkansas for Inciting a Riot - Complex](http://www.f3nws.com/n/CraVs)
