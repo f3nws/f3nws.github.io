@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who got hurt by the ransomware attack"
-date: 2017-05-14 14:08:20Z
+date: 2017-05-14 16:00:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Who got hurt by the ransomware attack](http://www.f3nws.com/n/BMxfsG)
 
-> Posted on: Sunday, May 14, 2017 7:08:20 PM
+> Posted on: Sunday, May 14, 2017 9:00:01 PM
