@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clapper: Russia poses external threat, Trump an internal one"
-date: 2017-05-14 15:34:59Z
+date: 2017-05-14 19:50:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Director of National Intelligence James Clapper issued a stern warning Su
 
 Full story on F3News: [Clapper: Russia poses external threat, Trump an internal one](http://www.f3nws.com/n/FvjqRJ)
 
-> Posted on: Sunday, May 14, 2017 8:34:59 PM
+> Posted on: Monday, May 15, 2017 12:50:36 AM
