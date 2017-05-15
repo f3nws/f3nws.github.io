@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conservative New Miss USA Rejects Feminism, Says Healthcare Is Not a Right"
-date: 2017-05-15 07:54:42Z
+date: 2017-05-15 14:54:42Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Conservative New Miss USA Rejects Feminism, Says Healthcare Is Not a Right](http://www.f3nws.com/n/CSRsuC)
 
-> Posted on: Monday, May 15, 2017 12:54:42 PM
+> Posted on: Monday, May 15, 2017 7:54:42 PM

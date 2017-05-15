@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin slams North Korea's missile launch, but warns against 'intimidating' Pyongyang"
-date: 2017-05-15 14:53:59Z
+date: 2017-05-15 15:20:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin has condemned North Korea's latest missile laun
 
 Full story on F3News: [Putin slams North Korea's missile launch, but warns against 'intimidating' Pyongyang](http://www.f3nws.com/n/bc3kW)
 
-> Posted on: Monday, May 15, 2017 7:53:59 PM
+> Posted on: Monday, May 15, 2017 8:20:34 PM
