@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What you need to know about the test"
-date: 2017-05-15 13:11:15Z
+date: 2017-05-15 14:54:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's missile test on Sunday was the country's most successful yet, acco
 
 Full story on F3News: [What you need to know about the test](http://www.f3nws.com/n/xPvVKF)
 
-> Posted on: Monday, May 15, 2017 6:11:15 PM
+> Posted on: Monday, May 15, 2017 7:54:44 PM
