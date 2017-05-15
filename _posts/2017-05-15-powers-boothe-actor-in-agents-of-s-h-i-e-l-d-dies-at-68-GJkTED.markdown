@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powers Boothe, actor in 'Agents of S.H.I.E.L.D,'  dies at 68"
-date: 2017-05-15 15:07:47Z
+date: 2017-05-15 16:28:06Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Powers Boothe, known for his roles in "Sin City," "Agents of S.H.I.E.L.D,"
 
 Full story on F3News: [Powers Boothe, actor in "Agents of S.H.I.E.L.D,"  dies at 68](http://www.f3nws.com/n/GJkTED)
 
-> Posted on: Monday, May 15, 2017 8:07:47 PM
+> Posted on: Monday, May 15, 2017 9:28:06 PM
