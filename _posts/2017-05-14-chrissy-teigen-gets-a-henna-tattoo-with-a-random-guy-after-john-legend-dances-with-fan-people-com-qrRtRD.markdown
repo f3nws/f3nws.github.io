@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Chrissy Teigen Gets a Henna Tattoo with a Random Guy After John Legend Dances with Fan - PEOPLE.com](http://i2.wp.com/peopledotcom.files.wordpress.com/2017/05/chrissy-teigen8.jpg?crop=0px%2C0px%2C750px%2C393.75px&resize=1200%2C630&ssl=1)
 
-PEOPLE.com Chrissy Teigen Gets a Henna Tattoo with a Random Guy After John Legend Dances with Fan PEOPLE.com Chrissy Teigen had a prank up her sleeve ahead of Mother's Day, getting matching (temporary!) tattoos with a stranger on Saturday in Florida. Teigen was taking a goofy break from tour life — she's on the road with daughter Luna, accompanying husband ... and more »
+PEOPLE.com Chrissy Teigen Gets a Henna Tattoo with a Random Guy After John Legend Dances with Fan PEOPLE.com Chrissy Teigen had a prank up her sleeve ahead of Mother's Day, getting matching (temporary!) tattoos with a stranger on Saturday in Florida. Teigen was taking a goofy break from tour life — she's on the road with daughter Luna, accompanying husband ... Stars post sweet messages to their moms for Mother's Day ABC News John Legend Wishes Chrissy Teigen A Happy Mother's Day With Sweet Instagram HuffPost John Legend's Mother's Day Tribute To Chrissy Teigen Is As Sweet As You'd Expect – PHOTO Bustle all 22 news articles »
 
 
 Full story on F3News: [Chrissy Teigen Gets a Henna Tattoo with a Random Guy After John Legend Dances with Fan - PEOPLE.com](http://www.f3nws.com/n/qrRtRD)
