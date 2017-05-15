@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea blights China's One Belt, One Road party with missile launch"
-date: 2017-05-15 00:45:51Z
+date: 2017-05-15 01:32:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's missile launch Sunday came at a highly embarrassing time for China
 
 Full story on F3News: [North Korea blights China's One Belt, One Road party with missile launch](http://www.f3nws.com/n/PhvsRJ)
 
-> Posted on: Monday, May 15, 2017 5:45:51 AM
+> Posted on: Monday, May 15, 2017 6:32:02 AM

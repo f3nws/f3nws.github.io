@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On the frontline of ISIS' last stand in Iraq"
-date: 2017-05-14 04:22:50Z
+date: 2017-05-14 17:29:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Flies buzz around the drying rivulets of blood seeping from the heads of two cor
 
 Full story on F3News: [On the frontline of ISIS' last stand in Iraq](http://www.f3nws.com/n/EWmkpE)
 
-> Posted on: Sunday, May 14, 2017 9:22:50 AM
+> Posted on: Sunday, May 14, 2017 10:29:45 PM
