@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Powers Boothe, star of Tombstone, Guyana Tragedy, MacGruber, dies at 68 - EW.com](http://i2.wp.com/ewedit.files.wordpress.com/2017/05/ap_389262995980.jpg?crop=0px%2C0px%2C2700px%2C1419px&resize=1200%2C630&ssl=1)
 
-EW.com Powers Boothe, star of Tombstone, Guyana Tragedy, MacGruber, dies at 68 EW.com The actor, who died Sunday at the age of 68, had an intensity onscreen that made you want to back up a few steps. His matinee idol good looks were subsumed by this force of will, which often led the actor to be cast as heavies, villains, madmen – and ... Powers Boothe, 'Deadwood,' 'Sin City' and 'Tombstone' Actor, Dies at 68 Variety Powers Boothe, Emmy-winning actor who specialized in sinister roles, dies at 68 Washington Post 'Nashville' & 'Deadwood' Actor Powers Boothe Dies At Age 68 Bustle CNN - The Boston Globe - RollingStone.com - New York Daily News all 286 news articles »
+EW.com Powers Boothe, star of Tombstone, Guyana Tragedy, MacGruber, dies at 68 EW.com The actor, who died Sunday at the age of 68, had an intensity onscreen that made you want to back up a few steps. His matinee idol good looks were subsumed by this force of will, which often led the actor to be cast as heavies, villains, madmen – and ... Powers Boothe, Emmy-winning actor who specialized in sinister roles, dies at 68 Washington Post Powers Boothe, 'Deadwood,' 'Sin City' Actor, Dies at 68 Variety Powers Boothe, 'Deadwood,' 'Sin City' Actor, Dead at 68 RollingStone.com Bustle - CNN - New York Daily News - AL.com all 297 news articles »
 
 
 Full story on F3News: [Powers Boothe, star of Tombstone, Guyana Tragedy, MacGruber, dies at 68 - EW.com](http://www.f3nws.com/n/XDjnXD)

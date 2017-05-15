@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cage activist faces charges for not giving up passwords"
-date: 2017-05-15 15:30:07Z
+date: 2017-05-15 15:30:14Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Police stop Muhammad Rabbani of campaign group Cage after he landed at London’
 
 Full story on F3News: [Cage activist faces charges for not giving up passwords](http://www.f3nws.com/n/vKSh2E)
 
-> Posted on: Monday, May 15, 2017 8:30:07 PM
+> Posted on: Monday, May 15, 2017 8:30:14 PM
