@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snowden protectors' asylum claims rejected"
-date: 2017-05-15 12:50:33Z
+date: 2017-05-15 17:00:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three families that sheltered US whistleblower Edward Snowden when he was hiding
 
 Full story on F3News: [Snowden protectors' asylum claims rejected](http://www.f3nws.com/n/RdcBXH)
 
-> Posted on: Monday, May 15, 2017 5:50:33 PM
+> Posted on: Monday, May 15, 2017 10:00:19 PM

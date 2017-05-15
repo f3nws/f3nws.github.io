@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Push for Convention of the States to rein in government gains steam"
-date: 2017-05-15 16:30:09Z
+date: 2017-05-15 17:05:15Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ In 1804, Vice President Aaron Burr and former Treasury Secretary Alexander Hamil
 
 Full story on F3News: [Push for Convention of the States to rein in government gains steam](http://www.f3nws.com/n/TexrHJ)
 
-> Posted on: Monday, May 15, 2017 9:30:09 PM
+> Posted on: Monday, May 15, 2017 10:05:15 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS fighters had 'pills in their pockets'"
-date: 2017-05-15 10:19:29Z
+date: 2017-05-15 16:32:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Flies buzz around the drying rivulets of blood seeping from the heads of two cor
 
 Full story on F3News: [ISIS fighters had 'pills in their pockets'](http://www.f3nws.com/n/EWmkpE)
 
-> Posted on: Monday, May 15, 2017 3:19:29 PM
+> Posted on: Monday, May 15, 2017 9:32:46 PM

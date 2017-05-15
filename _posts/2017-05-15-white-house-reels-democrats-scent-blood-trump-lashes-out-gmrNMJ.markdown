@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House reels, Democrats scent blood - Trump lashes out"
-date: 2017-05-15 13:58:17Z
+date: 2017-05-15 16:32:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A reeling White House has no obvious path out of one of the most intense self-im
 
 Full story on F3News: [White House reels, Democrats scent blood - Trump lashes out](http://www.f3nws.com/n/gmrNMJ)
 
-> Posted on: Monday, May 15, 2017 6:58:17 PM
+> Posted on: Monday, May 15, 2017 9:32:14 PM
