@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cyberattack could re-boot"
-date: 2017-05-15 10:56:53Z
+date: 2017-05-15 11:02:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Cyberattack could re-boot](http://www.f3nws.com/n/MYxdJH)
 
-> Posted on: Monday, May 15, 2017 3:56:53 PM
+> Posted on: Monday, May 15, 2017 4:02:32 PM

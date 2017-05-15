@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "I Coast: Gunfire erupts in Abidjan, Bouake amid mutiny"
-date: 2017-05-15 08:18:06Z
+date: 2017-05-15 11:01:02Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Fresh unrest erupts as army press operation aimed at ending a mutiny by soldiers
 
 Full story on F3News: [I Coast: Gunfire erupts in Abidjan, Bouake amid mutiny](http://www.f3nws.com/n/y4kkZE)
 
-> Posted on: Monday, May 15, 2017 1:18:06 PM
+> Posted on: Monday, May 15, 2017 4:01:02 PM
