@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chelsea Manning to remain in Army, receive health care benefits after prison release"
-date: 2017-05-15 09:59:00Z
+date: 2017-05-15 13:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Chelsea Manning will remain on active duty following her release from military p
 
 Full story on F3News: [Chelsea Manning to remain in Army, receive health care benefits after prison release](http://www.f3nws.com/n/KjCWU)
 
-> Posted on: Monday, May 15, 2017 2:59:00 PM
+> Posted on: Monday, May 15, 2017 6:00:00 PM

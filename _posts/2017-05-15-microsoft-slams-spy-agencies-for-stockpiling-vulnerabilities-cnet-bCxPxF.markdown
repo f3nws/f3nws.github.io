@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Microsoft slams spy agencies for 'stockpiling' vulnerabilities     - CNET"
-date: 2017-05-15 13:00:28Z
+date: 2017-05-15 13:50:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The tech giant's chief counsel calls the WannaCry attack a "wake-up call" for gr
 
 Full story on F3News: [Microsoft slams spy agencies for 'stockpiling' vulnerabilities     - CNET](http://www.f3nws.com/n/bCxPxF)
 
-> Posted on: Monday, May 15, 2017 6:00:28 PM
+> Posted on: Monday, May 15, 2017 6:50:33 PM
