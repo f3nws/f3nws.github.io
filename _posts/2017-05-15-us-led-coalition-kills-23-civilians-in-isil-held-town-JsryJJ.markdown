@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-led coalition 'kills 23 civilians' in ISIL-held town"
-date: 2017-05-15 16:50:17Z
+date: 2017-05-15 18:00:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Deadly air raid on Albu Kamal reported just hours after deaths of 12 women blame
 
 Full story on F3News: [US-led coalition 'kills 23 civilians' in ISIL-held town](http://www.f3nws.com/n/JsryJJ)
 
-> Posted on: Monday, May 15, 2017 9:50:17 PM
+> Posted on: Monday, May 15, 2017 11:00:10 PM

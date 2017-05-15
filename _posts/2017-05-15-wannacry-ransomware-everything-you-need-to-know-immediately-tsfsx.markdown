@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WannaCry Ransomware: Everything You Need To Know Immediately"
-date: 2017-05-15 17:27:28Z
+date: 2017-05-15 17:57:04Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ By now I am sure you have already heard something about the WannaCry ransomware,
 
 Full story on F3News: [WannaCry Ransomware: Everything You Need To Know Immediately](http://www.f3nws.com/n/tsfsx)
 
-> Posted on: Monday, May 15, 2017 10:27:28 PM
+> Posted on: Monday, May 15, 2017 10:57:04 PM

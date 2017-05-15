@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump no longer wants to talk about..."
-date: 2017-05-15 14:40:31Z
+date: 2017-05-15 14:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ When it comes to secret White House recordings, Donald Trump already opened the 
 
 Full story on F3News: [Trump no longer wants to talk about...](http://www.f3nws.com/n/CcjnJB)
 
-> Posted on: Monday, May 15, 2017 7:40:31 PM
+> Posted on: Monday, May 15, 2017 7:40:00 PM
