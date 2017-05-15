@@ -14,7 +14,8 @@ function redirToSite() {
 }
 
 function showNews(url){
-	window.location.href = url;
+	//window.location.href = url;
+    console.log(url);
 }
 
 redirToSite();
