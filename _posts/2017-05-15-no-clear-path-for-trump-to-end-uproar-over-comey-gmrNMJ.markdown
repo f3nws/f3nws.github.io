@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No clear path for Trump to end uproar over Comey"
-date: 2017-05-15 10:16:56Z
+date: 2017-05-15 11:37:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A reeling White House has no obvious path out of one of the most intense self-im
 
 Full story on F3News: [No clear path for Trump to end uproar over Comey](http://www.f3nws.com/n/gmrNMJ)
 
-> Posted on: Monday, May 15, 2017 3:16:56 PM
+> Posted on: Monday, May 15, 2017 4:37:19 PM

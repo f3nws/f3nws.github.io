@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A simple explanation of what's going on"
-date: 2017-05-15 08:42:30Z
+date: 2017-05-15 11:57:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [A simple explanation of what's going on](http://www.f3nws.com/n/3kYUJB)
 
-> Posted on: Monday, May 15, 2017 1:42:30 PM
+> Posted on: Monday, May 15, 2017 4:57:56 PM
