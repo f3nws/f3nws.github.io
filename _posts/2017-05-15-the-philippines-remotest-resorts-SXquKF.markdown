@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Philippines' remotest resorts"
-date: 2017-05-15 09:24:52Z
+date: 2017-05-15 09:30:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Whether you're in search of an all-inclusive luxury resort or a chilled-out beac
 
 Full story on F3News: [The Philippines' remotest resorts](http://www.f3nws.com/n/SXquKF)
 
-> Posted on: Monday, May 15, 2017 2:24:52 PM
+> Posted on: Monday, May 15, 2017 2:30:19 PM

@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Palestinians mark 69th 'Nakba' anniversary with rallies"
+date: 2017-05-15 09:21:51Z
+categories: al-jazeera-english
+---
+
+![Palestinians mark 69th 'Nakba' anniversary with rallies](http://www.aljazeera.com/mritems/Images/2017/5/15/ecb0019cb5fe48f093329e34ff266f2c_18.jpg)
+
+Protests and vigils in occupied West Bank, Gaza and Israel as Palestinians mark forced displacement from lands in 1948.
+
+
+Full story on F3News: [Palestinians mark 69th 'Nakba' anniversary with rallies](http://www.f3nws.com/n/ytyYYG)
+
+> Posted on: Monday, May 15, 2017 2:21:51 PM
