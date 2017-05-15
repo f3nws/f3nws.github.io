@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Christine Todd Whitman: No room for science in Trump administration"
-date: 2017-05-15 11:34:58Z
+date: 2017-05-15 12:17:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Monday, Environmental Protection Agency (EPA) Administrator Scott Pruitt decl
 
 Full story on F3News: [Christine Todd Whitman: No room for science in Trump administration](http://www.f3nws.com/n/3eyUkF)
 
-> Posted on: Monday, May 15, 2017 4:34:58 PM
+> Posted on: Monday, May 15, 2017 5:17:15 PM
