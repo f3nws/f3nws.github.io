@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "State Dept.: Assad using crematorium to hide atrocities"
-date: 2017-05-15 18:05:39Z
+date: 2017-05-15 18:51:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US said Monday it believes the Syrian government has built a large crematori
 
 Full story on F3News: [State Dept.: Assad using crematorium to hide atrocities](http://www.f3nws.com/n/AWDNU)
 
-> Posted on: Monday, May 15, 2017 11:05:39 PM
+> Posted on: Monday, May 15, 2017 11:51:00 PM
