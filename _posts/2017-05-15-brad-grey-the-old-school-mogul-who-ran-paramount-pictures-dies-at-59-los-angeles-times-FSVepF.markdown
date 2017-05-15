@@ -5,9 +5,9 @@ date: 2017-05-15 19:25:00Z
 categories: google-news-entertaintment
 ---
 
-![Brad Grey, the old-school mogul who ran Paramount Pictures, dies at 59 - Los Angeles Times](http://www.trbimg.com/img-591a1138/turbine/la-fi-ct-brad-grey-dies-20170515)
+![Brad Grey, the old-school mogul who ran Paramount Pictures, dies at 59 - Los Angeles Times](http://www.trbimg.com/img-591a1c26/turbine/la-fi-ct-brad-grey-dies-20170515)
 
-Los Angeles Times Brad Grey, the old-school mogul who ran Paramount Pictures, dies at 59 Los Angeles Times Brad Grey, who ran Paramount Pictures for more than a decade and was in some ways a throwback to a bygone era in Hollywood, died of cancer Sunday at his home in Holmby Hills, a family spokeswoman said. He was 59. A former talent manager and ... Brad Grey Dies At Age 59 From Cancer Deadline Former Paramount CEO Brad Grey Dies at 59 Variety Brad Grey: Harvey and Bob Weinstein Remember Their Former Intern Hollywood Reporter New York Daily News - Vanity Fair - EW.com all 66 news articles »
+Los Angeles Times Brad Grey, the old-school mogul who ran Paramount Pictures, dies at 59 Los Angeles Times Brad Grey, who ran Paramount Pictures for more than a decade and was in some ways a throwback to a bygone era in Hollywood, died of cancer Sunday at his home in Holmby Hills, a family spokeswoman said. He was 59. A former talent manager and ... Brad Grey: Harvey and Bob Weinstein Remember Their Former Intern Hollywood Reporter Former Paramount CEO Brad Grey Dies at 59 Variety Former Paramount head Brad Grey dies at 59 New York Daily News Deadline - Vanity Fair - Deadline all 68 news articles »
 
 
 Full story on F3News: [Brad Grey, the old-school mogul who ran Paramount Pictures, dies at 59 - Los Angeles Times](http://www.f3nws.com/n/FSVepF)
