@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea says new rocket can carry nuclear warhead"
-date: 2017-05-15 03:52:11Z
+date: 2017-05-15 04:37:06Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ State media says latest test was aimed at verifying missile's capability to carr
 
 Full story on F3News: [North Korea says new rocket can carry nuclear warhead](http://www.f3nws.com/n/fDyKGE)
 
-> Posted on: Monday, May 15, 2017 8:52:11 AM
+> Posted on: Monday, May 15, 2017 9:37:06 AM
