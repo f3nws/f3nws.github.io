@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Spicy' returns to 'Saturday Night Live' as Melissa McCarthy joins the '5-Timers Club' - Los Angeles Times](http://www.trbimg.com/img-5918a57c/turbine/la-et-entertainment-news-updates-may-spicy-returns-to-saturday-night-1494780821)
 
-Los Angeles Times 'Spicy' returns to 'Saturday Night Live' as Melissa McCarthy joins the '5-Timers Club' Los Angeles Times When Melissa McCarthy was spotted tooling through the streets of New York City behind a motorized lectern dressed as Sean Spicer earlier this week, viewers knew that it meant the return of her widely praised "Saturday Night Live" impression of the ... Saturday Night Live Recap: Sean Spicer's Big Trip to New York City Vulture Saturday Night Live recap: Melissa McCarthy EW.com President Trump, please don't fire Sean Spicer CNN IndieWire - Vanity Fair - Today.com - RollingStone.com all 277 news articles »
+Los Angeles Times 'Spicy' returns to 'Saturday Night Live' as Melissa McCarthy joins the '5-Timers Club' Los Angeles Times When Melissa McCarthy was spotted tooling through the streets of New York City behind a motorized lectern dressed as Sean Spicer earlier this week, viewers knew that it meant the return of her widely praised "Saturday Night Live" impression of the ... Correction: Sean Spicer Was 'Among' the Bushes, Not Hiding 'In' Them New York Magazine all 297 news articles »
 
 
 Full story on F3News: ['Spicy' returns to 'Saturday Night Live' as Melissa McCarthy joins the '5-Timers Club' - Los Angeles Times](http://www.f3nws.com/n/hqhpSF)
