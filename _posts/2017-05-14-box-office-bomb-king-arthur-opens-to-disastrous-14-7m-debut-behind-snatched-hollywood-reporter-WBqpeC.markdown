@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Box-Office Bomb: 'King Arthur' Opens to Disastrous $14.7M Debut Behind 'Snatched' - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/05/king_arthur-_legend_of_the_sword_and_snatched_still_-_split_2_-_publicity_-_h_2017.jpg)
 
-Hollywood Reporter Box-Office Bomb: 'King Arthur' Opens to Disastrous $14.7M Debut Behind 'Snatched' Hollywood Reporter 'King Arthur' is a flop of epic proportions after costing $175 million to make; 'Snatched' cost far less ($42 million) but opened well behind Amy Schumer's 'Trainwreck.' Holdover 'Guardians of the Galaxy Vol. 2' easily beat both new offerings. The ... Camelot On Film: 9 (Not-So) Brief, (Intermittently) Shining Moments NPR 'King Arthur' flops, 'Guardians 2' still rules at box office New York Daily News Box Office: 'King Arthur' Royally Flops With $14.7M Weekend Forbes TheWrap - Screen Rant - Collider.com all 250 news articles »
+Hollywood Reporter Box-Office Bomb: 'King Arthur' Opens to Disastrous $14.7M Debut Behind 'Snatched' Hollywood Reporter 'King Arthur' is a flop of epic proportions after costing $175 million to make; 'Snatched' cost far less ($42 million) but opened well behind Amy Schumer's 'Trainwreck.' Holdover 'Guardians of the Galaxy Vol. 2' easily beat both new offerings. The ... 'King Arthur' Bombs: Why Guy Ritchie's Latest Was a Royal Miss Variety Pricey 'King Arthur' Is a Box Office Pauper New York Times 'King Arthur' is summer's first big box office flop Los Angeles Times Fox News - NPR all 349 news articles »
 
 
 Full story on F3News: [Box-Office Bomb: 'King Arthur' Opens to Disastrous $14.7M Debut Behind 'Snatched' - Hollywood Reporter](http://www.f3nws.com/n/WBqpeC)
