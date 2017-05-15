@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nicki Minaj pays off thousands in fans' student loans, tuition"
-date: 2017-05-15 16:10:36Z
+date: 2017-05-15 18:29:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Students saddled with college expenses are in for a real treat now that Nicki Mi
 
 Full story on F3News: [Nicki Minaj pays off thousands in fans' student loans, tuition](http://www.f3nws.com/n/pqkrMG)
 
-> Posted on: Monday, May 15, 2017 9:10:36 PM
+> Posted on: Monday, May 15, 2017 11:29:39 PM
