@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prison guards kill inmates after jailbreak in Lae"
-date: 2017-05-15 05:33:51Z
+date: 2017-05-15 06:54:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Three prisoners captured, 17 shot dead, and 57 still at large in a mass jailbrea
 
 Full story on F3News: [Prison guards kill inmates after jailbreak in Lae](http://www.f3nws.com/n/pPUqdB)
 
-> Posted on: Monday, May 15, 2017 10:33:51 AM
+> Posted on: Monday, May 15, 2017 11:54:03 AM
