@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US says Assad using 'crematorium' to hide mass killings"
-date: 2017-05-15 19:56:33Z
+date: 2017-05-15 20:23:02Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Trump administration says it has evidence Syrian authorities are burning bodies 
 
 Full story on F3News: [US says Assad using 'crematorium' to hide mass killings](http://www.f3nws.com/n/nDhcnB)
 
-> Posted on: Tuesday, May 16, 2017 12:56:33 AM
+> Posted on: Tuesday, May 16, 2017 1:23:02 AM
