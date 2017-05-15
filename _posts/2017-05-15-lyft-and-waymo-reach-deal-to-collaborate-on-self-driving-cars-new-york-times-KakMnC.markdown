@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Lyft and Waymo Reach Deal to Collaborate on Self-Driving Cars - New York Times](https://static01.nyt.com/images/2017/05/15/business/15lyft-2/15lyft-2-facebookJumbo.jpg)
 
-New York Times Lyft and Waymo Reach Deal to Collaborate on Self-Driving Cars New York Times Waymo's self-driving minivan in Detroit at the North American International Auto Show in January. Credit Brett Carlsen for The New York Times. SAN FRANCISCO — As the race to bring self-driving vehicles to the public intensifies, two of Silicon Valley ... Lyft and Waymo are teaming up to work on self-driving cars Business Insider Alphabet's Waymo Teams Up With Lyft on Self-Driving Cars Bloomberg Lyft, Waymo Ink Self-Driving Car Deal: NY Times U.S. News & World Report all 10 news articles »
+New York Times Lyft and Waymo Reach Deal to Collaborate on Self-Driving Cars New York Times Waymo's self-driving minivan in Detroit at the North American International Auto Show in January. Credit Brett Carlsen for The New York Times. SAN FRANCISCO — As the race to bring self-driving vehicles to the public intensifies, two of Silicon Valley ... Waymo Forges Driverless Car Tech Tie-Up With Lyft Amid Its Legal Battle With Uber Forbes Lyft and Waymo Will Collaborate on Self-Driving Car Technology NBCNews.com Lyft and Waymo are teaming up to work on self-driving cars Business Insider Bloomberg - Mashable - U.S. News & World Report - 9to5Google all 17 news articles »
 
 
 Full story on F3News: [Lyft and Waymo Reach Deal to Collaborate on Self-Driving Cars - New York Times](http://www.f3nws.com/n/KakMnC)

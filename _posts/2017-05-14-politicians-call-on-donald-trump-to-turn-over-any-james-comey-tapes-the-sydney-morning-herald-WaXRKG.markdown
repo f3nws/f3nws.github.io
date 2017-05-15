@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Politicians call on Donald Trump to turn over any James Comey tapes - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/w/4/2/3/1/image.related.articleLeadwide.620x349.gw4qeu.png/1494803006511.jpg)
 
-The Sydney Morning Herald Politicians call on Donald Trump to turn over any James Comey tapes The Sydney Morning Herald Washington, DC: US politicians are calling on President Donald Trump to turn over any tapes of conversations with fired FBI chief James Comey, potentially setting up a showdown with the White House as Democrats considered a boycott of the vote on ... US government 'under assault' by Trump, Clapper says The Boston Globe all 18,263 news articles »
+The Sydney Morning Herald Politicians call on Donald Trump to turn over any James Comey tapes The Sydney Morning Herald Washington, DC: US politicians are calling on President Donald Trump to turn over any tapes of conversations with fired FBI chief James Comey, potentially setting up a showdown with the White House as Democrats considered a boycott of the vote on ... US government 'under assault' by Trump, Clapper says The Boston Globe all 18,333 news articles »
 
 
 Full story on F3News: [Politicians call on Donald Trump to turn over any James Comey tapes - The Sydney Morning Herald](http://www.f3nws.com/n/WaXRKG)

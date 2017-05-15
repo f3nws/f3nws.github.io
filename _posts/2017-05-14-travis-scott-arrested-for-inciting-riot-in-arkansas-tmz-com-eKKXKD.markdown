@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Travis Scott Arrested for Inciting Riot in Arkansas - TMZ.com](http://ll-media.tmz.com/2017/05/14/0514-travis-scott-getty-03-1200x630.jpg)
 
-TMZ.com Travis Scott Arrested for Inciting Riot in Arkansas TMZ.com 1:00 PM PT -- Rogers PD issued a statement saying Travis encouraged people to rush the stage at his show, bypassing security protocols in the process. They add ... several people were injured, including a security guard and a cop. A source close to ... Travis Scott Arrested for Inciting a Riot and Endangering the Welfare of a Minor After Arkansas Concert E! Online Travis Scott Arrested For Inciting A Riot During A Show In Arkansas PerezHilton.com Travis Scott Reportedly Arrested for Inciting a Riot During Live Performance BET Complex - MTV.com - Billboard all 49 news articles »
+TMZ.com Travis Scott Arrested for Inciting Riot in Arkansas TMZ.com 1:00 PM PT -- Rogers PD issued a statement saying Travis encouraged people to rush the stage at his show, bypassing security protocols in the process. They add ... several people were injured, including a security guard and a cop. A source close to ... Travis Scott Arrested for Inciting a Riot and Endangering the Welfare of a Minor After Arkansas Concert E! Online all 51 news articles »
 
 
 Full story on F3News: [Travis Scott Arrested for Inciting Riot in Arkansas - TMZ.com](http://www.f3nws.com/n/eKKXKD)
