@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best wireless Bluetooth headphones for iPhone 7     - CNET"
-date: 2017-05-15 16:12:41Z
+date: 2017-05-15 16:43:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Yes, Apple left the headphone jack off the iPhone 7 and iPhone 7 Plus. With that
 
 Full story on F3News: [Best wireless Bluetooth headphones for iPhone 7     - CNET](http://www.f3nws.com/n/hUqhTF)
 
-> Posted on: Monday, May 15, 2017 9:12:41 PM
+> Posted on: Monday, May 15, 2017 9:43:55 PM
