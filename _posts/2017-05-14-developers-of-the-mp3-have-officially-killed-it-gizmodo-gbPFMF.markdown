@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Developers of the MP3 Have Officially Killed It - Gizmodo"
-date: 2017-05-14 19:03:18Z
+date: 2017-05-14 19:02:00Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Gizmodo Developers of the MP3 Have Officially Killed It Gizmodo MP3, the digital
 
 Full story on F3News: [Developers of the MP3 Have Officially Killed It - Gizmodo](http://www.f3nws.com/n/gbPFMF)
 
-> Posted on: Monday, May 15, 2017 12:03:18 AM
+> Posted on: Monday, May 15, 2017 12:02:00 AM
