@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmanuel Macron names Edouard Philippe prime minister"
-date: 2017-05-15 19:52:54Z
+date: 2017-05-15 20:29:29Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Chosen by Emmanuel Macron, 46-year-old Edouard Philippe joins diverse group serv
 
 Full story on F3News: [Emmanuel Macron names Edouard Philippe prime minister](http://www.f3nws.com/n/qNUSfD)
 
-> Posted on: Tuesday, May 16, 2017 12:52:54 AM
+> Posted on: Tuesday, May 16, 2017 1:29:29 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dangerous territory: Trump's poll numbers should terrify Republicans"
-date: 2017-05-15 19:41:38Z
+date: 2017-05-15 20:30:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump has never been a terribly popular president. But, a series of recen
 
 Full story on F3News: [Dangerous territory: Trump's poll numbers should terrify Republicans](http://www.f3nws.com/n/rTGZRB)
 
-> Posted on: Tuesday, May 16, 2017 12:41:38 AM
+> Posted on: Tuesday, May 16, 2017 1:30:07 AM

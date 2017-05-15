@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinians mark 69th 'Nakba' anniversary with rallies"
-date: 2017-05-15 15:21:58Z
+date: 2017-05-15 20:43:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Protests and vigils in occupied West Bank, Gaza and Israel as Palestinians mark 
 
 Full story on F3News: [Palestinians mark 69th 'Nakba' anniversary with rallies](http://www.f3nws.com/n/ytyYYG)
 
-> Posted on: Monday, May 15, 2017 8:21:58 PM
+> Posted on: Tuesday, May 16, 2017 1:43:15 AM
