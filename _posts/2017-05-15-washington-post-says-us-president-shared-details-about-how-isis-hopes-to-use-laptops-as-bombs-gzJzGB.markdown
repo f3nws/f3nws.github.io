@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Washington Post says US President shared details about how ISIS hopes to use laptops as bombs"
-date: 2017-05-15 22:44:39Z
+date: 2017-05-15 23:18:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump shared highly classified information with the Russian for
 
 Full story on F3News: [Washington Post says US President shared details about how ISIS hopes to use laptops as bombs](http://www.f3nws.com/n/gzJzGB)
 
-> Posted on: Tuesday, May 16, 2017 3:44:39 AM
+> Posted on: Tuesday, May 16, 2017 4:18:58 AM

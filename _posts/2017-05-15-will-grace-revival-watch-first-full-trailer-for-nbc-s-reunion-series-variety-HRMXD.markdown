@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Will & Grace' Revival: Watch First Full Trailer for NBC's Reunion Series - Variety](https://pmcvariety.files.wordpress.com/2017/05/will-grace1.jpg?w=1000&h=562&crop=1)
 
-Variety 'Will & Grace' Revival: Watch First Full Trailer for NBC's Reunion Series Variety In anticipation of NBC's “Will & Grace” revival this fall, Will, Grace, Jack and Karen have reunited in the first official trailer for the special event series. The five-minute-long trailer begins as the titular characters exit the office of Bob ... 'Will & Grace' Trailer: NBC Unveils First Extended Look At Reunion Series Deadline Masked Scheduler: A lot to like in NBC's fall 2017 schedule TVbytheNumbers The 'Will & Grace' revival promo is here and it's a sentimental delight USA TODAY ComingSoon.net - Hollywood Life - Entertainment Tonight - TIME all 140 news articles »
+Variety 'Will & Grace' Revival: Watch First Full Trailer for NBC's Reunion Series Variety In anticipation of NBC's “Will & Grace” revival this fall, Will, Grace, Jack and Karen have reunited in the first official trailer for the special event series. The five-minute-long trailer begins as the titular characters exit the office of Bob ... Must-See TV vs. TGIT: NBC Is Poised to Take Back Thursdays TV Guide (blog) 'Will & Grace' Trailer: NBC Unveils First Extended Look At Reunion Series Deadline Masked Scheduler: A lot to like in NBC's fall 2017 schedule TVbytheNumbers all 147 news articles »
 
 
 Full story on F3News: ['Will & Grace' Revival: Watch First Full Trailer for NBC's Reunion Series - Variety](http://www.f3nws.com/n/HRMXD)
