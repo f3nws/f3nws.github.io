@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets: I had 'right' to share information with Russia"
-date: 2017-05-16 11:00:12Z
+date: 2017-05-16 11:30:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump insisted Tuesday he had the right to share information wi
 
 Full story on F3News: [Trump tweets: I had 'right' to share information with Russia](http://www.f3nws.com/n/F3JZ)
 
-> Posted on: Tuesday, May 16, 2017 4:00:12 PM
+> Posted on: Tuesday, May 16, 2017 4:30:09 PM

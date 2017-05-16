@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Full story: Trump revealed classified info to Russians, sources say"
-date: 2017-05-16 11:00:12Z
+date: 2017-05-16 11:30:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump shared highly classified information with the Russian for
 
 Full story on F3News: [Full story: Trump revealed classified info to Russians, sources say](http://www.f3nws.com/n/gzJzGB)
 
-> Posted on: Tuesday, May 16, 2017 4:00:12 PM
+> Posted on: Tuesday, May 16, 2017 4:30:09 PM
