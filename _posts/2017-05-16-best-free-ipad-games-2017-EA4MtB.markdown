@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best free iPad games 2017"
-date: 2017-05-16 13:30:10Z
+date: 2017-05-16 13:48:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ So you've got an iPad and now you have no cash left to buy any games. Have no fe
 
 Full story on F3News: [Best free iPad games 2017](http://www.f3nws.com/n/EA4MtB)
 
-> Posted on: Tuesday, May 16, 2017 6:30:10 PM
+> Posted on: Tuesday, May 16, 2017 6:48:00 PM
