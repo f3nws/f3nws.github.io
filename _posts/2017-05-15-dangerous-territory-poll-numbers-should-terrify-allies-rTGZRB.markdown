@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Dangerous territory: Poll numbers should terrify allies"
+date: 2017-05-15 20:30:07Z
+categories: cnn-com-top-stories
+---
+
+![Dangerous territory: Poll numbers should terrify allies](http://i2.cdn.cnn.com/cnnnext/dam/assets/170513133837-04-donald-trump-0513-super-tease.jpg)
+
+Donald Trump has never been a terribly popular president. But, a series of recent polls show him in truly dangerous territory -- flirting with dipping under 40% approval just 115 days into his presidency.
+
+
+Full story on F3News: [Dangerous territory: Poll numbers should terrify allies](http://www.f3nws.com/n/rTGZRB)
+
+> Posted on: Tuesday, May 16, 2017 1:30:07 AM
