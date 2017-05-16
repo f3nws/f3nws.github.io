@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WannaCry: What is ransomware and how to avoid it"
-date: 2017-05-16 08:00:06Z
+date: 2017-05-16 08:19:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ What you need to know about 'WannaCry', the malicious software behind Friday's w
 
 Full story on F3News: [WannaCry: What is ransomware and how to avoid it](http://www.f3nws.com/n/yNVcxB)
 
-> Posted on: Tuesday, May 16, 2017 1:00:06 PM
+> Posted on: Tuesday, May 16, 2017 1:19:03 PM
