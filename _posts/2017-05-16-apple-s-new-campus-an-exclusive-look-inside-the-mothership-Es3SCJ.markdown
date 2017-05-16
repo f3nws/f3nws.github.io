@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple’s New Campus: An Exclusive Look Inside the Mothership"
-date: 2017-05-16 11:00:12Z
+date: 2017-05-16 11:30:18Z
 categories: wired-top-stories
 ---
 
@@ -12,4 +12,4 @@ Flawless curves, milled aluminum, endless glass, walled garden—sounds like an 
 
 Full story on F3News: [Apple’s New Campus: An Exclusive Look Inside the Mothership](http://www.f3nws.com/n/Es3SCJ)
 
-> Posted on: Tuesday, May 16, 2017 4:00:12 PM
+> Posted on: Tuesday, May 16, 2017 4:30:18 PM

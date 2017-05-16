@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scientists 3D-printed ovaries and made mouse babies"
-date: 2017-05-16 15:00:00Z
+date: 2017-05-16 15:00:15Z
 categories: techcrunch
 ---
 
@@ -12,4 +12,4 @@ Scientists from Northwestern University have developed a bioprosthetic ovary usi
 
 Full story on F3News: [Scientists 3D-printed ovaries and made mouse babies](http://www.f3nws.com/n/umvKJH)
 
-> Posted on: Tuesday, May 16, 2017 8:00:00 PM
+> Posted on: Tuesday, May 16, 2017 8:00:15 PM

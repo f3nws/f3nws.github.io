@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone games 2017"
-date: 2017-05-16 15:00:01Z
+date: 2017-05-16 15:14:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Here are our picks of the very best games for your tiny device – plus the late
 
 Full story on F3News: [The best iPhone games 2017](http://www.f3nws.com/n/YvrzmH)
 
-> Posted on: Tuesday, May 16, 2017 8:00:01 PM
+> Posted on: Tuesday, May 16, 2017 8:14:00 PM
