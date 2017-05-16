@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Timeline: Syria's 13 'people evacuation' deals"
-date: 2017-05-16 10:30:10Z
+date: 2017-05-16 10:44:12Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ A fact sheet about Syria's evacuation deals between the regime and armed opposit
 
 Full story on F3News: [Timeline: Syria's 13 'people evacuation' deals](http://www.f3nws.com/n/CzZkRH)
 
-> Posted on: Tuesday, May 16, 2017 3:30:10 PM
+> Posted on: Tuesday, May 16, 2017 3:44:12 PM

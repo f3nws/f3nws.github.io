@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen dies from too much caffeine"
-date: 2017-05-16 03:14:16Z
+date: 2017-05-16 11:00:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Too much caffeine caused the death of a 16-year-old high school student from Sou
 
 Full story on F3News: [Teen dies from too much caffeine](http://www.f3nws.com/n/uKZYyC)
 
-> Posted on: Tuesday, May 16, 2017 8:14:16 AM
+> Posted on: Tuesday, May 16, 2017 4:00:13 PM

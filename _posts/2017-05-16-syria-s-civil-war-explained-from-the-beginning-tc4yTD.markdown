@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria's civil war explained from the beginning"
-date: 2017-05-16 10:30:11Z
+date: 2017-05-16 10:37:20Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The Syrian civil war is the deadliest conflict the 21st century has witnessed so
 
 Full story on F3News: [Syria's civil war explained from the beginning](http://www.f3nws.com/n/tc4yTD)
 
-> Posted on: Tuesday, May 16, 2017 3:30:11 PM
+> Posted on: Tuesday, May 16, 2017 3:37:20 PM

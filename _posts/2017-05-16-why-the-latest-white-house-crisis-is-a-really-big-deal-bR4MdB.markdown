@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why the latest White House crisis is a really big deal"
-date: 2017-05-16 10:22:33Z
+date: 2017-05-16 11:00:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump's latest crisis -- over his reported disclosure of highly classifie
 
 Full story on F3News: [Why the latest White House crisis is a really big deal](http://www.f3nws.com/n/bR4MdB)
 
-> Posted on: Tuesday, May 16, 2017 3:22:33 PM
+> Posted on: Tuesday, May 16, 2017 4:00:12 PM

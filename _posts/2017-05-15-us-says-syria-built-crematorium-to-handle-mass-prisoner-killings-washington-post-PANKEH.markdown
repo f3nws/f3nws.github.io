@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US says Syria built crematorium to handle mass prisoner killings - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/15/National-Security/Images/US_Mideast_67027-76bce-0661.jpg)
 
-Washington Post US says Syria built crematorium to handle mass prisoner killings Washington Post The Syrian government has constructed and is using a crematorium at its notorious Sednaya military prison near Damascus to clandestinely dispose of the bodies of prisoners it continues to execute inside the facility, the State Department said Monday. Syrian Government Denies US Allegations of Mass Killings Bloomberg Syria: Secret campaign of mass hangings and extermination at Saydnaya Prison Amnesty International all 167 news articles »
+Washington Post US says Syria built crematorium to handle mass prisoner killings Washington Post The Syrian government has constructed and is using a crematorium at its notorious Sednaya military prison near Damascus to clandestinely dispose of the bodies of prisoners it continues to execute inside the facility, the State Department said Monday. US accuses Syria of killing thousands, burning bodies in crematorium ABC News Israeli Minister: It Is Time to Assassinate Syria's Bashar Al-Assad Newsweek Syrian government denies US accusation of crematorium at prison Reuters Bloomberg - New York Post - Amnesty International all 176 news articles »
 
 
 Full story on F3News: [US says Syria built crematorium to handle mass prisoner killings - Washington Post](http://www.f3nws.com/n/PANKEH)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seth Rich, slain DNC staffer, had contact with WikiLeaks, say multiple sources"
-date: 2017-05-16 04:34:00Z
+date: 2017-05-16 11:00:13Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Democratic National Committee staffer who was gunned down on July 10 on a Wa
 
 Full story on F3News: [Seth Rich, slain DNC staffer, had contact with WikiLeaks, say multiple sources](http://www.f3nws.com/n/MHtsUB)
 
-> Posted on: Tuesday, May 16, 2017 9:34:00 AM
+> Posted on: Tuesday, May 16, 2017 4:00:13 PM
