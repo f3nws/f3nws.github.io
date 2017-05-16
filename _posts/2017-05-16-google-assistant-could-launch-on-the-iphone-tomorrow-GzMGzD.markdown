@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Assistant could launch on the iPhone tomorrow"
-date: 2017-05-16 14:00:01Z
+date: 2017-05-16 14:03:10Z
 categories: the-verge
 ---
 
@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Google Assistant could launch on the iPhone tomorrow](http://www.f3nws.com/n/GzMGzD)
 
-> Posted on: Tuesday, May 16, 2017 7:00:01 PM
+> Posted on: Tuesday, May 16, 2017 7:03:10 PM

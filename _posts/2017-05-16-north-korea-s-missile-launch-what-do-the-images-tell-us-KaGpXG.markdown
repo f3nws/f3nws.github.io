@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea's missile launch: What do the images tell us?"
-date: 2017-05-16 14:00:02Z
+date: 2017-05-16 14:30:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's latest missile test was considered by experts as the most signific
 
 Full story on F3News: [North Korea's missile launch: What do the images tell us?](http://www.f3nws.com/n/KaGpXG)
 
-> Posted on: Tuesday, May 16, 2017 7:00:02 PM
+> Posted on: Tuesday, May 16, 2017 7:30:09 PM

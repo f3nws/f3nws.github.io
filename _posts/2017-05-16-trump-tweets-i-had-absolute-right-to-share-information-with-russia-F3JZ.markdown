@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets: I had 'absolute right' to share information with Russia"
-date: 2017-05-16 14:00:01Z
+date: 2017-05-16 14:29:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump insisted Tuesday he had the right to share information wi
 
 Full story on F3News: [Trump tweets: I had 'absolute right' to share information with Russia](http://www.f3nws.com/n/F3JZ)
 
-> Posted on: Tuesday, May 16, 2017 7:00:01 PM
+> Posted on: Tuesday, May 16, 2017 7:29:31 PM
