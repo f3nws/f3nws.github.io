@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Roseanne' returning to ABC"
-date: 2017-05-16 18:56:20Z
+date: 2017-05-16 21:12:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Not only is "Roseanne" getting a reboot, but we also get both Beckys.
 
 Full story on F3News: ['Roseanne' returning to ABC](http://www.f3nws.com/n/XF2DbG)
 
-> Posted on: Tuesday, May 16, 2017 11:56:20 PM
+> Posted on: Wednesday, May 17, 2017 2:12:29 AM
