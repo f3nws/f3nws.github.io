@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump has odd ideas about exercise"
-date: 2017-05-15 15:37:10Z
+date: 2017-05-15 19:36:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has a number of unorthodox theories about politics. But h
 
 Full story on F3News: [Trump has odd ideas about exercise](http://www.f3nws.com/n/JyqsDE)
 
-> Posted on: Monday, May 15, 2017 8:37:10 PM
+> Posted on: Tuesday, May 16, 2017 12:36:21 AM
