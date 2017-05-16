@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best travel compact cameras in 2017"
-date: 2017-05-16 09:30:13Z
+date: 2017-05-16 10:00:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The combination of a long zoom range and compact camera dimensions make these ca
 
 Full story on F3News: [The best travel compact cameras in 2017](http://www.f3nws.com/n/xVDReG)
 
-> Posted on: Tuesday, May 16, 2017 2:30:13 PM
+> Posted on: Tuesday, May 16, 2017 3:00:00 PM

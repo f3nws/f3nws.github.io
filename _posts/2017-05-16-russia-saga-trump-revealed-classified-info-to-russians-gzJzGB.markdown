@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia saga: Trump revealed classified info to Russians"
-date: 2017-05-16 07:50:59Z
+date: 2017-05-16 10:00:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump shared highly classified information with the Russian for
 
 Full story on F3News: [Russia saga: Trump revealed classified info to Russians](http://www.f3nws.com/n/gzJzGB)
 
-> Posted on: Tuesday, May 16, 2017 12:50:59 PM
+> Posted on: Tuesday, May 16, 2017 3:00:08 PM

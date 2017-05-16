@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kulbhushan Jadhav case: India, Pakistan face off at ICJ"
-date: 2017-05-16 09:30:12Z
+date: 2017-05-16 09:32:17Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ India urges top UN court to order Pakistan to stay the execution of Kulbhushan J
 
 Full story on F3News: [Kulbhushan Jadhav case: India, Pakistan face off at ICJ](http://www.f3nws.com/n/MjgZV)
 
-> Posted on: Tuesday, May 16, 2017 2:30:12 PM
+> Posted on: Tuesday, May 16, 2017 2:32:17 PM

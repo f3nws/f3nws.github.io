@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Colbert to President Trump: Please resign"
-date: 2017-05-16 07:00:14Z
+date: 2017-05-16 07:20:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Trevor Noah and Stephen Colbert blast President Trump after The Washington Post 
 
 Full story on F3News: [Colbert to President Trump: Please resign](http://www.f3nws.com/n/Y4z3N)
 
-> Posted on: Tuesday, May 16, 2017 12:00:14 PM
+> Posted on: Tuesday, May 16, 2017 12:20:20 PM
