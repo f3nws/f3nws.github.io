@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Last Man Standing' cancellation angers conservatives"
-date: 2017-05-16 12:05:10Z
+date: 2017-05-16 12:08:32Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Tim Allen has been outspoken about his conservative political views, and n
 
 Full story on F3News: ['Last Man Standing' cancellation angers conservatives](http://www.f3nws.com/n/QKJDxH)
 
-> Posted on: Tuesday, May 16, 2017 5:05:10 PM
+> Posted on: Tuesday, May 16, 2017 5:08:32 PM

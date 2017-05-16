@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best iPad games: the top free and paid-for titles around"
-date: 2017-05-16 12:05:10Z
+date: 2017-05-16 12:39:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Whether you're into adventures, puzzle games, shooters or platformers, we've got
 
 Full story on F3News: [Best iPad games: the top free and paid-for titles around](http://www.f3nws.com/n/UUYSDE)
 
-> Posted on: Tuesday, May 16, 2017 5:05:10 PM
+> Posted on: Tuesday, May 16, 2017 5:39:00 PM

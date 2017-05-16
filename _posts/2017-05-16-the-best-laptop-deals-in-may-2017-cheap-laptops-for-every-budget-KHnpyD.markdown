@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best laptop deals in May 2017: cheap laptops for every budget"
-date: 2017-05-16 12:05:10Z
+date: 2017-05-16 12:18:57Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ All the best deals on laptops, ultrabooks and two-in-one laptop/tablet hybrids.
 
 Full story on F3News: [The best laptop deals in May 2017: cheap laptops for every budget](http://www.f3nws.com/n/KHnpyD)
 
-> Posted on: Tuesday, May 16, 2017 5:05:10 PM
+> Posted on: Tuesday, May 16, 2017 5:18:57 PM
