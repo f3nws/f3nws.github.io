@@ -5,7 +5,7 @@ date: 2017-05-16 03:34:48Z
 categories: al-jazeera-english
 ---
 
-![Trump disclosed secrets to Russia: Washington Post](http://www.aljazeera.com/mritems/Images/2017/5/10/887b54859d504ae2b2f636400adc8dfd_18.jpg)
+![Trump disclosed secrets to Russia: Washington Post](http://www.aljazeera.com/mritems/Images/2017/5/16/06f023f6e4aa4433b4f63862273bdf14_18.jpg)
 
 White House denies Washington Post report that US president shared classified info with Russian FM Sergey Lavrov.
 

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First ever gay pride event in Lebanon"
-date: 2017-05-16 08:41:08Z
+date: 2017-05-16 09:30:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The first ever gay pride event is taking place this week in Lebanon, a country w
 
 Full story on F3News: [First ever gay pride event in Lebanon](http://www.f3nws.com/n/afFZSD)
 
-> Posted on: Tuesday, May 16, 2017 1:41:08 PM
+> Posted on: Tuesday, May 16, 2017 2:30:14 PM
