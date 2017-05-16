@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Recep Tayyip Erdogan and Donald Trump hold talks"
-date: 2017-05-16 18:33:51Z
+date: 2017-05-16 19:33:19Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Meeting between Turkish and US leaders comes just days after Trump's decision to
 
 Full story on F3News: [Recep Tayyip Erdogan and Donald Trump hold talks](http://www.f3nws.com/n/e22vDC)
 
-> Posted on: Tuesday, May 16, 2017 11:33:51 PM
+> Posted on: Wednesday, May 17, 2017 12:33:19 AM
