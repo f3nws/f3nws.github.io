@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump defends sharing 'facts' with Russia"
-date: 2017-05-16 21:18:22Z
+date: 2017-05-16 22:48:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Report blaming US president for leaking ISIL-related intelligence to Russian dip
 
 Full story on F3News: [Donald Trump defends sharing 'facts' with Russia](http://www.f3nws.com/n/khapGC)
 
-> Posted on: Wednesday, May 17, 2017 2:18:22 AM
+> Posted on: Wednesday, May 17, 2017 3:48:03 AM
