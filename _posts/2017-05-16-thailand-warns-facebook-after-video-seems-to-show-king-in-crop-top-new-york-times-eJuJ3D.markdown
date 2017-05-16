@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Thailand Warns Facebook After Video Seems to Show King in Crop Top - New York Times](https://static01.nyt.com/images/2017/05/17/world/asia/17thailand2/17thailand2-facebookJumbo.jpg)
 
-New York Times Thailand Warns Facebook After Video Seems to Show King in Crop Top New York Times An image taken from a video widely shared on Facebook in recent weeks appears to show King Maha Vajiralongkorn of Thailand walking through a shopping mall in a yellow crop top. HONG KONG — Facebook came under increasing pressure from ... Facebook faces immediate shutdown threat Bangkok Post Censored by Facebook VICE News all 78 news articles »
+New York Times Thailand Warns Facebook After Video Seems to Show King in Crop Top New York Times An image taken from a video widely shared on Facebook in recent weeks appears to show King Maha Vajiralongkorn of Thailand walking through a shopping mall in a yellow crop top. HONG KONG — Facebook came under increasing pressure from ... and more »
 
 
 Full story on F3News: [Thailand Warns Facebook After Video Seems to Show King in Crop Top - New York Times](http://www.f3nws.com/n/eJuJ3D)
