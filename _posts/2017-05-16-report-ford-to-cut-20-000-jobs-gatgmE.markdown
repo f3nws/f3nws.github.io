@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Ford to cut 20,000 jobs"
-date: 2017-05-16 03:07:38Z
+date: 2017-05-16 10:30:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Report: Ford to cut 20,000 jobs](http://www.f3nws.com/n/gatgmE)
 
-> Posted on: Tuesday, May 16, 2017 8:07:38 AM
+> Posted on: Tuesday, May 16, 2017 3:30:10 PM

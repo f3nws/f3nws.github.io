@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Researcher Finds Link Between WannaCry Attacks and North Korea"
-date: 2017-05-16 10:00:08Z
+date: 2017-05-16 10:21:12Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ So far, nobody had an idea that who was behind WannaCry ransomware attacks? But 
 
 Full story on F3News: [Google Researcher Finds Link Between WannaCry Attacks and North Korea](http://www.f3nws.com/n/nf4mcE)
 
-> Posted on: Tuesday, May 16, 2017 3:00:08 PM
+> Posted on: Tuesday, May 16, 2017 3:21:12 PM
