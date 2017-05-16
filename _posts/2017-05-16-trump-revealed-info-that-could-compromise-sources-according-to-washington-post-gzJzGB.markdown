@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump revealed info that could compromise sources, according to Washington Post"
-date: 2017-05-16 02:41:04Z
+date: 2017-05-16 04:12:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump shared highly classified information with the Russian for
 
 Full story on F3News: [Trump revealed info that could compromise sources, according to Washington Post](http://www.f3nws.com/n/gzJzGB)
 
-> Posted on: Tuesday, May 16, 2017 7:41:04 AM
+> Posted on: Tuesday, May 16, 2017 9:12:35 AM

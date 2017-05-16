@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Trump disclosed secrets to Russia: Washington Post](http://www.aljazeera.com/mritems/Images/2017/5/10/887b54859d504ae2b2f636400adc8dfd_18.jpg)
 
-Washington Post report says US president discussed classified intelligence during meeting with Russian FM Sergey Lavrov.
+White House denies Washington Post report that US president shared classified info with Russian FM Sergey Lavrov.
 
 
 Full story on F3News: [Trump disclosed secrets to Russia: Washington Post](http://www.f3nws.com/n/mkTfqH)
