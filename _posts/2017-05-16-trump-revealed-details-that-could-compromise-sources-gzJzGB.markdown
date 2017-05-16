@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump revealed details that could compromise sources"
-date: 2017-05-16 05:59:08Z
+date: 2017-05-16 07:30:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump shared highly classified information with the Russian for
 
 Full story on F3News: [Trump revealed details that could compromise sources](http://www.f3nws.com/n/gzJzGB)
 
-> Posted on: Tuesday, May 16, 2017 10:59:08 AM
+> Posted on: Tuesday, May 16, 2017 12:30:00 PM

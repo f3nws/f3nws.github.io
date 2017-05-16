@@ -5,6 +5,8 @@ date: 2017-05-16 03:04:26Z
 categories: cnn-com-top-stories
 ---
 
+![Clinton announces post-election plans](http://i2.cdn.cnn.com/cnnnext/dam/assets/170328215104-hillary-clinton-march-28-2017-super-tease.jpg)
+
 Hillary Clinton officially announced Monday her post-2016 election plans: A political organization aimed at funding "resistance" groups that are standing up to President Donald Trump.
 
 
