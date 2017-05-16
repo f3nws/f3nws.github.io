@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WannaCry Kill-Switch(ed)? It’s Not Over! WannaCry 2.0 Ransomware Arrives"
-date: 2017-05-16 04:07:11Z
+date: 2017-05-16 08:00:06Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Update — After reading this article, if you want to know, what has happened s
 
 Full story on F3News: [WannaCry Kill-Switch(ed)? It’s Not Over! WannaCry 2.0 Ransomware Arrives](http://www.f3nws.com/n/aH3NzD)
 
-> Posted on: Tuesday, May 16, 2017 9:07:11 AM
+> Posted on: Tuesday, May 16, 2017 1:00:06 PM
