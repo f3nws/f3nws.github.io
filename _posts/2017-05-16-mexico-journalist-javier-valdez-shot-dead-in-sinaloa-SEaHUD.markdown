@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico: Journalist Javier Valdez shot dead in Sinaloa"
-date: 2017-05-16 07:32:23Z
+date: 2017-05-16 15:00:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Veteran reporter, who covered drug trafficking and organised crime, was the fift
 
 Full story on F3News: [Mexico: Journalist Javier Valdez shot dead in Sinaloa](http://www.f3nws.com/n/SEaHUD)
 
-> Posted on: Tuesday, May 16, 2017 12:32:23 PM
+> Posted on: Tuesday, May 16, 2017 8:00:03 PM

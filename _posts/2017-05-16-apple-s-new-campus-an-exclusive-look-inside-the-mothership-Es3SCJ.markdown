@@ -5,6 +5,8 @@ date: 2017-05-16 11:00:12Z
 categories: wired-top-stories
 ---
 
+![Apple’s New Campus: An Exclusive Look Inside the Mothership](https://www.wired.com/wp-content/uploads/2017/05/donut_opener-1200x630-e1494887234904.jpg)
+
 Flawless curves, milled aluminum, endless glass, walled garden—sounds like an Apple product. In fact, it's the company's biggest launch ever. The post Apple’s New Campus: An Exclusive Look Inside the Mothership appeared first on WIRED .
 
 
