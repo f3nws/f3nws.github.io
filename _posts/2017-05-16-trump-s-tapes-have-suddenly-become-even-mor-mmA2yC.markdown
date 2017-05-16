@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's 'tapes' have suddenly become even mor"
-date: 2017-05-16 13:20:16Z
+date: 2017-05-16 13:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Trump appears to have shared highly sensitive secrets with Russia in a conversat
 
 Full story on F3News: [Trump's 'tapes' have suddenly become even mor](http://www.f3nws.com/n/mmA2yC)
 
-> Posted on: Tuesday, May 16, 2017 6:20:16 PM
+> Posted on: Tuesday, May 16, 2017 6:20:00 PM
