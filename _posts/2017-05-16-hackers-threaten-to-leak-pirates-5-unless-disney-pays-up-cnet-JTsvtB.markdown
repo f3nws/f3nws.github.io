@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hackers threaten to leak 'Pirates 5' unless Disney pays up     - CNET"
-date: 2017-05-16 03:22:01Z
+date: 2017-05-16 04:22:46Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Disney CEO Bob Iger doesn't plan to give in to demands, according to The Hollywo
 
 Full story on F3News: [Hackers threaten to leak 'Pirates 5' unless Disney pays up     - CNET](http://www.f3nws.com/n/JTsvtB)
 
-> Posted on: Tuesday, May 16, 2017 8:22:01 AM
+> Posted on: Tuesday, May 16, 2017 9:22:46 AM
