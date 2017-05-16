@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Trump would share highly classified secre"
-date: 2017-05-16 11:30:08Z
+date: 2017-05-16 12:00:12Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Why would Donald Trump provide Russian officials with highly sensitive national 
 
 Full story on F3News: [Why Trump would share highly classified secre](http://www.f3nws.com/n/GVKRKC)
 
-> Posted on: Tuesday, May 16, 2017 4:30:08 PM
+> Posted on: Tuesday, May 16, 2017 5:00:12 PM

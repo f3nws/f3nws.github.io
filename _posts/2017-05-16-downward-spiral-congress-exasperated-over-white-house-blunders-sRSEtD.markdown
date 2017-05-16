@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Downward spiral:' Congress exasperated over White House blunders"
-date: 2017-05-16 11:30:09Z
+date: 2017-05-16 12:05:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republicans in Congress barely had time to get their footing Monday, as another 
 
 Full story on F3News: ['Downward spiral:' Congress exasperated over White House blunders](http://www.f3nws.com/n/sRSEtD)
 
-> Posted on: Tuesday, May 16, 2017 4:30:09 PM
+> Posted on: Tuesday, May 16, 2017 5:05:09 PM
