@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Happening now: Live updates from Washington"
-date: 2017-05-16 15:53:02Z
+date: 2017-05-16 16:10:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two former officials knowledgeable of the situation confirmed to CNN that the ma
 
 Full story on F3News: [Happening now: Live updates from Washington](http://www.f3nws.com/n/VgQHvG)
 
-> Posted on: Tuesday, May 16, 2017 8:53:02 PM
+> Posted on: Tuesday, May 16, 2017 9:10:57 PM
