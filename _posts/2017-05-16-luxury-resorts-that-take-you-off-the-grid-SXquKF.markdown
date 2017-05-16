@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Luxury resorts that take you off the grid"
-date: 2017-05-16 03:16:19Z
+date: 2017-05-16 03:57:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Whether you're in search of an all-inclusive luxury resort or a chilled-out beac
 
 Full story on F3News: [Luxury resorts that take you off the grid](http://www.f3nws.com/n/SXquKF)
 
-> Posted on: Tuesday, May 16, 2017 8:16:19 AM
+> Posted on: Tuesday, May 16, 2017 8:57:04 AM
