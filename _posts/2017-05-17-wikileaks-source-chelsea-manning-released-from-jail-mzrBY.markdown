@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WikiLeaks source Chelsea Manning released from jail"
-date: 2017-05-17 11:53:39Z
+date: 2017-05-17 15:07:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Ex-US army private, who leaked 700,000 classified military and diplomatic docume
 
 Full story on F3News: [WikiLeaks source Chelsea Manning released from jail](http://www.f3nws.com/n/mzrBY)
 
-> Posted on: Wednesday, May 17, 2017 4:53:39 PM
+> Posted on: Wednesday, May 17, 2017 8:07:27 PM
