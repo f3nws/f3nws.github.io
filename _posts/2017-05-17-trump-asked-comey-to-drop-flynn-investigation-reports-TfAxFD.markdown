@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump asked Comey to drop Flynn investigation: reports"
-date: 2017-05-17 02:11:53Z
+date: 2017-05-17 04:53:30Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Officials allege Comey memo shows US president pressed former FBI director to sh
 
 Full story on F3News: [Trump asked Comey to drop Flynn investigation: reports](http://www.f3nws.com/n/TfAxFD)
 
-> Posted on: Wednesday, May 17, 2017 7:11:53 AM
+> Posted on: Wednesday, May 17, 2017 9:53:30 AM
