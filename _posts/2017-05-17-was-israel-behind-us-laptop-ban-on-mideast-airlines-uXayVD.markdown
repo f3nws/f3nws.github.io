@@ -5,7 +5,7 @@ date: 2017-05-17 01:56:31Z
 categories: al-jazeera-english
 ---
 
-![Was Israel behind US laptop ban on Mideast airlines?](http://www.aljazeera.com/mritems/Images/2017/3/21/42322b6d787c4bab82a846998ae6b9ef_18.jpg)
+![Was Israel behind US laptop ban on Mideast airlines?](http://www.aljazeera.com/mritems/Images/2017/5/17/8621601120bd492280bce82806640d1a_18.jpg)
 
 Questions swirl whether Tel Aviv was involved in peddling aviation-threat intelligence on ISIL - and motives behind it.
 
