@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Comey Memo Says Trump Asked Him to End Flynn Investigation - New York Times](https://static01.nyt.com/images/2017/05/17/us/17comey/17comey-facebookJumbo.jpg)
 
-New York Times Comey Memo Says Trump Asked Him to End Flynn Investigation New York Times James B. Comey, the former F.B.I. director, during a Senate Intelligence Committee hearing this month. Credit Gabriella Demczuk for The New York Times. WASHINGTON — President Trump asked the F.B.I. director, James B. Comey, to shut down the federal ... AP News in Brief at 6:04 pm EDT Washington Post Sources: Comey wrote in memo that Trump asked to end Flynn investigation CNN White House rocked by allegation Trump tried to shut down FBI's Flynn probe Politico NBCNews.com - Los Angeles Times - Business Insider - USA TODAY all 2,713 news articles »
+New York Times Comey Memo Says Trump Asked Him to End Flynn Investigation New York Times James B. Comey, the former F.B.I. director, during a Senate Intelligence Committee hearing this month. Credit Gabriella Demczuk for The New York Times. WASHINGTON — President Trump asked the F.B.I. director, James B. Comey, to shut down the federal ... Trump's careening toward an inevitable showdown with an undeniable truth Washington Post White House rocked by allegation Trump tried to shut down FBI's Flynn probe Politico Trump Reportedly Asked James Comey To Stop Michael Flynn Investigation HuffPost NBCNews.com - CNN - The Hill - BBC News all 2,554 news articles »
 
 
 Full story on F3News: [Comey Memo Says Trump Asked Him to End Flynn Investigation - New York Times](http://www.f3nws.com/n/4grVpG)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report says Trump asked Comey to end Flynn probe; White House pushes back"
-date: 2017-05-16 22:45:00Z
+date: 2017-05-16 23:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The White House pushed back late Tuesday on a report that a memo from James Come
 
 Full story on F3News: [Report says Trump asked Comey to end Flynn probe; White House pushes back](http://www.f3nws.com/n/MCkYTG)
 
-> Posted on: Wednesday, May 17, 2017 3:45:00 AM
+> Posted on: Wednesday, May 17, 2017 4:15:00 AM
