@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "National security officials try to accommodat"
-date: 2017-05-17 14:10:51Z
+date: 2017-05-17 14:10:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ National Security Council officials have apparently learned that Donald Trump is
 
 Full story on F3News: [National security officials try to accommodat](http://www.f3nws.com/n/yD3qSG)
 
-> Posted on: Wednesday, May 17, 2017 7:10:51 PM
+> Posted on: Wednesday, May 17, 2017 7:10:00 PM
