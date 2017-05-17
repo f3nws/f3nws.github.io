@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Explosive device found on Bruce Highway south of Cairns safely detonated - ABC Online](http://www.abc.net.au/news/image/8534324-1x1-700x700.jpg)
 
-ABC Online Explosive device found on Bruce Highway south of Cairns safely detonated ABC Online Bomb squad officers have safely detonated an explosive device found beside the Bruce Highway at Cairns in far north Queensland. The highway was closed for hours today after the device was found at Edmonton, in Cairns' south, just before midday. and more »
+ABC Online Explosive device found on Bruce Highway south of Cairns safely detonated ABC Online Bomb squad officers have safely detonated an explosive device found beside the Bruce Highway at Cairns in far north Queensland. The highway was closed for hours today after the device was found at Edmonton, in Cairns' south, just before midday. Police detonate 'explosive device' found on side of road Brisbane Times Bruce Highway reopened after explosive device found south of Cairns buried and detonated The Cairns Post all 9 news articles »
 
 
 Full story on F3News: [Explosive device found on Bruce Highway south of Cairns safely detonated - ABC Online](http://www.f3nws.com/n/u32jhB)
