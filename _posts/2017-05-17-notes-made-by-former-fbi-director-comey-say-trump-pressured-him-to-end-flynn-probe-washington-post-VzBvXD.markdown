@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Notes made by former FBI director Comey say Trump pressured him to end Flynn probe - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/04/Local/Images/Comey028.JPG)
 
-Washington Post Notes made by former FBI director Comey say Trump pressured him to end Flynn probe Washington Post President Trump asked the FBI to drop its probe into former national security adviser Michael Flynn and urged former FBI director James B. Comey instead to pursue reporters in leak cases, according to associates of Comey who have seen private notes he ... What Is Obstruction of Justice? An Often-Murky Crime, Explained New York Times What is obstruction of justice? CNN Trump burned by his devotion to Flynn Politico The Hill - Fox News - ABC News - NBCNews.com all 3,192 news articles »
+Washington Post Notes made by former FBI director Comey say Trump pressured him to end Flynn probe Washington Post President Trump asked the FBI to drop its probe into former national security adviser Michael Flynn and urged former FBI director James B. Comey instead to pursue reporters in leak cases, according to associates of Comey who have seen private notes he ... White House struggles to answer GOP questions on Capitol Hill CNN Republicans may be reaching their breaking point with Trump Politico What Is Obstruction of Justice? An Often-Murky Crime, Explained New York Times Los Angeles Times - The Hill - Fox News - NBCNews.com all 2,352 news articles »
 
 
 Full story on F3News: [Notes made by former FBI director Comey say Trump pressured him to end Flynn probe - Washington Post](http://www.f3nws.com/n/VzBvXD)
