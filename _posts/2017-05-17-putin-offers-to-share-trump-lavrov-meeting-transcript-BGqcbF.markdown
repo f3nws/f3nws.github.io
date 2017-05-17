@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin offers to share Trump-Lavrov meeting transcript"
-date: 2017-05-17 17:47:11Z
+date: 2017-05-17 18:08:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Kremlin offer comes amid row over US president's disclosure of ISIL-related info
 
 Full story on F3News: [Putin offers to share Trump-Lavrov meeting transcript](http://www.f3nws.com/n/BGqcbF)
 
-> Posted on: Wednesday, May 17, 2017 10:47:11 PM
+> Posted on: Wednesday, May 17, 2017 11:08:16 PM

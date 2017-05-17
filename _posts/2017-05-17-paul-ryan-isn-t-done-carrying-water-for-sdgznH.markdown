@@ -7,7 +7,7 @@ categories: msnbc
 
 ![Paul Ryan isn't done carrying water for...](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/paul_ryan_facts_051717.jpg?itok=YpJYrysk)
 
-Even now, as the ground begins to shift under the GOP"s feat, the president can count on the Speaker of the House.
+Even now, as the ground begins to shift under the GOP"s feet, the president can count on the Speaker of the House.
 
 
 Full story on F3News: [Paul Ryan isn't done carrying water for...](http://www.f3nws.com/n/sdgznH)
