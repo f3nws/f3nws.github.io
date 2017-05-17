@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Athens and Thessaloniki see anti-austerity marches"
-date: 2017-05-17 17:31:02Z
+date: 2017-05-17 19:33:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Almost 18,000 people take to the streets of Athens and Thessaloniki against new 
 
 Full story on F3News: [Athens and Thessaloniki see anti-austerity marches](http://www.f3nws.com/n/ZteyxE)
 
-> Posted on: Wednesday, May 17, 2017 10:31:02 PM
+> Posted on: Thursday, May 18, 2017 12:33:37 AM
