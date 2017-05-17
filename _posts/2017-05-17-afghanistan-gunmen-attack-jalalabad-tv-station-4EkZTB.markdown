@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Afghanistan: Gunmen attack Jalalabad TV station"
-date: 2017-05-17 08:51:02Z
+date: 2017-05-17 09:20:03Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Armed men wearing suicide vests storm TV station in the capital of Afghanistan's
 
 Full story on F3News: [Afghanistan: Gunmen attack Jalalabad TV station](http://www.f3nws.com/n/4EkZTB)
 
-> Posted on: Wednesday, May 17, 2017 1:51:02 PM
+> Posted on: Wednesday, May 17, 2017 2:20:03 PM
