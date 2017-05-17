@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Republicans resign themselves to Trump's scandals - Politico](http://static.politico.com/c9/7d/04711e174fb98de0f40fafbdd2f1/170516-bob-corker-ap-1160.jpg)
 
-Politico Republicans resign themselves to Trump's scandals Politico Sen. Bob Corker had just enjoyed an 80-minute feast with Donald Trump in late April, the “best” one-on-one time he'd had with the new president. Yet even then, the Republican senator was worried. “Right now, they seem to take one step forward and two ... Dems push for House vote on releasing Trump's tax returns The Hill (blog) Trump May Have Shifted US Intelligence Policy on Russia. Or Maybe Not. New York Times Senate Republicans Have No Idea How to Continue to Cover Up for the President Slate Magazine New York Daily News - Fox News - BBC News - USA TODAY all 1,757 news articles »
+Politico Republicans resign themselves to Trump's scandals Politico Sen. Bob Corker had just enjoyed an 80-minute feast with Donald Trump in late April, the “best” one-on-one time he'd had with the new president. Yet even then, the Republican senator was worried. “Right now, they seem to take one step forward and two ... Trump May Have Shifted US Intelligence Policy on Russia. Or Maybe Not. New York Times Eight days that shook Trump's Washington The Hill McMaster downplays Trump's leak of intelligence source to Russia New York Daily News BBC News - Slate Magazine - ABC News - USA TODAY all 1,750 news articles »
 
 
 Full story on F3News: [Republicans resign themselves to Trump's scandals - Politico](http://www.f3nws.com/n/hENxnG)
