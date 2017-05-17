@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Android O release date and beta features"
-date: 2017-05-17 18:40:24Z
+date: 2017-05-17 19:02:24Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The next version of Android is coming, so let us break down every feature confir
 
 Full story on F3News: [Android O release date and beta features](http://www.f3nws.com/n/Wz4ngB)
 
-> Posted on: Wednesday, May 17, 2017 11:40:24 PM
+> Posted on: Thursday, May 18, 2017 12:02:24 AM

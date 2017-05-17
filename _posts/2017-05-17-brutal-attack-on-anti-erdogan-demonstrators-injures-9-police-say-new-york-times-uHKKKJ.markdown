@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['Brutal Attack' on Anti-Erdogan Demonstrators Injures 9, Police Say - New York Times](https://static01.nyt.com/images/2017/05/18/world/18XP-Turkey/18XP-Turkey-facebookJumbo.jpg)
 
-New York Times 'Brutal Attack' on Anti-Erdogan Demonstrators Injures 9, Police Say New York Times Supporters and opponents of president Recep Tayyip Erdogan fought outside the Turkish ambassador's residence in Washington on Tuesday. By VOA TURKISH on Publish Date May 17, 2017. Photo by Dave Clark/Agence France-Presse — Getty Images. Turkish security involved in DC protester assault CNN Turkey's presidential guards clash with DC protesters outside ambassador's residence Washington Post Why Turkish Bodyguards Involved in Bloody DC Brawl Likely Won't Face Repercussions NBCNews.com The Hill all 646 news articles »
+New York Times 'Brutal Attack' on Anti-Erdogan Demonstrators Injures 9, Police Say New York Times Supporters and opponents of president Recep Tayyip Erdogan fought outside the Turkish ambassador's residence in Washington on Tuesday. By VOA TURKISH on Publish Date May 17, 2017. Photo by Dave Clark/Agence France-Presse — Getty Images. Turkish security involved in DC protester assault CNN Erdogan's guards clash with protesters outside Turkish ambassador's DC residence Washington Post all 670 news articles »
 
 
 Full story on F3News: ['Brutal Attack' on Anti-Erdogan Demonstrators Injures 9, Police Say - New York Times](http://www.f3nws.com/n/uHKKKJ)
