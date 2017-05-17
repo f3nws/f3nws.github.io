@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Afghanistan: Gunmen attack Jalalabad TV station"
-date: 2017-05-17 11:30:09Z
+date: 2017-05-17 12:26:00Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ ISIL claims responsibility for deadly attack on TV and radio station in Jalalaba
 
 Full story on F3News: [Afghanistan: Gunmen attack Jalalabad TV station](http://www.f3nws.com/n/4EkZTB)
 
-> Posted on: Wednesday, May 17, 2017 4:30:09 PM
+> Posted on: Wednesday, May 17, 2017 5:26:00 PM
