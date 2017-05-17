@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Arrested Development returning for season 5 on Netflix - EW.com](http://i0.wp.com/ewedit.files.wordpress.com/2017/05/tcdarde_fe165_h.jpg?crop=0px%2C116px%2C2700px%2C1419px&resize=1200%2C630&ssl=1)
 
-EW.com Arrested Development returning for season 5 on Netflix EW.com Netflix confirmed on Wednesday that it has ordered a fifth season of the beloved, off-kilter comedy featuring a misfitted family in Orange County, California, whose patriarch made questionable money in real estate and may have committed some light ... 'Arrested Development' officially returning to Netflix in 2018 Los Angeles Times 'Arrested Development' Officially Returning for Season 5 at Netflix Variety 'Arrested Development' Season 5 Is A Go At Netflix With Entire Cast Set To Return Deadline Entertainment Tonight - Hollywood Reporter all 139 news articles »
+EW.com Arrested Development returning for season 5 on Netflix EW.com Netflix confirmed on Wednesday that it has ordered a fifth season of the beloved, off-kilter comedy featuring a misfitted family in Orange County, California, whose patriarch made questionable money in real estate and may have committed some light ... 'Arrested Development' Officially Returning for Season 5 at Netflix Variety The Bluths Are Back! 'Arrested Development' Returning for a Fifth Season Entertainment Tonight 'Arrested Development' Season 5 Is A Go At Netflix With Entire Cast Set To Return Deadline Hollywood Reporter all 140 news articles »
 
 
 Full story on F3News: [Arrested Development returning for season 5 on Netflix - EW.com](http://www.f3nws.com/n/tKjrxG)
