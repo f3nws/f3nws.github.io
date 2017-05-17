@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tom Brady 'does have concussions,' wife Gisele Bundchen says - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2015%2F0219%2Fncf_g_bradybundchen_ms_1296x729.jpg)
 
-ESPN Tom Brady 'does have concussions,' wife Gisele Bundchen says ESPN Tom Brady's wife, Gisele Bundchen, says the New England Patriots quarterback has a history of concussions, including one suffered last year. "He had a concussion last year. He has concussions pretty much every -- I mean, we don't talk about it. He does ... Tom Brady's wife: He had a concussion last year, has had other concussions NBCSports.com WATCH: Gisele says Tom Brady had a concussion last year, has had others CBSSports.com Tom Brady suffered an unreported concussion last season, according to Gisele SB Nation NFL.com - Twitter all 76 news articles »
+ESPN Tom Brady 'does have concussions,' wife Gisele Bundchen says ESPN Tom Brady's wife, Gisele Bundchen, says the New England Patriots quarterback has a history of concussions, including one suffered last year during a Super Bowl-winning season. "He had a concussion last year. He has concussions pretty much every -- I ... Tom Brady's wife: He had a concussion last year, has had other concussions NBCSports.com After Gisele's comments about Tom Brady's concussions, all eyes are on the NFL to respond Sports Illustrated Gisele says Tom Brady had a concussion last year: 'He does have concussions' CBSSports.com Washington Post - NJ.com - WEEI.com - SB Nation all 122 news articles »
 
 
 Full story on F3News: [Tom Brady 'does have concussions,' wife Gisele Bundchen says - ESPN](http://www.f3nws.com/n/JQvWtE)
