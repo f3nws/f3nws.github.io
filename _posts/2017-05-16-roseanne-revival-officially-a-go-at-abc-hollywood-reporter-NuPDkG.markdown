@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Roseanne' Revival Officially a Go at ABC - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2015/09/roseanne_s01_still.jpg)
 
-Hollywood Reporter 'Roseanne' Revival Officially a Go at ABC Hollywood Reporter The reboot, which will feature returning stars Roseanne Barr and John Goodman among others, is set to air midseason. It's official: Roseanne is returning to ABC. The network has handed out an eight-episode straight-to-series order for a revival of the ... 'Roseanne' Revival Officially A Midseason-Go At ABC With Becky Twist & Dan Alive Deadline TV networks can't take on streaming giants with 'Roseanne' reboot New York Daily News Roseanne Is Officially Returning Home With Revival at ABC E! Online CNN - EW.com - USA TODAY - Slate Magazine (blog) all 104 news articles »
+Hollywood Reporter 'Roseanne' Revival Officially a Go at ABC Hollywood Reporter The reboot, which will feature returning stars Roseanne Barr and John Goodman among others, is set to air midseason. It's official: Roseanne is returning to ABC. The network has handed out an eight-episode straight-to-series order for a revival of the ... 'Roseanne' Revival Officially A Midseason-Go At ABC With Becky Twist & Dan Alive Deadline TV networks can't take on streaming giants with 'Roseanne' reboot New York Daily News 'Roseanne' Revival Lands at ABC Variety E! Online - Forbes - CNN - EW.com all 104 news articles »
 
 
 Full story on F3News: ['Roseanne' Revival Officially a Go at ABC - Hollywood Reporter](http://www.f3nws.com/n/NuPDkG)

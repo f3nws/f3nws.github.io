@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maria Sharapova denied wildcard to play at French Open"
-date: 2017-05-17 08:20:11Z
+date: 2017-05-17 11:05:08Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Maria Sharapova will not play at this year's French Open after organizers decide
 
 Full story on F3News: [Maria Sharapova denied wildcard to play at French Open](http://www.f3nws.com/n/eSBKYH)
 
-> Posted on: Wednesday, May 17, 2017 1:20:11 PM
+> Posted on: Wednesday, May 17, 2017 4:05:08 PM
