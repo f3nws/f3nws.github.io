@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Putin Offers to Provide a 'Record' of Trump's Disclosures to Russian Envoys - New York Times](https://static01.nyt.com/images/2017/05/18/world/18russia/18russia-facebookJumbo.jpg)
 
-New York Times Putin Offers to Provide a 'Record' of Trump's Disclosures to Russian Envoys New York Times President Vladimir V. Putin of Russia, right, and Prime Minister Paolo Gentiloni of Italy at a joint news conference in Sochi, Russia, on Wednesday. Credit Pool photo by Yuri Kadobnov. MOSCOW — Asserting himself abroad with his customary disruptive ... The GOP's not-so-grand bargain with Trump is looking hopeless Washington Post Trump looks to foreign trip for reset after domestic drama Politico Calls Grow for Independent Investigation in Wake of Trump, Comey Fallout NBCNews.com Slate Magazine (blog) - Chicago Tribune - Washington Post - New York Times all 2,667 news articles »
+New York Times Putin Offers to Provide a 'Record' of Trump's Disclosures to Russian Envoys New York Times President Vladimir V. Putin of Russia, right, and Prime Minister Paolo Gentiloni of Italy at a joint news conference in Sochi, Russia, on Wednesday. Credit Pool photo by Yuri Kadobnov. MOSCOW — Asserting himself abroad with his customary disruptive ... Republicans increasingly call for answers on Comey, Trump conversations Washington Post Alarm spreads among Hill Republicans over Comey scandal Politico Trump's Russia meeting: What we still don't know CNN ABC News - NBCNews.com - Slate Magazine (blog) - Wall Street Journal (subscription) all 2,897 news articles »
 
 
 Full story on F3News: [Putin Offers to Provide a 'Record' of Trump's Disclosures to Russian Envoys - New York Times](http://www.f3nws.com/n/EnXxyC)
