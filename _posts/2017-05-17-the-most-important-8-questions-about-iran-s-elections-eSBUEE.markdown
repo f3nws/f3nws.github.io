@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The most important 8 questions about Iran's elections"
-date: 2017-05-17 13:08:46Z
+date: 2017-05-17 15:47:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The May 19 vote will be the first stage, with a possible runoff vote if none of 
 
 Full story on F3News: [The most important 8 questions about Iran's elections](http://www.f3nws.com/n/eSBUEE)
 
-> Posted on: Wednesday, May 17, 2017 6:08:46 PM
+> Posted on: Wednesday, May 17, 2017 8:47:08 PM

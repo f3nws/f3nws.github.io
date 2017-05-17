@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Six dead in ISIL attack on Jalalabad TV station"
-date: 2017-05-17 14:48:09Z
+date: 2017-05-17 15:50:32Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Five employees of state broadcaster and four attackers among the dead in siege i
 
 Full story on F3News: [Six dead in ISIL attack on Jalalabad TV station](http://www.f3nws.com/n/4EkZTB)
 
-> Posted on: Wednesday, May 17, 2017 7:48:09 PM
+> Posted on: Wednesday, May 17, 2017 8:50:32 PM

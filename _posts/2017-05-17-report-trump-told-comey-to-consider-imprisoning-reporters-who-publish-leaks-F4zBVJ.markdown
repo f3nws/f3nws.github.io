@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Trump told Comey to consider imprisoning reporters who publish leaks"
-date: 2017-05-17 13:41:31Z
+date: 2017-05-17 15:36:25Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ President Trump has called reporters dishonest and, according to a new report, h
 
 Full story on F3News: [Report: Trump told Comey to consider imprisoning reporters who publish leaks](http://www.f3nws.com/n/F4zBVJ)
 
-> Posted on: Wednesday, May 17, 2017 6:41:31 PM
+> Posted on: Wednesday, May 17, 2017 8:36:25 PM
