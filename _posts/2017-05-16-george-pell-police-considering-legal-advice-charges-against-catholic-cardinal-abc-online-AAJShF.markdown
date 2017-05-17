@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![George Pell: Police considering legal advice, charges against Catholic Cardinal - ABC Online](http://www.abc.net.au/news/image/7185834-1x1-700x700.jpg)
 
-ABC Online George Pell: Police considering legal advice, charges against Catholic Cardinal ABC Online Victoria Police are now considering whether to charge Catholic Cardinal George Pell over sexual assault allegations dating back to the late 1970s after receiving advice from the Director of Public Prosecutions (DPP). Police told they can charge Cardinal Pell NEWS.com.au Police to decide if Pell faces charges Perth Now Australia police mull abuse charges against Pope aide Daily Mail Fox News all 23 news articles »
+ABC Online George Pell: Police considering legal advice, charges against Catholic Cardinal ABC Online Victoria Police are now considering whether to charge Catholic Cardinal George Pell over sexual assault allegations dating back to the late 1970s after receiving advice from the Director of Public Prosecutions (DPP). Police told they can charge Cardinal Pell NEWS.com.au Police to decide if Pell faces charges Perth Now Cardinal George Pell: Australia police to consider advice on abuse allegations BBC News Daily Mail - Fox News all 25 news articles »
 
 
 Full story on F3News: [George Pell: Police considering legal advice, charges against Catholic Cardinal - ABC Online](http://www.f3nws.com/n/AAJShF)

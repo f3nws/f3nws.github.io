@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Family of slain DNC staffer Seth Rich blasts detective over report of WikiLeaks link"
-date: 2017-05-16 11:19:00Z
+date: 2017-05-16 11:29:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Democratic National Committee staffer who was gunned down on July 10 on a Wa
 
 Full story on F3News: [Family of slain DNC staffer Seth Rich blasts detective over report of WikiLeaks link](http://www.f3nws.com/n/MHtsUB)
 
-> Posted on: Tuesday, May 16, 2017 4:19:00 PM
+> Posted on: Tuesday, May 16, 2017 4:29:00 PM
