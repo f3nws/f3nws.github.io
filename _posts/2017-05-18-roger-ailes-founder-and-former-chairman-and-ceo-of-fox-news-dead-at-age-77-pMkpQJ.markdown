@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roger Ailes, Founder and Former Chairman and CEO of Fox News, Dead at Age 77"
-date: 2017-05-18 20:30:05Z
+date: 2017-05-18 21:30:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Roger Ailes, Founder and Former Chairman and CEO of Fox News, Dead at Age 77](http://www.f3nws.com/n/pMkpQJ)
 
-> Posted on: Friday, May 19, 2017 1:30:05 AM
+> Posted on: Friday, May 19, 2017 2:30:04 AM

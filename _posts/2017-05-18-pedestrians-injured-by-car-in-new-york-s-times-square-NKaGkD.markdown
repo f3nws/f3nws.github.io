@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pedestrians injured by car in New York's Times Square"
-date: 2017-05-18 17:57:29Z
+date: 2017-05-18 21:06:59Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Police say driver in custody after vehicle kills one person and injures 23 other
 
 Full story on F3News: [Pedestrians injured by car in New York's Times Square](http://www.f3nws.com/n/NKaGkD)
 
-> Posted on: Thursday, May 18, 2017 10:57:29 PM
+> Posted on: Friday, May 19, 2017 2:06:59 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump condemns special counsel for Russia probe"
-date: 2017-05-18 20:12:26Z
+date: 2017-05-18 21:16:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Decision to pick ex-FBI head to probe alleged Russian interference in 2016 vote 
 
 Full story on F3News: [Donald Trump condemns special counsel for Russia probe](http://www.f3nws.com/n/pKYmYC)
 
-> Posted on: Friday, May 19, 2017 1:12:26 AM
+> Posted on: Friday, May 19, 2017 2:16:15 AM
