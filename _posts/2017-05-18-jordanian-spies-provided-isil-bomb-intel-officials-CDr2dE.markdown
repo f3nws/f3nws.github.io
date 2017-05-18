@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jordanian spies provided ISIL bomb intel: officials"
-date: 2017-05-18 02:44:05Z
+date: 2017-05-18 08:50:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Reported Israeli intelligence on plane-bomb plan came from Jordanian spies insid
 
 Full story on F3News: [Jordanian spies provided ISIL bomb intel: officials](http://www.f3nws.com/n/CDr2dE)
 
-> Posted on: Thursday, May 18, 2017 7:44:05 AM
+> Posted on: Thursday, May 18, 2017 1:50:28 PM
