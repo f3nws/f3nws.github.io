@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ICJ orders Pakistan to stay Jadhav execution"
-date: 2017-05-18 11:57:34Z
+date: 2017-05-18 14:50:52Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UN court orders Pakistan to stay the execution of Jadhav, a retired Indian naval
 
 Full story on F3News: [ICJ orders Pakistan to stay Jadhav execution](http://www.f3nws.com/n/ageyTF)
 
-> Posted on: Thursday, May 18, 2017 4:57:34 PM
+> Posted on: Thursday, May 18, 2017 7:50:52 PM
