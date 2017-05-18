@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Shameless FCC Votes to Charge Ahead on Plan to Kill the Open Internet - Gizmodo](https://i.kinja-img.com/gawker-media/image/upload/s--dDQPg97O--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/yab6fodnvqygyllqowki.jpg)
 
-Gizmodo Shameless FCC Votes to Charge Ahead on Plan to Kill the Open Internet Gizmodo In a completely expected but still shitty move, the FCC voted today to move ahead with Chairman Ajit Pai's proposal to roll back net neutrality rules enacted under the Open Internet Order of 2015. Advertisement. The commission will now consider Pai's ... Net neutrality is a pivotal moment in a broader movement for a healthy internet Mashable FCC approves plan to overturn net neutrality regulation Telecompaper (subscription) Net Neutrality: Before the Vote Light Reading Silicon UK - Federal Communications Commission all 76 news articles »
+Gizmodo Shameless FCC Votes to Charge Ahead on Plan to Kill the Open Internet Gizmodo In a completely expected but still shitty move, the FCC voted today to move ahead with Chairman Ajit Pai's proposal to roll back net neutrality rules enacted under the Open Internet Order of 2015. Advertisement. The commission will now consider Pai's ... Net neutrality is a pivotal moment in a broader movement for a healthy internet Mashable FCC approves plan to overturn net neutrality regulation Telecompaper (subscription) Net Neutrality: Before the Vote Light Reading Silicon UK - Federal Communications Commission all 88 news articles »
 
 
 Full story on F3News: [Shameless FCC Votes to Charge Ahead on Plan to Kill the Open Internet - Gizmodo](http://www.f3nws.com/n/UpAYJJ)
