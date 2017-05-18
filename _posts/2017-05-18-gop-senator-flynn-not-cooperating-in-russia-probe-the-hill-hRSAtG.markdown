@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP senator: Flynn 'not cooperating' in Russia probe - The Hill](http://thehill.com/sites/default/files/article_images/michaelflynn_051217getty.jpg)
 
-TIME GOP senator: Flynn 'not cooperating' in Russia probe The Hill Former national security adviser Michael Flynn is not cooperating with the Senate Intelligence Committee's investigation into Russian election interference, Chairman Richard Burr · Richard BurrGOP senator: Flynn 'not cooperating' in Russia probe Intel ... Michael Flynn Refuses To Cooperate With Senate Intelligence Committee HuffPost Senate intel chairman: No decision from Flynn on honoring subpoena CNN Burr: Flynn not cooperating with Senate Russia probe Politico NBCNews.com - Raw Story all 87 news articles »
+Newsweek GOP senator: Flynn 'not cooperating' in Russia probe The Hill Former national security adviser Michael Flynn is not cooperating with the Senate Intelligence Committee's investigation into Russian election interference, Chairman Richard Burr · Richard BurrThe Hill's 12:30 Report GOP senator: Flynn 'not cooperating ... Senate chairman: Flynn has not responded to subpoena Washington Post Senate intel chairman: No decision from Flynn on honoring subpoena CNN Michael Flynn could face up to a year in jail for failing to comply with Senate Intel Committee's subpoena Raw Story all 104 news articles »
 
 
 Full story on F3News: [GOP senator: Flynn 'not cooperating' in Russia probe - The Hill](http://www.f3nws.com/n/hRSAtG)

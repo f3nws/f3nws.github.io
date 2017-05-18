@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "Trump lashes out over special counsel appointment"
+date: 2017-05-18 15:05:08Z
+categories: cnn-com-top-stories
+---
+
+President Donald Trump lashed out Thursday at the appointment of a special counsel -- made by his own Justice Department -- to oversee the federal investigation into Russian interference in the 2016 election and possible collusion with his campaign.
+
+
+Full story on F3News: [Trump lashes out over special counsel appointment](http://www.f3nws.com/n/UWSxQ)
+
+> Posted on: Thursday, May 18, 2017 8:05:08 PM
