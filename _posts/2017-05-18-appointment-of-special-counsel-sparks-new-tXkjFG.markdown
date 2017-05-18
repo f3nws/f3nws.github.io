@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Appointment of special counsel sparks new..."
-date: 2017-05-18 14:14:12Z
+date: 2017-05-18 14:14:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ When White House officials are pressed for answers, their "we can't talk about t
 
 Full story on F3News: [Appointment of special counsel sparks new...](http://www.f3nws.com/n/tXkjFG)
 
-> Posted on: Thursday, May 18, 2017 7:14:12 PM
+> Posted on: Thursday, May 18, 2017 7:14:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roger Ailes, who built Fox News into a powerhouse, dies"
-date: 2017-05-18 15:54:21Z
+date: 2017-05-18 17:09:26Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Roger Ailes, who built Fox News into a powerhouse, dies](http://www.f3nws.com/n/GtxdyD)
 
-> Posted on: Thursday, May 18, 2017 8:54:21 PM
+> Posted on: Thursday, May 18, 2017 10:09:26 PM
