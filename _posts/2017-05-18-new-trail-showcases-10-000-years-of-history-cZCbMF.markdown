@@ -5,6 +5,8 @@ date: 2017-05-18 16:40:27Z
 categories: cnn-com-top-stories
 ---
 
+![New trail showcases 10,000 years of history](http://i2.cdn.cnn.com/cnnnext/dam/assets/170508111727-jordan-trail-nabatean-tomb-in-petra-super-tease.jpg)
+
 One of the best things to do in Jordan -- a new hiking trail reveals the country's jewels from north to south.
 
 

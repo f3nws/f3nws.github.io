@@ -5,6 +5,8 @@ date: 2017-05-18 11:51:06Z
 categories: cnn-com-top-stories
 ---
 
+![Analysis: An all-or-nothing deal for Republicans](http://i2.cdn.cnn.com/cnnnext/dam/assets/170517164035-trump-thumbs-up-0517-super-tease.jpg)
+
 The decision by deputy Attorney General Rod Rosenstein to appoint ex-FBI Director Robert Mueller as special counsel to oversee the federal investigation into Russia's attempts to influence the 2016 election and the possibility of collusion with Donald Trump's campaign officials amounts to a pushing of all the political chips into the center of the table.
 
 
