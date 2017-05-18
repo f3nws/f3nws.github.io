@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chris Cornell ended the last performance of his life with a song about death"
-date: 2017-05-18 14:36:17Z
+date: 2017-05-18 18:11:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The last song Chris Cornell ever sang on stage was a cover of Led Zeppelin's "In
 
 Full story on F3News: [Chris Cornell ended the last performance of his life with a song about death](http://www.f3nws.com/n/SgEfzC)
 
-> Posted on: Thursday, May 18, 2017 7:36:17 PM
+> Posted on: Thursday, May 18, 2017 11:11:04 PM

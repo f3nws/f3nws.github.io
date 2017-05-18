@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chris Cornell dead at age 52"
-date: 2017-05-18 17:57:39Z
+date: 2017-05-18 18:21:51Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Chris Cornell, lead singer of Soundgarden and Audioslave, died Wednesday night, 
 
 Full story on F3News: [Chris Cornell dead at age 52](http://www.f3nws.com/n/sm2VrC)
 
-> Posted on: Thursday, May 18, 2017 10:57:39 PM
+> Posted on: Thursday, May 18, 2017 11:21:51 PM
