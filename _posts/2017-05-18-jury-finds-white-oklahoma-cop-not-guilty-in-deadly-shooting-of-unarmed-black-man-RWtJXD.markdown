@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jury finds white Oklahoma cop not guilty in deadly shooting of unarmed black man"
-date: 2017-05-18 06:00:05Z
+date: 2017-05-18 07:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A jury on Wednesday acquitted a white Oklahoma police officer who fatally shot a
 
 Full story on F3News: [Jury finds white Oklahoma cop not guilty in deadly shooting of unarmed black man](http://www.f3nws.com/n/RWtJXD)
 
-> Posted on: Thursday, May 18, 2017 11:00:05 AM
+> Posted on: Thursday, May 18, 2017 12:00:00 PM
