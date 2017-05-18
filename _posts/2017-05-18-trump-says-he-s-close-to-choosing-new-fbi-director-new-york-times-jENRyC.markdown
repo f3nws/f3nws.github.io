@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Says He's Close to Choosing new FBI Director - New York Times"
-date: 2017-05-18 19:48:23Z
+date: 2017-05-18 20:04:00Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ New York Times Trump Says He's Close to Choosing new FBI Director New York Times
 
 Full story on F3News: [Trump Says He's Close to Choosing new FBI Director - New York Times](http://www.f3nws.com/n/jENRyC)
 
-> Posted on: Friday, May 19, 2017 12:48:23 AM
+> Posted on: Friday, May 19, 2017 1:04:00 AM

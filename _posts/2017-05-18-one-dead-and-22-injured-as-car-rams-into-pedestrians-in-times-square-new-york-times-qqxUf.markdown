@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![One Dead and 22 Injured as Car Rams Into Pedestrians in Times Square - New York Times](https://static01.nyt.com/images/2017/05/19/nyregion/19XP-TIMESSQUARE1/19XP-TIMESSQUARE1-facebookJumbo.jpg)
 
-New York Times One Dead and 22 Injured as Car Rams Into Pedestrians in Times Square New York Times One person was killed and at least 22 were injured when a car struck pedestrians in New York's Times Square. The driver of the car has been taken into custody. By MALACHY BROWNE, AINARA TIEFENTHÄLER and NEETI UPADHYE on Publish Date May ... Times Square car incident: 1 dead, 22 injured; driver in custody CNN Car Runs Down More Than A Dozen Pedestrians In Times Square, Killing 1 HuffPost Woman killed and 22 injured as car hits Times Square crowd BBC News Los Angeles Times - Washington Post - ABC News - Reuters all 630 news articles »
+New York Times One Dead and 22 Injured as Car Rams Into Pedestrians in Times Square New York Times One person was killed and at least 22 were injured when a car struck pedestrians in New York's Times Square. The driver of the car has been taken into custody. By MALACHY BROWNE, AINARA TIEFENTHÄLER and NEETI UPADHYE on Publish Date May ... Car mows down Times Square pedestrians for blocks, killing 1 Washington Post Motorist slams car into Times Square pedestrians, killing one, injuring 22 Reuters 1 Times Square pedestrian killed, others hurt after car jumps curb Fox News New York Post - Albany Times Union - Newsday - CNN all 667 news articles »
 
 
 Full story on F3News: [One Dead and 22 Injured as Car Rams Into Pedestrians in Times Square - New York Times](http://www.f3nws.com/n/qqxUf)
