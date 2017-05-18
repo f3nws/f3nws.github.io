@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Family of slain DNC staffer demands retractions from Fox News, local TV station"
-date: 2017-05-17 20:28:06Z
+date: 2017-05-17 23:41:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Family of slain DNC staffer demands retractions from Fox News, local TV station](http://www.f3nws.com/n/FHYAEG)
 
-> Posted on: Thursday, May 18, 2017 1:28:06 AM
+> Posted on: Thursday, May 18, 2017 4:41:38 AM
