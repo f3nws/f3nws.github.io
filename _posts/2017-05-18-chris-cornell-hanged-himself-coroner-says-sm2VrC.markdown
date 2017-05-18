@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chris Cornell hanged himself, coroner says"
-date: 2017-05-18 18:21:51Z
+date: 2017-05-18 22:52:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Chris Cornell, lead singer of Soundgarden and Audioslave, died Wednesday night, 
 
 Full story on F3News: [Chris Cornell hanged himself, coroner says](http://www.f3nws.com/n/sm2VrC)
 
-> Posted on: Thursday, May 18, 2017 11:21:51 PM
+> Posted on: Friday, May 19, 2017 3:52:24 AM

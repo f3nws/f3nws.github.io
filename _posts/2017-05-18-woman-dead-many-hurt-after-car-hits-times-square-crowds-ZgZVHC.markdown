@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman dead, many hurt after car hits Times Square crowds"
-date: 2017-05-18 22:15:26Z
+date: 2017-05-18 22:39:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A motor vehicle incident in Manhattan's bustling Times Square Thursday has left 
 
 Full story on F3News: [Woman dead, many hurt after car hits Times Square crowds](http://www.f3nws.com/n/ZgZVHC)
 
-> Posted on: Friday, May 19, 2017 3:15:26 AM
+> Posted on: Friday, May 19, 2017 3:39:03 AM

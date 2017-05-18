@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rosenstein knew Comey would be fired before writing memo, Dem senators say"
-date: 2017-05-18 19:38:00Z
+date: 2017-05-18 20:38:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Deputy Attorney General Rod Rosenstein knew that FBI Director James Comey would 
 
 Full story on F3News: [Rosenstein knew Comey would be fired before writing memo, Dem senators say](http://www.f3nws.com/n/gGpVAC)
 
-> Posted on: Friday, May 19, 2017 12:38:00 AM
+> Posted on: Friday, May 19, 2017 1:38:00 AM
