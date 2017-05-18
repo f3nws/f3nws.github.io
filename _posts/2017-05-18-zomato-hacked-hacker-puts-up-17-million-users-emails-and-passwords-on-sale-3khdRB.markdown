@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zomato Hacked; Hacker Puts Up 17 Million Users' Emails and Passwords On Sale"
-date: 2017-05-18 09:04:37Z
+date: 2017-05-18 09:25:20Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ If you ever ordered food from Zomato, You should be Worried! India's largest onl
 
 Full story on F3News: [Zomato Hacked; Hacker Puts Up 17 Million Users' Emails and Passwords On Sale](http://www.f3nws.com/n/3khdRB)
 
-> Posted on: Thursday, May 18, 2017 2:04:37 PM
+> Posted on: Thursday, May 18, 2017 2:25:20 PM
