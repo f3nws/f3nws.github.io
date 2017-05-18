@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Mueller to oversee Russia election probe as special counsel"
-date: 2017-05-17 23:40:00Z
+date: 2017-05-17 23:43:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Justice Department announced Wednesday it has appointed former FBI Director 
 
 Full story on F3News: [Robert Mueller to oversee Russia election probe as special counsel](http://www.f3nws.com/n/MyyEuD)
 
-> Posted on: Thursday, May 18, 2017 4:40:00 AM
+> Posted on: Thursday, May 18, 2017 4:43:00 AM
