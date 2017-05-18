@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oscar Lopez Rivera: Celebrations for freed Puerto Rican nationalist stir controversy"
-date: 2017-05-18 01:00:09Z
+date: 2017-05-18 05:30:10Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ López was considered a top leader of the Armed Forces of National Liberation, o
 
 Full story on F3News: [Oscar Lopez Rivera: Celebrations for freed Puerto Rican nationalist stir controversy](http://www.f3nws.com/n/yvCA4E)
 
-> Posted on: Thursday, May 18, 2017 6:00:09 AM
+> Posted on: Thursday, May 18, 2017 10:30:10 AM
