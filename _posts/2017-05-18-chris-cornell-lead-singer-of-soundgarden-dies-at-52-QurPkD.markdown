@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chris Cornell, lead singer of Soundgarden, dies at 52"
-date: 2017-05-18 07:43:00Z
+date: 2017-05-18 09:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Singer Chris Cornell, the lead vocalist for the bands Soundgarden and Audioslave
 
 Full story on F3News: [Chris Cornell, lead singer of Soundgarden, dies at 52](http://www.f3nws.com/n/QurPkD)
 
-> Posted on: Thursday, May 18, 2017 12:43:00 PM
+> Posted on: Thursday, May 18, 2017 2:45:00 PM
