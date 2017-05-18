@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-led coalition hits pro-Assad fighters' convoy"
-date: 2017-05-18 21:07:46Z
+date: 2017-05-18 22:16:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Officials say air strike targeted fighters near At Tanf who posed a threat to US
 
 Full story on F3News: [US-led coalition hits pro-Assad fighters' convoy](http://www.f3nws.com/n/ESm2aF)
 
-> Posted on: Friday, May 19, 2017 2:07:46 AM
+> Posted on: Friday, May 19, 2017 3:16:16 AM
