@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-led coalition airstrikes targeted Syrian regime forces"
-date: 2017-05-18 19:30:10Z
+date: 2017-05-18 19:03:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Syrian regime forces occupying five vehicles were targeted by US airstrikes afte
 
 Full story on F3News: [US-led coalition airstrikes targeted Syrian regime forces](http://www.f3nws.com/n/HjpRv)
 
-> Posted on: Friday, May 19, 2017 12:30:10 AM
+> Posted on: 18 May 2017 18:03:18
