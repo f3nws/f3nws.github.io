@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's foreign hosts make unusual..."
-date: 2017-05-19 13:20:21Z
+date: 2017-05-19 13:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Donald Trump is making his first foreign trip as president, but he's not looking
 
 Full story on F3News: [Trump's foreign hosts make unusual...](http://www.f3nws.com/n/jQTkbF)
 
-> Posted on: Friday, May 19, 2017 6:20:21 PM
+> Posted on: Friday, May 19, 2017 6:20:00 PM

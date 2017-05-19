@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jason Chaffetz faces questions as he..."
-date: 2017-05-19 14:05:33Z
+date: 2017-05-19 14:05:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Why would a powerful congressman start the year raring to go, only to very quick
 
 Full story on F3News: [Jason Chaffetz faces questions as he...](http://www.f3nws.com/n/DdpmYB)
 
-> Posted on: Friday, May 19, 2017 7:05:33 PM
+> Posted on: Friday, May 19, 2017 7:05:00 PM
