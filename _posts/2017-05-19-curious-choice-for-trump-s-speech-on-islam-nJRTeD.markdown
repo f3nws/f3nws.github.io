@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Curious choice for Trump's speech on Islam"
-date: 2017-05-19 18:15:36Z
+date: 2017-05-19 21:15:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The author of President Donald Trump's controversial travel ban, which targeted 
 
 Full story on F3News: [Curious choice for Trump's speech on Islam](http://www.f3nws.com/n/nJRTeD)
 
-> Posted on: Friday, May 19, 2017 11:15:36 PM
+> Posted on: Saturday, May 20, 2017 2:15:46 AM

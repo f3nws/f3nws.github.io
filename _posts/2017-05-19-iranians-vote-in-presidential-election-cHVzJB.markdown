@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iranians vote in presidential election"
-date: 2017-05-19 10:29:03Z
+date: 2017-05-19 21:00:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ First vote since landmark nuclear deal is seen as a tight race between President
 
 Full story on F3News: [Iranians vote in presidential election](http://www.f3nws.com/n/cHVzJB)
 
-> Posted on: Friday, May 19, 2017 3:29:03 PM
+> Posted on: Saturday, May 20, 2017 2:00:10 AM

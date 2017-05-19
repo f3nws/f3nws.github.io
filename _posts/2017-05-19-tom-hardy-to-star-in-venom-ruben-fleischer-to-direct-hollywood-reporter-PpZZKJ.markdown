@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/05/tom_hardy_venom_and_ruben_fleischer_-_split_-_getty_-_h_2017.jpg)
 
-Hollywood Reporter Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct Hollywood Reporter The project is one of Sony's top priorities and the studio is not wasting time, as the movie is set to open Oct. 5, 2018. Sony has ensnared a star and director for its Spider-Man offshoot, Venom. Tom Hardy, who was nominated for an Oscar for his work ... Tom Hardy Is 'Venom' In New Sony Marvel Film To Be Directed By Ruben Fleischer Deadline How Can Eddie Brock Become Venom Without Black Suit Spider-Man? Comicbook.com Tom Hardy Goes From Real-Life Hero To Movie Supervillain HuffPost ComingSoon.net - TIME - EW.com (blog) - CNBC all 89 news articles »
+Hollywood Reporter Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct Hollywood Reporter The project is one of Sony's top priorities and the studio is not wasting time, as the movie is set to open Oct. 5, 2018. Sony has ensnared a star and director for its Spider-Man offshoot, Venom. Tom Hardy, who was nominated for an Oscar for his work ... Tom Hardy Is 'Venom' In New Sony Marvel Film To Be Directed By Ruben Fleischer Deadline How Can Eddie Brock Become Venom Without Black Suit Spider-Man? Comicbook.com Tom Hardy to Play Venom, Ruben Fleischer to Direct ComingSoon.net HuffPost - EW.com (blog) - TIME - CNBC all 99 news articles »
 
 
 Full story on F3News: [Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct - Hollywood Reporter](http://www.f3nws.com/n/PpZZKJ)
