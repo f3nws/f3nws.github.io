@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Gowdy front-runner to be next Oversight chairman - The Hill](http://thehill.com/sites/default/files/gowdytrey_062816gn_lead.jpg)
 
-U.S. News & World Report Gowdy front-runner to be next Oversight chairman The Hill Rep. Trey Gowdy · Trey GowdyGowdy front-runner to be next Oversight chairman Chaffetz to announce he's leaving Congress early: report Ex-Justice Dept official pulls name from consideration to replace Comey: reports MORE (R-S.C.) could be the next ... Chaffetz to announce June 30 departure from Congress today, Politico says Deseret News Jason Chaffetz leaving Congress on June 30 CNN Jason Chaffetz Is Leaving Congress The Atlantic Politico - US Congressman Jason Chaffetz - Washingtonian.com all 168 news articles »
+Washington Post Gowdy front-runner to be next Oversight chairman The Hill Rep. Trey Gowdy · Trey GowdyGowdy front-runner to be next Oversight chairman Chaffetz to announce he's leaving Congress early: report Ex-Justice Dept official pulls name from consideration to replace Comey: reports MORE (R-S.C.) could be the next ... Chaffetz to announce early departure from Congress Politico Chaffetz Letter to Utah's 3rd Congressional District | U.S. House of Representatives US Congressman Jason Chaffetz Jason Chaffetz Has Been Telling House Republicans He Will Join Fox News Washingtonian.com all 157 news articles »
 
 
 Full story on F3News: [Gowdy front-runner to be next Oversight chairman - The Hill](http://www.f3nws.com/n/4vhSUD)
