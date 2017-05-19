@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran goes polls as 'Outsider' Rouhani seeks to liberalize country"
-date: 2017-05-19 16:28:05Z
+date: 2017-05-19 18:39:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iranian voters flocked to polling stations Friday to play their part in an elect
 
 Full story on F3News: [Iran goes polls as 'Outsider' Rouhani seeks to liberalize country](http://www.f3nws.com/n/PeFuKC)
 
-> Posted on: Friday, May 19, 2017 9:28:05 PM
+> Posted on: Friday, May 19, 2017 11:39:22 PM

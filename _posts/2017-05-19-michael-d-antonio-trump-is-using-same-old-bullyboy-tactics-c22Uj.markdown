@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michael D'Antonio: Trump is using same old bullyboy tactics"
-date: 2017-05-19 02:22:01Z
+date: 2017-05-19 16:10:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As Deputy Attorney General Rod Rosenstein appointed a special counsel to investi
 
 Full story on F3News: [Michael D'Antonio: Trump is using same old bullyboy tactics](http://www.f3nws.com/n/c22Uj)
 
-> Posted on: Friday, May 19, 2017 7:22:01 AM
+> Posted on: Friday, May 19, 2017 9:10:04 PM

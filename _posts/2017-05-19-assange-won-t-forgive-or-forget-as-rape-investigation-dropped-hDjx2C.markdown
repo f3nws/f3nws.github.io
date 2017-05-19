@@ -5,7 +5,7 @@ date: 2017-05-19 09:22:46Z
 categories: abc-top-stories
 ---
 
-![Assange won't 'forgive or forget' as rape investigation dropped](http://www.abc.net.au/news/image/1965096-1x1-700x700.jpg)
+![Assange won't 'forgive or forget' as rape investigation dropped](http://www.abc.net.au/news/image/8543324-1x1-700x700.jpg)
 
 Swedish prosecutors are dropping an investigation into sex crime allegations against Julian Assange, but the WikiLeaks founder swears he will not "forgive or forget" after being "detained for seven years without charge".
 
