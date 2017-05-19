@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran's 2017 elections: All you need to know"
-date: 2017-05-19 10:20:47Z
+date: 2017-05-19 11:00:35Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The May 19 vote will be the first stage, with a possible runoff vote if none of 
 
 Full story on F3News: [Iran's 2017 elections: All you need to know](http://www.f3nws.com/n/eSBUEE)
 
-> Posted on: Friday, May 19, 2017 3:20:47 PM
+> Posted on: Friday, May 19, 2017 4:00:35 PM
