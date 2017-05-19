@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Anthony Weiner Pleads Guilty to Federal Obscenity Charge - New York Times](https://static01.nyt.com/images/2017/05/20/nyregion/20PLEA2/20PLEA2-facebookJumbo.jpg)
 
-New York Times Anthony Weiner Pleads Guilty to Federal Obscenity Charge New York Times Anthony D. Weiner, the former New York Democratic congressman and candidate for mayor, leaving federal court in Manhattan on Friday. His estranged wife, Huma Abedin, was a top aide to Hillary Clinton. Credit Christopher Lee for The New York Times. Anthony Weiner, disgraced former congressman, pleads guilty in 'sexting' case involving minor Washington Post Can we now stop talking about Anthony Weiner? Like, forever? CNN Huma Abedin seeks divorce from Weiner after guilty plea Fox News The Hill - New York Post - Reuters - Daily Beast all 363 news articles »
+New York Times Anthony Weiner Pleads Guilty to Federal Obscenity Charge New York Times Anthony D. Weiner, the former New York Democratic congressman and candidate for mayor, leaving federal court in Manhattan on Friday. His estranged wife, Huma Abedin, was a top aide to Hillary Clinton. Credit Christopher Lee for The New York Times. Anthony Weiner, disgraced former congressman, pleads guilty in 'sexting' case involving teen girl Washington Post Can we now stop talking about Anthony Weiner? Like, forever? CNN Anthony Weiner pleads guilty: 'I have a sickness' The Hill Fox News - New York Post - The Mercury News - Reuters all 372 news articles »
 
 
 Full story on F3News: [Anthony Weiner Pleads Guilty to Federal Obscenity Charge - New York Times](http://www.f3nws.com/n/TCyJxC)
