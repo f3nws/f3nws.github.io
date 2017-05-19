@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's first foreign trip: Scheduled stops in Saudi Arabia, Israel and beyond"
-date: 2017-05-19 18:00:07Z
+date: 2017-05-19 20:00:11Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Trump's trip is expected to begin Friday with a stop in Saudi Arabia, followed b
 
 Full story on F3News: [Trump's first foreign trip: Scheduled stops in Saudi Arabia, Israel and beyond](http://www.f3nws.com/n/SumEhF)
 
-> Posted on: Friday, May 19, 2017 11:00:07 PM
+> Posted on: Saturday, May 20, 2017 1:00:11 AM

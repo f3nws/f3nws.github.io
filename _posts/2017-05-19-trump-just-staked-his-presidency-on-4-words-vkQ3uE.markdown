@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump just staked his presidency on 4 words"
-date: 2017-05-19 13:15:55Z
+date: 2017-05-19 19:33:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At a joint news conference with Colombian President Juan Manual Santos Thursday,
 
 Full story on F3News: [Trump just staked his presidency on 4 words](http://www.f3nws.com/n/vkQ3uE)
 
-> Posted on: Friday, May 19, 2017 6:15:55 PM
+> Posted on: Saturday, May 20, 2017 12:33:59 AM
