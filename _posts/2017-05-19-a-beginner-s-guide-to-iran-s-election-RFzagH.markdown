@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A beginner's guide to Iran's election"
-date: 2017-05-19 02:37:02Z
+date: 2017-05-19 03:53:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iranians head to the polls Friday in a presidential election that could have ser
 
 Full story on F3News: [A beginner's guide to Iran's election](http://www.f3nws.com/n/RFzagH)
 
-> Posted on: Friday, May 19, 2017 7:37:02 AM
+> Posted on: Friday, May 19, 2017 8:53:21 AM

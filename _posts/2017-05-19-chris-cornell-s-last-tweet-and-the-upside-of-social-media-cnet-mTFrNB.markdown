@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "​Chris Cornell's last tweet and the upside of social media     - CNET"
-date: 2017-05-19 01:15:17Z
+date: 2017-05-19 03:32:34Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Online, fans can sometimes find a real and comforting connection in 
 
 Full story on F3News: [​Chris Cornell's last tweet and the upside of social media     - CNET](http://www.f3nws.com/n/mTFrNB)
 
-> Posted on: Friday, May 19, 2017 6:15:17 AM
+> Posted on: Friday, May 19, 2017 8:32:34 AM

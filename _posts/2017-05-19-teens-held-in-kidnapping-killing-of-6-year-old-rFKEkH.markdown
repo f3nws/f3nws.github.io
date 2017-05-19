@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teens held in kidnapping, killing of 6-year-old"
-date: 2017-05-19 02:07:29Z
+date: 2017-05-19 03:35:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three Mississippi teenagers are accused of killing a 6-year-old boy after steali
 
 Full story on F3News: [Teens held in kidnapping, killing of 6-year-old](http://www.f3nws.com/n/rFKEkH)
 
-> Posted on: Friday, May 19, 2017 7:07:29 AM
+> Posted on: Friday, May 19, 2017 8:35:30 AM

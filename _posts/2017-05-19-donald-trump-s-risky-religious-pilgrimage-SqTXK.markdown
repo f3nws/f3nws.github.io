@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump's risky religious pilgrimage"
-date: 2017-05-19 01:40:28Z
+date: 2017-05-19 03:35:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Besieged by bad news at home, President Donald Trump is about to get religion, b
 
 Full story on F3News: [Donald Trump's risky religious pilgrimage](http://www.f3nws.com/n/SqTXK)
 
-> Posted on: Friday, May 19, 2017 6:40:28 AM
+> Posted on: Friday, May 19, 2017 8:35:30 AM
