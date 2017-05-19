@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WannaCry Ransomware Decryption Tool Released; Unlock Files Without Paying Ransom"
-date: 2017-05-19 08:15:45Z
+date: 2017-05-19 08:44:14Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ If your PC has been infected by WannaCry – the ransomware that wreaked havoc a
 
 Full story on F3News: [WannaCry Ransomware Decryption Tool Released; Unlock Files Without Paying Ransom](http://www.f3nws.com/n/pAyZKJ)
 
-> Posted on: Friday, May 19, 2017 1:15:45 PM
+> Posted on: Friday, May 19, 2017 1:44:14 PM
