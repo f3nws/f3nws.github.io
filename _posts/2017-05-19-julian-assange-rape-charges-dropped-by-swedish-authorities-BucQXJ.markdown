@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Julian Assange rape charges dropped by Swedish authorities"
-date: 2017-05-19 13:00:00Z
+date: 2017-05-19 14:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Sweden's top prosecutor said Friday she would drop the investigation into a rape
 
 Full story on F3News: [Julian Assange rape charges dropped by Swedish authorities](http://www.f3nws.com/n/BucQXJ)
 
-> Posted on: Friday, May 19, 2017 6:00:00 PM
+> Posted on: Friday, May 19, 2017 7:00:00 PM

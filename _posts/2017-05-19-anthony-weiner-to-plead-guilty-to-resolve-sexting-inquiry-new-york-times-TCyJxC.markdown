@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Anthony Weiner to Plead Guilty to Resolve 'Sexting' Inquiry - New York Times](https://static01.nyt.com/images/2017/05/20/nyregion/20PLEA/20PLEA-facebookJumbo.jpg)
 
-New York Times Anthony Weiner to Plead Guilty to Resolve 'Sexting' Inquiry New York Times Anthony D. Weiner is a former New York Democratic congressman and candidate for mayor, whose estranged wife, Huma Abedin, was a principal aide to Hillary Clinton. Credit Damon Winter/The New York Times. Anthony D. Weiner, the former Democratic ... Anthony Weiner to plead guilty to sexting with minor: report The Hill Anthony Weiner to plead guilty in sexting case New York Daily News Anthony Weiner to plead guilty in sexting scandal, report says Fox News all 45 news articles »
+New York Times Anthony Weiner to Plead Guilty to Resolve 'Sexting' Inquiry New York Times Anthony D. Weiner is a former New York Democratic congressman and candidate for mayor, whose estranged wife, Huma Abedin, was a principal aide to Hillary Clinton. Credit Damon Winter/The New York Times. Anthony D. Weiner, the former Democratic ... Anthony Weiner to plead guilty in sexting case New York Daily News Anthony Weiner will plead guilty to sexting with a 15-year-old girl New York Post Ex-congressman Anthony Weiner to plead guilty in sexing case Washington Post HuffPost - NBCNews.com - Fox News - Reuters all 99 news articles »
 
 
 Full story on F3News: [Anthony Weiner to Plead Guilty to Resolve 'Sexting' Inquiry - New York Times](http://www.f3nws.com/n/TCyJxC)
