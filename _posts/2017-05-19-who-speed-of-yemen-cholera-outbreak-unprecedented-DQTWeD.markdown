@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WHO: Speed of Yemen cholera outbreak 'unprecedented'"
-date: 2017-05-19 16:30:05Z
+date: 2017-05-19 16:30:11Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Yemen could have 3000,000 cholera cases within six months, as death toll rises t
 
 Full story on F3News: [WHO: Speed of Yemen cholera outbreak 'unprecedented'](http://www.f3nws.com/n/DQTWeD)
 
-> Posted on: Friday, May 19, 2017 9:30:05 PM
+> Posted on: Friday, May 19, 2017 9:30:11 PM
