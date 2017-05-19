@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton aide tweets video of her practicing avoiding a Trump hug"
-date: 2017-05-19 18:51:14Z
+date: 2017-05-19 19:14:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Philippe Reines, who stood in as Donald Trump during debate preparation for Hill
 
 Full story on F3News: [Clinton aide tweets video of her practicing avoiding a Trump hug](http://www.f3nws.com/n/mbhZpE)
 
-> Posted on: Friday, May 19, 2017 11:51:14 PM
+> Posted on: Saturday, May 20, 2017 12:14:14 AM

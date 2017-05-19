@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Kissing bug' disease deadlier than thought"
-date: 2017-05-19 18:57:53Z
+date: 2017-05-19 19:00:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The nickname given to the insects that spread Chagas disease is somewhat bitters
 
 Full story on F3News: ['Kissing bug' disease deadlier than thought](http://www.f3nws.com/n/FYxDh)
 
-> Posted on: Friday, May 19, 2017 11:57:53 PM
+> Posted on: Saturday, May 20, 2017 12:00:50 AM
