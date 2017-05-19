@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazil's president accused of bribery"
-date: 2017-05-19 01:25:35Z
+date: 2017-05-19 04:13:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Brazil's leadership lurched into another bribery scandal Wednesday, as one of th
 
 Full story on F3News: [Brazil's president accused of bribery](http://www.f3nws.com/n/mXbQNJ)
 
-> Posted on: Friday, May 19, 2017 6:25:35 AM
+> Posted on: Friday, May 19, 2017 9:13:22 AM
