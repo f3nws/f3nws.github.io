@@ -7,7 +7,7 @@ categories: cnet
 
 ![Microsoft held back a free WannaCry patch, report says - CNET](https://cnet3.cbsistatic.com/img/07zYuaUhM7sqZ2-XPBZrynMp0Mw=/670x503/2014/03/28/9f763fc3-6fc4-4196-a82a-56d7de4adee7/windows-xp-cbs.jpg)
 
-CNET Microsoft held back a free WannaCry patch, report says CNET Microsoft could have slowed the devastating spread of ransomware WannaCry to businesses, the Financial Times reports. Instead, it held back a free repair update on machines running older software like Windows XP. Microsoft wanted hefty fees of up to ... The Global Hack Could Have Been Much, Much Worse Bloomberg Security experts find clues to ransomware worm's lingering risks Reuters Ransomware attack: The clean-up continues after WannaCry chaos ZDNet CNBC - Slate Magazine - The Mercury News - CNNMoney all 2,606 news articles »
+CNET Microsoft held back a free WannaCry patch, report says CNET Microsoft could have slowed the devastating spread of ransomware WannaCry to businesses, the Financial Times reports. Instead, it held back a free repair update on machines running older software like Windows XP. Microsoft wanted hefty fees of up to ... The Global Hack Could Have Been Much, Much Worse Bloomberg Security experts find clues to ransomware worm's lingering risks Reuters The 'WannaCry' ransomware attack could have been prevented. Here's what businesses need to know CNBC Slate Magazine - The Mercury News - ValueWalk all 2,844 news articles »
 
 
 Full story on F3News: [Microsoft held back a free WannaCry patch, report says - CNET](http://www.f3nws.com/n/jeXdaF)
