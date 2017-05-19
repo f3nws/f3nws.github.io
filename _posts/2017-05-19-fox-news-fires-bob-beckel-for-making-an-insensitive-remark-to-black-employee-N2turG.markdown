@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News fires Bob Beckel for 'making an insensitive remark' to black employee"
-date: 2017-05-19 16:31:39Z
+date: 2017-05-19 17:47:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Fox News fires Bob Beckel for 'making an insensitive remark' to black employee](http://www.f3nws.com/n/N2turG)
 
-> Posted on: Friday, May 19, 2017 9:31:39 PM
+> Posted on: Friday, May 19, 2017 10:47:17 PM

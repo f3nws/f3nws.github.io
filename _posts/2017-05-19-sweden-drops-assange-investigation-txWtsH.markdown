@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sweden drops Assange investigation"
-date: 2017-05-19 16:54:39Z
+date: 2017-05-19 17:48:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sweden is dropping its investigation into WikiLeaks founder Julian Assange on ra
 
 Full story on F3News: [Sweden drops Assange investigation](http://www.f3nws.com/n/txWtsH)
 
-> Posted on: Friday, May 19, 2017 9:54:39 PM
+> Posted on: Friday, May 19, 2017 10:48:07 PM
