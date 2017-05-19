@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Video shows Erdogan watching DC brawl"
-date: 2017-05-19 13:17:01Z
+date: 2017-05-19 15:42:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ New video footage has emerged that shows Turkish President Recep Tayyip Erdogan 
 
 Full story on F3News: [Video shows Erdogan watching DC brawl](http://www.f3nws.com/n/fMv2ZC)
 
-> Posted on: Friday, May 19, 2017 6:17:01 PM
+> Posted on: Friday, May 19, 2017 8:42:49 PM
