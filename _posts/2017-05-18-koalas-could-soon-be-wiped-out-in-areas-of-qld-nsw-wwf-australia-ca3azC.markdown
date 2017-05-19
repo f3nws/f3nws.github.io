@@ -5,9 +5,9 @@ date: 2017-05-18 23:12:50Z
 categories: abc-top-stories
 ---
 
-![Koalas could soon be wiped out in areas of Qld, NSW: WWF Australia](http://www.abc.net.au/news/image/8540222-1x1-700x700.jpg)
+![Koalas could soon be wiped out in areas of Qld, NSW: WWF Australia](http://www.abc.net.au/news/image/8540230-1x1-700x700.jpg)
 
-Koalas are under threat of being wiped out in parts of Queensland and New South Wales, conservation group WWF Australia warns.
+Koalas are under threat of being wiped out in parts of Queensland and New South Wales, says conservation group WWF Australia, blaming land clearing for rapidly destroying the mammals' bush habitats.
 
 
 Full story on F3News: [Koalas could soon be wiped out in areas of Qld, NSW: WWF Australia](http://www.f3nws.com/n/ca3azC)
