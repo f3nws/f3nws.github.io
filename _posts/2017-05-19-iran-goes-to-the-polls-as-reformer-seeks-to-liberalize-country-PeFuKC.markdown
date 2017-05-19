@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran goes to the polls as reformer seeks to liberalize country"
-date: 2017-05-19 07:14:51Z
+date: 2017-05-19 07:28:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Polls have opened across Iran in what looks set to be a tight race, as Iranian P
 
 Full story on F3News: [Iran goes to the polls as reformer seeks to liberalize country](http://www.f3nws.com/n/PeFuKC)
 
-> Posted on: Friday, May 19, 2017 12:14:51 PM
+> Posted on: Friday, May 19, 2017 12:28:47 PM
