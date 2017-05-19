@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYT: Trump brags to Russians about firing 'nut job' Comey"
-date: 2017-05-19 19:48:59Z
+date: 2017-05-19 20:05:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump bragged to two top Russian officials last week that firin
 
 Full story on F3News: [NYT: Trump brags to Russians about firing 'nut job' Comey](http://www.f3nws.com/n/RMxvXB)
 
-> Posted on: Saturday, May 20, 2017 12:48:59 AM
+> Posted on: Saturday, May 20, 2017 1:05:34 AM
