@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Joe Biden never thought Hillary Clinton was a very good candidate - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/161212120909-joe-biden-hillary-clinton-laugh-super-tease.jpg)
 
-CNN Joe Biden never thought Hillary Clinton was a very good candidate CNN (CNN) Former Vice President Joe Biden still isn't done with Hillary Clinton and the 2016 election -- and that may be why he refuses to rule out running again for president in 2020. In an interview at a hedge fund conference in Las Vegas on Thursday ... Biden disses Clinton: 'I never thought she was a great candidate. I thought I was a great candidate.' Washington Post Joe Biden on Hillary Clinton: 'I never thought she was a great candidate' USA TODAY Biden knocks Clinton: Not a 'great' candidate Fox News Washington Times - The Hill - TheBlaze.com - U.S. News & World Report all 58 news articles »
+CNN Joe Biden never thought Hillary Clinton was a very good candidate CNN (CNN) Former Vice President Joe Biden still isn't done with Hillary Clinton and the 2016 election -- and that may be why he refuses to rule out running again for president in 2020. In an interview at a hedge fund conference in Las Vegas on Thursday ... Biden disses Clinton: 'I never thought she was a great candidate. I thought I was a great candidate.' Washington Post Joe Biden on Hillary Clinton: 'I never thought she was a great candidate' USA TODAY Biden on Clinton: 'I never thought she was a great candidate' The Hill CNN - CNN all 64 news articles »
 
 
 Full story on F3News: [Joe Biden never thought Hillary Clinton was a very good candidate - CNN](http://www.f3nws.com/n/jdUrrE)

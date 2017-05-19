@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China makes 'flammable ice' breakthrough"
-date: 2017-05-19 13:16:28Z
+date: 2017-05-19 16:21:39Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ China is talking up its achievement of mining flammable ice for the first time f
 
 Full story on F3News: [China makes 'flammable ice' breakthrough](http://www.f3nws.com/n/qGmAPC)
 
-> Posted on: Friday, May 19, 2017 6:16:28 PM
+> Posted on: Friday, May 19, 2017 9:21:39 PM
