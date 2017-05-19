@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump's Middle East visit: What to expect"
-date: 2017-05-19 12:09:03Z
+date: 2017-05-19 13:08:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia arms deal, Syria's war and Arab-Israeli peace set to top agenda of 
 
 Full story on F3News: [Donald Trump's Middle East visit: What to expect](http://www.f3nws.com/n/Jbc2TG)
 
-> Posted on: Friday, May 19, 2017 5:09:03 PM
+> Posted on: Friday, May 19, 2017 6:08:10 PM

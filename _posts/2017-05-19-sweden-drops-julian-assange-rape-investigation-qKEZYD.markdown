@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sweden drops Julian Assange rape investigation"
-date: 2017-05-19 12:07:08Z
+date: 2017-05-19 13:02:34Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UK police say Assange will still be arrested for 'minor offence' if he left Ecua
 
 Full story on F3News: [Sweden drops Julian Assange rape investigation](http://www.f3nws.com/n/qKEZYD)
 
-> Posted on: Friday, May 19, 2017 5:07:08 PM
+> Posted on: Friday, May 19, 2017 6:02:34 PM
