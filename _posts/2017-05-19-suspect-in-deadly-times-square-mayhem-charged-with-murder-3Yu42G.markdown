@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect in deadly Times Square mayhem charged with murder"
-date: 2017-05-19 11:24:00Z
+date: 2017-05-19 11:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A man accused of steering his car onto one of the busiest sidewalks in the U.S. 
 
 Full story on F3News: [Suspect in deadly Times Square mayhem charged with murder](http://www.f3nws.com/n/3Yu42G)
 
-> Posted on: Friday, May 19, 2017 4:24:00 PM
+> Posted on: Friday, May 19, 2017 4:30:00 PM
