@@ -5,7 +5,7 @@ date: 2017-05-18 20:30:46Z
 categories: abc-top-stories
 ---
 
-![Chris Cornell took his own life, autopsy reveals](http://www.abc.net.au/news/image/8539112-1x1-700x700.jpg)
+![Chris Cornell took his own life, autopsy reveals](http://www.abc.net.au/news/image/8539482-1x1-700x700.jpg)
 
 Soundgarden and Audioslave frontman Chris Cornell took his own life in a Detroit hotel room, according to the city's medical examiner.
 

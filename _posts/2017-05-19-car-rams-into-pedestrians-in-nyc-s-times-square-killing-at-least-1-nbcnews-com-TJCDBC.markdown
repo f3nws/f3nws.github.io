@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Car Rams Into Pedestrians in NYC's Times Square, Killing at Least 1 - NBCNews.com](https://media1.s-nbcnews.com/j/newscms/2017_20/2004561/170518-times-square-mn-1245_1d1a0d1c53687b5bb0cb8a8cdc34d8f0.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Car Rams Into Pedestrians in NYC's Times Square, Killing at Least 1 NBCNews.com NEW YORK — A wrong-way driver plowed into pedestrians in the heart of Manhattan's bustling Times Square district minutes before noon Thursday, killing at least one person and injuring nearly two dozen others, city officials said. The high-speed 11:55 ... Driver charged with murder in Times Square crash CNN Officials: Man who ran over pedestrians was 'hearing voices' ABC News The Latest: Bouncer tackled fleeing Times Square driver Washington Post BBC News - New York Times - Los Angeles Times - New York Post all 923 news articles »
+NBCNews.com Car Rams Into Pedestrians in NYC's Times Square, Killing at Least 1 NBCNews.com NEW YORK — A wrong-way driver plowed into pedestrians in the heart of Manhattan's bustling Times Square district minutes before noon Thursday, killing at least one person and injuring nearly two dozen others, city officials said. The high-speed 11:55 ... Driver charged with murder in Times Square crash CNN Officials: Man who ran over pedestrians was 'hearing voices' ABC News Driver charged with murder after plowing into Times Square crowd Washington Post New York Times - BBC News - Los Angeles Times - New York Post all 923 news articles »
 
 
 Full story on F3News: [Car Rams Into Pedestrians in NYC's Times Square, Killing at Least 1 - NBCNews.com](http://www.f3nws.com/n/TJCDBC)

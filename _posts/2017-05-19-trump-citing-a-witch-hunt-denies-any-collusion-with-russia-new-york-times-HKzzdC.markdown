@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump, Citing 'a Witch Hunt,' Denies Any Collusion With Russia - New York Times](https://static01.nyt.com/images/2017/05/19/us/19trump-vid/19trump-vid-facebookJumbo.jpg)
 
-New York Times Trump, Citing 'a Witch Hunt,' Denies Any Collusion With Russia New York Times President Trump said there was no collusion between his campaign and the Russians, when asked about the appointment of a special counsel to investigate ties with Russia. By THE ASSOCIATED PRESS. Photo by Doug Mills/The New York Times. Watch in ... Trump angrily calls Russia investigation a 'witch hunt,' and denies charges of collusion Washington Post Senators told of broadening Russia investigation The Hill Robert Mueller gets to work CNN Los Angeles Times - NBCNews.com - USA TODAY - Washington Examiner all 1,867 news articles »
+New York Times Trump, Citing 'a Witch Hunt,' Denies Any Collusion With Russia New York Times President Trump said there was no collusion between his campaign and the Russians, when asked about the appointment of a special counsel to investigate ties with Russia. By THE ASSOCIATED PRESS. Photo by Doug Mills/The New York Times. Watch in ... Trump can't stop talking about the Russia probe — even if continuing might hurt him Washington Post Senators told of broadening Russia investigation The Hill Robert Mueller gets to work CNN NBCNews.com - USA TODAY - Washington Examiner - New York Daily News all 1,936 news articles »
 
 
 Full story on F3News: [Trump, Citing 'a Witch Hunt,' Denies Any Collusion With Russia - New York Times](http://www.f3nws.com/n/HKzzdC)
