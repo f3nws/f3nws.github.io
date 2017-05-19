@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The worst social media app for young people's mental health..."
-date: 2017-05-19 13:54:30Z
+date: 2017-05-19 21:28:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Instagram is the most detrimental social networking app for young people's menta
 
 Full story on F3News: [The worst social media app for young people's mental health...](http://www.f3nws.com/n/HRETkC)
 
-> Posted on: Friday, May 19, 2017 6:54:30 PM
+> Posted on: Saturday, May 20, 2017 2:28:07 AM
