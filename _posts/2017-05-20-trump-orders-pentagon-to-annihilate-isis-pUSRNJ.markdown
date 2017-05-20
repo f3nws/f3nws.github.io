@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Orders Pentagon To ‘Annihilate’ ISIS"
-date: 2017-05-20 17:30:11Z
+date: 2017-05-20 18:30:13Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Trump Orders Pentagon To ‘Annihilate’ ISIS](http://www.f3nws.com/n/pUSRNJ)
 
-> Posted on: Saturday, May 20, 2017 10:30:11 PM
+> Posted on: Saturday, May 20, 2017 11:30:13 PM
