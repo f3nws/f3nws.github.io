@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huma Abedin to divorce Anthony Weiner"
-date: 2017-05-20 05:36:58Z
+date: 2017-05-20 13:18:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Huma Abedin has filed for divorce from former Rep. Anthony Weiner, a move she ma
 
 Full story on F3News: [Huma Abedin to divorce Anthony Weiner](http://www.f3nws.com/n/uKABbB)
 
-> Posted on: Saturday, May 20, 2017 10:36:58 AM
+> Posted on: Saturday, May 20, 2017 6:18:32 PM

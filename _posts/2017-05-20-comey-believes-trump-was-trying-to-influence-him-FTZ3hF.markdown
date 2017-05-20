@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey 'believes Trump was trying to influence him'"
-date: 2017-05-20 02:55:52Z
+date: 2017-05-20 13:19:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI Director James Comey now believes that President Donald Trump was try
 
 Full story on F3News: [Comey 'believes Trump was trying to influence him'](http://www.f3nws.com/n/FTZ3hF)
 
-> Posted on: Saturday, May 20, 2017 7:55:52 AM
+> Posted on: Saturday, May 20, 2017 6:19:56 PM
