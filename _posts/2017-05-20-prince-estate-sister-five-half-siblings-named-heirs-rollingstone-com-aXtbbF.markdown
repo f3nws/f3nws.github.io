@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Prince Estate: Sister, Five Half-Siblings Named Heirs - RollingStone.com](http://img.wennermedia.com/social/gettyimages-522965904-d88cee1d-0dad-4fc4-80e0-b2176a0112f0.jpg)
 
-RollingStone.com Prince Estate: Sister, Five Half-Siblings Named Heirs RollingStone.com A Minnesota judge ruled Friday that Prince's sister and five half-siblings are the rightful heirs to the music icon's $200 million estate. Credit: John Leyba/Denver Post. By Daniel Kreps. 1 hour ago. More News. Universal Accuses Prince Estate of Fraud, ... Judge declares Prince's 6 siblings the heirs to his estate ABC News Prince's Six Siblings Declared Heirs to His Estate by Minnesota Judge PEOPLE.com all 74 news articles »
+RollingStone.com Prince Estate: Sister, Five Half-Siblings Named Heirs RollingStone.com A Minnesota judge ruled Friday that Prince's sister and five half-siblings are the rightful heirs to the music icon's $200 million estate. Credit: John Leyba/Denver Post. By Daniel Kreps. 1 hour ago. More News. Universal Accuses Prince Estate of Fraud, ... and more »
 
 
 Full story on F3News: [Prince Estate: Sister, Five Half-Siblings Named Heirs - RollingStone.com](http://www.f3nws.com/n/aXtbbF)
