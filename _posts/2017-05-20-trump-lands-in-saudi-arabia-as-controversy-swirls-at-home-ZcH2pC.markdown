@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump lands in Saudi Arabia as controversy swirls at home"
-date: 2017-05-20 08:09:02Z
+date: 2017-05-20 11:30:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has landed in Saudi Arabia for his first stop abroad sinc
 
 Full story on F3News: [Trump lands in Saudi Arabia as controversy swirls at home](http://www.f3nws.com/n/ZcH2pC)
 
-> Posted on: Saturday, May 20, 2017 1:09:02 PM
+> Posted on: Saturday, May 20, 2017 4:30:52 PM
