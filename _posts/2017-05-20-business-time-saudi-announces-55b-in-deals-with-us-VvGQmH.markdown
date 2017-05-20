@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Business time: Saudi announces $55B in deals with US"
-date: 2017-05-20 13:42:28Z
+date: 2017-05-20 14:58:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia announced more than $55 billion in deals with US companies Saturday
 
 Full story on F3News: [Business time: Saudi announces $55B in deals with US](http://www.f3nws.com/n/VvGQmH)
 
-> Posted on: Saturday, May 20, 2017 6:42:28 PM
+> Posted on: Saturday, May 20, 2017 7:58:45 PM
