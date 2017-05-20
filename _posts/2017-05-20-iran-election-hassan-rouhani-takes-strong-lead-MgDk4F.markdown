@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran election: Hassan Rouhani takes strong lead"
-date: 2017-05-20 06:27:36Z
+date: 2017-05-20 07:23:43Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ With more than half of votes counted, incumbent president appears set to beat co
 
 Full story on F3News: [Iran election: Hassan Rouhani takes strong lead](http://www.f3nws.com/n/MgDk4F)
 
-> Posted on: Saturday, May 20, 2017 11:27:36 AM
+> Posted on: Saturday, May 20, 2017 12:23:43 PM
