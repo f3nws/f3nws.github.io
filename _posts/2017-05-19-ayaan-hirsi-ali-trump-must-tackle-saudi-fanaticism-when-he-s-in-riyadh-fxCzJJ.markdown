@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ayaan Hirsi Ali: Trump must tackle Saudi fanaticism when he's in Riyadh"
-date: 2017-05-19 20:30:01Z
+date: 2017-05-19 23:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump’s trip is an opportunity to fulfill a promise made on the camp
 
 Full story on F3News: [Ayaan Hirsi Ali: Trump must tackle Saudi fanaticism when he's in Riyadh](http://www.f3nws.com/n/fxCzJJ)
 
-> Posted on: Saturday, May 20, 2017 1:30:01 AM
+> Posted on: Saturday, May 20, 2017 4:00:00 AM
