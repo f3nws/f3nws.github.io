@@ -5,9 +5,9 @@ date: 2017-05-19 16:01:30Z
 categories: google-news-entertaintment
 ---
 
-![Fox News Fires 'The Five' Co-Host Bob Beckel Over Racist Comment - Variety](http://pmcvariety.files.wordpress.com/2017/05/bob-beckel-fired-from-fox-five.jpg?w=1000&h=563&crop=1)
+![Fox News Fires 'The Five' Co-Host Bob Beckel Over Racist Comment - Variety](https://pmcvariety.files.wordpress.com/2017/05/bob-beckel-fired-from-fox-five.jpg?w=1000&h=563&crop=1)
 
-Variety Fox News Fires 'The Five' Co-Host Bob Beckel Over Racist Comment Variety Fox News Channel is parting ways — again — with Bob Beckel, the co-host of its primetime program, “The Five.” “Bob Beckel was terminated today for making an insensitive remark to an African-American employee,” the network said in a statement. Fox News Fires 'The Five' Co-Host Bob Beckel – Again Deadline Roll Call Reporter Says FCC Security Pinned Him to a Wall New York Times Bob Beckel Fired From Fox News' 'The Five' After Racist Remark NBCNews.com EW.com - Los Angeles Times - CNNMoney - New York Daily News all 87 news articles »
+Variety Fox News Fires 'The Five' Co-Host Bob Beckel Over Racist Comment Variety Fox News Channel is parting ways — again — with Bob Beckel, the co-host of its primetime program, “The Five.” “Bob Beckel was terminated today for making an insensitive remark to an African-American employee,” the network said in a statement. Fox News Fires 'The Five' Co-Host Bob Beckel – Again Deadline Roll Call Reporter Says FCC Security Pinned Him to a Wall New York Times Bob Beckel Fired From Fox News' 'The Five' After Racist Remark NBCNews.com EW.com - Los Angeles Times - CNNMoney - New York Daily News all 88 news articles »
 
 
 Full story on F3News: [Fox News Fires 'The Five' Co-Host Bob Beckel Over Racist Comment - Variety](http://www.f3nws.com/n/sBceQJ)
