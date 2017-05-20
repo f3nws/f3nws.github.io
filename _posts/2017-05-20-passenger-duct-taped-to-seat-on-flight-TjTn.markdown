@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passenger 'duct taped to seat' on flight"
-date: 2017-05-20 03:03:24Z
+date: 2017-05-20 10:27:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man who caused a disturbance aboard an American Airlines flight from Los Angel
 
 Full story on F3News: [Passenger 'duct taped to seat' on flight](http://www.f3nws.com/n/TjTn)
 
-> Posted on: Saturday, May 20, 2017 8:03:24 AM
+> Posted on: Saturday, May 20, 2017 3:27:40 PM
