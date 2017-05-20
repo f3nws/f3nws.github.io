@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hassan Rouhani wins Iran's presidential election"
-date: 2017-05-20 08:30:00Z
+date: 2017-05-20 08:35:09Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Incumbent president wins with resounding majority, beating principlist rival Ebr
 
 Full story on F3News: [Hassan Rouhani wins Iran's presidential election](http://www.f3nws.com/n/MgDk4F)
 
-> Posted on: Saturday, May 20, 2017 1:30:00 PM
+> Posted on: Saturday, May 20, 2017 1:35:09 PM

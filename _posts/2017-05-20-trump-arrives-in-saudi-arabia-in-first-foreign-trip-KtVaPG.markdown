@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump arrives in Saudi Arabia in first foreign trip"
-date: 2017-05-20 07:29:56Z
+date: 2017-05-20 08:33:53Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ The US president is expected to announce a $100bn arms deal with the kingdom and
 
 Full story on F3News: [Trump arrives in Saudi Arabia in first foreign trip](http://www.f3nws.com/n/KtVaPG)
 
-> Posted on: Saturday, May 20, 2017 12:29:56 PM
+> Posted on: Saturday, May 20, 2017 1:33:53 PM
