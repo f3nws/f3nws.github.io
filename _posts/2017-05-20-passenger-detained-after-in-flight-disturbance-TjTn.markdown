@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passenger detained after in-flight disturbance"
-date: 2017-05-20 02:44:32Z
+date: 2017-05-20 03:03:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man who caused a disturbance aboard an American Airlines flight from Los Angel
 
 Full story on F3News: [Passenger detained after in-flight disturbance](http://www.f3nws.com/n/TjTn)
 
-> Posted on: Saturday, May 20, 2017 7:44:32 AM
+> Posted on: Saturday, May 20, 2017 8:03:24 AM
