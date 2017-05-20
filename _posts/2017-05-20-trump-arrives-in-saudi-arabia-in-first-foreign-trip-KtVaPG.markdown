@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump arrives in Saudi Arabia in first foreign trip"
-date: 2017-05-20 08:33:53Z
+date: 2017-05-20 09:53:27Z
 categories: al-jazeera-english
 ---
 
-![Trump arrives in Saudi Arabia in first foreign trip](http://www.aljazeera.com/mritems/Images/2017/5/20/ef68fd5238e845fb934e10acb4d49c30_18.jpg)
+![Trump arrives in Saudi Arabia in first foreign trip](http://www.aljazeera.com/mritems/Images/2017/5/20/2e6001a035af4180b3ef0aa26ceda80f_18.jpg)
 
-The US president is expected to announce a $100bn arms deal with the kingdom and give a speech on Islam.
+US president receives warm welcome by King Salman as he seeks to repair ties with Washington's closest Arab ally.
 
 
 Full story on F3News: [Trump arrives in Saudi Arabia in first foreign trip](http://www.f3nws.com/n/KtVaPG)
 
-> Posted on: Saturday, May 20, 2017 1:33:53 PM
+> Posted on: Saturday, May 20, 2017 2:53:27 PM
