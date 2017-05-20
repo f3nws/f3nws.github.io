@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran's Rouhani wins re-election in victory for moderates"
-date: 2017-05-20 11:56:42Z
+date: 2017-05-20 12:46:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Iran's Rouhani wins re-election in victory for moderates](http://www.f3nws.com/n/mTQMuG)
 
-> Posted on: Saturday, May 20, 2017 4:56:42 PM
+> Posted on: Saturday, May 20, 2017 5:46:03 PM
