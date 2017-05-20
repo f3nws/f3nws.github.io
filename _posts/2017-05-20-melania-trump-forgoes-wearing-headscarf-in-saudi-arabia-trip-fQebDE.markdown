@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump Forgoes Wearing Headscarf In Saudi Arabia Trip"
-date: 2017-05-20 19:00:02Z
+date: 2017-05-20 19:35:21Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Melania Trump Forgoes Wearing Headscarf In Saudi Arabia Trip](http://www.f3nws.com/n/fQebDE)
 
-> Posted on: Sunday, May 21, 2017 12:00:02 AM
+> Posted on: Sunday, May 21, 2017 12:35:21 AM
