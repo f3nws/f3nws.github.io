@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, dogged by controversy in DC, kicks off overseas trip in Saudi Arabia"
-date: 2017-05-20 15:04:59Z
+date: 2017-05-20 15:57:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has landed in Saudi Arabia for his first stop abroad sinc
 
 Full story on F3News: [Trump, dogged by controversy in DC, kicks off overseas trip in Saudi Arabia](http://www.f3nws.com/n/ZcH2pC)
 
-> Posted on: Saturday, May 20, 2017 8:04:59 PM
+> Posted on: Saturday, May 20, 2017 8:57:19 PM

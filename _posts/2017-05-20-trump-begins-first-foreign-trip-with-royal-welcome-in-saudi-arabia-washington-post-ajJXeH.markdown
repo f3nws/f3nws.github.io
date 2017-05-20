@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump begins first foreign trip with royal welcome in Saudi Arabia - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/20/National-Politics/Images/AFP_ON1F6.jpg)
 
-Washington Post Trump begins first foreign trip with royal welcome in Saudi Arabia Washington Post RIYADH, Saudi Arabia — President Trump was received like visiting royalty here Saturday, as his debut on the world stage competed for attention at home with ongoing news of the scandal encircling his presidency. In a series of official arrival ... POLITICO's must-read briefing on what's driving the day in Washington Politico With Harleys and Hamburgers, Saudis Salute US on Trump's Visit New York Times Melania and Ivanka Trump arrive in Saudi Arabia sans headscarves CNN Reuters - Fox News - The Hill - HuffPost all 1,806 news articles »
+Washington Post Trump begins first foreign trip with royal welcome in Saudi Arabia Washington Post RIYADH, Saudi Arabia — President Trump was received like visiting royalty here Saturday, as his debut on the world stage competed for attention at home with ongoing news of the scandal encircling his presidency. In a series of official arrival ... POLITICO's must-read briefing on what's driving the day in Washington Politico Melania and Ivanka Trump arrive in Saudi Arabia sans headscarves CNN Under fire at home, Trump wins warm welcome in Saudi Reuters New York Times - Fox News - The Hill - Los Angeles Times all 1,607 news articles »
 
 
 Full story on F3News: [Trump begins first foreign trip with royal welcome in Saudi Arabia - Washington Post](http://www.f3nws.com/n/ajJXeH)
