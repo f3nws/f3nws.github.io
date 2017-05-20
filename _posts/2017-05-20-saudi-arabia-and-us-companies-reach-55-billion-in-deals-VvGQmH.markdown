@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia and US companies reach $55 billion in deals"
-date: 2017-05-20 16:42:40Z
+date: 2017-05-20 21:31:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia announced more than $55 billion in deals with US companies Saturday
 
 Full story on F3News: [Saudi Arabia and US companies reach $55 billion in deals](http://www.f3nws.com/n/VvGQmH)
 
-> Posted on: Saturday, May 20, 2017 9:42:40 PM
+> Posted on: Sunday, May 21, 2017 2:31:33 AM
