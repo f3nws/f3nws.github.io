@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Armed Forces: Mentoring program matches veterans with private-sector bigwigs"
-date: 2017-05-20 16:30:01Z
+date: 2017-05-20 17:30:15Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ American Corporate Partners (ACP), a non-profit organization in New York City, i
 
 Full story on F3News: [Armed Forces: Mentoring program matches veterans with private-sector bigwigs](http://www.f3nws.com/n/NjJHa)
 
-> Posted on: Saturday, May 20, 2017 9:30:01 PM
+> Posted on: Saturday, May 20, 2017 10:30:15 PM

@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Rouhani Wins Re-election in Iran by a Wide Margin - New York Times"
-date: 2017-05-20 10:00:36Z
+date: 2017-05-20 16:23:21Z
 categories: google-news-top-stories
 ---
 
-![Rouhani Wins Re-election in Iran by a Wide Margin - New York Times](https://static01.nyt.com/images/2017/05/20/world/20Rouhani-A1/20Rouhani-A1-facebookJumbo.jpg)
+![Rouhani Wins Re-election in Iran by a Wide Margin - New York Times](https://static01.nyt.com/images/2017/05/21/world/21ROUHANI1/21ROUHANI1-facebookJumbo.jpg)
 
-New York Times Rouhani Wins Re-election in Iran by a Wide Margin New York Times President Hassan Rouhani of Iran on May 13. With most of the votes from Friday's election counted, the Interior Ministry said Mr. Rouhani had won 22.8 million. Credit Ebrahim Noroozi/Associated Press. TEHRAN — Riding a large turnout from Iran's urban ... The Latest: Nowegian FM welcomes Rouhani's re-election Washington Post Iran's Rouhani wins 2nd term by a wide margin Politico Iranians Demanding Change Deliver Emphatic Victory For Rouhani HuffPost NPR - Chicago Tribune - CNN - Bloomberg all 1,024 news articles »
+New York Times Rouhani Wins Re-election in Iran by a Wide Margin New York Times President Hassan Rouhani of Iran after delivering a televised speech in the capital, Tehran, on Saturday. Credit Atta Kenare/Agence France-Presse — Getty Images. TEHRAN — Riding a large turnout from Iran's urban middle classes, President Hassan ... Iranian President Rouhani wins reelection by a landslide Washington Post Iran election: Hassan Rouhani says voters rejected extremism BBC News Decisively re-elected, Rouhani defies hardliners, pledges to open Iran Reuters CNN - NPR - New York Daily News - The Atlantic all 1,180 news articles »
 
 
 Full story on F3News: [Rouhani Wins Re-election in Iran by a Wide Margin - New York Times](http://www.f3nws.com/n/ZbqKmG)
 
-> Posted on: Saturday, May 20, 2017 3:00:36 PM
+> Posted on: Saturday, May 20, 2017 9:23:21 PM

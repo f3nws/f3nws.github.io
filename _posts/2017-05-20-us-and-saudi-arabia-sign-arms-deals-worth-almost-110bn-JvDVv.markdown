@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US and Saudi Arabia sign arms deals worth almost $110bn"
-date: 2017-05-20 16:09:49Z
+date: 2017-05-20 17:13:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US Secretary of State says the arms agreements will help Saudi Arabia deal with 
 
 Full story on F3News: [US and Saudi Arabia sign arms deals worth almost $110bn](http://www.f3nws.com/n/JvDVv)
 
-> Posted on: Saturday, May 20, 2017 9:09:49 PM
+> Posted on: Saturday, May 20, 2017 10:13:15 PM

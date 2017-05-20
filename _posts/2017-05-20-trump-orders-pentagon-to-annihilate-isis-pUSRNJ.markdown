@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Trump Orders Pentagon To ‘Annihilate’ ISIS"
+date: 2017-05-20 17:30:11Z
+categories: fox-news
+---
+
+![Trump Orders Pentagon To ‘Annihilate’ ISIS](http://nation.foxnews.com/sites/nation.foxnews.com/files/styles/story_624_300/public/ISIS2-ap_5.jpg)
+
+
+
+
+Full story on F3News: [Trump Orders Pentagon To ‘Annihilate’ ISIS](http://www.f3nws.com/n/pUSRNJ)
+
+> Posted on: Saturday, May 20, 2017 10:30:11 PM

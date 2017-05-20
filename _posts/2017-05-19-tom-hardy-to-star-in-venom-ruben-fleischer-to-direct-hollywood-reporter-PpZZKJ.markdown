@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/05/tom_hardy_venom_and_ruben_fleischer_-_split_-_getty_-_h_2017.jpg)
 
-Hollywood Reporter Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct Hollywood Reporter The project is one of Sony's top priorities and the studio is not wasting time, as the movie is set to open Oct. 5, 2018. Sony has ensnared a star and director for its Spider-Man offshoot, Venom. Tom Hardy, who was nominated for an Oscar for his work ... This Is What Tom Hardy Could Look Like As Venom Comicbook.com Who is Venom? 5 things to know about everyone's favorite symbiote EW.com (blog) Tom Hardy Transforms Into Venom in New Fan Art Screen Rant Variety - Twitter all 172 news articles »
+Hollywood Reporter Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct Hollywood Reporter The project is one of Sony's top priorities and the studio is not wasting time, as the movie is set to open Oct. 5, 2018. Sony has ensnared a star and director for its Spider-Man offshoot, Venom. Tom Hardy, who was nominated for an Oscar for his work ... This Is What Tom Hardy Could Look Like As Venom Comicbook.com Sony's Marvel Universe won't actually connect to the Marvel Universe Polygon Who is Venom? 5 things to know about everyone's favorite symbiote EW.com (blog) Screen Rant - Variety - Twitter all 175 news articles »
 
 
 Full story on F3News: [Tom Hardy to Star in 'Venom,' Ruben Fleischer to Direct - Hollywood Reporter](http://www.f3nws.com/n/PpZZKJ)
