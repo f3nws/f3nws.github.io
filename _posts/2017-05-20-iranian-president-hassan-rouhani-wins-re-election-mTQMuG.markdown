@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iranian President Hassan Rouhani wins re-election"
-date: 2017-05-20 14:56:46Z
+date: 2017-05-20 17:33:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iranian President Hassan Rouhani handily won re-election in what amounts to a vi
 
 Full story on F3News: [Iranian President Hassan Rouhani wins re-election](http://www.f3nws.com/n/mTQMuG)
 
-> Posted on: Saturday, May 20, 2017 7:56:46 PM
+> Posted on: Saturday, May 20, 2017 10:33:53 PM

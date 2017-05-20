@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania and Ivanka Trump arrive in Saudi Arabia sans headscarves"
-date: 2017-05-20 16:29:07Z
+date: 2017-05-20 17:46:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ First lady Melania Trump and first daughter Ivanka Trump arrived in Riyadh, Saud
 
 Full story on F3News: [Melania and Ivanka Trump arrive in Saudi Arabia sans headscarves](http://www.f3nws.com/n/mb3xxC)
 
-> Posted on: Saturday, May 20, 2017 9:29:07 PM
+> Posted on: Saturday, May 20, 2017 10:46:53 PM

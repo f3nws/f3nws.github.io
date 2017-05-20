@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran high on the agenda on President Trump's first foreign trip"
-date: 2017-05-20 15:57:19Z
+date: 2017-05-20 17:41:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump was lavished with extravagant royal pomp here Saturday du
 
 Full story on F3News: [Iran high on the agenda on President Trump's first foreign trip](http://www.f3nws.com/n/ZcH2pC)
 
-> Posted on: Saturday, May 20, 2017 8:57:19 PM
+> Posted on: Saturday, May 20, 2017 10:41:58 PM
