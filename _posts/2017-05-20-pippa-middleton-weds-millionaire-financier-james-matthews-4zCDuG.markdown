@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pippa Middleton weds millionaire financier James Matthews"
-date: 2017-05-20 13:56:06Z
+date: 2017-05-20 14:10:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Royalty and celebrities gathered Saturday to watch as Philippa Charlotte "Pippa"
 
 Full story on F3News: [Pippa Middleton weds millionaire financier James Matthews](http://www.f3nws.com/n/4zCDuG)
 
-> Posted on: Saturday, May 20, 2017 6:56:06 PM
+> Posted on: Saturday, May 20, 2017 7:10:56 PM

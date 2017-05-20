@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Pippa Middleton's wedding: Royals and celebrities at ceremony - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/640D/production/_96131652_pippa_afp.jpg)
 
-BBC News Pippa Middleton's wedding: Royals and celebrities at ceremony BBC News Guests including the Duke and Duchess of Cambridge have attended the wedding of Pippa Middleton and James Matthews. Miss Middleton, 33, who is the younger sister of the duchess, married 41-year-old Mr Matthews at St Mark's Church in Englefield, ... Pippa Middleton marries in lavish, semi-royal wedding USA TODAY Adorable Prince George, Princess Charlotte take part in Pippa Middleton's wedding ABC News Here's What Kate Middleton Wore to Sister Pippa Middleton's Wedding E! Online Washington Post - Today.com all 641 news articles »
+BBC News Pippa Middleton's wedding: Royals and celebrities at ceremony BBC News Guests including the Duke and Duchess of Cambridge have attended the wedding of Pippa Middleton and James Matthews. Miss Middleton, 33, who is the younger sister of the duchess, married 41-year-old Mr Matthews at St Mark's Church in Englefield, ... The Latest: 2 future British kings attend Pippa's wedding Washington Post Adorable Prince George, Princess Charlotte take part in Pippa Middleton's wedding ABC News Here's What Kate Middleton Wore to Sister Pippa Middleton's Wedding E! Online Daily Beast - Us Weekly - Hollywood Life - New York Daily News all 674 news articles »
 
 
 Full story on F3News: [Pippa Middleton's wedding: Royals and celebrities at ceremony - BBC News](http://www.f3nws.com/n/nqRMmH)
