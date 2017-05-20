@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bernie Madoff's closest prison pal is a crime-family boss - New York Post](https://thenypost.files.wordpress.com/2017/05/85392977.jpg?quality=90&strip=all&w=1200)
 
-New York Post Bernie Madoff's closest prison pal is a crime-family boss New York Post Shortly after Bernie Madoff arrived in prison, at the start of a 150-year sentence, the mastermind behind the largest fraud in financial history was slapped across the face. Madoff was closely following the way his case was being reported in the media ... 'The Wizard of Lies': Oregon's Laurence Bennett on bringing Bernie Madoff's world to life OregonLive.com Robert De Niro, Michelle Pfeiffer wrestle with the tragic tale of Bernie Madoff in HBO's 'Wizard of Lies' Los Angeles Times Barry Levinson Talks 'The Wizard of Lies' and Getting to the Truth of Bernie Madoff Collider.com Salon - HBO.com all 86 news articles »
+New York Post Bernie Madoff's closest prison pal is a crime-family boss New York Post Shortly after Bernie Madoff arrived in prison, at the start of a 150-year sentence, the mastermind behind the largest fraud in financial history was slapped across the face. Madoff was closely following the way his case was being reported in the media ... 'The Wizard of Lies': Oregon's Laurence Bennett on bringing Bernie Madoff's world to life OregonLive.com Robert De Niro, Michelle Pfeiffer wrestle with the tragic tale of Bernie Madoff in HBO's 'Wizard of Lies' Los Angeles Times Barry Levinson Talks 'The Wizard of Lies' and Getting to the Truth of Bernie Madoff Collider.com HBO.com all 86 news articles »
 
 
 Full story on F3News: [Bernie Madoff's closest prison pal is a crime-family boss - New York Post](http://www.f3nws.com/n/KCWPUC)
