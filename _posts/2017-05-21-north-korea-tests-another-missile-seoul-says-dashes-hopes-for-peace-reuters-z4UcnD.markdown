@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "North Korea tests another missile; Seoul says dashes hopes for peace - Reuters"
-date: 2017-05-21 12:49:00Z
+date: 2017-05-21 16:29:06Z
 categories: google-news-top-stories
 ---
 
 ![North Korea tests another missile; Seoul says dashes hopes for peace - Reuters](http://s4.reutersmedia.net/resources/r/?m=02&d=20170521&t=2&i=1185611394&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED4K0GU)
 
-Reuters North Korea tests another missile; Seoul says dashes hopes for peace Reuters North Korean leader Kim Jong Un waves to North Korean scientists and technicians, who developed missile 'Hwasong-12' in this undated photo released by North Korea's Korean Central News Agency (KCNA) May 20, 2017. KCNA/via REUTERS. 1/2. left. North Korea fires medium-range missile in latest test CBS News North Korea Fires Medium-Range Ballistic Missile New York Times North Korea fires ballistic missile CNN BBC News - Bloomberg - Fox News - NBCNews.com all 548 news articles »
+Reuters North Korea tests another missile; Seoul says dashes hopes for peace Reuters SEOUL North Korea fired a ballistic missile into waters off its east coast on Sunday, its second missile test in a week, which South Korea said dashed the hopes of the South's new liberal government for peace between the neighbors. A South Korean ... North Korea fires second ballistic missile in a week CNN Why North Korea Keeps Launching Missile Tests and What Trump's Going to Do About It Newsweek North Korea Fires Medium-Range Missile in Latest Weapon Test U.S. News & World Report Military Times - Fox News - Business Insider - Chicago Tribune all 803 news articles »
 
 
 Full story on F3News: [North Korea tests another missile; Seoul says dashes hopes for peace - Reuters](http://www.f3nws.com/n/z4UcnD)
 
-> Posted on: Sunday, May 21, 2017 5:49:00 PM
+> Posted on: Sunday, May 21, 2017 9:29:06 PM
