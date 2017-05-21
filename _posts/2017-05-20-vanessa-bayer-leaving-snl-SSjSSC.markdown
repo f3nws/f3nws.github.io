@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vanessa Bayer leaving 'SNL'"
-date: 2017-05-20 22:35:17Z
+date: 2017-05-20 23:20:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Vanessa Bayer leaving 'SNL'](http://www.f3nws.com/n/SSjSSC)
 
-> Posted on: Sunday, May 21, 2017 3:35:17 AM
+> Posted on: Sunday, May 21, 2017 4:20:21 AM
