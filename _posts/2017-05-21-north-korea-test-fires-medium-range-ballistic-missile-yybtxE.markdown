@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea test fires medium-range ballistic missile"
-date: 2017-05-21 11:13:03Z
+date: 2017-05-21 11:36:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an unidentified projectile from areas near Pukchang in North K
 
 Full story on F3News: [North Korea test fires medium-range ballistic missile](http://www.f3nws.com/n/yybtxE)
 
-> Posted on: Sunday, May 21, 2017 4:13:03 PM
+> Posted on: Sunday, May 21, 2017 4:36:33 PM

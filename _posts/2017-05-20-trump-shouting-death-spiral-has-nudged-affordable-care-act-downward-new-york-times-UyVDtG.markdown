@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump, Shouting 'Death Spiral,' Has Nudged Affordable Care Act Downward - New York Times](https://static01.nyt.com/images/2017/05/21/us/21health/21health-facebookJumbo.jpg)
 
-New York Times Trump, Shouting 'Death Spiral,' Has Nudged Affordable Care Act Downward New York Times A mobile dental and medical clinic in Milton, Fla., in December. The Trump administration has sent mixed signals about the fate of federal “cost-sharing” subsidies to insurers. Credit Spencer Platt/Getty Images. WASHINGTON — When Aetna, the health ... Keep kids off the negotiating table in Medicaid reform The Hill (blog) Trump tells advisers he wants to end key Obamacare subsidies Politico Health insurers plan big Obamacare rate hikes — and they blame Trump Los Angeles Times all 310 news articles »
+New York Times Trump, Shouting 'Death Spiral,' Has Nudged Affordable Care Act Downward New York Times A mobile dental and medical clinic in Milton, Fla., in December. The Trump administration has sent mixed signals about the fate of federal “cost-sharing” subsidies to insurers. Credit Spencer Platt/Getty Images. WASHINGTON — When Aetna, the health ... Fate of Obamacare's exchanges could come Monday Washington Examiner With all eyes on Trump, GOP Congress is still working to strip health care from millions Salon Trump tells advisers he wants to end key Obamacare subsidies Politico Los Angeles Times all 317 news articles »
 
 
 Full story on F3News: [Trump, Shouting 'Death Spiral,' Has Nudged Affordable Care Act Downward - New York Times](http://www.f3nws.com/n/UyVDtG)

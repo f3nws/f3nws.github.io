@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump bounces along to Saudi sword dance"
-date: 2017-05-21 09:54:00Z
+date: 2017-05-21 11:53:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and other male White House officials bounced along to a c
 
 Full story on F3News: [Trump bounces along to Saudi sword dance](http://www.f3nws.com/n/dntaGC)
 
-> Posted on: Sunday, May 21, 2017 2:54:00 PM
+> Posted on: Sunday, May 21, 2017 4:53:37 PM
