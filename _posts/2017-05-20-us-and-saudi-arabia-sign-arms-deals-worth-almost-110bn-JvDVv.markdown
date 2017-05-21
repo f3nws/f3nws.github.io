@@ -5,7 +5,7 @@ date: 2017-05-20 17:13:15Z
 categories: al-jazeera-english
 ---
 
-![US and Saudi Arabia sign arms deals worth almost $110bn](http://www.aljazeera.com/mritems/Images/2017/5/20/10595e264ec643758a30b8b69234d566_18.jpg)
+![US and Saudi Arabia sign arms deals worth almost $110bn](http://www.aljazeera.com/mritems/Images/2017/5/21/05c5d792d7cc49cf8cb2c8e8a6d45726_18.jpg)
 
 US Secretary of State says the arms agreements will help Saudi Arabia deal with 'malign Iranian influence'.
 
