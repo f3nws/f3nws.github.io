@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump seeks to win over Muslims with Islam speech"
-date: 2017-05-21 08:11:52Z
+date: 2017-05-21 10:55:55Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ After saying 'Islam hates us' and calling for a Muslim travel ban, Trump seeks t
 
 Full story on F3News: [Trump seeks to win over Muslims with Islam speech](http://www.f3nws.com/n/UZmZME)
 
-> Posted on: Sunday, May 21, 2017 1:11:52 PM
+> Posted on: Sunday, May 21, 2017 3:55:55 PM
