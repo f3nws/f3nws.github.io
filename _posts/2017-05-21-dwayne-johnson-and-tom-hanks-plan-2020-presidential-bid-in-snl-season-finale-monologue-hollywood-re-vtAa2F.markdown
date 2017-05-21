@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Dwayne Johnson and Tom Hanks Plan 2020 Presidential Bid in 'SNL' Season Finale Monologue - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/05/snl_monologue.jpg)
 
-Hollywood Reporter Dwayne Johnson and Tom Hanks Plan 2020 Presidential Bid in 'SNL' Season Finale Monologue Hollywood Reporter Dwayne Johnson's possible bid for the 2020 presidential race nearly became a reality on the season 42 finale of Saturday Night Live. Johnson, who hosted the May 20 episode, used his monologue to address all of the recent speculation and (jokingly) ... Dwayne 'The Rock' Johnson, Tom Hanks 'partner' for 2020 presidential race USA TODAY SNL says bye to Trump, introduces Dwayne Johnson's fake prez bid New York Daily News 'SNL': Dwayne Johnson Announces Run For Pres With Tom Hanks, More Or Less Deadline Parade - EW.com (blog) - AZCentral.com - HuffPost all 151 news articles »
+Hollywood Reporter Dwayne Johnson and Tom Hanks Plan 2020 Presidential Bid in 'SNL' Season Finale Monologue Hollywood Reporter Dwayne Johnson's possible bid for the 2020 presidential race nearly became a reality on the season 42 finale of Saturday Night Live. Johnson, who hosted the May 20 episode, used his monologue to address all of the recent speculation and (jokingly) ... 'America Needs Us': Johnson And Hanks Announce Presidential Bid On 'SNL' NPR Saturday Night Live (Photo: Will Heath/NBC) A.V. Club (blog) Dwayne 'The Rock' Johnson, Tom Hanks 'partner' for 2020 presidential race USA TODAY Parade - YouTube - GQ Magazine - Public Policy Polling all 159 news articles »
 
 
 Full story on F3News: [Dwayne Johnson and Tom Hanks Plan 2020 Presidential Bid in 'SNL' Season Finale Monologue - Hollywood Reporter](http://www.f3nws.com/n/vtAa2F)

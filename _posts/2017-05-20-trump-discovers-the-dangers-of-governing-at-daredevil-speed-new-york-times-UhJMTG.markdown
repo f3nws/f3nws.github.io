@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Trump Discovers the Dangers of Governing at Daredevil Speed - New York Times](https://static01.nyt.com/images/2017/05/21/us/21Memo/21Memo-facebookJumbo.jpg)
 
-New York Times Trump Discovers the Dangers of Governing at Daredevil Speed New York Times White House aides want President Trump to calm down, spend less time on Twitter and avoid making decisions too quickly. Credit Doug Mills/The New York Times. WASHINGTON — President Trump was determined to leave his mark on Washington quickly. Donald Trump's history doing business in the Middle East ABC Online We May Never See Another Professional President Forbes Trump trip to Saudi Arabia, Israel, Europe: what could go wrong? The Australian The Atlantic - CBC.ca - Haaretz - Raw Story all 349 news articles »
+New York Times Trump Discovers the Dangers of Governing at Daredevil Speed New York Times White House aides want President Trump to calm down, spend less time on Twitter and avoid making decisions too quickly. Credit Doug Mills/The New York Times. WASHINGTON — President Trump was determined to leave his mark on Washington quickly. West Wing aides brace for big attorney bills Politico There are lots of ways to get to impeachment CNN all 230 news articles »
 
 
 Full story on F3News: [Trump Discovers the Dangers of Governing at Daredevil Speed - New York Times](http://www.f3nws.com/n/UhJMTG)
