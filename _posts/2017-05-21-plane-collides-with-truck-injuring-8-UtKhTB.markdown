@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plane collides with truck, injuring 8"
-date: 2017-05-21 03:45:38Z
+date: 2017-05-21 14:21:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A passenger jet taxiing to its gate at Los Angeles International Airport collide
 
 Full story on F3News: [Plane collides with truck, injuring 8](http://www.f3nws.com/n/UtKhTB)
 
-> Posted on: Sunday, May 21, 2017 8:45:38 AM
+> Posted on: Sunday, May 21, 2017 7:21:05 PM
