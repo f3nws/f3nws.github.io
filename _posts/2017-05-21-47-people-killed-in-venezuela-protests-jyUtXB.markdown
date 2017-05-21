@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "47 people killed in Venezuela protests"
-date: 2017-05-21 11:29:39Z
+date: 2017-05-21 18:51:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Massive demonstrations, violence and a rising death toll marked 50 consecutive d
 
 Full story on F3News: [47 people killed in Venezuela protests](http://www.f3nws.com/n/jyUtXB)
 
-> Posted on: Sunday, May 21, 2017 4:29:39 PM
+> Posted on: Sunday, May 21, 2017 11:51:53 PM
