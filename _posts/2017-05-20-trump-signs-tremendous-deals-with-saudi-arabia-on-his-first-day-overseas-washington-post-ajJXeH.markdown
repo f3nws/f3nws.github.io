@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump signs 'tremendous' deals with Saudi Arabia on his first day overseas - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/20/National-Politics/Images/AFP_ON1F6.jpg)
 
-Washington Post Trump signs 'tremendous' deals with Saudi Arabia on his first day overseas Washington Post RIYADH, Saudi Arabia — President Trump made a splashy debut on the world stage here Saturday, ushering in a new era in U.S.-Saudi Arabian relations by signing a joint “strategic vision” that includes $110 billion in American arms sales and other new ... Fanfare And Deals Dominate Trump's First Day In Saudi Arabia NPR A tale of two princes: a king's son and a president's son-in-law drive Trump's visit Los Angeles Times Corporate A-Listers Descend on Riyadh for Trump's CEO Summit Bloomberg CNN - CBS News - The Hill (blog) - NBCNews.com all 2,287 news articles »
+Washington Post Trump signs 'tremendous' deals with Saudi Arabia on his first day overseas Washington Post RIYADH, Saudi Arabia — President Trump made a splashy debut on the world stage here Saturday, ushering in a new era in U.S.-Saudi Arabian relations by signing a joint “strategic vision” that includes $110 billion in American arms sales and other new ... Fanfare And Deals Dominate Trump's First Day In Saudi Arabia NPR A tale of two princes: a king's son and a president's son-in-law drive Trump's visit Los Angeles Times Partisans bend to label Trump's 'bow' CNN Bloomberg - CBS News - Politico - Miami Herald all 2,278 news articles »
 
 
 Full story on F3News: [Trump signs 'tremendous' deals with Saudi Arabia on his first day overseas - Washington Post](http://www.f3nws.com/n/ajJXeH)
