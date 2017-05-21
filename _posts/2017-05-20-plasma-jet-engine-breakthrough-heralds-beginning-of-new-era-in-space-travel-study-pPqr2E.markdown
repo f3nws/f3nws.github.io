@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plasma jet engine breakthrough heralds beginning of new era in space travel - study"
-date: 2017-05-20 16:05:16Z
+date: 2017-05-20 16:05:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A major new breakthrough in jet propulsion technology could revolutionize the ae
 
 Full story on F3News: [Plasma jet engine breakthrough heralds beginning of new era in space travel - study](http://www.f3nws.com/n/pPqr2E)
 
-> Posted on: Saturday, May 20, 2017 9:05:16 PM
+> Posted on: Saturday, May 20, 2017 9:05:00 PM
