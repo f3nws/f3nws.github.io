@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple should be afraid of Google. Very afraid     - CNET"
-date: 2017-05-21 12:00:06Z
+date: 2017-05-21 16:27:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Google is crushing Siri and dominating the smart home, but Apple has
 
 Full story on F3News: [Apple should be afraid of Google. Very afraid     - CNET](http://www.f3nws.com/n/yDZxRG)
 
-> Posted on: Sunday, May 21, 2017 5:00:06 PM
+> Posted on: Sunday, May 21, 2017 9:27:57 PM

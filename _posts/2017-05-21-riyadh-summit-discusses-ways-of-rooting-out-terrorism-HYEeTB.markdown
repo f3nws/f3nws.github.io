@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Riyadh summit discusses ways of rooting out terrorism"
-date: 2017-05-21 16:24:03Z
+date: 2017-05-21 16:44:55Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Arab-Islamic-American summit condemns perpetrators that commit terrorist acts in
 
 Full story on F3News: [Riyadh summit discusses ways of rooting out terrorism](http://www.f3nws.com/n/HYEeTB)
 
-> Posted on: Sunday, May 21, 2017 9:24:03 PM
+> Posted on: Sunday, May 21, 2017 9:44:55 PM

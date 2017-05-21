@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Absolute duty of all countries to rid terrorism from their soil: Donald Trump at US-Islam summit](http://timesofindia.indiatimes.com/photo/msid-58777510/58777510.jpg?100434)
 
-US President Donald Trump on Sunday said it was the absolute duty of all countries to rid terrorism from their soil and called for "a coalition of nations" in the Middle East to stamp out this scourge.
+In his address to the Arab-Islamic American Summit in Riyadh, Trump told Muslim leaders of the world that his message was one of "friendship, hope and love", while also making it clear that Muslim-majority countries must now take the lead in the battle against radicalization.
 
 
 Full story on F3News: [Absolute duty of all countries to rid terrorism from their soil: Donald Trump at US-Islam summit](http://www.f3nws.com/n/cHBCtH)
