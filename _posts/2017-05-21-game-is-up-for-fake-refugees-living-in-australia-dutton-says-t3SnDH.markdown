@@ -5,7 +5,7 @@ date: 2017-05-21 00:24:49Z
 categories: google-news-australia
 ---
 
-!['Game is up' for 'fake refugees' living in Australia, Dutton says](http://www.abc.net.au/news/image/8479466-1x1-700x700.jpg)
+!['Game is up' for 'fake refugees' living in Australia, Dutton says](http://www.abc.net.au/news/image/8545144-1x1-700x700.jpg)
 
 Immigration Minister Peter Dutton gives 7,500 asylum seekers living in Australia until October 1 to lodge an application for processing, or they will be cut off from Government payments, subject to removal, and banned from re-entering the country.
 
