@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twenty policemen, dozens of Taliban killed in Shah Joi"
-date: 2017-05-21 08:53:57Z
+date: 2017-05-21 13:06:46Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 20 officers, dozens of fighters dead in violence sweeping southern Shah
 
 Full story on F3News: [Twenty policemen, dozens of Taliban killed in Shah Joi](http://www.f3nws.com/n/mQVXuG)
 
-> Posted on: Sunday, May 21, 2017 1:53:57 PM
+> Posted on: Sunday, May 21, 2017 6:06:46 PM
