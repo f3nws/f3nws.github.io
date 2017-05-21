@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans Fearing For Their Safety As Anger, Threats Mount"
-date: 2017-05-21 19:30:09Z
+date: 2017-05-21 20:25:14Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Republicans Fearing For Their Safety As Anger, Threats Mount](http://www.f3nws.com/n/FQjmgF)
 
-> Posted on: Monday, May 22, 2017 12:30:09 AM
+> Posted on: Monday, May 22, 2017 1:25:14 AM
