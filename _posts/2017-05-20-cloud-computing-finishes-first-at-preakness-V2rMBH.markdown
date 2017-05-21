@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cloud Computing finishes first at Preakness"
-date: 2017-05-20 23:25:29Z
+date: 2017-05-20 23:53:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Cloud Computing, ridden by Javier Castellano, finished first in the Preakness St
 
 Full story on F3News: [Cloud Computing finishes first at Preakness](http://www.f3nws.com/n/V2rMBH)
 
-> Posted on: Sunday, May 21, 2017 4:25:29 AM
+> Posted on: Sunday, May 21, 2017 4:53:10 AM

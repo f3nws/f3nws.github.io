@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Vanessa Bayer to Depart 'SNL' After 7 Seasons - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/05/vanessa_bayer.jpg)
 
-Hollywood Reporter Vanessa Bayer to Depart 'SNL' After 7 Seasons Hollywood Reporter Vanessa Bayer is leaving Saturday Night Live after a seven year stint on the longrunning late night sketch comedy program, a source confirmed to The Hollywood Reporter. Bayer, the longest serving current female castmember, joined SNL as a featured ... Vanessa Bayer Says Goodbye to Saturday Night Live After 7 Years: 'It's Been a Dream Come True' PEOPLE.com Vanessa Bayer Leaving 'Saturday Night Live' After 7 Seasons Deadline Vanessa Bayer leaving 'SNL' CNN EW.com (blog) - E! Online - UPROXX - Variety all 180 news articles »
+Hollywood Reporter Vanessa Bayer to Depart 'SNL' After 7 Seasons Hollywood Reporter Vanessa Bayer is leaving Saturday Night Live after a seven year stint on the longrunning late night sketch comedy program, a source confirmed to The Hollywood Reporter. Bayer, the longest serving current female castmember, joined SNL as a featured ... Vanessa Bayer Says Goodbye to Saturday Night Live After 7 Years: 'It's Been a Dream Come True' PEOPLE.com Vanessa Bayer Leaving 'Saturday Night Live' After 7 Seasons Deadline Vanessa Bayer Exits 'Saturday Night Live' After Seven Seasons Variety EW.com (blog) - CNN - E! Online - UPROXX all 184 news articles »
 
 
 Full story on F3News: [Vanessa Bayer to Depart 'SNL' After 7 Seasons - Hollywood Reporter](http://www.f3nws.com/n/guWTRE)
