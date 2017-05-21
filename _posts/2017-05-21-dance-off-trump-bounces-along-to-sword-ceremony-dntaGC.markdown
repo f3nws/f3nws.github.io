@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dance-off: Trump bounces along to sword ceremony"
-date: 2017-05-21 11:53:37Z
+date: 2017-05-21 15:43:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and other male White House officials bounced along to a c
 
 Full story on F3News: [Dance-off: Trump bounces along to sword ceremony](http://www.f3nws.com/n/dntaGC)
 
-> Posted on: Sunday, May 21, 2017 4:53:37 PM
+> Posted on: Sunday, May 21, 2017 8:43:50 PM
