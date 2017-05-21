@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huge marches as Venezuela marks 50 days of protest"
-date: 2017-05-21 06:52:17Z
+date: 2017-05-21 07:30:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Protesters take to Venezuela's streets to mark 50 days of protests against Presi
 
 Full story on F3News: [Huge marches as Venezuela marks 50 days of protest](http://www.f3nws.com/n/P2SYxD)
 
-> Posted on: Sunday, May 21, 2017 11:52:17 AM
+> Posted on: Sunday, May 21, 2017 12:30:33 PM
