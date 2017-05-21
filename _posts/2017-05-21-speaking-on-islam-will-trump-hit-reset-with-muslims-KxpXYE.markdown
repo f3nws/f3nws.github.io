@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Speaking on Islam, will Trump hit reset with Muslims?"
-date: 2017-05-21 08:31:49Z
+date: 2017-05-21 09:28:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A month after Donald Trump called for a "total and complete shutdown" of Muslims
 
 Full story on F3News: [Speaking on Islam, will Trump hit reset with Muslims?](http://www.f3nws.com/n/KxpXYE)
 
-> Posted on: Sunday, May 21, 2017 1:31:49 PM
+> Posted on: Sunday, May 21, 2017 2:28:04 PM
