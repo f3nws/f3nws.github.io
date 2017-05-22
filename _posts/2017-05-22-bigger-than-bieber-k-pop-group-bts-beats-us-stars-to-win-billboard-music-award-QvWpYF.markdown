@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bigger than Bieber? K-pop group BTS beats US stars to win Billboard Music Award"
-date: 2017-05-22 07:14:54Z
+date: 2017-05-22 12:23:50Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The name BTS may not be familiar to the majority of Americans, but that didn't s
 
 Full story on F3News: [Bigger than Bieber? K-pop group BTS beats US stars to win Billboard Music Award](http://www.f3nws.com/n/QvWpYF)
 
-> Posted on: Monday, May 22, 2017 12:14:54 PM
+> Posted on: Monday, May 22, 2017 5:23:50 PM
