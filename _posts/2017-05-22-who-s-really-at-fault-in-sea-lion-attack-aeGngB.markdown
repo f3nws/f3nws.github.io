@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who's really at fault in sea lion attack"
-date: 2017-05-22 21:04:11Z
+date: 2017-05-22 22:53:02Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A little girl was dragged from a pier by a sea lion before being rescued. It's a
 
 Full story on F3News: [Who's really at fault in sea lion attack](http://www.f3nws.com/n/aeGngB)
 
-> Posted on: Tuesday, May 23, 2017 2:04:11 AM
+> Posted on: Tuesday, May 23, 2017 3:53:02 AM

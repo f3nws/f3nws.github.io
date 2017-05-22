@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "​History rewritten, with Europe the birthplace of mankind     - CNET"
-date: 2017-05-22 21:15:29Z
+date: 2017-05-22 21:47:31Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It looks like we humans may have evolved from an ape-like creature found in Bulg
 
 Full story on F3News: [​History rewritten, with Europe the birthplace of mankind     - CNET](http://www.f3nws.com/n/BcAKDJ)
 
-> Posted on: Tuesday, May 23, 2017 2:15:29 AM
+> Posted on: Tuesday, May 23, 2017 2:47:31 AM
