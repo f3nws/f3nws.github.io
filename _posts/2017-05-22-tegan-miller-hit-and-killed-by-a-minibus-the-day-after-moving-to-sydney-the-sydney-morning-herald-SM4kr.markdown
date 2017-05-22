@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tegan Miller hit and killed by a minibus the day after moving to Sydney - The Sydney Morning Herald"
-date: 2017-05-22 06:13:16Z
+date: 2017-05-22 07:41:35Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Tegan Miller hit and killed by a minibus the day after
 
 Full story on F3News: [Tegan Miller hit and killed by a minibus the day after moving to Sydney - The Sydney Morning Herald](http://www.f3nws.com/n/SM4kr)
 
-> Posted on: Monday, May 22, 2017 11:13:16 AM
+> Posted on: Monday, May 22, 2017 12:41:35 PM
