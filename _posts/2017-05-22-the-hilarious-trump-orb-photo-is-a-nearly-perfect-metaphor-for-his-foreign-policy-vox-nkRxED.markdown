@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![The hilarious Trump orb photo is a nearly perfect metaphor for his foreign policy - Vox](https://cdn0.vox-cdn.com/thumbor/oJr12UmT5n0bh20PIGa87i9qgoY=/0x0:960x503/fit-in/1200x630/cdn0.vox-cdn.com/uploads/chorus_asset/file/8557453/DAX_J45UMAAJ410.jpg)
 
-Vox The hilarious Trump orb photo is a nearly perfect metaphor for his foreign policy Vox There is one picture from Donald Trump's trip to the Middle East that has come to stand in for the entire thing. It is a photo of Trump, Saudi King Salman bin Abdulaziz, and Egyptian President Abdel Fattah el-Sisi holding a creepy glowing orb in a ... The real story behind Trump's glowing orb CNN Behold! President Trump and the mysterious glowing orb. Washington Post What was that white orb Trump was touching? The Boston Globe CBS News - NPR - CTV News - Business Insider all 76 news articles »
+Vox The hilarious Trump orb photo is a nearly perfect metaphor for his foreign policy Vox There is one picture from Donald Trump's trip to the Middle East that has come to stand in for the entire thing. It is a photo of Trump, Saudi King Salman bin Abdulaziz, and Egyptian President Abdel Fattah el-Sisi holding a creepy glowing orb in a ... The real story behind Trump's glowing orb CNN Behold! President Trump and the mysterious glowing orb. Washington Post What was that white orb Trump was touching? The Boston Globe CBS News - CTV News - NPR - The Atlantic all 91 news articles »
 
 
 Full story on F3News: [The hilarious Trump orb photo is a nearly perfect metaphor for his foreign policy - Vox](http://www.f3nws.com/n/nkRxED)

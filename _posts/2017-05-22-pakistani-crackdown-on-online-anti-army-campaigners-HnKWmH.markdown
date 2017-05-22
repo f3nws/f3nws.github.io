@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistani crackdown on online anti-army campaigners"
-date: 2017-05-22 13:21:02Z
+date: 2017-05-22 20:39:11Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Pakistan Tehreek-e-Insaaf party to sue government over detention of at least 23 
 
 Full story on F3News: [Pakistani crackdown on online anti-army campaigners](http://www.f3nws.com/n/HnKWmH)
 
-> Posted on: Monday, May 22, 2017 6:21:02 PM
+> Posted on: Tuesday, May 23, 2017 1:39:11 AM

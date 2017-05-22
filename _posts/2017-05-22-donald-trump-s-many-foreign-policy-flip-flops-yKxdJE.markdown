@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump's many foreign policy flip-flops"
-date: 2017-05-22 20:16:58Z
+date: 2017-05-22 20:40:50Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is winning kudos for the start of his nine-day foreign tr
 
 Full story on F3News: [Donald Trump's many foreign policy flip-flops](http://www.f3nws.com/n/yKxdJE)
 
-> Posted on: Tuesday, May 23, 2017 1:16:58 AM
+> Posted on: Tuesday, May 23, 2017 1:40:50 AM

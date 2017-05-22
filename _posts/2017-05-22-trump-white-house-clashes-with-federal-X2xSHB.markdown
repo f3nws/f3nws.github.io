@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump White House clashes with federal..."
-date: 2017-05-22 15:20:43Z
+date: 2017-05-22 15:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Donald Trump is issuing secret waivers to lobbyists to work in his administratio
 
 Full story on F3News: [Trump White House clashes with federal...](http://www.f3nws.com/n/X2xSHB)
 
-> Posted on: Monday, May 22, 2017 8:20:43 PM
+> Posted on: Monday, May 22, 2017 8:20:00 PM

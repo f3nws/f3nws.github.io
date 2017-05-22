@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dwayne 'The Rock' Johnson for President? All Kidding Aside, Maybe He's Trolling Us All"
-date: 2017-05-22 20:00:09Z
+date: 2017-05-22 21:00:05Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Dwayne 'The Rock' Johnson for President? All Kidding Aside, Maybe He's Trolling Us All](http://www.f3nws.com/n/MZZTzB)
 
-> Posted on: Tuesday, May 23, 2017 1:00:09 AM
+> Posted on: Tuesday, May 23, 2017 2:00:05 AM
