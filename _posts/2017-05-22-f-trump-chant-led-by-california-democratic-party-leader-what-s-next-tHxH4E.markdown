@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'F*** Trump' Chant Led By California Democratic Party Leader: What's Next?"
-date: 2017-05-22 21:00:07Z
+date: 2017-05-22 21:30:12Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: ['F*** Trump' Chant Led By California Democratic Party Leader: What's Next?](http://www.f3nws.com/n/tHxH4E)
 
-> Posted on: Tuesday, May 23, 2017 2:00:07 AM
+> Posted on: Tuesday, May 23, 2017 2:30:12 AM
