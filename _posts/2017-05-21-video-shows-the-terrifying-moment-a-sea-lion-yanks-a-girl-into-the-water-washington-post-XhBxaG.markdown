@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Video shows the terrifying moment a sea lion yanks a girl into the water - Washington Post"
+date: 2017-05-21 21:41:01Z
+categories: google-news-top-stories
+---
+
+![Video shows the terrifying moment a sea lion yanks a girl into the water - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/news/animalia/wp-content/uploads/sites/56/2017/05/sea-lion.jpg&w=1484&op=resize&opt=1&filter=antialias)
+
+Washington Post Video shows the terrifying moment a sea lion yanks a girl into the water Washington Post The first part of a now-viral video shows a sea lion swimming near a dock in Steveston, a seaside community on Canada's western coast. The sound of cameras clicking can be heard in the background as onlookers marveled at its size. The animal swims ... Dramatic Video Captures Sea Lion Dragging Little Girl Into Water From Pier NBCNews.com Sea lion grabs girl and pulls her into water CNN Man saves girl after sea lion drags her into the water SB Nation HuffPost - YouTube - CBC.ca - Vancouver Sun all 225 news articles »
+
+
+Full story on F3News: [Video shows the terrifying moment a sea lion yanks a girl into the water - Washington Post](http://www.f3nws.com/n/XhBxaG)
+
+> Posted on: Monday, May 22, 2017 2:41:01 AM
