@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea's latest missile test 'perfect,' Kim says"
-date: 2017-05-22 03:19:24Z
+date: 2017-05-22 04:56:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an unidentified projectile from areas near Pukchang in North K
 
 Full story on F3News: [North Korea's latest missile test 'perfect,' Kim says](http://www.f3nws.com/n/yybtxE)
 
-> Posted on: Monday, May 22, 2017 8:19:24 AM
+> Posted on: Monday, May 22, 2017 9:56:02 AM
