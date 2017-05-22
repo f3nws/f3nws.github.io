@@ -5,7 +5,7 @@ date: 2017-05-21 16:44:55Z
 categories: al-jazeera-english
 ---
 
-![Riyadh summit discusses ways of rooting out terrorism](http://www.aljazeera.com/mritems/Images/2017/5/21/ab854719ccca4f82ad36b9004d812733_18.jpg)
+![Riyadh summit discusses ways of rooting out terrorism](http://www.aljazeera.com/mritems/Images/2017/5/22/a88a352dd84845378d56d3ea2c8c100f_18.jpg)
 
 Arab-Islamic-American summit condemns perpetrators that commit terrorist acts in the name of religion.
 
