@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump gets rave reviews in Saudi press"
-date: 2017-05-22 10:44:58Z
+date: 2017-05-22 11:52:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ First lady Melania Trump's fashion choices got rave reviews in local Saudi Arabi
 
 Full story on F3News: [Melania Trump gets rave reviews in Saudi press](http://www.f3nws.com/n/UvBVRD)
 
-> Posted on: Monday, May 22, 2017 3:44:58 PM
+> Posted on: Monday, May 22, 2017 4:52:03 PM
