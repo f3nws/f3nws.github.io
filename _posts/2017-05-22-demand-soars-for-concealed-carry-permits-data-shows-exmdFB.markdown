@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Demand soars for concealed carry permits, data shows"
-date: 2017-05-22 15:30:02Z
+date: 2017-05-22 16:00:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The number of concealed carry permits in the United States has topped 15 million
 
 Full story on F3News: [Demand soars for concealed carry permits, data shows](http://www.f3nws.com/n/exmdFB)
 
-> Posted on: Monday, May 22, 2017 8:30:02 PM
+> Posted on: Monday, May 22, 2017 9:00:01 PM
