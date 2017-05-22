@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump summons Muslim nations to confront 'Islamic terror of all kinds' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/21/National-Politics/Images/Trump_US_Saudi_Arabia_12380-02d96-4687.jpg)
 
-Washington Post Trump summons Muslim nations to confront 'Islamic terror of all kinds' Washington Post RIYADH, Saudi Arabia — President Trump forcefully summoned the Muslim world to confront “the crisis of Islamic extremism” here Sunday on the eve of visits to Israel and the Vatican as he seeks to unite followers of disparate faiths against global ... Trump strikes moderate tone on Islam Politico Trump's doublespeak in Saudi Arabia CNN NBC's Bill Neely Trump Trip Notebook: So Long, Saudi Arabia NBCNews.com NPR - Los Angeles Times - The Hill - The Atlantic all 3,834 news articles »
+Washington Post Trump summons Muslim nations to confront 'Islamic terror of all kinds' Washington Post RIYADH, Saudi Arabia — President Trump forcefully summoned the Muslim world to confront “the crisis of Islamic extremism” here Sunday on the eve of visits to Israel and the Vatican as he seeks to unite followers of disparate faiths against global ... Trump gets it right in Saudi Arabia The Hill (blog) Trump's doublespeak in Saudi Arabia CNN Trump strikes moderate tone on Islam Politico NBCNews.com - Salon - NPR - National Review all 3,932 news articles »
 
 
 Full story on F3News: [Trump summons Muslim nations to confront 'Islamic terror of all kinds' - Washington Post](http://www.f3nws.com/n/yfCnX)
