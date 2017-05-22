@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's new tune on Islam"
-date: 2017-05-22 01:11:24Z
+date: 2017-05-22 01:49:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's speech Sunday will likely be met with skepticism and fr
 
 Full story on F3News: [Trump's new tune on Islam](http://www.f3nws.com/n/Qd3H2F)
 
-> Posted on: Monday, May 22, 2017 6:11:24 AM
+> Posted on: Monday, May 22, 2017 6:49:40 AM
