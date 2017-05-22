@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump heads to Jerusalem seeking Israel-Palestine talks"
-date: 2017-05-22 09:52:29Z
+date: 2017-05-22 10:25:26Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US president has called Israeli-Palestinian peace 'the ultimate deal', but has b
 
 Full story on F3News: [Trump heads to Jerusalem seeking Israel-Palestine talks](http://www.f3nws.com/n/tcfEXE)
 
-> Posted on: Monday, May 22, 2017 2:52:29 PM
+> Posted on: Monday, May 22, 2017 3:25:26 PM
