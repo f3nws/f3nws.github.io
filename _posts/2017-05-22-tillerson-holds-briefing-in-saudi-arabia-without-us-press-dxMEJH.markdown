@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson holds briefing in Saudi Arabia without US press"
-date: 2017-05-22 01:00:18Z
+date: 2017-05-22 05:33:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Tillerson holds briefing in Saudi Arabia without US press](http://www.f3nws.com/n/dxMEJH)
 
-> Posted on: Monday, May 22, 2017 6:00:18 AM
+> Posted on: Monday, May 22, 2017 10:33:37 AM
