@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Supreme Court strikes down NC districts as illegally based on race - The Hill](http://thehill.com/sites/default/files/blogs/supremecourt84661458.jpg)
 
-The Hill Supreme Court strikes down NC districts as illegally based on race The Hill The Supreme Court ruled Monday that North Carolina illegally packed black voters into two voting districts. In a 5-3 ruling, the justices affirmed the decision of a lower court. That ruling said North Carolina officials used race as the predominant ... Supreme Court rules race improperly dominated NC redistricting efforts Washington Post Supreme Court ruling wipes out Republican-drawn House districts in NC USA TODAY Supreme Court strikes down North Carolina congressional district maps CNN NPR - Washington Examiner - New York Times - Politico all 76 news articles »
+Los Angeles Times Supreme Court strikes down NC districts as illegally based on race The Hill The Supreme Court ruled Monday that North Carolina illegally packed black voters into two voting districts. In a 5-3 ruling, the justices affirmed the decision of a lower court. That ruling said North Carolina officials used race as the predominant ... Supreme Court Throws Out 2 GOP-Drawn Congressional Districts As Unconstitutional HuffPost Supreme Court tosses Republican-drawn North Carolina voting districts Reuters The Supreme Court Finds North Carolina's Racial Gerrymandering Unconstitutional The Atlantic Washington Post - USA TODAY - CNN - Politico all 98 news articles »
 
 
 Full story on F3News: [Supreme Court strikes down NC districts as illegally based on race - The Hill](http://www.f3nws.com/n/rEZKMF)
