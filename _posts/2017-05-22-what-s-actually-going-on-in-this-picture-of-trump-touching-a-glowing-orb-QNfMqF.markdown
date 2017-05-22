@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![What's actually going on in this picture of Trump touching a glowing orb?](http://www.abc.net.au/news/image/8546346-1x1-700x700.jpg)
 
-US President Donald Trump and Muslim leaders are seen gathering around an ominous glowing orb in a scene that's been compared to a scene from Lord of the Rings. But no, this isn't the Eye of Sauron.
+US President Donald Trump and Muslim leaders are seen gathering around an ominous glowing orb in a scene that's been compared to something from Lord of the Rings. But no, this isn't the Eye of Sauron.
 
 
 Full story on F3News: [What's actually going on in this picture of Trump touching a glowing orb?](http://www.f3nws.com/n/QNfMqF)
