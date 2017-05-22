@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ramadan 2017: Fasting hours around the world"
-date: 2017-05-22 08:49:32Z
+date: 2017-05-22 09:20:23Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ categories: al-jazeera-english
 
 Full story on F3News: [Ramadan 2017: Fasting hours around the world](http://www.f3nws.com/n/dVBXzF)
 
-> Posted on: Monday, May 22, 2017 1:49:32 PM
+> Posted on: Monday, May 22, 2017 2:20:23 PM
