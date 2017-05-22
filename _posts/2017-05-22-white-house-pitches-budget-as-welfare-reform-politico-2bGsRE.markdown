@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House pitches budget as welfare reform - Politico](http://static.politico.com/1f/3e/afd27e0e4a2ba5697fbe43604538/170519-mulvaney-budget-gty-1160.jpg)
 
-Politico White House pitches budget as welfare reform Politico The Trump administration is billing its budget as a plan to “reform the welfare system” and replace “dependency with dignity of work,” while saving $274 billion over 10 years, according to a four-page memo obtained by POLITICO. The White House budget, ... Sorry, suckers: Trump is perfectly happy to help Paul Ryan shred the safety net Washington Post (blog) Trump's Budget Is Basically A Wish List. Here's Why It Matters Anyway. HuffPost Trump budget: $800 billion in Medicaid cuts CNN USA TODAY - Reuters - Business Insider - Washington Post all 101 news articles »
+Politico White House pitches budget as welfare reform Politico The Trump administration is billing its budget as a plan to “reform the welfare system” and replace “dependency with dignity of work,” while saving $274 billion over 10 years, according to a four-page memo obtained by POLITICO. The White House budget, ... Sorry, suckers: Trump is perfectly happy to help Paul Ryan shred the safety net Washington Post (blog) Trump budget poised to slash healthcare for poor, other programs Reuters 6 things to watch in Trump's first full budget plan USA TODAY CNNMoney - Washington Post - Axios all 120 news articles »
 
 
 Full story on F3News: [White House pitches budget as welfare reform - Politico](http://www.f3nws.com/n/2bGsRE)
