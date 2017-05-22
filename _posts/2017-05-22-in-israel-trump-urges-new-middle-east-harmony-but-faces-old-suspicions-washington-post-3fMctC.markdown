@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "In Israel, Trump urges new Middle East 'harmony' but faces old suspicions - Washington Post"
-date: 2017-05-22 17:23:02Z
+date: 2017-05-22 20:54:42Z
 categories: google-news-top-stories
 ---
 
 ![In Israel, Trump urges new Middle East 'harmony' but faces old suspicions - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/22/National-Security/Images/05981406.jpg)
 
-Washington Post In Israel, Trump urges new Middle East 'harmony' but faces old suspicions Washington Post JERUSALEM — President Trump placed his right hand on Judaism's holiest prayer site Monday, spending a moment of symbolic silence amid a Middle East trip he has said he hopes will bring peace to this volatile region. Trump's visit to the Western Wall ... Flynn attorneys cite 'public frenzy against him' as reason for declining Senate subpoena Los Angeles Times The Latest: Trump says a 'lot of love' will help bring peace Miami Herald Donald Trump denies a Russia allegation that no one made CNN Daily Beast - The Hill - Reuters - NBCNews.com all 1,514 news articles »
+Washington Post In Israel, Trump urges new Middle East 'harmony' but faces old suspicions Washington Post JERUSALEM — President Trump and Israeli Prime Minister Benjamin Netanyahu sketched the broad outlines of a new architecture for the Middle East here late Monday, declaring common cause among the United States, Israel and Arab nations such as ... Trump drags his scandals back into the spotlight on foreign trip Politico Trump Goes After 'the Ultimate Deal' The Atlantic Treading on sacred ground: Trump's visit venues are imbued with history, controversy Los Angeles Times CNN - USA TODAY - The New Yorker - BuzzFeed News all 1,570 news articles »
 
 
 Full story on F3News: [In Israel, Trump urges new Middle East 'harmony' but faces old suspicions - Washington Post](http://www.f3nws.com/n/3fMctC)
 
-> Posted on: Monday, May 22, 2017 10:23:02 PM
+> Posted on: Tuesday, May 23, 2017 1:54:42 AM

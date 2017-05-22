@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Destiny 2 Shows Bungie Is Listening To Fans, In Its Own Way - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--TyPA3TFF--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/bqtcvmnojo3kptugybgw.jpg)
 
-Kotaku Destiny 2 Shows Bungie Is Listening To Fans, In Its Own Way Kotaku Bungie is constantly changing and improving Destiny, though rarely in the precise ways players have requested. That seems like it will hold true for Destiny 2. At last week's big Destiny 2 blowout event in Los Angeles, the differences between the new ... This Is Why Gamers Are Wrong About 'Destiny 2' Being 'Just An Expansion' Forbes Destiny Fans Should Absolutely be Hyped for Destiny 2; Haters Still Probably Gonna Hate Twinfinite Destiny 2 will not use 'Grimoire Cards' to tell its story PC Gamer Cinema Blend - PlayStation LifeStyle - Destructoid - The Escapist all 111 news articles »
+Kotaku Destiny 2 Shows Bungie Is Listening To Fans, In Its Own Way Kotaku Bungie is constantly changing and improving Destiny, though rarely in the precise ways players have requested. That seems like it will hold true for Destiny 2. At last week's big Destiny 2 blowout event in Los Angeles, the differences between the new ... This Is Why Gamers Are Wrong About 'Destiny 2' Being 'Just An Expansion' Forbes Destiny 2 PC Head Talks Balance and Battlenet Shacknews Destiny Fans Should Absolutely be Hyped for Destiny 2; Haters Still Probably Gonna Hate Twinfinite PC Gamer - Cinema Blend - IGN - PlayStation LifeStyle all 114 news articles »
 
 
 Full story on F3News: [Destiny 2 Shows Bungie Is Listening To Fans, In Its Own Way - Kotaku](http://www.f3nws.com/n/eyhNND)
