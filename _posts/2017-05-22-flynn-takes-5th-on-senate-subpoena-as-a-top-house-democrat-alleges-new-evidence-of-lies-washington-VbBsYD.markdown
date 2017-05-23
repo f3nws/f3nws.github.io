@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Flynn takes 5th on Senate subpoena as a top House Democrat alleges new evidence of lies - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/22/National-Politics/Images/AFP_OR0L9.jpg)
 
-Washington Post Flynn takes 5th on Senate subpoena as a top House Democrat alleges new evidence of lies Washington Post Retired Lt. Gen Michael Flynn, the former national security adviser under President Trump, refused to comply with a Senate Intelligence Committee subpoena as a top House Democrat disclosed portions of new documents suggesting Flynn lied about his ... Dems: New documents show Flynn lied to investigators about Russian trips CNN If Flynn pleads the Fifth, will Congress hold him in contempt? The Hill (blog) Burr: Flynn could be held in contempt Politico Chicago Tribune - USA TODAY - Los Angeles Times - ABC News all 344 news articles »
+Washington Post Flynn takes 5th on Senate subpoena as a top House Democrat alleges new evidence of lies Washington Post Retired Lt. Gen Michael Flynn, the former national security adviser under President Trump, refused to comply with a Senate Intelligence Committee subpoena as a top House Democrat disclosed portions of new documents suggesting Flynn lied about his ... Burr: Flynn could be held in contempt Politico If Flynn pleads the Fifth, will Congress hold him in contempt? The Hill (blog) Michael Flynn is taking the 5th. So what does that mean? USA TODAY Los Angeles Times - ABC News - The Atlantic - The Boston Globe all 355 news articles »
 
 
 Full story on F3News: [Flynn takes 5th on Senate subpoena as a top House Democrat alleges new evidence of lies - Washington Post](http://www.f3nws.com/n/VbBsYD)

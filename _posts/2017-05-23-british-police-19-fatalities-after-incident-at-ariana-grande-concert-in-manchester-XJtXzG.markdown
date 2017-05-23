@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British police: 19 fatalities after incident at Ariana Grande concert in Manchester"
-date: 2017-05-23 00:27:18Z
+date: 2017-05-23 00:48:27Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ There are fatalities following an incident at Manchester Arena in England on Mon
 
 Full story on F3News: [British police: 19 fatalities after incident at Ariana Grande concert in Manchester](http://www.f3nws.com/n/XJtXzG)
 
-> Posted on: Tuesday, May 23, 2017 5:27:18 AM
+> Posted on: Tuesday, May 23, 2017 5:48:27 AM
