@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beware! Subtitle Files Can Hack Your Computer While You're Enjoying Movies"
-date: 2017-05-23 17:19:56Z
+date: 2017-05-23 19:54:54Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Do you watch movies with subtitles? Just last night, I wanted to watch a French 
 
 Full story on F3News: [Beware! Subtitle Files Can Hack Your Computer While You're Enjoying Movies](http://www.f3nws.com/n/ZNVsqH)
 
-> Posted on: Tuesday, May 23, 2017 10:19:56 PM
+> Posted on: Wednesday, May 24, 2017 12:54:54 AM

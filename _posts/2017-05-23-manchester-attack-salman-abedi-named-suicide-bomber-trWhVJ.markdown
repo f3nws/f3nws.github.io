@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester attack: Salman Abedi named suicide bomber"
-date: 2017-05-23 19:26:25Z
+date: 2017-05-23 19:49:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least one man arrested over attack that killed 22 people, including children,
 
 Full story on F3News: [Manchester attack: Salman Abedi named suicide bomber](http://www.f3nws.com/n/trWhVJ)
 
-> Posted on: Wednesday, May 24, 2017 12:26:25 AM
+> Posted on: Wednesday, May 24, 2017 12:49:33 AM

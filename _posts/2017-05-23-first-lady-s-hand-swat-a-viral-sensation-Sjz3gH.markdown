@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First lady's hand swat a viral sensation"
-date: 2017-05-23 02:45:20Z
+date: 2017-05-23 19:37:06Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Israeli Prime Minister Benjamin Netanyahu and his wife, Sara, rolled out the red
 
 Full story on F3News: [First lady's hand swat a viral sensation](http://www.f3nws.com/n/Sjz3gH)
 
-> Posted on: Tuesday, May 23, 2017 7:45:20 AM
+> Posted on: Wednesday, May 24, 2017 12:37:06 AM
