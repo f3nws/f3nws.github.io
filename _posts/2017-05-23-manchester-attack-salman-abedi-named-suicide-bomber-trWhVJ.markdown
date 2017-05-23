@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Manchester attack: Salman Abedi named suicide bomber"
-date: 2017-05-23 19:49:33Z
+date: 2017-05-23 21:26:02Z
 categories: al-jazeera-english
 ---
 
 ![Manchester attack: Salman Abedi named suicide bomber](http://www.aljazeera.com/mritems/Images/2017/5/23/c41f39a2f69e4881bc998f535886a87b_18.jpg)
 
-At least one man arrested over attack that killed 22 people, including children, at the end of Ariana Grande concert.
+Prime minister announces change in the threat level from severe to critical, saying further attacks may be imminent.
 
 
 Full story on F3News: [Manchester attack: Salman Abedi named suicide bomber](http://www.f3nws.com/n/trWhVJ)
 
-> Posted on: Wednesday, May 24, 2017 12:49:33 AM
+> Posted on: Wednesday, May 24, 2017 2:26:02 AM
