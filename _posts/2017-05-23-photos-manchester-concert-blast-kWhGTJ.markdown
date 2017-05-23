@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Photos: Manchester concert blast"
-date: 2017-05-23 07:32:38Z
+date: 2017-05-23 15:17:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Local police confirmed that at least 19 people were killed and about 50 were inj
 
 Full story on F3News: [Photos: Manchester concert blast](http://www.f3nws.com/n/kWhGTJ)
 
-> Posted on: Tuesday, May 23, 2017 12:32:38 PM
+> Posted on: Tuesday, May 23, 2017 8:17:21 PM
