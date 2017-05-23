@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Justices Reject 2 Gerrymandered North Carolina Districts, Citing Racial Bias - New York Times](https://static01.nyt.com/images/2017/05/23/us/23scotus1/23scotus1-facebookJumbo.jpg)
 
-New York Times Justices Reject 2 Gerrymandered North Carolina Districts, Citing Racial Bias New York Times North Carolina state senators reviewing congressional district maps during a legislative session in February 2016 in Raleigh. The session was called after a Federal District Court decision ordering that the maps be redrawn to address racial ... Republican redistricting is taking a beating in the courts (again) Washington Post The Decisive Vote to Strike Down Racial Gerrymandering Came From … Clarence Thomas? Slate Magazine Supreme Court Rejects 2 Congressional Districts In North Carolina NPR Los Angeles Times - HuffPost - ABC News - CNN all 148 news articles »
+New York Times Justices Reject 2 Gerrymandered North Carolina Districts, Citing Racial Bias New York Times North Carolina state senators reviewing congressional district maps during a legislative session in February 2016 in Raleigh. The session was called after a Federal District Court decision ordering that the maps be redrawn to address racial ... The Supreme Court may just have given voting rights activists a powerful new tool Washington Post Voting advocates notch win at Supreme Court The Hill Supreme Court Rejects 2 Congressional Districts In North Carolina NPR HuffPost - Los Angeles Times - ABC News - CNN all 153 news articles »
 
 
 Full story on F3News: [Justices Reject 2 Gerrymandered North Carolina Districts, Citing Racial Bias - New York Times](http://www.f3nws.com/n/FcJzhC)
