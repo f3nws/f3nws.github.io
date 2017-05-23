@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Ariana Grande concert blast: celebrities react](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-Celebrities have started to react to reports of explosions at an Ariana Grande concert in Manchester, England.
+Celebrities have started to react to reports of an explosion at an Ariana Grande concert in Manchester, England.
 
 
 Full story on F3News: [Ariana Grande concert blast: celebrities react](http://www.f3nws.com/n/kFkMrG)
