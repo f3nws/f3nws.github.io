@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester terror attack: 22 dead at Ariana Grande concert blast"
-date: 2017-05-23 09:01:10Z
+date: 2017-05-23 10:12:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ At least 22 people, including children, have been killed in a bombing at an Aria
 
 Full story on F3News: [Manchester terror attack: 22 dead at Ariana Grande concert blast](http://www.f3nws.com/n/4KhgRE)
 
-> Posted on: Tuesday, May 23, 2017 2:01:10 PM
+> Posted on: Tuesday, May 23, 2017 3:12:47 PM

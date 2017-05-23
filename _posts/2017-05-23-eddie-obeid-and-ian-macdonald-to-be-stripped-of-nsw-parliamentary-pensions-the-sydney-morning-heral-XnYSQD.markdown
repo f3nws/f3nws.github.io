@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald"
-date: 2017-05-23 05:34:44Z
+date: 2017-05-23 04:52:22Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Eddie Obeid and Ian Macdonald to be stripped of NSW pa
 
 Full story on F3News: [Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald](http://www.f3nws.com/n/XnYSQD)
 
-> Posted on: Tuesday, May 23, 2017 10:34:44 AM
+> Posted on: Tuesday, May 23, 2017 9:52:22 AM
