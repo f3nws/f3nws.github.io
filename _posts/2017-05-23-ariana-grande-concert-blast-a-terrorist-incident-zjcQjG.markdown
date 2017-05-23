@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande concert: Blast a 'terrorist incident'"
-date: 2017-05-23 02:22:00Z
+date: 2017-05-23 02:42:49Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Deadly explosion at pop star Ariana Grande performance a 'terrorist incident' wi
 
 Full story on F3News: [Ariana Grande concert: Blast a 'terrorist incident'](http://www.f3nws.com/n/zjcQjG)
 
-> Posted on: Tuesday, May 23, 2017 7:22:00 AM
+> Posted on: Tuesday, May 23, 2017 7:42:49 AM

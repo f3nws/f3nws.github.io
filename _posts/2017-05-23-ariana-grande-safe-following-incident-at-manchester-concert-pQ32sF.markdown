@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande safe following incident at Manchester concert"
-date: 2017-05-23 02:21:47Z
+date: 2017-05-23 02:47:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Singer Ariana Grande is safe following an incident at her concert in Manchester,
 
 Full story on F3News: [Ariana Grande safe following incident at Manchester concert](http://www.f3nws.com/n/pQ32sF)
 
-> Posted on: Tuesday, May 23, 2017 7:21:47 AM
+> Posted on: Tuesday, May 23, 2017 7:47:11 AM
