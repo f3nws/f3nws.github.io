@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump makes the wrong impression..."
-date: 2017-05-23 15:31:06Z
+date: 2017-05-23 15:31:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ When American presidents travel abroad, especially for the first time, they make
 
 Full story on F3News: [Donald Trump makes the wrong impression...](http://www.f3nws.com/n/AtsDCJ)
 
-> Posted on: Tuesday, May 23, 2017 8:31:06 PM
+> Posted on: Tuesday, May 23, 2017 8:31:00 PM
