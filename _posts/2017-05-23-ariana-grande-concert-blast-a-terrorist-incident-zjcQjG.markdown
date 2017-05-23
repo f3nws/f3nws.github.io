@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande concert: Blast a 'terrorist incident'"
-date: 2017-05-23 05:36:19Z
+date: 2017-05-23 06:19:25Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UK election campaigns halted after blast at US pop star's concert, which is trea
 
 Full story on F3News: [Ariana Grande concert: Blast a 'terrorist incident'](http://www.f3nws.com/n/zjcQjG)
 
-> Posted on: Tuesday, May 23, 2017 10:36:19 AM
+> Posted on: Tuesday, May 23, 2017 11:19:25 AM
