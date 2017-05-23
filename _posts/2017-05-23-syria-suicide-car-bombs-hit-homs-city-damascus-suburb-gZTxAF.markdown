@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria: Suicide car bombs hit Homs city, Damascus suburb"
-date: 2017-05-23 10:49:26Z
+date: 2017-05-23 20:41:05Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least four people are reported dead after a car bomb goes off in Homs, as a s
 
 Full story on F3News: [Syria: Suicide car bombs hit Homs city, Damascus suburb](http://www.f3nws.com/n/gZTxAF)
 
-> Posted on: Tuesday, May 23, 2017 3:49:26 PM
+> Posted on: Wednesday, May 24, 2017 1:41:05 AM

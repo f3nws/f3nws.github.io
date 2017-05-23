@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump budget seeks huge cuts to science and medical research, disease prevention - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2014/09/05/Foreign/Images/04380955.jpg)
 
-Washington Post Trump budget seeks huge cuts to science and medical research, disease prevention Washington Post This is a developing story. President Trump's 2018 budget request, delivered to Congress on Tuesday with the title “A New Foundation for American Greatness,” has roiled the medical and science community with a call for massive cuts in spending on ... Trump's budget by the numbers: What gets cut and why CNN Trump's immoral budget is 'dead on arrival' in Congress The Hill (blog) Trump's magical budget math Politico NPR - Slate Magazine - USA TODAY - ThinkProgress all 902 news articles »
+Washington Post Trump budget seeks huge cuts to science and medical research, disease prevention Washington Post This is a developing story. President Trump's 2018 budget request, delivered to Congress on Tuesday with the title “A New Foundation for American Greatness,” has roiled the medical and science community with a call for massive cuts in spending on ... Trump's budget by the numbers: What gets cut and why CNN Trump's immoral budget is 'dead on arrival' in Congress The Hill (blog) Trump Budget Plan Relies On Optimistic Growth Assumptions, Analysts Say NPR Politico - Slate Magazine - ABC News - Los Angeles Times all 901 news articles »
 
 
 Full story on F3News: [Trump budget seeks huge cuts to science and medical research, disease prevention - Washington Post](http://www.f3nws.com/n/VjCf4F)
