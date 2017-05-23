@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald"
-date: 2017-05-23 04:52:22Z
+date: 2017-05-23 05:34:44Z
 categories: google-news-australia
 ---
 
-![Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/t/b/i/h/d/image.related.articleLeadwide.620x349.gwb409.png/1495523159685.jpg)
+![Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/t/b/i/h/d/image.related.articleLeadwide.620x349.gwb409.png/1495530144788.jpg)
 
-The Sydney Morning Herald Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions The Sydney Morning Herald Corrupt former Labor minister Ian Macdonald will be hit with a debt to NSW taxpayers potentially worth hundreds of thousands of dollars after he is stripped of his parliamentary pension under legislation announced by Premier Gladys Berejiklian. Move to wipe out Obeid pension The Australian Eddie Obeid to be stripped of $100k taxpayer-funded pension ABC Online Move to strip Obeid, Macdonald of pensions dailytelegraph.com.au all 7 news articles »
+The Sydney Morning Herald Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions The Sydney Morning Herald Corrupt former Labor minister Ian Macdonald faces repaying a debt to NSW taxpayers potentially worth hundreds of thousands of dollars under a move to strip him of his parliamentary pension via legislation announced by Premier Gladys Berejiklian. Move to wipe out Obeid pension The Australian Eddie Obeid to be stripped of $100k taxpayer-funded pension ABC Online Move to strip Obeid, Macdonald of pensions dailytelegraph.com.au all 7 news articles »
 
 
 Full story on F3News: [Eddie Obeid and Ian Macdonald to be stripped of NSW parliamentary pensions - The Sydney Morning Herald](http://www.f3nws.com/n/XnYSQD)
 
-> Posted on: Tuesday, May 23, 2017 9:52:22 AM
+> Posted on: Tuesday, May 23, 2017 10:34:44 AM
