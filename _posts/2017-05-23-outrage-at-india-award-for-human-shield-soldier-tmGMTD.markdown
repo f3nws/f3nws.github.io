@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Outrage at India award for 'human shield' soldier"
-date: 2017-05-23 12:19:09Z
+date: 2017-05-23 18:23:57Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Kashmir victim criticises award for Major Leetul Gogoi as support for 'oppressio
 
 Full story on F3News: [Outrage at India award for 'human shield' soldier](http://www.f3nws.com/n/tmGMTD)
 
-> Posted on: Tuesday, May 23, 2017 5:19:09 PM
+> Posted on: Tuesday, May 23, 2017 11:23:57 PM
