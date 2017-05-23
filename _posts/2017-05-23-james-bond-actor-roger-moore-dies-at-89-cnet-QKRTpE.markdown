@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "James Bond actor Roger Moore dies at 89     - CNET"
-date: 2017-05-23 16:58:08Z
+date: 2017-05-23 18:30:18Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Sean Connery is a tough act to follow, but Roger Moore made a go of it -- seven 
 
 Full story on F3News: [James Bond actor Roger Moore dies at 89     - CNET](http://www.f3nws.com/n/QKRTpE)
 
-> Posted on: Tuesday, May 23, 2017 9:58:08 PM
+> Posted on: Tuesday, May 23, 2017 11:30:18 PM
