@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande concert attack: First victims in Manchester blast identified"
-date: 2017-05-23 14:15:00Z
+date: 2017-05-23 20:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Details are starting to emerge about the victims whose lives were claimed in a f
 
 Full story on F3News: [Ariana Grande concert attack: First victims in Manchester blast identified](http://www.f3nws.com/n/jcsQqF)
 
-> Posted on: Tuesday, May 23, 2017 7:15:00 PM
+> Posted on: Wednesday, May 24, 2017 1:00:00 AM

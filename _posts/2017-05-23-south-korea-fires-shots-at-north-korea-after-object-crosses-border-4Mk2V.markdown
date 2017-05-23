@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea fires shots at North Korea after object crosses border"
-date: 2017-05-23 18:00:01Z
+date: 2017-05-23 20:30:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ South Korea’s military says it has fired warning shots at an unidentified obje
 
 Full story on F3News: [South Korea fires shots at North Korea after object crosses border](http://www.f3nws.com/n/4Mk2V)
 
-> Posted on: Tuesday, May 23, 2017 11:00:01 PM
+> Posted on: Wednesday, May 24, 2017 1:30:08 AM
