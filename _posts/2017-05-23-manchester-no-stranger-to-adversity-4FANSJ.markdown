@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester: No stranger to adversity"
-date: 2017-05-23 06:20:22Z
+date: 2017-05-23 06:51:16Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The city of Manchester, where at least 19 people were killed by a suspected suic
 
 Full story on F3News: [Manchester: No stranger to adversity](http://www.f3nws.com/n/4FANSJ)
 
-> Posted on: Tuesday, May 23, 2017 11:20:22 AM
+> Posted on: Tuesday, May 23, 2017 11:51:16 AM

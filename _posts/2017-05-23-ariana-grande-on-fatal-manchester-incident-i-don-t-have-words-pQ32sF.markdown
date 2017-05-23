@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande on fatal Manchester incident: 'I don't have words'"
-date: 2017-05-23 04:47:35Z
+date: 2017-05-23 06:28:19Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Singer Ariana Grande is safe following an incident at her concert in Manchester,
 
 Full story on F3News: [Ariana Grande on fatal Manchester incident: 'I don't have words'](http://www.f3nws.com/n/pQ32sF)
 
-> Posted on: Tuesday, May 23, 2017 9:47:35 AM
+> Posted on: Tuesday, May 23, 2017 11:28:19 AM
