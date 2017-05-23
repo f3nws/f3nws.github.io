@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hall of Famer Cortez Kennedy dies at 48 - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0523%2Fr212050_1296x729_16%2D9.jpg)
 
-ESPN Hall of Famer Cortez Kennedy dies at 48 ESPN Cortez Kennedy, an icon with the Seattle Seahawks who was inducted into the Pro Football Hall of Fame in 2012, has died at age 48, the Orlando Police Department said Tuesday. Orlando police confirmed to ESPN that they are investigating Kennedy's death ... Former Seattle Seahawk Cortez Kennedy dead at 48 AL.com Hall of Fame football player Cortez Kennedy dead at 48 MLive.com Police: Hall of Famer Cortez Kennedy found dead ABC News USA TODAY - NFL.com - CBSSports.com - SB Nation all 84 news articles »
+ESPN Hall of Famer Cortez Kennedy dies at 48 ESPN Cortez Kennedy, an icon with the Seattle Seahawks who was inducted into the Pro Football Hall of Fame in 2012, has died at age 48, the Orlando Police Department said Tuesday. Orlando police confirmed to ESPN that they are investigating Kennedy's death ... Miami All-American, NFL Hall of Famer Cortez Kennedy dead at 48 NBCSports.com NFL Hall of Famer Cortez Kennedy, 48, died at his Orlando home Washington Post Cortez Kennedy, Hall of Famer and ex-Seahawks great, dies at 48 USA TODAY AL.com - Seattle Times - CBSSports.com - Los Angeles Times all 94 news articles »
 
 
 Full story on F3News: [Hall of Famer Cortez Kennedy dies at 48 - ESPN](http://www.f3nws.com/n/XcDfbC)

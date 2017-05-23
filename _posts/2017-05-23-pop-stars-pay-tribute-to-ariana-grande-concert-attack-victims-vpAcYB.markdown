@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pop stars pay tribute to Ariana Grande concert attack victims"
-date: 2017-05-23 11:58:02Z
+date: 2017-05-23 18:34:40Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Celebrities took to Twitter to pay tribute and express their sympathy in the wak
 
 Full story on F3News: [Pop stars pay tribute to Ariana Grande concert attack victims](http://www.f3nws.com/n/vpAcYB)
 
-> Posted on: Tuesday, May 23, 2017 4:58:02 PM
+> Posted on: Tuesday, May 23, 2017 11:34:40 PM
