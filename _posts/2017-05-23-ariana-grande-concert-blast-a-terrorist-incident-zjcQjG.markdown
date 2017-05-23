@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Ariana Grande concert: Blast a 'terrorist incident'"
-date: 2017-05-23 05:28:13Z
+date: 2017-05-23 05:36:19Z
 categories: al-jazeera-english
 ---
 
 ![Ariana Grande concert: Blast a 'terrorist incident'](http://www.aljazeera.com/mritems/Images/2017/5/23/dfb7dd360ef24e8fae3ba5d996b836de_18.jpg)
 
-Deadly explosion also wounds dozens, as UK police calls explosion at US pop star's performance a 'terrorist incident'.
+UK election campaigns halted after blast at US pop star's concert, which is treated by police as a 'terrorist incident'.
 
 
 Full story on F3News: [Ariana Grande concert: Blast a 'terrorist incident'](http://www.f3nws.com/n/zjcQjG)
 
-> Posted on: Tuesday, May 23, 2017 10:28:13 AM
+> Posted on: Tuesday, May 23, 2017 10:36:19 AM
