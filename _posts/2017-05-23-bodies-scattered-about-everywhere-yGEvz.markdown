@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bodies scattered about everywhere'"
-date: 2017-05-23 10:00:58Z
+date: 2017-05-23 11:59:19Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Charlotte Campbell was praying her 15-year-old daughter was alive.
 
 Full story on F3News: ['Bodies scattered about everywhere'](http://www.f3nws.com/n/yGEvz)
 
-> Posted on: Tuesday, May 23, 2017 3:00:58 PM
+> Posted on: Tuesday, May 23, 2017 4:59:19 PM
