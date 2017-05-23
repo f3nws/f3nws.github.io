@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Intel leaders: Door open to holding Flynn in contempt after invoking Fifth Amendment - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170519195650-michael-flynn-white-house-january-super-tease.jpg)
 
-CNN Senate Intel leaders: Door open to holding Flynn in contempt after invoking Fifth Amendment CNN (CNN) The top two leaders of the Senate intelligence committee are leaving the door open to holding Michael Flynn in contempt of Congress after President Trump's former national security adviser said he would invoke his Fifth Amendment rights rather ... Senate intelligence committee subpoenas Michael Flynn CNN all 456 news articles »
+CNN Senate Intel leaders: Door open to holding Flynn in contempt after invoking Fifth Amendment CNN (CNN) The top two leaders of the Senate intelligence committee are leaving the door open to holding Michael Flynn in contempt of Congress after President Trump's former national security adviser said he would invoke his Fifth Amendment rights rather ... Flynn's flimflam must not deceive Congress New York Daily News all 457 news articles »
 
 
 Full story on F3News: [Senate Intel leaders: Door open to holding Flynn in contempt after invoking Fifth Amendment - CNN](http://www.f3nws.com/n/thUtb)
