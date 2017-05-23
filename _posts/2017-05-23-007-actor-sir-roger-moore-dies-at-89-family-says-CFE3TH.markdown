@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'007' actor Sir Roger Moore dies at 89, family says"
-date: 2017-05-23 14:45:49Z
+date: 2017-05-23 15:27:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sir Roger Moore, the actor famed for portraying James Bond in seven "007" films 
 
 Full story on F3News: ["007" actor Sir Roger Moore dies at 89, family says](http://www.f3nws.com/n/CFE3TH)
 
-> Posted on: Tuesday, May 23, 2017 7:45:49 PM
+> Posted on: Tuesday, May 23, 2017 8:27:20 PM
