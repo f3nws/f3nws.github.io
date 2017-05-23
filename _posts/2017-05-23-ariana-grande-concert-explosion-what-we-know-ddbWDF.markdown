@@ -5,7 +5,7 @@ date: 2017-05-23 02:15:00Z
 categories: fox-news
 ---
 
-Confirmed details of the deadly explosion during an Ariana Grande concert at Manchester Arena on Monday: At least 19 people were killed and as many 50 others were hurt, police confirmed.
+Confirmed details of the deadly explosion during an Ariana Grande concert at Manchester Arena on Monday.
 
 
 Full story on F3News: [Ariana Grande concert explosion: What we know](http://www.f3nws.com/n/ddbWDF)
