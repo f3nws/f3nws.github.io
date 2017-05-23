@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande concert: 22 killed in Manchester blast"
-date: 2017-05-23 13:22:51Z
+date: 2017-05-23 14:21:00Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ PM Theresa May says authorities believe they know identity of suicide bomber who
 
 Full story on F3News: [Ariana Grande concert: 22 killed in Manchester blast](http://www.f3nws.com/n/zjcQjG)
 
-> Posted on: Tuesday, May 23, 2017 6:22:51 PM
+> Posted on: Tuesday, May 23, 2017 7:21:00 PM

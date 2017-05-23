@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ramadan 2017: Fasting hours around the world"
-date: 2017-05-23 12:27:43Z
+date: 2017-05-23 14:28:34Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Fasting will be the longest in Greenland and Sweden, and shortest in Chile and A
 
 Full story on F3News: [Ramadan 2017: Fasting hours around the world](http://www.f3nws.com/n/dVBXzF)
 
-> Posted on: Tuesday, May 23, 2017 5:27:43 PM
+> Posted on: Tuesday, May 23, 2017 7:28:34 PM

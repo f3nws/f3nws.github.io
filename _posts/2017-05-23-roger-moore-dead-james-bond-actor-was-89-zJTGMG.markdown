@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roger Moore dead: 'James Bond' actor was 89"
-date: 2017-05-23 13:45:00Z
+date: 2017-05-23 14:22:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Roger Moore, best known for playing James Bond in seven of the 007 films, has di
 
 Full story on F3News: [Roger Moore dead: 'James Bond' actor was 89](http://www.f3nws.com/n/zJTGMG)
 
-> Posted on: Tuesday, May 23, 2017 6:45:00 PM
+> Posted on: Tuesday, May 23, 2017 7:22:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The ugly truth behind Saudi Arabia's love for Melania"
-date: 2017-05-23 12:00:44Z
+date: 2017-05-23 14:02:00Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Donald Trump's first major trip overseas may be fraught with diplomatic land min
 
 Full story on F3News: [The ugly truth behind Saudi Arabia's love for Melania](http://www.f3nws.com/n/pHeeXE)
 
-> Posted on: Tuesday, May 23, 2017 5:00:44 PM
+> Posted on: Tuesday, May 23, 2017 7:02:00 PM
