@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande Concert Attack: US law enforcement monitoring incident"
-date: 2017-05-23 12:30:01Z
+date: 2017-05-23 14:00:09Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Local law enforcement agencies across the U.S. said Monday night that they were 
 
 Full story on F3News: [Ariana Grande Concert Attack: US law enforcement monitoring incident](http://www.f3nws.com/n/SYuAZD)
 
-> Posted on: Tuesday, May 23, 2017 5:30:01 PM
+> Posted on: Tuesday, May 23, 2017 7:00:09 PM
