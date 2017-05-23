@@ -5,9 +5,9 @@ date: 2017-05-23 13:32:09Z
 categories: google-news-entertaintment
 ---
 
-![Roger Moore, the Suave James Bond in Seven Films, Dies at 89 - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/05/roger_moore_cropped.jpg)
+![Roger Moore, the Suave James Bond in Seven Films, Dies at 89 - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/05/octopussy_1983_105-h_2017.jpg)
 
-Hollywood Reporter Roger Moore, the Suave James Bond in Seven Films, Dies at 89 Hollywood Reporter The Englishman also was debonair as Simon Templar on the British TV series 'The Saint.' “I would have loved to have played a real baddie,” he once said. Roger Moore, the handsome Londoner who portrayed James Bond in seven films with a cartoonish, ... Roger Moore, suave actor who held James Bond role the longest, dies at 89 Washington Post Roger Moore dead: 'James Bond' actor was 89 Fox News From EW Archives: A Look Back at Roger Moore's Career as the Best Bond PEOPLE.com BBC News - ABC News - Deadline - cleveland.com all 407 news articles »
+Metro Roger Moore, the Suave James Bond in Seven Films, Dies at 89 Hollywood Reporter The Englishman also was debonair as Simon Templar on the British TV series 'The Saint.' “I would have loved to have played a real baddie,” he once said. Roger Moore, the handsome Londoner who portrayed James Bond in seven films with a cartoonish, ... Roger Moore, suave actor who held James Bond role the longest, dies at 89 Washington Post Roger Moore, Who Played James Bond Seven Times, Dies New York Times Roger Moore, '007' actor, dies at 89 CNN Deadline - Fox News - PEOPLE.com - EW.com (blog) all 525 news articles »
 
 
 Full story on F3News: [Roger Moore, the Suave James Bond in Seven Films, Dies at 89 - Hollywood Reporter](http://www.f3nws.com/n/rNQfqG)
