@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester attack: Salman Abedi named suicide bomber"
-date: 2017-05-23 21:26:02Z
+date: 2017-05-23 21:26:59Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Prime minister announces change in the threat level from severe to critical, say
 
 Full story on F3News: [Manchester attack: Salman Abedi named suicide bomber](http://www.f3nws.com/n/trWhVJ)
 
-> Posted on: Wednesday, May 24, 2017 2:26:02 AM
+> Posted on: Wednesday, May 24, 2017 2:26:59 AM

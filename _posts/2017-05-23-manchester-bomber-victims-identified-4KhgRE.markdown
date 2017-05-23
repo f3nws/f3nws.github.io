@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester bomber, victims identified"
-date: 2017-05-23 21:05:06Z
+date: 2017-05-23 21:55:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ At least 22 people, including children, have been killed in a bombing at an Aria
 
 Full story on F3News: [Manchester bomber, victims identified](http://www.f3nws.com/n/4KhgRE)
 
-> Posted on: Wednesday, May 24, 2017 2:05:06 AM
+> Posted on: Wednesday, May 24, 2017 2:55:12 AM
