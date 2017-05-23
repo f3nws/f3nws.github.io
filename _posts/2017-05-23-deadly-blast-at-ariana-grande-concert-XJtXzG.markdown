@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly blast at Ariana Grande concert"
-date: 2017-05-23 04:09:19Z
+date: 2017-05-23 04:46:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ At least 19 people are dead and almost 60 injured in what police are treating as
 
 Full story on F3News: [Deadly blast at Ariana Grande concert](http://www.f3nws.com/n/XJtXzG)
 
-> Posted on: Tuesday, May 23, 2017 9:09:19 AM
+> Posted on: Tuesday, May 23, 2017 9:46:54 AM
