@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Colin Kaepernick to visit Seahawks on Wednesday - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F1224%2Fr165823_1296x729_16%2D9.jpg)
 
-ESPN Colin Kaepernick to visit Seahawks on Wednesday ESPN Quarterback Colin Kaepernick is visiting with the Seattle Seahawks on Wednesday, a source told ESPN's Adam Schefter. The Seahawks are doing their due diligence on quarterbacks and want to talk to Kaepernick. But Seattle is not expected to sign a ... Report: Colin Kaepernick meeting with Seahawks Wednesday, will work out for team FOXSports.com Seahawks looking at Austin Davis, along with Colin Kaepernick NBCSports.com Colin Kaepernick to work out for Seahawks today NFL.com Seattle Times - Yahoo Sports - Comcast SportsNet Bay Area - SFGate all 40 news articles »
+Seattle Times Colin Kaepernick to visit Seahawks on Wednesday ESPN Adam Schefter reports the latest on the Seahawks hosting quarterback Colin Kaepernick for a workout, while Field Yates weighs in on how Kaepernick could fit in Seattle. (1:33). Facebook · Twitter · Facebook Messenger · Email; comment. 11:33 AM ET. Seahawks looking at Austin Davis, along with Colin Kaepernick NBCSports.com Colin Kaepernick to work out for Seahawks today NFL.com Reports: Seahawks bringing Colin Kaepernick, Austin Davis for visits Wednesday Seattle Times FOXSports.com - Washington Post - seattlepi.com - Bleacher Report all 45 news articles »
 
 
 Full story on F3News: [Colin Kaepernick to visit Seahawks on Wednesday - ESPN](http://www.f3nws.com/n/4pV4xF)
