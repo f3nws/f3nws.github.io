@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hate crime criteria vary widely by state, making analysis of such offenses difficult"
-date: 2017-05-24 22:02:04Z
+date: 2017-05-24 22:58:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Tens of thousands of hate crimes have occurred across the United States since th
 
 Full story on F3News: [Hate crime criteria vary widely by state, making analysis of such offenses difficult](http://www.f3nws.com/n/kCZTzG)
 
-> Posted on: Thursday, May 25, 2017 3:02:04 AM
+> Posted on: Thursday, May 25, 2017 3:58:00 AM
