@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPad Pro 2 Release Date, Price and Specs     - CNET"
-date: 2017-05-24 17:21:37Z
+date: 2017-05-24 19:35:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Can Apple regain its tablet mojo after years of sagging sales?
 
 Full story on F3News: [Apple iPad Pro 2 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/DuWrS)
 
-> Posted on: Wednesday, May 24, 2017 10:21:37 PM
+> Posted on: Thursday, May 25, 2017 12:35:35 AM

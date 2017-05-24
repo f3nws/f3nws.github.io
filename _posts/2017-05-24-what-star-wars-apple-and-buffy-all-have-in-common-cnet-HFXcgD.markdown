@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What Star Wars, Apple and Buffy all have in common     - CNET"
-date: 2017-05-24 15:38:31Z
+date: 2017-05-24 19:32:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ When Star Wars first hit our galaxy, gas went for 65 cents a gallon and the Atar
 
 Full story on F3News: [What Star Wars, Apple and Buffy all have in common     - CNET](http://www.f3nws.com/n/HFXcgD)
 
-> Posted on: Wednesday, May 24, 2017 8:38:31 PM
+> Posted on: Thursday, May 25, 2017 12:32:17 AM
