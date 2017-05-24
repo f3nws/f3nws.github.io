@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump budget seeks huge cuts to science and medical research, disease prevention - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2014/09/05/Foreign/Images/04380955.jpg)
 
-Washington Post Trump budget seeks huge cuts to science and medical research, disease prevention Washington Post President Trump's 2018 budget request, delivered to Congress on Tuesday with the title “A New Foundation for American Greatness,” has roiled the medical and science community with a call for massive cuts in spending on scientific research, medical ... Trump undermines Senate GOP's Medicaid backers Politico Five takeaways from Trump's first budget proposal The Hill Republicans Will Reject Trump's Budget, but Still Try to Impose Austerity New York Times CNN - ABC News - Reuters - The Atlantic all 1,059 news articles »
+Washington Post Trump budget seeks huge cuts to science and medical research, disease prevention Washington Post President Trump's 2018 budget request, delivered to Congress on Tuesday with the title “A New Foundation for American Greatness,” has roiled the medical and science community with a call for massive cuts in spending on scientific research, medical ... Five takeaways from Trump's first budget proposal The Hill Trump undermines Senate GOP's Medicaid backers Politico Republicans Will Reject Trump's Budget, but Still Try to Impose Austerity New York Times Los Angeles Times - CNN - Reuters - Washington Examiner all 1,076 news articles »
 
 
 Full story on F3News: [Trump budget seeks huge cuts to science and medical research, disease prevention - Washington Post](http://www.f3nws.com/n/VjCf4F)

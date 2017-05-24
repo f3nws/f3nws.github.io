@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Duterte declares martial law after Mindanao attack"
-date: 2017-05-23 21:06:15Z
+date: 2017-05-23 23:51:43Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Emergency declaration follows ongoing attack by about 100 fighters in the southe
 
 Full story on F3News: [Duterte declares martial law after Mindanao attack](http://www.f3nws.com/n/ZaT4MJ)
 
-> Posted on: Wednesday, May 24, 2017 2:06:15 AM
+> Posted on: Wednesday, May 24, 2017 4:51:43 AM
