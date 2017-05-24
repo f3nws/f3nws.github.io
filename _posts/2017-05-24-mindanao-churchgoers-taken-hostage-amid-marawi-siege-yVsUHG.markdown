@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mindanao: Churchgoers 'taken hostage' amid Marawi siege"
-date: 2017-05-24 13:14:11Z
+date: 2017-05-24 13:45:35Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Ongoing violence prompts 'mass exodus' from Marawi, as President Rodrigo Duterte
 
 Full story on F3News: [Mindanao: Churchgoers 'taken hostage' amid Marawi siege](http://www.f3nws.com/n/yVsUHG)
 
-> Posted on: Wednesday, May 24, 2017 6:14:11 PM
+> Posted on: Wednesday, May 24, 2017 6:45:35 PM
