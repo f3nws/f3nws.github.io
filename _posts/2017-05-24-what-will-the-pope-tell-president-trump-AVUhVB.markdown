@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What will the Pope tell President Trump?"
-date: 2017-05-24 01:53:15Z
+date: 2017-05-24 06:56:33Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ After meeting with Muslim leaders in Saudi Arabia and visiting sacred sites in J
 
 Full story on F3News: [What will the Pope tell President Trump?](http://www.f3nws.com/n/AVUhVB)
 
-> Posted on: Wednesday, May 24, 2017 6:53:15 AM
+> Posted on: Wednesday, May 24, 2017 11:56:33 AM
