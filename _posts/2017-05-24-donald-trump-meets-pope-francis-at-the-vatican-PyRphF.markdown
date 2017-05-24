@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump meets Pope Francis at the Vatican"
-date: 2017-05-24 06:55:26Z
+date: 2017-05-24 21:10:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Visit comes after public disagreements between the two men over climate change, 
 
 Full story on F3News: [Donald Trump meets Pope Francis at the Vatican](http://www.f3nws.com/n/PyRphF)
 
-> Posted on: Wednesday, May 24, 2017 11:55:26 AM
+> Posted on: Thursday, May 25, 2017 2:10:08 AM

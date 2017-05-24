@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taiwan top court rules in favour of gay marriage"
-date: 2017-05-24 09:42:45Z
+date: 2017-05-24 21:09:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Judges in small island nation say current laws violate constitutional rights, bu
 
 Full story on F3News: [Taiwan top court rules in favour of gay marriage](http://www.f3nws.com/n/yEDSPF)
 
-> Posted on: Wednesday, May 24, 2017 2:42:45 PM
+> Posted on: Thursday, May 25, 2017 2:09:33 AM
