@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Tom Cruise Just Confirmed a Top Gun Sequel Is In the Works - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/201742/rs_600x600-170502123655-600.Tom-Cruise-France-JR-050217.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online Tom Cruise Just Confirmed a Top Gun Sequel Is In the Works E! Online Tom Cruise himself confirmed the exciting movie news while promoting his upcoming flick, The Mummy, in an interview with Australia's Sunrise earlier today. "It's true, yeah it's true," he said while beaming from ear-to-ear. "You know what? I'm going to ... Tom Cruise Says 'Top Gun 2' Will Be Filming “In The Next Year” Deadline Tom Cruise says Top Gun 2 is 'definitely happening' EW.com Tom Cruise reveals 'Top Gun 2' to start filming soon New York Daily News USA TODAY - Just Jared - Hollywood Life - New York Post all 29 news articles »
+E! Online Tom Cruise Just Confirmed a Top Gun Sequel Is In the Works E! Online Tom Cruise himself confirmed the exciting movie news while promoting his upcoming flick, The Mummy, in an interview with Australia's Sunrise earlier today. "It's true, yeah it's true," he said while beaming from ear-to-ear. "You know what? I'm going to ... Tom Cruise Says 'Top Gun 2' Will Be Filming “In The Next Year” Deadline Tom Cruise says Top Gun 2 is 'definitely happening' EW.com Tom Cruise Confirms Top Gun Sequel ComingSoon.net Hollywood Life - New York Daily News - USA TODAY - Just Jared all 42 news articles »
 
 
 Full story on F3News: [Tom Cruise Just Confirmed a Top Gun Sequel Is In the Works - E! Online](http://www.f3nws.com/n/xszFTG)
