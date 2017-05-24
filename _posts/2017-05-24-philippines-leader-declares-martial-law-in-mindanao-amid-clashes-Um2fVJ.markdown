@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines leader declares martial law in Mindanao amid clashes"
-date: 2017-05-24 07:03:09Z
+date: 2017-05-24 09:14:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Deadly clashes erupted between government troops and Islamist militants Tuesday 
 
 Full story on F3News: [Philippines leader declares martial law in Mindanao amid clashes](http://www.f3nws.com/n/Um2fVJ)
 
-> Posted on: Wednesday, May 24, 2017 12:03:09 PM
+> Posted on: Wednesday, May 24, 2017 2:14:48 PM
