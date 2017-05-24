@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ex-CIA Chief Reveals Mounting Concern Over Trump Campaign and Russia - New York Times](https://static01.nyt.com/images/2017/05/24/us/24intel/24intel-facebookJumbo.jpg)
 
-New York Times Ex-CIA Chief Reveals Mounting Concern Over Trump Campaign and Russia New York Times John O. Brennan, the former director the C.I.A., testified during a House Intelligence Committee hearing on Tuesday in Washington. Credit Al Drago/The New York Times. WASHINGTON — John O. Brennan, the former C.I.A. director, described on Tuesday a ... CIA director alerted FBI to pattern of contacts between Russian officials and Trump campaign associates Washington Post 5 takeaways from intel leaders' Trump testimony Politico Five takeaways from a busy day of Russia hearings The Hill Reuters - Los Angeles Times - Washington Times - USA TODAY all 347 news articles »
+New York Times Ex-CIA Chief Reveals Mounting Concern Over Trump Campaign and Russia New York Times John O. Brennan, the former director the C.I.A., testified during a House Intelligence Committee hearing on Tuesday in Washington. Credit Al Drago/The New York Times. WASHINGTON — John O. Brennan, the former C.I.A. director, described on Tuesday a ... CIA director alerted FBI to pattern of contacts between Russian officials and Trump campaign associates Washington Post 5 takeaways from intel leaders' Trump testimony Politico Ex-CIA chief says he warned Russia in 2016 about election meddling Reuters Los Angeles Times - USA TODAY - Washington Times - The Atlantic all 349 news articles »
 
 
 Full story on F3News: [Ex-CIA Chief Reveals Mounting Concern Over Trump Campaign and Russia - New York Times](http://www.f3nws.com/n/GtuBUD)
