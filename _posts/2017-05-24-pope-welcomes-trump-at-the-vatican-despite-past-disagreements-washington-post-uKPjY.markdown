@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Pope welcomes Trump at the Vatican despite past disagreements - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/24/National-Politics/Images/AFP_OU2WA.jpg)
 
-Washington Post Pope welcomes Trump at the Vatican despite past disagreements Washington Post VATICAN CITY — Pope Francis welcomed President Trump to the cradle of Roman Catholicism on Wednesday, delivering a message of peace even as the pontiff emphasized his role as the world's moral counterpoint to the president's nationalist agenda. Melania Trump minds Vatican protocol in veil decision CNN Trump ditches his feud in gracious visit with the pope Politico The Latest: Trump's Meeting With Pope Prompts Lockdown in... New York Times NPR - NBCNews.com - BBC News - Crux: Covering all things Catholic all 699 news articles »
+Washington Post Pope welcomes Trump at the Vatican despite past disagreements Washington Post VATICAN CITY — Pope Francis welcomed President Trump to the cradle of Roman Catholicism on Wednesday, delivering a message of peace even as the pontiff emphasized his role as the world's moral counterpoint to the president's nationalist agenda. Trump ditches his feud in gracious visit with the pope Politico Melania Trump wears veil, but not a headscarf CNN The Latest: Trump's Meeting With the Pope at the Vatican New York Times ABC News - NPR - The Atlantic - NBCNews.com all 728 news articles »
 
 
 Full story on F3News: [Pope welcomes Trump at the Vatican despite past disagreements - Washington Post](http://www.f3nws.com/n/uKPjY)
