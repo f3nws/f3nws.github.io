@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Duterte considers martial law for entire Philippines"
-date: 2017-05-24 19:00:11Z
+date: 2017-05-24 20:50:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Residents flee Mindanao's Marawi city as fighters reportedly behead a local poli
 
 Full story on F3News: [Duterte considers martial law for entire Philippines](http://www.f3nws.com/n/gVdcKD)
 
-> Posted on: Thursday, May 25, 2017 12:00:11 AM
+> Posted on: Thursday, May 25, 2017 1:50:10 AM

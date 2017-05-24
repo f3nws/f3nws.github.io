@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester attack suspect 'likely' did not act alone"
-date: 2017-05-24 20:11:21Z
+date: 2017-05-24 20:45:53Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UK home secretary says suspected bomber 'likely' did not act alone as soldiers t
 
 Full story on F3News: [Manchester attack suspect 'likely' did not act alone](http://www.f3nws.com/n/hxkfKE)
 
-> Posted on: Thursday, May 25, 2017 1:11:21 AM
+> Posted on: Thursday, May 25, 2017 1:45:53 AM
