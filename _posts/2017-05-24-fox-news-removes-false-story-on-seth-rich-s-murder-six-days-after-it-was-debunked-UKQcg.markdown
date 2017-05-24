@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox News removes false story on Seth Rich's murder -- six days after it was debunked"
-date: 2017-05-24 04:54:33Z
+date: 2017-05-24 11:54:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Fox News on Tuesday removed from its site an inaccurate story that peddled a con
 
 Full story on F3News: [Fox News removes false story on Seth Rich's murder -- six days after it was debunked](http://www.f3nws.com/n/UKQcg)
 
-> Posted on: Wednesday, May 24, 2017 9:54:33 AM
+> Posted on: Wednesday, May 24, 2017 4:54:29 PM
