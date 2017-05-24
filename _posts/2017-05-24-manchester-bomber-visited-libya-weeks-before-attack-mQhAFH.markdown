@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester bomber visited Libya weeks before attack"
-date: 2017-05-24 17:23:25Z
+date: 2017-05-24 18:32:14Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The 22-year-old behind the deadly bombing at an Ariana Grande concert in Manches
 
 Full story on F3News: [Manchester bomber visited Libya weeks before attack](http://www.f3nws.com/n/mQhAFH)
 
-> Posted on: Wednesday, May 24, 2017 10:23:25 PM
+> Posted on: Wednesday, May 24, 2017 11:32:14 PM
