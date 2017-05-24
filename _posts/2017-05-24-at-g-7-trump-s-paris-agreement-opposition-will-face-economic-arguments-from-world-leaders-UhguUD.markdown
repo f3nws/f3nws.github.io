@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At G-7, Trump's Paris Agreement opposition will face economic arguments from world leaders"
-date: 2017-05-24 18:00:10Z
+date: 2017-05-24 18:30:09Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Analysts says that leaders of the Group of Seven nations have a prime opportunit
 
 Full story on F3News: [At G-7, Trump's Paris Agreement opposition will face economic arguments from world leaders](http://www.f3nws.com/n/UhguUD)
 
-> Posted on: Wednesday, May 24, 2017 11:00:10 PM
+> Posted on: Wednesday, May 24, 2017 11:30:09 PM
