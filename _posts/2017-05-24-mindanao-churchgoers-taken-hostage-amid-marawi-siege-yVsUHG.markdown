@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Mindanao: Churchgoers 'taken hostage' amid Marawi siege"
-date: 2017-05-24 10:49:02Z
+date: 2017-05-24 13:14:11Z
 categories: al-jazeera-english
 ---
 
-![Mindanao: Churchgoers 'taken hostage' amid Marawi siege](http://www.aljazeera.com/mritems/Images/2017/5/24/e77d50ec197f4786bf2d53077d4b7939_18.jpg)
+![Mindanao: Churchgoers 'taken hostage' amid Marawi siege](http://www.aljazeera.com/mritems/Images/2017/5/24/4124e44137fb4bd98acf6cbf840a4bcb_18.jpg)
 
-Ongoing violence prompts 'mass exodus' from Marawi, a day after Philippine leader Rodrigo Duterte declared martial law.
+Ongoing violence prompts 'mass exodus' from Marawi, as President Rodrigo Duterte considers nationwide martial law.
 
 
 Full story on F3News: [Mindanao: Churchgoers 'taken hostage' amid Marawi siege](http://www.f3nws.com/n/yVsUHG)
 
-> Posted on: Wednesday, May 24, 2017 3:49:02 PM
+> Posted on: Wednesday, May 24, 2017 6:14:11 PM
