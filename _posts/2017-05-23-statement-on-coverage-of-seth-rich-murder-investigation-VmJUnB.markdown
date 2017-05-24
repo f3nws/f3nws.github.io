@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Statement on coverage of Seth Rich murder investigation"
-date: 2017-05-23 23:00:02Z
+date: 2017-05-23 23:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ On May 16, a story was posted on the Fox News website on the investigation into 
 
 Full story on F3News: [Statement on coverage of Seth Rich murder investigation](http://www.f3nws.com/n/VmJUnB)
 
-> Posted on: Wednesday, May 24, 2017 4:00:02 AM
+> Posted on: Wednesday, May 24, 2017 4:30:02 AM
