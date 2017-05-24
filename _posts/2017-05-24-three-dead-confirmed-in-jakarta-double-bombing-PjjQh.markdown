@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three dead confirmed in Jakarta double bombing"
-date: 2017-05-24 21:55:47Z
+date: 2017-05-24 22:06:17Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Two explosions strike bus station in Indonesia's capital, killing three police o
 
 Full story on F3News: [Three dead confirmed in Jakarta double bombing](http://www.f3nws.com/n/PjjQh)
 
-> Posted on: Thursday, May 25, 2017 2:55:47 AM
+> Posted on: Thursday, May 25, 2017 3:06:17 AM
