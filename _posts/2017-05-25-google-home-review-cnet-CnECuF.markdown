@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Home review     - CNET"
-date: 2017-05-25 12:00:14Z
+date: 2017-05-25 14:14:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Google Home is taking on Amazon's Alexa in the battle to control your whole 
 
 Full story on F3News: [Google Home review     - CNET](http://www.f3nws.com/n/CnECuF)
 
-> Posted on: Thursday, May 25, 2017 5:00:14 PM
+> Posted on: Thursday, May 25, 2017 7:14:05 PM

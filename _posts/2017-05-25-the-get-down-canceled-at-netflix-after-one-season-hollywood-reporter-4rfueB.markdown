@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['The Get Down' Canceled at Netflix After One Season - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2016/01/the_get_down_sizzle_-_netflix_-_h_2016_0.jpg)
 
-Hollywood Reporter 'The Get Down' Canceled at Netflix After One Season Hollywood Reporter Netflix has canceled ambitious music drama from writer-director Baz Luhrmann after one season, it was announced Wednesday. The news comes nearly two months after the second half of the series' first season premiered on the streaming giant. The Get ... Netflix cancels The Get Down EW.com Baz Luhrmann's 'The Get Down' Canceled By Netflix After One Season Deadline Netflix cancels Baz Luhrmann's The Get Down after its first season The Verge Vanity Fair - Business Insider - BBC News - Esquire.com all 53 news articles »
+Hollywood Reporter 'The Get Down' Canceled at Netflix After One Season Hollywood Reporter Netflix has canceled ambitious music drama from writer-director Baz Luhrmann after one season, it was announced Wednesday. The news comes nearly two months after the second half of the series' first season premiered on the streaming giant. The Get ... Netflix cancels The Get Down EW.com Baz Luhrmann's 'The Get Down' Canceled By Netflix After One Season Deadline Netflix cancels Baz Luhrmann's The Get Down after its first season The Verge Vanity Fair - Esquire.com - Business Insider - Variety all 56 news articles »
 
 
 Full story on F3News: ['The Get Down' Canceled at Netflix After One Season - Hollywood Reporter](http://www.f3nws.com/n/4rfueB)
