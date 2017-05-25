@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jakarta bus station struck by suspected suicide bombing, police say"
-date: 2017-05-25 01:03:44Z
+date: 2017-05-25 02:00:12Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A suspected suicide bombing rocked the Indonesian capital of Jakarta on Wednesda
 
 Full story on F3News: [Jakarta bus station struck by suspected suicide bombing, police say](http://www.f3nws.com/n/AesNaG)
 
-> Posted on: Thursday, May 25, 2017 6:03:44 AM
+> Posted on: Thursday, May 25, 2017 7:00:12 AM
