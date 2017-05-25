@@ -7,7 +7,7 @@ categories: al-jazeera-english
 
 ![Embattled Michel Temer deploys troops to streets](http://www.aljazeera.com/mritems/Images/2017/5/25/dd6f1e8f0f884fdba74ae3e455601eab_18.jpg)
 
-Fiery mass protest turns violent in Brasilia as President Michel Temer orders the controversial deployment of soldiers.
+Fiery mass protest turns violent in Brasilia as President Michel Temer orders deployment of soldiers to restore order.
 
 
 Full story on F3News: [Embattled Michel Temer deploys troops to streets](http://www.f3nws.com/n/mmPSN)

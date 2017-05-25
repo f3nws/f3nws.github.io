@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester terror attack probe widens as US leaks grate"
-date: 2017-05-25 01:35:22Z
+date: 2017-05-25 03:01:12Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ Britain raced Thursday to track down a jihadist network suspected of orchestrati
 
 Full story on F3News: [Manchester terror attack probe widens as US leaks grate](http://www.f3nws.com/n/fDXaSB)
 
-> Posted on: Thursday, May 25, 2017 6:35:22 AM
+> Posted on: Thursday, May 25, 2017 8:01:12 AM
