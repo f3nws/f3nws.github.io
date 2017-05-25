@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wary allies await Trump at NATO summit in Brussels"
-date: 2017-05-25 09:33:32Z
+date: 2017-05-25 12:52:44Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ When US President Donald Trump attends his first NATO summit in Brussels on Thur
 
 Full story on F3News: [Wary allies await Trump at NATO summit in Brussels](http://www.f3nws.com/n/AVPk4E)
 
-> Posted on: Thursday, May 25, 2017 2:33:32 PM
+> Posted on: Thursday, May 25, 2017 5:52:44 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ramadan 2017: First day of fasting expected May 27"
-date: 2017-05-25 10:34:50Z
+date: 2017-05-25 12:09:26Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia has called for moon sighting on Thursday evening. If no moon is spo
 
 Full story on F3News: [Ramadan 2017: First day of fasting expected May 27](http://www.f3nws.com/n/RuRSWE)
 
-> Posted on: Thursday, May 25, 2017 3:34:50 PM
+> Posted on: Thursday, May 25, 2017 5:09:26 PM

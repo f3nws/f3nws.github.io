@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NATO troop increase plan draws criticism in Afghanistan"
-date: 2017-05-25 11:16:20Z
+date: 2017-05-25 12:25:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ NATO set to discuss sending more soldiers to Afghanistan, but many in Kabul fear
 
 Full story on F3News: [NATO troop increase plan draws criticism in Afghanistan](http://www.f3nws.com/n/Sr2eMB)
 
-> Posted on: Thursday, May 25, 2017 4:16:20 PM
+> Posted on: Thursday, May 25, 2017 5:25:33 PM
