@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Ubisoft reveals first Far Cry 5 art and it's a doozie - PC Gamer](http://cdn.mos.cms.futurecdn.net/qkShWNwh3tmD6yiQFC3Fwk-1200-80.jpg)
 
-PC Gamer Ubisoft reveals first Far Cry 5 art and it's a doozie PC Gamer The official Far Cry 5 reveal is still a couple days out, but Ubisoft today released the first full-on promotional image for the game, and it is—to put it mildly—provocative. The image depicts a group of heavily-armed, heavily-bearded men, plus one ... New first-person shooter has players hunting white Americans American Thinker (blog) Can Ubisoft Walk the Walk by Bringing Far Cry to Montana? Hardcore Gamer 'Far Cry 5' Latest Teaser Hints Cult Setting, Details Here iTech Post PlayStation LifeStyle - Gameranx (blog) - GameZone - Attack of the Fanboy all 86 news articles »
+PC Gamer Ubisoft reveals first Far Cry 5 art and it's a doozie PC Gamer The official Far Cry 5 reveal is still a couple days out, but Ubisoft today released the first full-on promotional image for the game, and it is—to put it mildly—provocative. The image depicts a group of heavily-armed, heavily-bearded men, plus one ... New first-person shooter has players hunting white Americans American Thinker (blog) Can Ubisoft Walk the Walk by Bringing Far Cry to Montana? Hardcore Gamer 'Far Cry 5' Latest Teaser Hints Cult Setting, Details Here iTech Post PlayStation LifeStyle - Gameranx (blog) - GameZone - Attack of the Fanboy all 87 news articles »
 
 
 Full story on F3News: [Ubisoft reveals first Far Cry 5 art and it's a doozie - PC Gamer](http://www.f3nws.com/n/RSzsxH)
