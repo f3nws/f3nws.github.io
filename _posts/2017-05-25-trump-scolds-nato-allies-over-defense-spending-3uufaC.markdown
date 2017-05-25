@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump scolds NATO allies over defense spending"
-date: 2017-05-25 16:33:52Z
+date: 2017-05-25 18:21:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Thursday chided NATO member countries directly for not
 
 Full story on F3News: [Trump scolds NATO allies over defense spending](http://www.f3nws.com/n/3uufaC)
 
-> Posted on: Thursday, May 25, 2017 9:33:52 PM
+> Posted on: Thursday, May 25, 2017 11:21:49 PM
