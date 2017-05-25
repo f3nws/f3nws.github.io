@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former PM Lucas Papademos injured in explosion"
-date: 2017-05-25 19:07:09Z
+date: 2017-05-25 20:36:07Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Lucas Papademos, a former central bank chief, admitted to hospital in Athens aft
 
 Full story on F3News: [Former PM Lucas Papademos injured in explosion](http://www.f3nws.com/n/NrMSpF)
 
-> Posted on: Friday, May 26, 2017 12:07:09 AM
+> Posted on: Friday, May 26, 2017 1:36:07 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Montana newspapers pull support for GOP candidate after alleged assault"
-date: 2017-05-25 20:20:27Z
+date: 2017-05-25 20:38:26Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Three Montana newspapers have abruptly yanked their support for Republican congr
 
 Full story on F3News: [Montana newspapers pull support for GOP candidate after alleged assault](http://www.f3nws.com/n/QurMnB)
 
-> Posted on: Friday, May 26, 2017 1:20:27 AM
+> Posted on: Friday, May 26, 2017 1:38:26 AM
