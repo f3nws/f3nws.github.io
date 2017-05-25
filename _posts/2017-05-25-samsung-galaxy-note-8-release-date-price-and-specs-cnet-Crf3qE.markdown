@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung Galaxy Note 8 Release Date, Price and Specs     - CNET"
-date: 2017-05-25 17:48:19Z
+date: 2017-05-25 18:26:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ One of Samsung's most important phones -- ever -- is rumored to have two cameras
 
 Full story on F3News: [Samsung Galaxy Note 8 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/Crf3qE)
 
-> Posted on: Thursday, May 25, 2017 10:48:19 PM
+> Posted on: Thursday, May 25, 2017 11:26:05 PM
