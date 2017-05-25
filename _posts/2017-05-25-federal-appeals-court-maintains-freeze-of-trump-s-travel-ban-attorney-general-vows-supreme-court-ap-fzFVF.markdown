@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "Federal appeals court maintains freeze of Trump's travel ban. Attorney General vows Supreme Court appeal. - Washington Post"
+title:  "Federal appeals court maintains freeze of Trump's travel ban. Attorney general vows Supreme Court appeal. - Washington Post"
 date: 2017-05-25 21:24:53Z
 categories: google-news-top-stories
 ---
 
-![Federal appeals court maintains freeze of Trump's travel ban. Attorney General vows Supreme Court appeal. - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/11/Cops-Courts/Images/Travel_Ban_Lawsuits_76253-3d676.jpg)
+![Federal appeals court maintains freeze of Trump's travel ban. Attorney general vows Supreme Court appeal. - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/11/Cops-Courts/Images/Travel_Ban_Lawsuits_76253-3d676.jpg)
 
-Washington Post Federal appeals court maintains freeze of Trump's travel ban. Attorney General vows Supreme Court appeal. Washington Post A federal appeals court on Thursday left in place the freeze on President Trump's revised entry ban, handing the administration another legal setback in its efforts to block the issuance of new visas to citizens of six Muslim-majority countries. The ... Appeals Court Will Not Reinstate Trump's Revised Travel Ban New York Times Trump dealt another defeat on travel ban, as US appeals court in Virginia blocks enforcement Los Angeles Times Only the Supreme Court Can Save Trump's Travel Ban Now The Atlantic Business Insider - U.S. News & World Report - Slate Magazine (blog) - Reuters all 243 news articles »
+Washington Post Federal appeals court maintains freeze of Trump's travel ban. Attorney general vows Supreme Court appeal. Washington Post A federal appeals court on Thursday left in place the freeze on President Trump's revised entry ban, handing the administration another legal setback in its efforts to block the issuance of new visas to citizens of six Muslim-majority countries. The ... Appeals court upholds injunction blocking Trump's travel ban The Hill Appeals Court Will Not Reinstate Trump's Revised Travel Ban New York Times Trump dealt another defeat on travel ban, as US appeals court in Virginia blocks enforcement Los Angeles Times The Atlantic - Business Insider - Slate Magazine (blog) - Reuters all 254 news articles »
 
 
-Full story on F3News: [Federal appeals court maintains freeze of Trump's travel ban. Attorney General vows Supreme Court appeal. - Washington Post](http://www.f3nws.com/n/fzFVF)
+Full story on F3News: [Federal appeals court maintains freeze of Trump's travel ban. Attorney general vows Supreme Court appeal. - Washington Post](http://www.f3nws.com/n/fzFVF)
 
 > Posted on: Friday, May 26, 2017 2:24:53 AM

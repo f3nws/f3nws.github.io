@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How US intelligence leaks upset 2 allies in 1 week"
-date: 2017-05-25 16:53:42Z
+date: 2017-05-25 22:27:09Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ With multiple high-profile intelligence leaks in recent weeks, the US has now ma
 
 Full story on F3News: [How US intelligence leaks upset 2 allies in 1 week](http://www.f3nws.com/n/vDCJKH)
 
-> Posted on: Thursday, May 25, 2017 9:53:42 PM
+> Posted on: Friday, May 26, 2017 3:27:09 AM
