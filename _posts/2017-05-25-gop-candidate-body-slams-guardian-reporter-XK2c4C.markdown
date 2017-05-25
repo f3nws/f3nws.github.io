@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP candidate 'body slams' Guardian reporter"
-date: 2017-05-25 04:26:03Z
+date: 2017-05-25 05:22:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [GOP candidate 'body slams' Guardian reporter](http://www.f3nws.com/n/XK2c4C)
 
-> Posted on: Thursday, May 25, 2017 9:26:03 AM
+> Posted on: Thursday, May 25, 2017 10:22:16 AM
