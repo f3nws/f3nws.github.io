@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NewsGrid - Al Jazeera's interactive news hour"
-date: 2017-05-25 14:40:03Z
+date: 2017-05-25 15:03:04Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Live every day at 15:00 GMT, our interactive news bulletin gives you the opportu
 
 Full story on F3News: [NewsGrid - Al Jazeera's interactive news hour](http://www.f3nws.com/n/uKjrBG)
 
-> Posted on: Thursday, May 25, 2017 7:40:03 PM
+> Posted on: Thursday, May 25, 2017 8:03:04 PM
