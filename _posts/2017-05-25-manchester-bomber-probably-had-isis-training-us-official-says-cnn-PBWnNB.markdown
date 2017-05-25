@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Manchester bomber probably had ISIS training, US official says - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170525101338-04-manchester-terror-attack-nyt-super-tease.jpg)
 
-CNN Manchester bomber probably had ISIS training, US official says CNN Manchester, England (CNN) Manchester suicide bomber Salman Abedi likely received some ISIS training by traveling to Syria in the months before the attack, according to information gathered in the preliminary investigation, a US official told CNN Thursday. The Latest: Relative says UK bomber called Britons infidels Washington Post UK, in Mourning, Asks if It Could Have Stopped Manchester Bomber New York Times Manchester attack: Trump condemns media leaks BBC News Fox News - ABC News - Daily Beast - CBS News all 15,515 news articles »
+CNN Manchester bomber probably had ISIS training, US official says CNN Manchester, England (CNN) [Breaking news update, posted at 5:50 p.m. ET]. Britain late Thursday resumed intelligence sharing with the United States after suspending the practice amid media leaks by American officials, the National Police Chiefs ... Trump calls for investigation of US leaks in Manchester bombing probe Washington Post Trump condemns leaks after UK police briefly halt information sharing Reuters Manchester police will stop sharing bombing investigation info with the US amid fury over leaks Los Angeles Times BBC News - ABC News - Fox News - Chicago Tribune all 15,773 news articles »
 
 
 Full story on F3News: [Manchester bomber probably had ISIS training, US official says - CNN](http://www.f3nws.com/n/PBWnNB)
