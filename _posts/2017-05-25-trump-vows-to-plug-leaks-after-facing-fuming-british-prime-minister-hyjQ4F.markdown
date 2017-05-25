@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump vows to plug leaks after facing fuming British prime minister"
-date: 2017-05-25 15:37:59Z
+date: 2017-05-25 17:03:19Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump arrived at NATO headquarters here Thursday under a cloud 
 
 Full story on F3News: [Trump vows to plug leaks after facing fuming British prime minister](http://www.f3nws.com/n/hyjQ4F)
 
-> Posted on: Thursday, May 25, 2017 8:37:59 PM
+> Posted on: Thursday, May 25, 2017 10:03:19 PM

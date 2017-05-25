@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Key Montana newspapers pull Gianforte endorsement after incident"
-date: 2017-05-25 13:00:10Z
+date: 2017-05-25 17:30:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Billings Gazette wrote an editorial late Wednesday that it has rescinded its
 
 Full story on F3News: [Key Montana newspapers pull Gianforte endorsement after incident](http://www.f3nws.com/n/BvC4jE)
 
-> Posted on: Thursday, May 25, 2017 6:00:10 PM
+> Posted on: Thursday, May 25, 2017 10:30:07 PM
