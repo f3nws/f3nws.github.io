@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Were MS-13 gang members released into US communities? Senator demands answers"
-date: 2017-05-24 21:21:00Z
+date: 2017-05-24 21:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ At least 16 self-proclaimed MS-13 gang members were transferred out of federal c
 
 Full story on F3News: [Were MS-13 gang members released into US communities? Senator demands answers](http://www.f3nws.com/n/x3Emz)
 
-> Posted on: Thursday, May 25, 2017 2:21:00 AM
+> Posted on: Thursday, May 25, 2017 2:45:00 AM

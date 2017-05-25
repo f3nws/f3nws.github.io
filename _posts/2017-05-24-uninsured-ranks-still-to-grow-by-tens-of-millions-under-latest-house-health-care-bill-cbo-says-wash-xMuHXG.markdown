@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Uninsured ranks still to grow by tens of millions under latest House health-care bill, CBO says - Washington Post"
-date: 2017-05-24 23:04:28Z
+date: 2017-05-24 22:24:31Z
 categories: google-news-top-stories
 ---
 
 ![Uninsured ranks still to grow by tens of millions under latest House health-care bill, CBO says - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/24/Health-Environment-Science/Images/05836781-AIUY.jpg)
 
-Washington Post Uninsured ranks still to grow by tens of millions under latest House health-care bill, CBO says Washington Post Health-care legislation adopted by House Republicans earlier this month would leave 23 million more Americans uninsured by 2026 than under current law, the Congressional Budget Office projected Wednesday — only a million fewer than the estimate for ... GOP Health Plan Would Leave 23 Million More Uninsured, Budget Office Says NPR GOP Health Bill Would Leave 23 Million More Uninsured in a Decade, CBO Says New York Times Five takeaways from the CBO healthcare score The Hill Politico - CNN - Los Angeles Times - USA TODAY all 518 news articles »
+Washington Post Uninsured ranks still to grow by tens of millions under latest House health-care bill, CBO says Washington Post Health-care legislation adopted by House Republicans earlier this month would leave 23 million more Americans uninsured by 2026 than under current law, the Congressional Budget Office projected Wednesday — only a million fewer than the estimate for ... GOP Health Plan Would Leave 23 Million More Uninsured, Budget Office Says NPR GOP Health Bill Would Leave 23 Million More Uninsured in a Decade, CBO Says New York Times Five takeaways from the CBO healthcare score The Hill HuffPost - Politico - CNN - NBCNews.com all 576 news articles »
 
 
 Full story on F3News: [Uninsured ranks still to grow by tens of millions under latest House health-care bill, CBO says - Washington Post](http://www.f3nws.com/n/xMuHXG)
 
-> Posted on: Thursday, May 25, 2017 4:04:28 AM
+> Posted on: Thursday, May 25, 2017 3:24:31 AM
