@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Libyan coastguard opened fire at refugee boats: NGOs"
-date: 2017-05-25 19:54:13Z
+date: 2017-05-25 20:06:30Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Aid groups say 70 refugees jumped into Mediterranean waters to avoid being shot 
 
 Full story on F3News: [Libyan coastguard opened fire at refugee boats: NGOs](http://www.f3nws.com/n/chVRsE)
 
-> Posted on: Friday, May 26, 2017 12:54:13 AM
+> Posted on: Friday, May 26, 2017 1:06:30 AM
