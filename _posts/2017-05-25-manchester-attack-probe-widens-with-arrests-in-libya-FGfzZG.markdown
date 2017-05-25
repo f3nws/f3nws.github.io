@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester attack probe widens with arrests in Libya"
-date: 2017-05-25 12:09:53Z
+date: 2017-05-25 21:43:09Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Suspect's father held in Tripoli says 'everything was normal' with his son days 
 
 Full story on F3News: [Manchester attack probe widens with arrests in Libya](http://www.f3nws.com/n/FGfzZG)
 
-> Posted on: Thursday, May 25, 2017 5:09:53 PM
+> Posted on: Friday, May 26, 2017 2:43:09 AM

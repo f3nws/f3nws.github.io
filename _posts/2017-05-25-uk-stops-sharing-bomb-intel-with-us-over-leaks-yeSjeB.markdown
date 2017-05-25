@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK stops sharing bomb intel with US over leaks"
-date: 2017-05-25 20:37:24Z
+date: 2017-05-25 21:50:32Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Images of what is purported to be the explosive device used in Monday night's de
 
 Full story on F3News: [UK stops sharing bomb intel with US over leaks](http://www.f3nws.com/n/yeSjeB)
 
-> Posted on: Friday, May 26, 2017 1:37:24 AM
+> Posted on: Friday, May 26, 2017 2:50:32 AM
