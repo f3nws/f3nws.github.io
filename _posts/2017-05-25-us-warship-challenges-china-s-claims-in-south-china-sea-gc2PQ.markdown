@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US warship challenges China's claims in South China Sea"
-date: 2017-05-25 02:30:59Z
+date: 2017-05-25 08:46:48Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ A first under President Trump, USS Dewey cruises past artificial island built by
 
 Full story on F3News: [US warship challenges China's claims in South China Sea](http://www.f3nws.com/n/gc2PQ)
 
-> Posted on: Thursday, May 25, 2017 7:30:59 AM
+> Posted on: Thursday, May 25, 2017 1:46:48 PM
