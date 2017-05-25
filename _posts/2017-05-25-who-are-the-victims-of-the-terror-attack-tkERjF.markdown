@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who are the victims of the terror attack?"
-date: 2017-05-25 10:08:20Z
+date: 2017-05-25 11:37:57Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ They were parents, sons, daughters, sisters, brothers, friends, colleagues and c
 
 Full story on F3News: [Who are the victims of the terror attack?](http://www.f3nws.com/n/tkERjF)
 
-> Posted on: Thursday, May 25, 2017 3:08:20 PM
+> Posted on: Thursday, May 25, 2017 4:37:57 PM
