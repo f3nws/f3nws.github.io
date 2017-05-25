@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7-Year-Old Samba Flaw Lets Hackers Access Thousands of Linux PCs Remotely"
-date: 2017-05-25 07:48:14Z
+date: 2017-05-25 08:03:20Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ A 7-year-old critical remote code execution vulnerability has been discovered in
 
 Full story on F3News: [7-Year-Old Samba Flaw Lets Hackers Access Thousands of Linux PCs Remotely](http://www.f3nws.com/n/ujdJuB)
 
-> Posted on: Thursday, May 25, 2017 12:48:14 PM
+> Posted on: Thursday, May 25, 2017 1:03:20 PM
