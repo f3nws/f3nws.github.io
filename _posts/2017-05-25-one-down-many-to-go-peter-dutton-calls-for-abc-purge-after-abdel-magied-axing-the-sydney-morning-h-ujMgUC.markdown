@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['One down, many to go': Peter Dutton calls for ABC purge after Abdel-Magied axing - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/u/n/j/p/z/image.related.articleLeadwide.620x349.gwcp78.png/1495722441858.jpg)
 
-The Sydney Morning Herald 'One down, many to go': Peter Dutton calls for ABC purge after Abdel-Magied axing The Sydney Morning Herald Immigration Minister Peter Dutton has called for a purge of ABC personalities in the wake of the broadcaster's decision to axe Yassmin Abdel-Magied's program, which he welcomed as "a good start". Play Video. Replay Video. Play Video Don't Play ... Dutton welcomes Yassmin's TV axing NEWS.com.au One down, many to go at ABC The Australian Peter Dutton's 'Jihad' On The ABC: 'One Down, Many To Go' Huffington Post Australia Daily Mail - B&T - Starts at 60 - Junkee all 22 news articles »
+The Sydney Morning Herald 'One down, many to go': Peter Dutton calls for ABC purge after Abdel-Magied axing The Sydney Morning Herald Immigration Minister Peter Dutton has called for a purge of ABC personalities in the wake of the broadcaster's decision to axe Yassmin Abdel-Magied's program, which he welcomed as "a good start". Play Video. Replay Video. Play Video Don't Play ... Dutton welcomes Yassmin's TV axing NEWS.com.au One down, many to go at ABC The Australian ABC cuts Yassmin Abdel-Magied's television program 9news.com.au Huffington Post Australia - Junkee - Daily Mail - B&T all 21 news articles »
 
 
 Full story on F3News: ['One down, many to go': Peter Dutton calls for ABC purge after Abdel-Magied axing - The Sydney Morning Herald](http://www.f3nws.com/n/ujMgUC)
