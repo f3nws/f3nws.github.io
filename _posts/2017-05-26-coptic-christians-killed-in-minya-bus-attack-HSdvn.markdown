@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Coptic Christians killed in Minya bus attack"
-date: 2017-05-26 17:36:36Z
+date: 2017-05-26 18:52:11Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Children among bus passengers targeted while going to a monastery in Minya provi
 
 Full story on F3News: [Coptic Christians killed in Minya bus attack](http://www.f3nws.com/n/HSdvn)
 
-> Posted on: Friday, May 26, 2017 10:36:36 PM
+> Posted on: Friday, May 26, 2017 11:52:11 PM
