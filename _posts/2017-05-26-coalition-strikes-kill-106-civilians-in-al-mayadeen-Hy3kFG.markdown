@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Coalition strikes kill 106 civilians' in Al Mayadeen"
-date: 2017-05-26 15:07:20Z
+date: 2017-05-26 16:19:30Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ No reaction from US-led coalition to reports of at least 106 deaths from attack 
 
 Full story on F3News: ['Coalition strikes kill 106 civilians' in Al Mayadeen](http://www.f3nws.com/n/Hy3kFG)
 
-> Posted on: Friday, May 26, 2017 8:07:20 PM
+> Posted on: Friday, May 26, 2017 9:19:30 PM

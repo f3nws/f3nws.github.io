@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Children among dozens killed as gunmen ambush convoy of Egyptian Coptic Christians (GRAPHIC VIDEO)](https://cdn.rt.com/files/2017.05/article/5928226cc46188a4698b456c.jpg)
 
-Gunmen opened fire on two buses and a truck carrying Coptic Christians in Minya, Egypt on Friday, killing at least 26, including children. Some 26 people were also injured in the attack. Read Full Article at RT.com
+Gunmen opened fire on two buses and a truck carrying Coptic Christians in Minya, Egypt on Friday, killing at least 28, including children. Some 24 people were also injured in the attack. Read Full Article at RT.com
 
 
 Full story on F3News: [Children among dozens killed as gunmen ambush convoy of Egyptian Coptic Christians (GRAPHIC VIDEO)](http://www.f3nws.com/n/gEkEJC)
