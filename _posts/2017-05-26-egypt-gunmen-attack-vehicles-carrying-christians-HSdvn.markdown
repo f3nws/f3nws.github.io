@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt: Gunmen attack vehicles carrying Christians"
-date: 2017-05-26 13:28:43Z
+date: 2017-05-26 13:44:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Masked attackers open fire on vehicles travelling to Minya monastery, killing an
 
 Full story on F3News: [Egypt: Gunmen attack vehicles carrying Christians](http://www.f3nws.com/n/HSdvn)
 
-> Posted on: Friday, May 26, 2017 6:28:43 PM
+> Posted on: Friday, May 26, 2017 6:44:15 PM
