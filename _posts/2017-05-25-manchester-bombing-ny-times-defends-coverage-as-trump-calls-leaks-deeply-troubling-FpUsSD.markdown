@@ -5,7 +5,7 @@ date: 2017-05-25 18:15:00Z
 categories: fox-news
 ---
 
-The New York Times defended its publication of the crime scene photos from the Manchester bombing site on Thursday, as President Donald Trump condemning the diplomatically damaging leaks and calling the Justice Department for a complete investigation.
+The New York Times defended its publication of the crime scene photos from the Manchester bombing site on Thursday, as President Donald Trump condemned the diplomatically damaging leaks and calling the Justice Department for a complete investigation.
 
 
 Full story on F3News: [Manchester bombing: NY Times defends coverage as Trump calls leaks 'deeply troubling'](http://www.f3nws.com/n/FpUsSD)

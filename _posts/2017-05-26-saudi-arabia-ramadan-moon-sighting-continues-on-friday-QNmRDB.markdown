@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia: Ramadan moon sighting continues on Friday"
-date: 2017-05-26 00:24:06Z
+date: 2017-05-26 00:38:10Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Lebanon, Turkey, Yemen and Iraq declare Saturday as the first day of Ramadan whi
 
 Full story on F3News: [Saudi Arabia: Ramadan moon sighting continues on Friday](http://www.f3nws.com/n/QNmRDB)
 
-> Posted on: Friday, May 26, 2017 5:24:06 AM
+> Posted on: Friday, May 26, 2017 5:38:10 AM

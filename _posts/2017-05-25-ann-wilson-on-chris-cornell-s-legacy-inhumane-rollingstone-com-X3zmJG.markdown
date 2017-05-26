@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ann Wilson on Chris Cornell's Legacy, 'Inhumane... - RollingStone.com](http://img.wennermedia.com/social/ann-wilson-chris-cornell-703c1c7b-2f00-4c1f-bf9a-988b2de1f527.jpg)
 
-RollingStone.com Ann Wilson on Chris Cornell's Legacy, 'Inhumane... RollingStone.com Heart's Ann and Nancy Wilson have been called "godmothers of the Seattle music scene." But that wasn't really the case, Ann Wilson tells Rolling Stone. Her house was simply the easiest to get to. And thus, it became the de facto safe haven for ... Becoming Chris Cornell: Inside the Early Days of Soundgarden Billboard Cornell funeral to take place Friday; widow pens letter Washington Post Chris Cornell's Widow Recounts Love Story, Bids Farewell to 'Best Friend' in Emotional Letter PEOPLE.com Diffuser.fm - WZZM - CNN - New Republic all 128 news articles »
+RollingStone.com Ann Wilson on Chris Cornell's Legacy, 'Inhumane... RollingStone.com Heart's Ann and Nancy Wilson have been called "godmothers of the Seattle music scene." But that wasn't really the case, Ann Wilson tells Rolling Stone. Her house was simply the easiest to get to. And thus, it became the de facto safe haven for ... Becoming Chris Cornell: Inside the Early Days of Soundgarden Billboard Cornell funeral to take place Friday; widow pens letter Washington Post Chris Cornell's Widow Recounts Love Story, Bids Farewell to 'Best Friend' in Emotional Letter PEOPLE.com Diffuser.fm - WZZM - CNN - USA TODAY all 131 news articles »
 
 
 Full story on F3News: [Ann Wilson on Chris Cornell's Legacy, 'Inhumane... - RollingStone.com](http://www.f3nws.com/n/X3zmJG)
