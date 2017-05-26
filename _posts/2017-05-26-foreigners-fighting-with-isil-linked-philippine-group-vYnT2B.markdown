@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Foreigners fighting' with ISIL-linked Philippine group"
-date: 2017-05-26 07:49:41Z
+date: 2017-05-26 08:13:22Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Indonesians and Malaysians among those killed by army in Marawi, where clashes w
 
 Full story on F3News: ['Foreigners fighting' with ISIL-linked Philippine group](http://www.f3nws.com/n/vYnT2B)
 
-> Posted on: Friday, May 26, 2017 12:49:41 PM
+> Posted on: Friday, May 26, 2017 1:13:22 PM
