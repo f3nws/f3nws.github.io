@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Wonder Woman's Women-Only Screenings Are Causing Drama All Over The Internet - Comicbook.com](http://media.comicbook.com/2017/05/wonder-woman-lasso-poster-header-997366-640x320.jpg)
 
-Comicbook.com Wonder Woman's Women-Only Screenings Are Causing Drama All Over The Internet Comicbook.com Another day, another drama. With Wonder Woman set to hit theaters in just a few days, the Internet is rearing its head to respond to one theater and its plans to host a special screening of the show. Alamo Drafthouse announced not long ago that it ... 'It's sexist': Men flip out over women-only 'Wonder Woman' screenings Washington Post 'Wonder Woman' women-only screenings cause uproar CNN Wonder Woman women-only screenings in Texas spark row BBC News Gizmodo - EW.com (blog) - Forbes - Bustle all 80 news articles »
+Comicbook.com Wonder Woman's Women-Only Screenings Are Causing Drama All Over The Internet Comicbook.com Another day, another drama. With Wonder Woman set to hit theaters in just a few days, the Internet is rearing its head to respond to one theater and its plans to host a special screening of the show. Alamo Drafthouse announced not long ago that it ... Men Horrified by Women-Only 'Wonder Woman' Screening Hollywood Reporter 'It's sexist': Men flip out over women-only 'Wonder Woman' screenings Washington Post Men up in arms over all-female 'Wonder Woman' screenings The Mercury News ABC News - Slate Magazine (blog) - CNN - BBC News all 131 news articles »
 
 
 Full story on F3News: [Wonder Woman's Women-Only Screenings Are Causing Drama All Over The Internet - Comicbook.com](http://www.f3nws.com/n/GzXfVB)
