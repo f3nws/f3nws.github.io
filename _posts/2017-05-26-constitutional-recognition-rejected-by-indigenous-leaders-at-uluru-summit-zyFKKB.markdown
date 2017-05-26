@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Constitutional recognition rejected by Indigenous leaders at Uluru summit](http://www.abc.net.au/news/image/8563980-1x1-700x700.jpg)
 
-Indigenous leaders from across the country reject the idea of being recognised in the constitution, endorsing a treaty instead and calling for a referendum for a voice in Parliament.
+Indigenous leaders from across the country outright reject the idea of mere recognition in the constitution, instead calling for a representative body to be enshrined in the nation's founding document and a process established working towards treaties.
 
 
 Full story on F3News: [Constitutional recognition rejected by Indigenous leaders at Uluru summit](http://www.f3nws.com/n/zyFKKB)
