@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande announces Manchester benefit concert"
-date: 2017-05-26 18:59:20Z
+date: 2017-05-26 19:38:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Singer Ariana Grande has posted a letter on Twitter to express her remorse over 
 
 Full story on F3News: [Ariana Grande announces Manchester benefit concert](http://www.f3nws.com/n/kpCpFB)
 
-> Posted on: Friday, May 26, 2017 11:59:20 PM
+> Posted on: Saturday, May 27, 2017 12:38:42 AM

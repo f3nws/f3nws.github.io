@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "28 killed in attack on Coptic Christians"
-date: 2017-05-26 18:03:58Z
+date: 2017-05-26 19:52:44Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Twenty-six people have been killed in Egypt after unidentified gunmen opened fir
 
 Full story on F3News: [28 killed in attack on Coptic Christians](http://www.f3nws.com/n/K3eeaE)
 
-> Posted on: Friday, May 26, 2017 11:03:58 PM
+> Posted on: Saturday, May 27, 2017 12:52:44 AM
