@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly Taliban raid hits Kandahar's Shah Wali Kot"
-date: 2017-05-26 17:18:32Z
+date: 2017-05-26 17:35:45Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Assault on Shah Wali Kot base marks third major Taliban attack in one week on th
 
 Full story on F3News: [Deadly Taliban raid hits Kandahar's Shah Wali Kot](http://www.f3nws.com/n/rjX2jC)
 
-> Posted on: Friday, May 26, 2017 10:18:32 PM
+> Posted on: Friday, May 26, 2017 10:35:45 PM
