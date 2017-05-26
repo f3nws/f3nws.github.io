@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump calls for investigation of US leaks in Manchester bombing probe - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/25/Foreign/Images/AFP_OW0KG.jpg)
 
-Washington Post Trump calls for investigation of US leaks in Manchester bombing probe Washington Post LONDON — President Trump on Thursday denounced U.S. leaks about Britain's investigation of the Manchester terrorist bombing as “deeply troubling” and asked the Justice Department and other agencies to launch a full investigation. Leaks from the ... DAILY MAIL COMMENT: Leaking bomb secret makes us less safe Daily Mail all 142 news articles »
+Washington Post Trump calls for investigation of US leaks in Manchester bombing probe Washington Post LONDON — President Trump on Thursday denounced U.S. leaks about Britain's investigation of the Manchester terrorist bombing as “deeply troubling” and asked the Justice Department and other agencies to launch a full investigation. Leaks from the ... and more »
 
 
 Full story on F3News: [Trump calls for investigation of US leaks in Manchester bombing probe - Washington Post](http://www.f3nws.com/n/DFrSDD)
