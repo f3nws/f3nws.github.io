@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Breaking down Trump's 'shove' - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/news/morning-mix/wp-content/uploads/sites/21/2017/05/Belgium_NATO_Summit_72008-f0558ddd.jpg&w=1484&op=resize&opt=1&filter=antialias)
 
-Washington Post Breaking down Trump's 'shove' Washington Post Was it a “shove?” Or more of a “brush” or “jostle.” Or perhaps just a friendly slap on the arm, a casual guy-greeting. In fact, “shove” was probably the most common word used to describe the fleeting, at best awkward interaction between Trump, the ... 5 things for Friday, May 26: Russia, Montana, travel ban, G-7 & NATO CNN In NATO Speech, Trump Is Vague About Mutual Defense Pledge New York Times Donald's bogus journey: President Trump's behavior at NATO summit makes a bad trip even worse Salon NBCNews.com - CBS News - New York Daily News - The Boston Globe all 1,708 news articles »
+Washington Post Breaking down Trump's 'shove' Washington Post Was it a “shove?” Or more of a “brush” or “jostle.” Or perhaps just a friendly slap on the arm, a casual guy-greeting. In fact, “shove” was probably the most common word used to describe the fleeting, at best awkward interaction between Trump, the ... Today in Trumpworld -- May 26 Politico Donald's bogus journey: President Trump's behavior at NATO summit makes a bad trip even worse Salon Why Trump's prime minister shove pleased Putin CNN Washington Examiner - New York Daily News - New York Times - NBCNews.com all 1,671 news articles »
 
 
 Full story on F3News: [Breaking down Trump's 'shove' - Washington Post](http://www.f3nws.com/n/vmPMjC)

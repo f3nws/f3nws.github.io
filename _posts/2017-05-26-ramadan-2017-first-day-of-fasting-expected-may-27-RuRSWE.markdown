@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ramadan 2017: First day of fasting expected May 27"
-date: 2017-05-26 00:44:42Z
+date: 2017-05-26 13:25:58Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Scientifically, Ramadan's new moon should be visible on Friday evening, confirmi
 
 Full story on F3News: [Ramadan 2017: First day of fasting expected May 27](http://www.f3nws.com/n/RuRSWE)
 
-> Posted on: Friday, May 26, 2017 5:44:42 AM
+> Posted on: Friday, May 26, 2017 6:25:58 PM
