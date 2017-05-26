@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Militants attack Christians in Egypt, killing at least 28"
-date: 2017-05-26 13:31:57Z
+date: 2017-05-26 14:24:48Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Egyptian state TV says 23 people were killed and 25 wounded in an attack by gunm
 
 Full story on F3News: [Militants attack Christians in Egypt, killing at least 28](http://www.f3nws.com/n/VjJdrE)
 
-> Posted on: Friday, May 26, 2017 6:31:57 PM
+> Posted on: Friday, May 26, 2017 7:24:48 PM
