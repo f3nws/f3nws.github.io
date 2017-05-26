@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt bus attack: Coptic Christians targeted, at least 28 killed"
-date: 2017-05-26 13:45:00Z
+date: 2017-05-26 15:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A team of gunmen opened fire on a bus carrying Coptic Christians south of Cairo 
 
 Full story on F3News: [Egypt bus attack: Coptic Christians targeted, at least 28 killed](http://www.f3nws.com/n/ZPmzAD)
 
-> Posted on: Friday, May 26, 2017 6:45:00 PM
+> Posted on: Friday, May 26, 2017 8:15:00 PM
