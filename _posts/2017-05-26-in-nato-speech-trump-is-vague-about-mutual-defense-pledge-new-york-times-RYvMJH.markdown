@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In NATO Speech, Trump Is Vague About Mutual Defense Pledge - New York Times](https://static01.nyt.com/images/2017/05/26/world/26Prexy1/26Prexy1-facebookJumbo.jpg)
 
-New York Times In NATO Speech, Trump Is Vague About Mutual Defense Pledge New York Times President Trump and the United States delegation met with European Union leaders in Brussels on Thursday. Credit Stephen Crowley/The New York Times. BRUSSELS — President Trump on Thursday punctured any illusions that he was on a ... Trump chastises fellow NATO members, demands they meet payment obligations Washington Post Why Trump's prime minister shove pleased Putin CNN Trump talks tough to NATO but bows hypocritically to Saudi Arabia USA TODAY Los Angeles Times - New York Daily News - ABC News - Breitbart News all 1,808 news articles »
+New York Times In NATO Speech, Trump Is Vague About Mutual Defense Pledge New York Times President Trump and the United States delegation met with European Union leaders in Brussels on Thursday. Credit Stephen Crowley/The New York Times. BRUSSELS — President Trump on Thursday punctured any illusions that he was on a ... Trump chastises fellow NATO members, demands they meet payment obligations Washington Post Why Trump's prime minister shove pleased Putin CNN Trump scolds NATO allies for not spending more on defense Los Angeles Times Bloomberg - New York Daily News - Seattle Times - Newsday all 1,785 news articles »
 
 
 Full story on F3News: [In NATO Speech, Trump Is Vague About Mutual Defense Pledge - New York Times](http://www.f3nws.com/n/RYvMJH)
