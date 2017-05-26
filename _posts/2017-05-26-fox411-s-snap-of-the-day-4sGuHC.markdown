@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FOX411's snap of the day"
-date: 2017-05-26 02:00:06Z
+date: 2017-05-26 08:30:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [FOX411's snap of the day](http://www.f3nws.com/n/4sGuHC)
 
-> Posted on: Friday, May 26, 2017 7:00:06 AM
+> Posted on: Friday, May 26, 2017 1:30:07 PM
