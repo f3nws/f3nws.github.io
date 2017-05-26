@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Men Horrified by Women-Only 'Wonder Woman' Screening - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/05/wonder_woman_first_look_27-h_2017.jpg)
 
-Hollywood Reporter Men Horrified by Women-Only 'Wonder Woman' Screening Hollywood Reporter It's time to pour one out for the countless male tears that are being shed in Austin, Texas over a grave injustice some men feel is being committed against the fragile male species. A movie theater in Austin is daring to host — gasp — a women-only ... 'It's sexist': Men flip out over women-only 'Wonder Woman' screenings Washington Post Alamo Drafthouse Responds to Criticism of All-Female Wonder Woman Screenings By Adding More of Them Slate Magazine (blog) Your Response to The Drafthouse's 'Wonder Woman' Screenings Is Gross, Bros Film School Rejects ABC News - CNN - BBC News - Cinema Blend all 118 news articles »
+Hollywood Reporter Men Horrified by Women-Only 'Wonder Woman' Screening Hollywood Reporter It's time to pour one out for the countless male tears that are being shed in Austin, Texas over a grave injustice some men feel is being committed against the fragile male species. A movie theater in Austin is daring to host — gasp — a women-only ... 'It's sexist': Men flip out over women-only 'Wonder Woman' screenings Washington Post Theater responds to backlash of women-only screenings of 'Wonder Woman' ABC News Alamo Drafthouse Responds to Criticism of All-Female Wonder Woman Screenings By Adding More of Them Slate Magazine (blog) Film School Rejects - CNN - BBC News - Cinema Blend all 124 news articles »
 
 
 Full story on F3News: [Men Horrified by Women-Only 'Wonder Woman' Screening - Hollywood Reporter](http://www.f3nws.com/n/MVmJZC)

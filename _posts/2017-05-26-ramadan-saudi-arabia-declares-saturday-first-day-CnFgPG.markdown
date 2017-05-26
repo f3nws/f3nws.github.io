@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ramadan: Saudi Arabia declares Saturday first day"
-date: 2017-05-26 17:13:23Z
+date: 2017-05-26 20:47:21Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Ramadan Mubarak! Saudi Arabia officially declares May 27 as the first day of Ram
 
 Full story on F3News: [Ramadan: Saudi Arabia declares Saturday first day](http://www.f3nws.com/n/CnFgPG)
 
-> Posted on: Friday, May 26, 2017 10:13:23 PM
+> Posted on: Saturday, May 27, 2017 1:47:21 AM
