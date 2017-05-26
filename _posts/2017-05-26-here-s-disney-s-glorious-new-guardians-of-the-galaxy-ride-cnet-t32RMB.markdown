@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Here's Disney's glorious new 'Guardians of the Galaxy' ride     - CNET"
-date: 2017-05-26 16:49:37Z
+date: 2017-05-26 17:29:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CNET got a first look at the Guardians Mission Breakout ride, seeing what happen
 
 Full story on F3News: [Here's Disney's glorious new 'Guardians of the Galaxy' ride     - CNET](http://www.f3nws.com/n/t32RMB)
 
-> Posted on: Friday, May 26, 2017 9:49:37 PM
+> Posted on: Friday, May 26, 2017 10:29:27 PM

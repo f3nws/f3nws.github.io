@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Coalition strikes kill 106 civilians' in Al Mayadeen"
-date: 2017-05-26 16:45:44Z
+date: 2017-05-26 18:26:28Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Monitor says most of those killed were Moroccan and Syrian nationals who had fle
 
 Full story on F3News: ['Coalition strikes kill 106 civilians' in Al Mayadeen](http://www.f3nws.com/n/Hy3kFG)
 
-> Posted on: Friday, May 26, 2017 9:45:44 PM
+> Posted on: Friday, May 26, 2017 11:26:28 PM
