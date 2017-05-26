@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gianforte wins: Montana House candidate facing assault charge wins special election"
-date: 2017-05-26 06:00:09Z
+date: 2017-05-26 06:30:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Republican Greg Gianforte won Montana’s U.S. House special election last Thurs
 
 Full story on F3News: [Gianforte wins: Montana House candidate facing assault charge wins special election](http://www.f3nws.com/n/xDJGTJ)
 
-> Posted on: Friday, May 26, 2017 11:00:09 AM
+> Posted on: Friday, May 26, 2017 11:30:08 AM
