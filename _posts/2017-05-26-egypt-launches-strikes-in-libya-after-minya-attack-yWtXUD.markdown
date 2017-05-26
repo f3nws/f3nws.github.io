@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt launches strikes in Libya after Minya attack"
-date: 2017-05-26 22:12:46Z
+date: 2017-05-26 22:29:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Air raids target camps near Derna where armed men responsible for deadly Minya a
 
 Full story on F3News: [Egypt launches strikes in Libya after Minya attack](http://www.f3nws.com/n/yWtXUD)
 
-> Posted on: Saturday, May 27, 2017 3:12:46 AM
+> Posted on: Saturday, May 27, 2017 3:29:33 AM
