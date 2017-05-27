@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump and Leaks: The president must take aggressive steps to stop a grave national security threat"
-date: 2017-05-27 07:00:11Z
+date: 2017-05-27 07:30:07Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The president is facing an unprecedented campaign by career government employees
 
 Full story on F3News: [Trump and Leaks: The president must take aggressive steps to stop a grave national security threat](http://www.f3nws.com/n/kbRnQG)
 
-> Posted on: Saturday, May 27, 2017 12:00:11 PM
+> Posted on: Saturday, May 27, 2017 12:30:07 PM
