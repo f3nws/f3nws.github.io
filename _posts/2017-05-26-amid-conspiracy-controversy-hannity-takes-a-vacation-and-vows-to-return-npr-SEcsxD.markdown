@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Amid Conspiracy Controversy, Hannity Takes A Vacation — And Vows To Return - NPR](https://media.npr.org/assets/img/2017/05/26/gettyimages-632614640-1-_wide-093f4ef73983c0bb82fbf1fe0c1f0c85b6f7f8ea.jpg?s=1400)
 
-NPR Amid Conspiracy Controversy, Hannity Takes A Vacation — And Vows To Return NPR Sean Hannity is not going away. Well, scratch that. He is going away — but only on a planned vacation, and only briefly. Then, after that, you can be sure: He is not going away. That, at least, is the word from Hannity, who lost several advertisers ... Company faces backlash for pulling Hannity ads Washington Post Hannity hangs on to sponsors after controversial week CNNMoney The time I tangled with the Fox News reporter behind the Seth Rich murder conspiracy theory Quartz Vanity Fair - The Root - The Daily Caller - PerezHilton.com all 114 news articles »
+NPR Amid Conspiracy Controversy, Hannity Takes A Vacation — And Vows To Return NPR Sean Hannity is not going away. Well, scratch that. He is going away — but only on a planned vacation, and only briefly. Then, after that, you can be sure: He is not going away. That, at least, is the word from Hannity, who lost several advertisers ... Company faces backlash for pulling Hannity ads Washington Post Hannity hangs on to sponsors after controversial week CNNMoney The time I tangled with the Fox News reporter behind the Seth Rich murder conspiracy theory Quartz mySanAntonio.com - Vanity Fair - The Root - The Daily Caller all 115 news articles »
 
 
 Full story on F3News: [Amid Conspiracy Controversy, Hannity Takes A Vacation — And Vows To Return - NPR](http://www.f3nws.com/n/SEcsxD)
