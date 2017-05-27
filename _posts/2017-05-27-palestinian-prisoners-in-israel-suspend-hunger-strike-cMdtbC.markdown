@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinian prisoners in Israel suspend hunger strike"
-date: 2017-05-27 09:38:32Z
+date: 2017-05-27 11:09:29Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Deal struck with Israel after intense talks hailed as 'victory' for Palestinian 
 
 Full story on F3News: [Palestinian prisoners in Israel suspend hunger strike](http://www.f3nws.com/n/cMdtbC)
 
-> Posted on: Saturday, May 27, 2017 2:38:32 PM
+> Posted on: Saturday, May 27, 2017 4:09:29 PM
