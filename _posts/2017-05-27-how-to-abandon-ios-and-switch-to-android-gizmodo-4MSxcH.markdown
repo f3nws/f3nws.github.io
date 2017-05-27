@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to Abandon iOS and Switch to Android - Gizmodo"
-date: 2017-05-27 17:10:00Z
+date: 2017-05-27 17:11:29Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Gizmodo How to Abandon iOS and Switch to Android Gizmodo Having guided you throu
 
 Full story on F3News: [How to Abandon iOS and Switch to Android - Gizmodo](http://www.f3nws.com/n/4MSxcH)
 
-> Posted on: Saturday, May 27, 2017 10:10:00 PM
+> Posted on: Saturday, May 27, 2017 10:11:29 PM
