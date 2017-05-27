@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two killed on Portland train after 'defending Muslims'"
-date: 2017-05-27 08:35:41Z
+date: 2017-05-27 15:49:51Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Two men stabbed to death as they tried to stop suspect bullying Muslim women on 
 
 Full story on F3News: [Two killed on Portland train after 'defending Muslims'](http://www.f3nws.com/n/HFWXjH)
 
-> Posted on: Saturday, May 27, 2017 1:35:41 PM
+> Posted on: Saturday, May 27, 2017 8:49:51 PM
