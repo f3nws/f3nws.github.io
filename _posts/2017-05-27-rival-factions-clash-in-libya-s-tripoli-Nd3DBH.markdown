@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rival factions clash in Libya's Tripoli"
-date: 2017-05-27 06:29:34Z
+date: 2017-05-27 11:47:13Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least 52 Government of National Accord fighters killed, shattering period of 
 
 Full story on F3News: [Rival factions clash in Libya's Tripoli](http://www.f3nws.com/n/Nd3DBH)
 
-> Posted on: Saturday, May 27, 2017 11:29:34 AM
+> Posted on: Saturday, May 27, 2017 4:47:13 PM
