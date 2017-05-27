@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Federal Judge Dismisses Lawsuit Brought On By Benghazi Parents"
-date: 2017-05-27 22:00:03Z
+date: 2017-05-27 22:14:11Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Federal Judge Dismisses Lawsuit Brought On By Benghazi Parents](http://www.f3nws.com/n/xNYggE)
 
-> Posted on: Sunday, May 28, 2017 3:00:03 AM
+> Posted on: Sunday, May 28, 2017 3:14:11 AM

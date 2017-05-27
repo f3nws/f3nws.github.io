@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: Suspect in Portland stabbings ranted about Muslims"
-date: 2017-05-27 20:18:17Z
+date: 2017-05-27 21:47:24Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities on Saturday identified a 35-year-old Portland man as the suspect in 
 
 Full story on F3News: [Police: Suspect in Portland stabbings ranted about Muslims](http://www.f3nws.com/n/Cu4xk)
 
-> Posted on: Sunday, May 28, 2017 1:18:17 AM
+> Posted on: Sunday, May 28, 2017 2:47:24 AM
