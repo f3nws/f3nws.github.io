@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS claims responsibility in massacre of 29 in Egypt"
-date: 2017-05-27 12:14:00Z
+date: 2017-05-27 13:19:56Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ ISIS has claimed responsibility for Friday's massacre of at least 29 people on b
 
 Full story on F3News: [ISIS claims responsibility in massacre of 29 in Egypt](http://www.f3nws.com/n/JGhWYC)
 
-> Posted on: Saturday, May 27, 2017 5:14:00 PM
+> Posted on: Saturday, May 27, 2017 6:19:56 PM
