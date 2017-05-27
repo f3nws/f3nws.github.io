@@ -5,7 +5,7 @@ date: 2017-05-27 09:27:24Z
 categories: abc-top-stories
 ---
 
-![Officially free, Schapelle Corby prepares for flight to Australia](http://www.abc.net.au/news/image/8565958-1x1-700x700.png)
+![Officially free, Schapelle Corby prepares for flight to Australia](http://www.abc.net.au/news/image/8565984-1x1-700x700.png)
 
 Amid chaotic scenes, Schapelle Corby begins her journey home from Bali more than 12 years after being convicted of drug smuggling.
 
