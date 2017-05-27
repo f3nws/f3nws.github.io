@@ -5,7 +5,7 @@ date: 2017-05-26 21:04:11Z
 categories: google-news-top-stories
 ---
 
-Reuters Exclusive: Tillerson declines to host Ramadan event at State Department Reuters WASHINGTON Secretary of State Rex Tillerson has declined a request to host an event to mark Islam's holy month of Ramadan, two U.S. officials said, apparently breaking with a bipartisan tradition in place with few exceptions for nearly 20 years. Since ... Ramadan begins for world's Muslims, violently for some Breitbart News Tillerson breaks tradition of holding Ramadan event at State Dept: report The Hill What Trump's Ramadan Message Was Really About The Atlantic New York Daily News - Detroit Free Press - Washington Post - The Detroit News all 591 news articles »
+Reuters Exclusive: Tillerson declines to host Ramadan event at State Department Reuters WASHINGTON Secretary of State Rex Tillerson has declined a request to host an event to mark Islam's holy month of Ramadan, two U.S. officials said, apparently breaking with a bipartisan tradition in place with few exceptions for nearly 20 years. Since ... Ramadan begins for world's Muslims, violently for some Breitbart News Six fast facts about Ramadan New York Daily News Ramadan, a Muslim month of fasting, began Friday evening The Providence Journal Newsmax - Washington Post - The Detroit News - International Business Times all 587 news articles »
 
 
 Full story on F3News: [Exclusive: Tillerson declines to host Ramadan event at State Department - Reuters](http://www.f3nws.com/n/SFZauE)
