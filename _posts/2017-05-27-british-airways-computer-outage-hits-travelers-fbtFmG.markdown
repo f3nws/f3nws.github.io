@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British Airways computer outage hits travelers"
-date: 2017-05-27 15:58:15Z
+date: 2017-05-27 16:39:26Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Travelers with British Airways are facing disruptions Saturday after the airline
 
 Full story on F3News: [British Airways computer outage hits travelers](http://www.f3nws.com/n/fbtFmG)
 
-> Posted on: Saturday, May 27, 2017 8:58:15 PM
+> Posted on: Saturday, May 27, 2017 9:39:26 PM
