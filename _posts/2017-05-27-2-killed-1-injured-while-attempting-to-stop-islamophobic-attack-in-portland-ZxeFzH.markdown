@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 killed, 1 injured while attempting to stop Islamophobic attack in Portland"
-date: 2017-05-27 14:29:01Z
+date: 2017-05-27 14:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Two people were stabbed to death and another person sustained injuries when they
 
 Full story on F3News: [2 killed, 1 injured while attempting to stop Islamophobic attack in Portland](http://www.f3nws.com/n/ZxeFzH)
 
-> Posted on: Saturday, May 27, 2017 7:29:01 PM
+> Posted on: Saturday, May 27, 2017 7:29:00 PM

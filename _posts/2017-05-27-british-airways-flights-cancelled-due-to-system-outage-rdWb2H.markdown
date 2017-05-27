@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British Airways flights cancelled due to system outage"
-date: 2017-05-27 13:35:01Z
+date: 2017-05-27 18:17:29Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Airline cancels all flights from Heathrow and Gatwick airports after IT failure 
 
 Full story on F3News: [British Airways flights cancelled due to system outage](http://www.f3nws.com/n/rdWb2H)
 
-> Posted on: Saturday, May 27, 2017 6:35:01 PM
+> Posted on: Saturday, May 27, 2017 11:17:29 PM
