@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump makes G-7 deal on trade, takes rain check on climate"
-date: 2017-05-27 14:37:28Z
+date: 2017-05-27 15:52:28Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A source at the Group of Seven summit says the seven wealthy democracies have re
 
 Full story on F3News: [Trump makes G-7 deal on trade, takes rain check on climate](http://www.f3nws.com/n/vTPdR)
 
-> Posted on: Saturday, May 27, 2017 7:37:28 PM
+> Posted on: Saturday, May 27, 2017 8:52:28 PM
