@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Faithful Lives Remembered On Memorial Day"
-date: 2017-05-28 21:00:08Z
+date: 2017-05-28 21:30:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [The Faithful Lives Remembered On Memorial Day](http://www.f3nws.com/n/qtyXSC)
 
-> Posted on: Monday, May 29, 2017 2:00:08 AM
+> Posted on: Monday, May 29, 2017 2:30:10 AM
