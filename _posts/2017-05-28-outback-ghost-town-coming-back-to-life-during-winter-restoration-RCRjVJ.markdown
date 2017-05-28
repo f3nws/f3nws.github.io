@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Outback ghost town coming back to life during winter restoration](http://www.abc.net.au/news/image/4817162-1x1-700x700.jpg)
 
-Volunteers are slowly rebuild the outback ghost town of Farina, and this winter's project is bringing an important old homestead back to life.
+Volunteers are slowly rebuilding the outback ghost town of Farina, and this winter's project is bringing an important old homestead back to life.
 
 
 Full story on F3News: [Outback ghost town coming back to life during winter restoration](http://www.f3nws.com/n/RCRjVJ)

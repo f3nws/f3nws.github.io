@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Gregg Allman, Southern Rock Pioneer, Dead at 69 - RollingStone.com](http://img.wennermedia.com/social/greg-allman-obit-dead-677341f7-8559-4ac2-bb25-f02be38d722c.jpg)
 
-RollingStone.com Gregg Allman, Southern Rock Pioneer, Dead at 69 RollingStone.com Gregg Allman, a singer, musician and songwriter who played an essential role in the invention of Southern rock, has died at the age of 69. Credit: Photofest. By Richard Gehr. 9 hours ago. More News. Gregg Allman Denies Hospice Rumors Gregg Allman ... Rocker Gregg Allman dies at age 69; sang and lived the blues Washington Post Gregg Allman: A Voice of the South Who Mixed a Musical Melting Pot New York Times Trouble No More: Allman Brothers Biographer Alan Paul Reflects on 25 Years of Interviewing Gregg Allman Billboard Los Angeles Times - NPR - Salon - Boston Herald all 383 news articles »
+RollingStone.com Gregg Allman, Southern Rock Pioneer, Dead at 69 RollingStone.com Gregg Allman, a singer, musician and songwriter who played an essential role in the invention of Southern rock, has died at the age of 69. Credit: Photofest. By Richard Gehr. 9 hours ago. More News. Gregg Allman Denies Hospice Rumors Gregg Allman ... Gregg Allman: A Voice of the South Who Mixed a Musical Melting Pot New York Times Cher, Cameron Crowe, Peter Frampton and others react to Gregg Allman's death Los Angeles Times Trouble No More: Allman Brothers Biographer Alan Paul Reflects on 25 Years of Interviewing Gregg Allman Billboard NPR - New York Daily News - Salon - Boston Herald all 368 news articles »
 
 
 Full story on F3News: [Gregg Allman, Southern Rock Pioneer, Dead at 69 - RollingStone.com](http://www.f3nws.com/n/aqBf4D)
