@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A timeline of Palestinian mass hunger strikes in Israel"
-date: 2017-05-28 09:18:10Z
+date: 2017-05-28 09:56:42Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Palestinian prisoners have engaged in mass hunger strikes since 1968, after Isra
 
 Full story on F3News: [A timeline of Palestinian mass hunger strikes in Israel](http://www.f3nws.com/n/qbSYkC)
 
-> Posted on: Sunday, May 28, 2017 2:18:10 PM
+> Posted on: Sunday, May 28, 2017 2:56:42 PM
