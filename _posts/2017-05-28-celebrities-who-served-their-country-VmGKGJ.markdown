@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrities who served their country"
-date: 2017-05-28 21:30:08Z
+date: 2017-05-28 22:30:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Scores of stars have proudly served in our armed forces over the years.
 
 Full story on F3News: [Celebrities who served their country](http://www.f3nws.com/n/VmGKGJ)
 
-> Posted on: Monday, May 29, 2017 2:30:08 AM
+> Posted on: Monday, May 29, 2017 3:30:10 AM
