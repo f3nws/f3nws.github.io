@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Andrew Scheer wins Conservative leadership in major upset"
-date: 2017-05-27 22:39:54Z
+date: 2017-05-27 22:39:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Saskatchewan MP knocks out front-runner Maxime Bernier in the last round of voti
 
 Full story on F3News: [Andrew Scheer wins Conservative leadership in major upset](http://www.f3nws.com/n/gmcJfD)
 
-> Posted on: Sunday, May 28, 2017 3:39:54 AM
+> Posted on: Sunday, May 28, 2017 3:39:00 AM
