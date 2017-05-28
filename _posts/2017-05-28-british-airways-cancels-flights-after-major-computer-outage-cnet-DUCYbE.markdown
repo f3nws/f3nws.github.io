@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British Airways cancels flights after major computer outage     - CNET"
-date: 2017-05-28 15:12:32Z
+date: 2017-05-28 16:22:13Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The airline scotches all flights out of Heathrow and Gatwick on Saturday, due to
 
 Full story on F3News: [British Airways cancels flights after major computer outage     - CNET](http://www.f3nws.com/n/DUCYbE)
 
-> Posted on: Sunday, May 28, 2017 8:12:32 PM
+> Posted on: Sunday, May 28, 2017 9:22:13 PM
