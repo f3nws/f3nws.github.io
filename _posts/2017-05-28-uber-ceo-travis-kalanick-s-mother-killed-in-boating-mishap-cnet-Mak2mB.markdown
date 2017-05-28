@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber CEO Travis Kalanick's mother killed in boating mishap     - CNET"
-date: 2017-05-28 00:16:35Z
+date: 2017-05-28 15:45:26Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Kalanick's father was injured as well, when the couple's boat struck a rock.
 
 Full story on F3News: [Uber CEO Travis Kalanick's mother killed in boating mishap     - CNET](http://www.f3nws.com/n/Mak2mB)
 
-> Posted on: Sunday, May 28, 2017 5:16:35 AM
+> Posted on: Sunday, May 28, 2017 8:45:26 PM

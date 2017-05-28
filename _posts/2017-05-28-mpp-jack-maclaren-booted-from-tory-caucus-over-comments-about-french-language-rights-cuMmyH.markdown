@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![MPP Jack MacLaren booted from Tory caucus over comments about French language rights](https://www.thestar.com/content/dam/thestar/uploads/2017/5/28/cpmm-jack.jpg)
 
-PC Leader Patrick Brown says a video from 2012 showing MacLaren hinting at a hidden agenda, MacLaren’s fourth transgression, is “the final straw.”
+PC Leader Patrick Brown says a video from 2012 showing MacLaren hinting at a hidden agenda is “the final straw.”
 
 
 Full story on F3News: [MPP Jack MacLaren booted from Tory caucus over comments about French language rights](http://www.f3nws.com/n/cuMmyH)
