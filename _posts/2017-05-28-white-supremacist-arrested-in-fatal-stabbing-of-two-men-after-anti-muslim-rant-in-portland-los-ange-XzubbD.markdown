@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White supremacist arrested in fatal stabbing of two men after anti-Muslim rant in Portland - Los Angeles Times](http://www.trbimg.com/img-592a5f8e/turbine/la-na-portland-stabbing-20170527)
 
-Los Angeles Times White supremacist arrested in fatal stabbing of two men after anti-Muslim rant in Portland Los Angeles Times A 35-year-old white supremacist with a criminal record has been arrested in connection with the stabbing deaths Friday of two men on a light-rail train in Portland, Ore., who intervened when he began to hurl anti-Muslim epithets at two women, one who ... Portland shocked by stabbings, suspect's extreme views eyed ABC News Man saw teenagers, one with hijab, and launched into racial tirade OregonLive.com Victims in Portland stabbing called 'brave and selfless' heroes WISH-TV fox2now.com - KOIN.com - Vocativ - WXIA-TV all 298 news articles »
+Los Angeles Times White supremacist arrested in fatal stabbing of two men after anti-Muslim rant in Portland Los Angeles Times A 35-year-old white supremacist with a criminal record has been arrested in connection with the stabbing deaths Friday of two men on a light-rail train in Portland, Ore., who intervened when he began to hurl anti-Muslim epithets at two women, one who ... Portland stabbing victims: An army vet, a recent college graduate CNN Portland shocked by stabbings, suspect's extreme views eyed ABC News Man saw teenagers, one with hijab, and launched into racial tirade OregonLive.com Patch.com - WISH-TV - fox2now.com - Truthdig all 302 news articles »
 
 
 Full story on F3News: [White supremacist arrested in fatal stabbing of two men after anti-Muslim rant in Portland - Los Angeles Times](http://www.f3nws.com/n/XzubbD)
