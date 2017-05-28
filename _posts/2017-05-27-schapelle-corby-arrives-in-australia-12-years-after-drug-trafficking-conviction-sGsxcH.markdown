@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Schapelle Corby arrives in Australia 12 years after drug trafficking conviction](http://www.abc.net.au/news/image/8566478-1x1-700x700.jpg)
 
-Schapelle Corby arrives home in Australia, touching down in Brisbane just after 5:00am today, more than 12 years after she was convicted of taking marijuana into Bali.
+Schapelle Corby arrives home, touching down in Brisbane just after 5:00am, more than 12 years after she was convicted of taking marijuana into Bali.
 
 
 Full story on F3News: [Schapelle Corby arrives in Australia 12 years after drug trafficking conviction](http://www.f3nws.com/n/sGsxcH)
