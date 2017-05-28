@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump considers major changes amid escalating Russia crisis - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/28/National-Politics/Images/Botsford170131Trump11055.JPG)
 
-Washington Post Trump considers major changes amid escalating Russia crisis Washington Post President Trump and his advisers, seeking to contain the escalating Russia crisis that threatens to consume his presidency, are considering a retooling of his senior staff and the creation of a “war room” within the White House, according to several ... Trump Returns to Crisis Over Kushner as White House Tries to Contain It New York Times Mueller's appointment complicates Congress' Russia investigations Politico The Memo: Trump returns to challenges at home The Hill CNN - Los Angeles Times - Business Insider - ABC News all 2,588 news articles »
+Washington Post Trump considers major changes amid escalating Russia crisis Washington Post President Trump and his advisers, seeking to contain the escalating Russia crisis that threatens to consume his presidency, are considering a retooling of his senior staff and the creation of a “war room” within the White House, according to several ... Trump Returns to Crisis Over Kushner as White House Tries to Contain It New York Times Mueller's appointment complicates Congress' Russia investigations Politico His whirlwind foreign trip complete, Trump faces slew of challenges at home CBS News CNN - Los Angeles Times - The Hill - Boston Herald all 2,180 news articles »
 
 
 Full story on F3News: [Trump considers major changes amid escalating Russia crisis - Washington Post](http://www.f3nws.com/n/VJbMDG)
