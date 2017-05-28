@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pokemon Go news: Niantic confirm update details as new Promo Codes are revealed - Express.co.uk"
-date: 2017-05-28 07:03:01Z
+date: 2017-05-28 07:04:36Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Express.co.uk Pokemon Go news: Niantic confirm update details as new Promo Codes
 
 Full story on F3News: [Pokemon Go news: Niantic confirm update details as new Promo Codes are revealed - Express.co.uk](http://www.f3nws.com/n/jTKcZF)
 
-> Posted on: Sunday, May 28, 2017 12:03:01 PM
+> Posted on: Sunday, May 28, 2017 12:04:36 PM
