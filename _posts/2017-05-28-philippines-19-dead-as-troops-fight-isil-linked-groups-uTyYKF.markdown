@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines: 19 dead as troops fight ISIL-linked groups"
-date: 2017-05-28 08:26:43Z
+date: 2017-05-28 10:18:29Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Latest group of civilians killed in Marawi City adds to deaths of scores over pa
 
 Full story on F3News: [Philippines: 19 dead as troops fight ISIL-linked groups](http://www.f3nws.com/n/uTyYKF)
 
-> Posted on: Sunday, May 28, 2017 1:26:43 PM
+> Posted on: Sunday, May 28, 2017 3:18:29 PM
