@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "India imposes Ramadan curfew in Kashmir after violence"
-date: 2017-05-28 12:27:10Z
+date: 2017-05-28 14:56:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Security lock-down ahead of commander Sabzar Ahmad Bhat's funeral cripples life 
 
 Full story on F3News: [India imposes Ramadan curfew in Kashmir after violence](http://www.f3nws.com/n/ferzFH)
 
-> Posted on: Sunday, May 28, 2017 5:27:10 PM
+> Posted on: Sunday, May 28, 2017 7:56:31 PM
