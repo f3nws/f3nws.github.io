@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "'Brave and selfless' Oregon stabbing victims hailed as heroes for standing up to racist rants - Washington Post"
-date: 2017-05-28 15:46:41Z
+date: 2017-05-28 15:46:43Z
 categories: google-news-top-stories
 ---
 
 !['Brave and selfless' Oregon stabbing victims hailed as heroes for standing up to racist rants - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/news/post-nation/wp-content/uploads/sites/23/2017/05/Meche.jpg&w=1484&op=resize&opt=1&filter=antialias)
 
-Washington Post 'Brave and selfless' Oregon stabbing victims hailed as heroes for standing up to racist rants Washington Post Even before their names were released, one word repeatedly came up to describe the men who were killed in a stabbing Friday on a light-rail train in Portland, Ore.: heroes. They had tried to intervene, police said, after another passenger began ... Man Yelling Hate Speech On Portland Train Kills Two Men Who Try To Intervene, Police Say BuzzFeed News These three men stood up to hate in Portland CNN Portland's Islamophobic Stabbing Proves Oregon Isn't Really That Progressive HuffPost PEOPLE.com - OregonLive.com - ABC News - New York Post all 423 news articles »
+Washington Post 'Brave and selfless' Oregon stabbing victims hailed as heroes for standing up to racist rants Washington Post Even before their names were released, one word repeatedly came up to describe the men who were killed in a stabbing Friday on a light-rail train in Portland, Ore.: heroes. They had tried to intervene, police said, after another passenger began ... These three men stood up to hate in Portland CNN White supremacist arrested in fatal stabbing of two men after anti-Muslim rant in Portland Los Angeles Times Man Yelling Hate Speech On Portland Train Kills Two Men Who Try To Intervene, Police Say BuzzFeed News Daily Beast - Miami Herald - HuffPost - OregonLive.com all 366 news articles »
 
 
 Full story on F3News: ['Brave and selfless' Oregon stabbing victims hailed as heroes for standing up to racist rants - Washington Post](http://www.f3nws.com/n/4rJKXC)
 
-> Posted on: Sunday, May 28, 2017 8:46:41 PM
+> Posted on: Sunday, May 28, 2017 8:46:43 PM
