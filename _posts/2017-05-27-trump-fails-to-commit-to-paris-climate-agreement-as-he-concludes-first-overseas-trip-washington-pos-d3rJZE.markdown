@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump fails to commit to Paris climate agreement as he concludes first overseas trip - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/27/National-Security/Images/Italy_G7_12707-f8316.jpg)
 
-Washington Post Trump fails to commit to Paris climate agreement as he concludes first overseas trip Washington Post TAORMINA, Italy — President Trump failed to commit to remaining within the Paris climate agreement during a two-day meeting with world leaders that ended here Saturday, but he tweeted that he was still considering it and would announce a final ... Trump's foreign trip: 5 takeaways Politico Trump talks up trip before returning to controversy in Washington CNN Trump says he'll decide on Paris climate deal next week New York Daily News The Hill - Reuters - NPR - Los Angeles Times all 1,632 news articles »
+Washington Post Trump fails to commit to Paris climate agreement as he concludes first overseas trip Washington Post TAORMINA, Italy — President Trump failed to commit to remaining within the Paris climate agreement during a two-day meeting with world leaders that ended here Saturday, but he tweeted that he was still considering it and would announce a final ... 5 takeaways from Trump's first overseas trip as president The Hill Trump's 1st foreign trip: 5 takeaways CNN Trump's foreign trip: 5 takeaways Politico BBC News - Washington Examiner - NPR - Reuters all 1,546 news articles »
 
 
 Full story on F3News: [Trump fails to commit to Paris climate agreement as he concludes first overseas trip - Washington Post](http://www.f3nws.com/n/d3rJZE)
