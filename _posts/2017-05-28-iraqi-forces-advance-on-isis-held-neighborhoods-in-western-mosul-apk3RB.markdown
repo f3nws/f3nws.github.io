@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi forces advance on ISIS-held neighborhoods in western Mosul"
-date: 2017-05-28 10:49:32Z
+date: 2017-05-28 10:59:36Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Iraqi forces have made another step toward wresting Mosul from ISIS.
 
 Full story on F3News: [Iraqi forces advance on ISIS-held neighborhoods in western Mosul](http://www.f3nws.com/n/apk3RB)
 
-> Posted on: Sunday, May 28, 2017 3:49:32 PM
+> Posted on: Sunday, May 28, 2017 3:59:36 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK reduces terror threat level to 'severe'"
-date: 2017-05-28 10:29:31Z
+date: 2017-05-28 11:11:01Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Britain's terror threat level has been reduced to "severe" from "critical," UK P
 
 Full story on F3News: [UK reduces terror threat level to 'severe'](http://www.f3nws.com/n/pysBdB)
 
-> Posted on: Sunday, May 28, 2017 3:29:31 PM
+> Posted on: Sunday, May 28, 2017 4:11:01 PM
