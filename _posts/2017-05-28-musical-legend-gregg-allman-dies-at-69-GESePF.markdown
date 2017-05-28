@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Musical legend Gregg Allman dies at 69"
-date: 2017-05-28 02:46:30Z
+date: 2017-05-28 07:19:18Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Gregg Allman, the founding member of the Allman Brothers Band who overcame famil
 
 Full story on F3News: [Musical legend Gregg Allman dies at 69](http://www.f3nws.com/n/GESePF)
 
-> Posted on: Sunday, May 28, 2017 7:46:30 AM
+> Posted on: Sunday, May 28, 2017 12:19:18 PM
