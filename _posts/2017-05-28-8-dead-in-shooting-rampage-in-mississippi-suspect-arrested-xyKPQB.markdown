@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "8 dead in shooting rampage in Mississippi; suspect arrested"
-date: 2017-05-28 18:22:26Z
+date: 2017-05-28 19:33:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities in Mississippi say a suspect is in custody after eight people were k
 
 Full story on F3News: [8 dead in shooting rampage in Mississippi; suspect arrested](http://www.f3nws.com/n/xyKPQB)
 
-> Posted on: Sunday, May 28, 2017 11:22:26 PM
+> Posted on: Monday, May 29, 2017 12:33:04 AM
