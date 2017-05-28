@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Guided rockets’ used during op targeting ISIS-linked militants in besieged Philippines city"
-date: 2017-05-27 15:58:14Z
+date: 2017-05-27 15:58:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Philippines military helicopters fired guided rockets at positions of an Islamis
 
 Full story on F3News: [‘Guided rockets’ used during op targeting ISIS-linked militants in besieged Philippines city](http://www.f3nws.com/n/SE4aGG)
 
-> Posted on: Saturday, May 27, 2017 8:58:14 PM
+> Posted on: Saturday, May 27, 2017 8:58:00 PM
