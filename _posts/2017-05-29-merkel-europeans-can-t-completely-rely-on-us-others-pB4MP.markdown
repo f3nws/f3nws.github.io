@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merkel: Europeans can't 'completely' rely on US, others"
-date: 2017-05-29 11:38:05Z
+date: 2017-05-29 12:52:33Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ German Chancellor Angela Merkel said her experience at recent international summ
 
 Full story on F3News: [Merkel: Europeans can't 'completely' rely on US, others](http://www.f3nws.com/n/pB4MP)
 
-> Posted on: Monday, May 29, 2017 4:38:05 PM
+> Posted on: Monday, May 29, 2017 5:52:33 PM
