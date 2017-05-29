@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['The Square' Wins Top Prize at Cannes; Sofia Coppola Is Best Director - New York Times](https://static01.nyt.com/images/2017/05/29/arts/29CANNES-WINNERS1/29CANNES-WINNERS1-facebookJumbo.jpg)
 
-New York Times 'The Square' Wins Top Prize at Cannes; Sofia Coppola Is Best Director New York Times CANNES, France — The movie “The Square” — a slick, diverting social commentary from Sweden that delivers a spanking to the bourgeoisie — was the surprise winner of the 70th Cannes Film Festival. Directed by Ruben Ostlund, the movie had not been a ... Critic's Notebook: The Year Cannes Couldn't Hollywood Reporter Cannes 2017: Ruben Östlund's 'The Square' wins the Palme d'Or Los Angeles Times Cannes: 'The Square' Takes Palme D'Or; Sofia Coppola Best Director; Acting Honors For Joaquin Phoenix & Diane ... Deadline CBS News - USA TODAY - IndieWire - Slate Magazine (blog) all 335 news articles »
+New York Times 'The Square' Wins Top Prize at Cannes; Sofia Coppola Is Best Director New York Times CANNES, France — The movie “The Square” — a slick, diverting social commentary from Sweden that delivers a spanking to the bourgeoisie — was the surprise winner of the 70th Cannes Film Festival. Directed by Ruben Ostlund, the movie had not been a ... Critic's Notebook: The Year Cannes Couldn't Hollywood Reporter Cannes 2017: Ruben Östlund's 'The Square' wins the Palme d'Or Los Angeles Times Cannes: 'The Square' Takes Palme D'Or; Sofia Coppola Best Director; Acting Honors For Joaquin Phoenix & Diane ... Deadline CBS News - IndieWire - New York Daily News - USA TODAY all 341 news articles »
 
 
 Full story on F3News: ['The Square' Wins Top Prize at Cannes; Sofia Coppola Is Best Director - New York Times](http://www.f3nws.com/n/44TS2B)

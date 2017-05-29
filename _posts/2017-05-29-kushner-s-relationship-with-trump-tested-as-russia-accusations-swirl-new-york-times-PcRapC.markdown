@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kushner's Relationship With Trump Tested as Russia Accusations Swirl - New York Times](https://static01.nyt.com/images/2017/05/29/us/29KUSHNER-01/29KUSHNER-01-facebookJumbo.jpg)
 
-New York Times Kushner's Relationship With Trump Tested as Russia Accusations Swirl New York Times President Trump's son-in-law and senior adviser, Jared Kushner, at a news conference this month at the White House. Credit Doug Mills/The New York Times. WASHINGTON — The most successful deal of Jared Kushner's short and consequential career in ... AP News in Brief at 11:04 pm EDT Washington Post Trump's obsession over Russia probe deepens Politico Uncertainty builds in Washington over White House leaks The Hill NBCNews.com - Los Angeles Times - CNN - Business Insider all 2,900 news articles »
+New York Times Kushner's Relationship With Trump Tested as Russia Accusations Swirl New York Times President Trump's son-in-law and senior adviser, Jared Kushner, at a news conference this month at the White House. Credit Doug Mills/The New York Times. WASHINGTON — The most successful deal of Jared Kushner's short and consequential career in ... AP News in Brief at 12:04 am EDT Washington Post Trump, Republicans push back on Kushner reports Politico Uncertainty builds in Washington over White House leaks The Hill NBCNews.com - CNN - Los Angeles Times - Business Insider all 2,903 news articles »
 
 
 Full story on F3News: [Kushner's Relationship With Trump Tested as Russia Accusations Swirl - New York Times](http://www.f3nws.com/n/PcRapC)

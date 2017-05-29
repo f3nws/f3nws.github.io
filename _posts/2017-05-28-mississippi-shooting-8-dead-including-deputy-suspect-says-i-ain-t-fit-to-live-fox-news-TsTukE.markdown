@@ -5,7 +5,7 @@ date: 2017-05-28 20:56:32Z
 categories: fox-news
 ---
 
-Fox News Mississippi shooting: 8 dead, including deputy; suspect says 'I ain't fit to live' Fox News A Mississippi deputy sheriff was among eight people shot and killed Saturday and a suspect in the murders was in custody, The Daily Leader reports. The suspect, Willie Cory Godbolt, 35, confessed to the The Jackson Clarion-Ledger on video. “I ain't fit ... 8 dead in Mississippi shooting rampage, suspect in custody CBS News Sheriff's deputy, 7 others killed in Mississippi shootings CNN Miss. man confesses to killing 8, including 2 kids, in shootings New York Daily News Washington Post - NPR - New York Times - WJLA all 282 news articles »
+Fox News Mississippi shooting: 8 dead, including deputy; suspect says 'I ain't fit to live' Fox News A Mississippi deputy sheriff was among eight people shot and killed Saturday and a suspect in the murders was in custody, The Daily Leader reports. The suspect, Willie Cory Godbolt, 35, confessed to the The Jackson Clarion-Ledger on video. “I ain't fit ... Miss. deputy remembered as 'child of God,' once baptized a man New York Daily News Apparent domestic dispute sets off rampage in Miss.; 8 die Washington Post Eight Die, Including Police Officer, in Mississippi Shootings New York Times fox2now.com - The Boston Globe - U.S. News & World Report - Reuters all 288 news articles »
 
 
 Full story on F3News: [Mississippi shooting: 8 dead, including deputy; suspect says 'I ain't fit to live' - Fox News](http://www.f3nws.com/n/TsTukE)
