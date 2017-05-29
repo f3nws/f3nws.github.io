@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Everyone should copy Asus’ gorgeous laptop color accents](https://cdn.vox-cdn.com/thumbor/ihFIPHRrmKaX0gIj7go0ie9JGYs=/0x61:1800x1074/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/54992357/asus_gold_accent.0.jpg)
 
-The Verge Everyone should copy Asus' gorgeous laptop color accents The Verge Speak to any designer of modern gadgets and you'll hear plenty of frustration with the creative constraints imposed by having to build ever-thinner, ever-lighter devices. There's just not much room for flair and expression when the thing you're ... Asus skips robots at this year's Computex event and flaunts super-thin laptops instead TechCrunch Asus unveils the super slim ZenBook Flip S convertible PCWorld Asus just unveiled the slimmest convertible laptop ever, the ZenBook Flip S BGR CNET - ZDNet - Engadget - Laptop Mag all 90 news articles »
+The Verge Everyone should copy Asus' gorgeous laptop color accents The Verge Speak to any designer of modern gadgets and you'll hear plenty of frustration with the creative constraints imposed by having to build ever-thinner, ever-lighter devices. There's just not much room for flair and expression when the thing you're ... Asus skips robots at this year's Computex event and flaunts super-thin laptops instead TechCrunch Asus' affordable but powerful VivoBook Pro 15 to offer Optane Memory PCWorld Asus just unveiled the slimmest convertible laptop ever, the ZenBook Flip S BGR Engadget - CNET - ZDNet - Laptop Mag all 96 news articles »
 
 
 Full story on F3News: [Everyone should copy Asus’ gorgeous laptop color accents](http://www.f3nws.com/n/qx3QC)
