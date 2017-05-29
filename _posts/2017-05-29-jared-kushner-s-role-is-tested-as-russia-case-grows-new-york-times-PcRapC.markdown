@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Jared Kushner's Role Is Tested as Russia Case Grows - New York Times](https://static01.nyt.com/images/2017/05/29/us/29KUSHNER-01/29KUSHNER-01-facebookJumbo.jpg)
 
-New York Times Jared Kushner's Role Is Tested as Russia Case Grows New York Times President Trump's son-in-law and senior adviser, Jared Kushner, at a news conference this month at the White House. Credit Doug Mills/The New York Times. WASHINGTON — The most successful deal of Jared Kushner's short and consequential career in ... How to survive talking politics on Memorial Day Washington Post Kushner Asked to 'Lay Low' After Russia-Related Reports, Source Says NBCNews.com Trump's obsession over Russia probe deepens Politico Chicago Tribune - Los Angeles Times - The Hill - Business Insider all 3,804 news articles »
+New York Times Jared Kushner's Role Is Tested as Russia Case Grows New York Times President Trump's son-in-law and senior adviser, Jared Kushner, at a news conference this month at the White House. Credit Doug Mills/The New York Times. WASHINGTON — The most successful deal of Jared Kushner's short and consequential career in ... How to survive talking politics on Memorial Day Washington Post Kushner Asked to 'Lay Low' After Russia-Related Reports, Source Says NBCNews.com Trump's obsession over Russia probe deepens Politico USA TODAY - Chicago Tribune - Los Angeles Times - The Hill all 3,835 news articles »
 
 
 Full story on F3News: [Jared Kushner's Role Is Tested as Russia Case Grows - New York Times](http://www.f3nws.com/n/PcRapC)

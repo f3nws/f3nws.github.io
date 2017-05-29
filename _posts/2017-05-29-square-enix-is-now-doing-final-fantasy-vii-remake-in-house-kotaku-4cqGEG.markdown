@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Square Enix Is Now Doing Final Fantasy VII Remake In-House - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s---gh7CLoa--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/vmzt0duhm3u6gbsmianb.jpg)
 
-Kotaku Square Enix Is Now Doing Final Fantasy VII Remake In-House Kotaku Previously, Square Enix was working with external studio CyberConnect2 to develop Final Fantasy VII Remake. But now, Square Enix will be making the game in-house. Third party studio CyberConnect2 is perhaps best known for its Naruto and .hack games. Final Fantasy 7 Remake Undergoes A Big Development Change GameSpot Square Enix Shifts To An Internal Development Focus For Final Fantasy VII Remake Siliconera Final Fantasy VII Remake's Development Will Be Shifted In-House Ubergizmo Twinfinite - Only Single Player - Attack of the Fanboy - Gematsu all 55 news articles »
+Kotaku Square Enix Is Now Doing Final Fantasy VII Remake In-House Kotaku Previously, Square Enix was working with external studio CyberConnect2 to develop Final Fantasy VII Remake. But now, Square Enix will be making the game in-house. Third party studio CyberConnect2 is perhaps best known for its Naruto and .hack games. Final Fantasy 7 Remake Undergoes A Big Development Change GameSpot Square Enix Shifts To An Internal Development Focus For Final Fantasy VII Remake Siliconera Final Fantasy VII Remake's Development Will Be Shifted In-House Ubergizmo Twinfinite - Only Single Player - Attack of the Fanboy - PlayStation Universe all 57 news articles »
 
 
 Full story on F3News: [Square Enix Is Now Doing Final Fantasy VII Remake In-House - Kotaku](http://www.f3nws.com/n/4cqGEG)
