@@ -5,7 +5,7 @@ date: 2017-05-29 07:01:01Z
 categories: al-jazeera-english
 ---
 
-![Race to rescue Sri Lanka flood victims as toll rises](http://www.aljazeera.com/mritems/Images/2017/5/29/6ddffb53dbe841b9bc8792dd6fa74b43_18.jpg)
+![Race to rescue Sri Lanka flood victims as toll rises](http://www.aljazeera.com/mritems/Images/2017/5/29/4b1c52dce877434cb9cfe041611e27e8_18.jpg)
 
 Rescuers rush to evacuate people marooned by floods before rains resume on Monday, as death toll rises to 164.
 
