@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone 8 Release Date, Price and Specs     - CNET"
-date: 2017-05-29 01:42:59Z
+date: 2017-05-29 21:58:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Rumor has it that Apple's manufacturers are running into trouble producing the d
 
 Full story on F3News: [Apple iPhone 8 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/VqSQhG)
 
-> Posted on: Monday, May 29, 2017 6:42:59 AM
+> Posted on: Tuesday, May 30, 2017 2:58:30 AM
