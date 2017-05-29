@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines: Hundreds trapped in battle for Marawi"
-date: 2017-05-29 10:04:19Z
+date: 2017-05-29 19:38:33Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Philippine army makes gains as alarm grows over fate of up to 2,000 people stran
 
 Full story on F3News: [Philippines: Hundreds trapped in battle for Marawi](http://www.f3nws.com/n/MMQfrD)
 
-> Posted on: Monday, May 29, 2017 3:04:19 PM
+> Posted on: Tuesday, May 30, 2017 12:38:33 AM
