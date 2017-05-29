@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Following Trump's trip, Merkel says Europe can't rely on 'others.' She means the US - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/28/Interactivity/Images/crop_90Trump_US_G7_94377-c16c1.jpg)
 
-Washington Post Following Trump's trip, Merkel says Europe can't rely on 'others.' She means the US Washington Post LONDON — German Chancellor Angela Merkel on Sunday declared a new chapter in U.S.-European relations after contentious meetings with President Trump last week, saying that Europe “really must take our fate into our own hands.” It was the toughest ... Amber Rudd to Angela Merkel: You can depend on the UK BBC News Trump's Trip Was a Catastrophe for US-Europe Relations The Atlantic Modi's Berlin visit signals Asian pivot for Atlanticist Merkel Reuters NBCNews.com - Fox News - USA TODAY - NPR all 207 news articles »
+Washington Post Following Trump's trip, Merkel says Europe can't rely on 'others.' She means the US Washington Post LONDON — German Chancellor Angela Merkel on Sunday declared a new chapter in U.S.-European relations after contentious meetings with President Trump last week, saying that Europe “really must take our fate into our own hands.” It was the toughest ... Amber Rudd to Angela Merkel: You can depend on the UK BBC News Post-summit, Merkel says Europe 'must take our fate into our own hands' USA TODAY After G7 Summit, Merkel Says Europe Can No Longer Completely Rely On US And UK NPR Chicago Tribune - Reuters - Los Angeles Times - Slate Magazine (blog) all 225 news articles »
 
 
 Full story on F3News: [Following Trump's trip, Merkel says Europe can't rely on 'others.' She means the US - Washington Post](http://www.f3nws.com/n/qzuknC)
