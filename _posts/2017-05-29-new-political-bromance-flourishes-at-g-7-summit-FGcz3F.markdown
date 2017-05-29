@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New political bromance flourishes at G-7 summit"
-date: 2017-05-29 13:11:22Z
+date: 2017-05-29 16:19:31Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Leaders of the seven most powerful countries convened in the Sicilian town of Ta
 
 Full story on F3News: [New political bromance flourishes at G-7 summit](http://www.f3nws.com/n/FGcz3F)
 
-> Posted on: Monday, May 29, 2017 6:11:22 PM
+> Posted on: Monday, May 29, 2017 9:19:31 PM
