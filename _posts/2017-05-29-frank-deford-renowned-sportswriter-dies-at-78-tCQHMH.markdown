@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Frank Deford, renowned sportswriter, dies at 78"
-date: 2017-05-29 18:24:47Z
+date: 2017-05-29 18:58:49Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The death was confirmed Monday by NPR, where Deford delivered commentaries for 3
 
 Full story on F3News: [Frank Deford, renowned sportswriter, dies at 78](http://www.f3nws.com/n/tCQHMH)
 
-> Posted on: Monday, May 29, 2017 11:24:47 PM
+> Posted on: Monday, May 29, 2017 11:58:49 PM

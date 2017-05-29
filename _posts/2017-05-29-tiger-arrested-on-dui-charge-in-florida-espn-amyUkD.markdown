@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tiger arrested on DUI charge in Florida - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0529%2Fr213713_5_400x600_2%2D3.jpg)
 
-ESPN Tiger arrested on DUI charge in Florida ESPN Tiger Woods was arrested on a charge of driving under the influence early Monday near his home in Jupiter, Florida, according to an online Palm Beach County Police report. The winner of 14 major championships who is recovering from back surgery in ... Tiger Woods 'arrogant' during DUI arrest in Florida New York Post Stephen A. Smith says Tiger Woods is a 'lost soul' following DUI arrest Golf.com Timeline: Tiger Woods' rough journey of injuries and legal incidents continues CBSSports.com BBC News - Yahoo Sports - Reuters - Dallas News all 487 news articles »
+ESPN Tiger arrested on DUI charge in Florida ESPN Tiger Woods was arrested on a charge of driving under the influence early Monday near his home in Jupiter, Florida, according to an online Palm Beach County Police report. The winner of 14 major championships who is recovering from back surgery in ... A timeline of Tiger Woods' career USA TODAY Stephen A. Smith says Tiger Woods is a 'lost soul' following DUI arrest Golf.com Tiger Woods 'arrogant' during DUI arrest in Florida New York Post Reuters - BBC News - CBSSports.com - Yahoo Sports all 500 news articles »
 
 
 Full story on F3News: [Tiger arrested on DUI charge in Florida - ESPN](http://www.f3nws.com/n/amyUkD)
