@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sofia Coppola becomes second woman to win Cannes director prize"
-date: 2017-05-29 17:21:02Z
+date: 2017-05-29 20:46:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Following a big win at Cannes, Sofia Coppola has just joined a very exclusive cl
 
 Full story on F3News: [Sofia Coppola becomes second woman to win Cannes director prize](http://www.f3nws.com/n/futkXG)
 
-> Posted on: Monday, May 29, 2017 10:21:02 PM
+> Posted on: Tuesday, May 30, 2017 1:46:39 AM
