@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Dozen killed, over 120 injured in Moscow as severe storm causes havoc (PHOTO, VIDEO)](https://cdn.rt.com/files/2017.05/article/592c2694c46188a45b8b45b4.jpg)
 
-A heavy storm that hit the Russian capital on Monday has left a number of people dead, the Investigative Committee confirmed. The Moscow mayor said that dozens required medical treatment. The storm uprooted trees and tore the roofs off buildings. Read Full Article at RT.com
+Twelve people were killed and at least 125 injured in Moscow and the Moscow Region, including 17 children, as result of Monday’s storm, according to a report by the All-Russian Center of Disaster Medicine. The storm uprooted trees and tore the roofs off buildings. Read Full Article at RT.com
 
 
 Full story on F3News: [Dozen killed, over 120 injured in Moscow as severe storm causes havoc (PHOTO, VIDEO)](http://www.f3nws.com/n/NzyqjC)

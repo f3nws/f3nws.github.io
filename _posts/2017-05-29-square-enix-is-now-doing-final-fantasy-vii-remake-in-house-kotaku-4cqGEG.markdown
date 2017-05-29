@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Square Enix Is Now Doing Final Fantasy VII Remake In-House - Kotaku"
-date: 2017-05-29 12:09:57Z
+date: 2017-05-29 12:08:05Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku Square Enix Is Now Doing Final Fantasy VII Remake In-House Kotaku Previou
 
 Full story on F3News: [Square Enix Is Now Doing Final Fantasy VII Remake In-House - Kotaku](http://www.f3nws.com/n/4cqGEG)
 
-> Posted on: Monday, May 29, 2017 5:09:57 PM
+> Posted on: Monday, May 29, 2017 5:08:05 PM
