@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kylie Maybury's killer trapped by mix of new-age science, old-fashioned policing - The Age"
-date: 2017-05-29 06:24:00Z
+date: 2017-05-29 06:28:40Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Age Kylie Maybury's killer trapped by mix of new-age science, old-fashioned 
 
 Full story on F3News: [Kylie Maybury's killer trapped by mix of new-age science, old-fashioned policing - The Age](http://www.f3nws.com/n/AVBFsF)
 
-> Posted on: Monday, May 29, 2017 11:24:00 AM
+> Posted on: Monday, May 29, 2017 11:28:40 AM
