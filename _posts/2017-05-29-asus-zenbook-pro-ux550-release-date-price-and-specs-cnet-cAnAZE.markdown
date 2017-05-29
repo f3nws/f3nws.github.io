@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asus ZenBook Pro UX550 Release Date, Price and Specs     - CNET"
-date: 2017-05-29 09:13:08Z
+date: 2017-05-29 10:26:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Equipped with Intel's Core i7-7700HQ and Nvidia's GTX 1050 TI discrete graphics,
 
 Full story on F3News: [Asus ZenBook Pro UX550 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/cAnAZE)
 
-> Posted on: Monday, May 29, 2017 2:13:08 PM
+> Posted on: Monday, May 29, 2017 3:26:28 PM
