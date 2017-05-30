@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Square Enix Announces New JRPG Lost Sphear For PS4, Switch, And Steam - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--9BibHhLr--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/tozobkljys3rxrpleno5.jpg)
 
-Kotaku Square Enix Announces New JRPG Lost Sphear For PS4, Switch, And Steam Kotaku The follow up to I Am Setsuna is Lost Sphear, the latest release from Square Enix's Tokyo RPG Factory. Here's how Square Enix describes the game: The adventure of LOST SPHEAR begins in a remote town where a young boy, Kanata, awakens from a ... I Am Setsuna Devs Reveal New RPG, Lost Sphear IGN Lost Sphear is the next project by the developers of I Am Setsuna Destructoid I Am Setsuna Devs Announce Lost Sphear, Mysterious New JRPG Gameranx (blog) Twinfinite - Only Single Player - Siliconera - Eurogamer.net all 32 news articles »
+Kotaku Square Enix Announces New JRPG Lost Sphear For PS4, Switch, And Steam Kotaku The follow up to I Am Setsuna is Lost Sphear, the latest release from Square Enix's Tokyo RPG Factory. Here's how Square Enix describes the game: The adventure of LOST SPHEAR begins in a remote town where a young boy, Kanata, awakens from a ... Lost Sphear is the next JRPG from Square Enix Polygon I Am Setsuna Devs Reveal New RPG, Lost Sphear IGN 'Lost Sphear' Announced For PC, PS4 And Switch; Coming Early Next Year iDigitalTimes.com Bleeding Cool News - Game Rant - Twinfinite - Siliconera all 51 news articles »
 
 
 Full story on F3News: [Square Enix Announces New JRPG Lost Sphear For PS4, Switch, And Steam - Kotaku](http://www.f3nws.com/n/yGdM)
