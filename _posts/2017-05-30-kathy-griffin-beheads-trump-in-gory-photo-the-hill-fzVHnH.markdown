@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Kathy Griffin beheads 'Trump' in gory photo - The Hill](http://thehill.com/sites/default/files/blogs/kathygriffin_getty.jpg)
 
-The Hill Kathy Griffin beheads 'Trump' in gory photo The Hill Comedian Kathy Griffin is facing backlash on social media after posing for a picture with a bloody, decapitated fake head that resembles President Trump. The 56-year-old Griffin posed for photographer Tyler Shields for the image, which was first ... Kathy Griffin sparks outrage with decapitated Trump head photo New York Daily News Kathy Griffin Beheads Donald Trump in Bloody Shock Photo Breitbart News So, Here's Kathy Griffin Holding A Very Fake, Very Bloody Donald Trump Head HuffPost Washington Times - Fox News - Hot Air - Hollywood Reporter all 40 news articles »
+The Hill Kathy Griffin beheads 'Trump' in gory photo The Hill Comedian Kathy Griffin is facing backlash on social media after posing for a picture with a bloody, decapitated fake head that resembles President Trump. The 56-year-old Griffin posed for photographer Tyler Shields for the image, which was first ... Kathy Griffin's bloody Trump pic defended by photographer EW.com Kathy Griffin holds bloodied Trump mask in photo shoot with Tyler Shields Fox News Kathy Griffin sparks outrage with decapitated Trump head photo New York Daily News BuzzFeed News - Breitbart News - PerezHilton.com - HuffPost all 51 news articles »
 
 
 Full story on F3News: [Kathy Griffin beheads 'Trump' in gory photo - The Hill](http://www.f3nws.com/n/fzVHnH)
