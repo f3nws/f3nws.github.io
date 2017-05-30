@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Disgusting hypocrisy’: Macron’s ‘RT-Sputnik propaganda’ comments ignite social media backlash"
-date: 2017-05-30 10:49:10Z
+date: 2017-05-30 10:49:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ After French President Emmanuel Macron labeled Moscow-based news outlets RT and 
 
 Full story on F3News: [‘Disgusting hypocrisy’: Macron’s ‘RT-Sputnik propaganda’ comments ignite social media backlash](http://www.f3nws.com/n/mZUsJB)
 
-> Posted on: Tuesday, May 30, 2017 3:49:10 PM
+> Posted on: Tuesday, May 30, 2017 3:49:00 PM
