@@ -5,7 +5,7 @@ date: 2017-05-30 09:55:18Z
 categories: al-jazeera-english
 ---
 
-![Second deadly blast strikes Baghdad in 24 hours](http://www.aljazeera.com/mritems/Images/2017/5/30/6dbb2126e4a641c0b67b6c8743c4ce19_18.jpg)
+![Second deadly blast strikes Baghdad in 24 hours](http://www.aljazeera.com/mritems/Images/2017/5/30/a518956d12654b3a93851353bccb7e50_18.jpg)
 
 At least eight killed at Al-Shahada Bridge following ISIL-claimed attack hours earlier that left 15 dead in Karrada.
 

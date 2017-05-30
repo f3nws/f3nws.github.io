@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Apple can make the iPhone easier to use with a simple fix in iOS 11 - Business Insider](http://static2.businessinsider.com/image/592b9f2db74af4f83d8b493c-1190-625/apple-can-make-the-iphone-easier-to-use-with-a-simple-fix-in-ios-11.jpg)
 
-Business Insider Apple can make the iPhone easier to use with a simple fix in iOS 11 Business Insider Apple is likely to unveil the next iteration of iOS soon. That means it's "wish list" season, a time for iPhone owners to compile all the things they'd like to see on their devices. (And then whine about if they don't arrive.) For me, there's one ... Apple's iPhone 8 to feature new display format: report YourStory.com Apple Leak Reveals iPhone 8 'Shape Change' Forbes Upcoming iPhone 8 to feature new display format: Report Daily News & Analysis Mac Rumors - Mirror.co.uk - Hindustan Times - Alphr all 46 news articles »
+Business Insider Apple can make the iPhone easier to use with a simple fix in iOS 11 Business Insider Apple is likely to unveil the next iteration of iOS soon. That means it's "wish list" season, a time for iPhone owners to compile all the things they'd like to see on their devices. (And then whine about if they don't arrive.) For me, there's one ... Apple's iPhone 8 to feature new display format: report YourStory.com Apple Leak Reveals iPhone 8 'Shape Change' Forbes Setting the stage for iPhone 8? Apple releases 'Switch To iPhone' ads flaunting security and smoothness International Business Times, India Edition Daily News & Analysis - Mac Rumors - Mirror.co.uk - Alphr all 48 news articles »
 
 
 Full story on F3News: [Apple can make the iPhone easier to use with a simple fix in iOS 11 - Business Insider](http://www.f3nws.com/n/sTnfKH)
