@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS hits the young, then the old in twin bombings"
-date: 2017-05-30 15:12:20Z
+date: 2017-05-30 18:49:10Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Twin car bombings just hours apart have targeted two groups of people going abou
 
 Full story on F3News: [ISIS hits the young, then the old in twin bombings](http://www.f3nws.com/n/hZm3cF)
 
-> Posted on: Tuesday, May 30, 2017 8:12:20 PM
+> Posted on: Tuesday, May 30, 2017 11:49:10 PM
