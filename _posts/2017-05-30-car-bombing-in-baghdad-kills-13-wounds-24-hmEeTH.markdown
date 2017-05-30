@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car bombing in Baghdad kills 13, wounds 24"
-date: 2017-05-30 00:43:28Z
+date: 2017-05-30 01:57:25Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Blast hits popular ice cream shop in the capital after Iraqis broke their Ramada
 
 Full story on F3News: [Car bombing in Baghdad kills 13, wounds 24](http://www.f3nws.com/n/hmEeTH)
 
-> Posted on: Tuesday, May 30, 2017 5:43:28 AM
+> Posted on: Tuesday, May 30, 2017 6:57:25 AM
