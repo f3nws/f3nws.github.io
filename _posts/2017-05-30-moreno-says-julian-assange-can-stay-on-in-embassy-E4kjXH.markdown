@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moreno says Julian Assange can stay on in embassy"
-date: 2017-05-30 09:58:40Z
+date: 2017-05-30 10:27:37Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Moreno criticises Assange as a 'hacker' but says the WikiLeaks founder can remai
 
 Full story on F3News: [Moreno says Julian Assange can stay on in embassy](http://www.f3nws.com/n/E4kjXH)
 
-> Posted on: Tuesday, May 30, 2017 2:58:40 PM
+> Posted on: Tuesday, May 30, 2017 3:27:37 PM
