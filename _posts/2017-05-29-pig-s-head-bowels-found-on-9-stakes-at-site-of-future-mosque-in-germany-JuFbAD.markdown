@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pig's head, bowels found on 9 stakes at site of future mosque in Germany"
-date: 2017-05-29 19:22:59Z
+date: 2017-05-29 19:22:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Nine wooden stakes topped with pieces of a dead pig have been found on a plot of
 
 Full story on F3News: [Pig's head, bowels found on 9 stakes at site of future mosque in Germany](http://www.f3nws.com/n/JuFbAD)
 
-> Posted on: Tuesday, May 30, 2017 12:22:59 AM
+> Posted on: Tuesday, May 30, 2017 12:22:00 AM

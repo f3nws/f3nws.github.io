@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manuel Noriega, former ruler of Panama, dies at 83"
-date: 2017-05-30 05:48:58Z
+date: 2017-05-30 07:31:05Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Former ruler of Panama was held in medically induced coma after brain surgery in
 
 Full story on F3News: [Manuel Noriega, former ruler of Panama, dies at 83](http://www.f3nws.com/n/EjV3yG)
 
-> Posted on: Tuesday, May 30, 2017 10:48:58 AM
+> Posted on: Tuesday, May 30, 2017 12:31:05 PM
