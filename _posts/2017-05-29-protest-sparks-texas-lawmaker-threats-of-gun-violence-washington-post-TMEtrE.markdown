@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Protest sparks Texas lawmaker threats of gun violence - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/blogs/the-fix/files/2017/05/TexasScuffle.jpg&w=1484&op=resize&opt=1&filter=antialias)
 
-Washington Post Protest sparks Texas lawmaker threats of gun violence Washington Post AUSTIN — Hundreds of protesters opposing Texas's tough new anti-“sanctuary cities” law launched a raucous demonstration from the public gallery in the Texas House on Monday, briefly halting work and prompting lawmakers on the floor below to argue ... Heated argument erupts on Texas House floor CNN Texas Lawmaker Threatens to Shoot Colleague After Reporting Protesters to ICE New York Times Texas Lawmakers Trade Assault Allegations After One Calls ICE On Protesters NPR Reuters - New York Daily News - Breitbart News - Newsweek all 461 news articles »
+Washington Post Protest sparks Texas lawmaker threats of gun violence Washington Post AUSTIN — Hundreds of protesters opposing Texas's tough new anti-“sanctuary cities” law launched a raucous demonstration from the public gallery in the Texas House on Monday, briefly halting work and prompting lawmakers on the floor below to argue ... Heated argument erupts on Texas House floor CNN Texas state lawmaker says he received racist calls after House floor scuffle ABC News Texas Lawmaker Threatens to Shoot Colleague After Reporting Protesters to ICE New York Times NPR - Reuters - New York Daily News - Breitbart News all 467 news articles »
 
 
 Full story on F3News: [Protest sparks Texas lawmaker threats of gun violence - Washington Post](http://www.f3nws.com/n/TMEtrE)
