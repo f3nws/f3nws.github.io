@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Manuel Noriega, Dictator Ousted by US in Panama, Dies at 83 - New York Times](https://static01.nyt.com/images/2017/03/09/world/noriega-obit-video/noriega-obit-video-facebookJumbo.jpg)
 
-New York Times Manuel Noriega, Dictator Ousted by US in Panama, Dies at 83 New York Times Removing Manuel Noriega, the dictator of Panama, from power in 1989 not only entailed what was then the largest American military action since Vietnam, but also set the stage for future actions by the United States. By THE NEW YORK TIMES on Publish ... Former Panamanian dictator Manuel Noriega dies at 83 Washington Examiner From Nikki Haley, another side of Trump's 'America First' Washington Post He was U.S. prisoner #41586. How Noriega landed in a Miami jail after invasion Miami Herald U.S. News & World Report - New York Daily News - The Independent - wtkr.com all 182 news articles »
+New York Times Manuel Noriega, Dictator Ousted by US in Panama, Dies at 83 New York Times Removing Manuel Noriega, the dictator of Panama, from power in 1989 not only entailed what was then the largest American military action since Vietnam, but also set the stage for future actions by the United States. By THE NEW YORK TIMES on Publish ... For two evangelical Christians, Manuel Antonio Noriega became the ultimate jailhouse convert Washington Post Former Panamanian dictator Manuel Noriega dies at 83 Washington Examiner Music torture: How heavy metal broke Manuel Noriega BBC News The Mercury News - Miami Herald - ABC News - WCPO all 196 news articles »
 
 
 Full story on F3News: [Manuel Noriega, Dictator Ousted by US in Panama, Dies at 83 - New York Times](http://www.f3nws.com/n/ekCqtB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Death toll tops 160 in Sri Lanka floods"
-date: 2017-05-30 08:06:14Z
+date: 2017-05-30 12:24:24Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Sri Lanka remains in the grips of the worst flooding in 14 years, and the bad we
 
 Full story on F3News: [Death toll tops 160 in Sri Lanka floods](http://www.f3nws.com/n/WNNEd)
 
-> Posted on: Tuesday, May 30, 2017 1:06:14 PM
+> Posted on: Tuesday, May 30, 2017 5:24:24 PM

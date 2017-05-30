@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Exclusive: This is the Essential Phone](https://cdn.vox-cdn.com/thumbor/j1cr41InSOU4WNPKzvXbxBnZGfc=/0x222:1700x1178/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55001319/ph_1_color_white_moon_copy.1496137703.png)
 
-The Verge Exclusive: This is the Essential Phone The Verge The Essential Phone, brought to us by the person who created Android, is finally ready for the spotlight. It's an incredibly audacious and ambitious project, with an outlandish screen and the beginnings of a modular ecosystem. First, the Android phone ... Android creator Andy Rubin's Essential Phone looks stunning and will cost $699 TechCrunch The Father of Android Is Back, and He's Built the Anti-iPhone WIRED Specs: Essential Phone Android Headlines BGR - Engadget - Mashable - Recode all 75 news articles »
+The Verge Exclusive: This is the Essential Phone The Verge The Essential Phone, brought to us by the person who created Android, is finally ready for the spotlight. It's an incredibly audacious and ambitious project, with an outlandish screen and the beginnings of a modular ecosystem. First, the Android phone ... Android creator Andy Rubin's Essential Phone looks stunning and will cost $699 TechCrunch The Father of Android Is Back, and He's Built the Anti-iPhone WIRED The Essential Phone Is Meant To Fix Android, Rubin Implies Android Headlines BGR - Engadget - Digital Trends - ExtremeTech all 97 news articles »
 
 
 Full story on F3News: [Exclusive: This is the Essential Phone](http://www.f3nws.com/n/mxShaH)
