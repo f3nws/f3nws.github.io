@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuelans 'outraged' at Goldman Sachs"
-date: 2017-05-30 16:46:03Z
+date: 2017-05-30 19:43:33Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Venezuelans are furious with Goldman Sachs for buying the country's government b
 
 Full story on F3News: [Venezuelans 'outraged' at Goldman Sachs](http://www.f3nws.com/n/hzumVJ)
 
-> Posted on: Tuesday, May 30, 2017 9:46:03 PM
+> Posted on: Wednesday, May 31, 2017 12:43:33 AM
