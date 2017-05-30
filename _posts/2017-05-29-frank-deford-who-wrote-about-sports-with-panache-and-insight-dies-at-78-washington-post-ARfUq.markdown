@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Frank Deford, who wrote about sports with panache and insight, dies at 78 - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/29/Others/Images/2017-05-29/Deford_51.JPG)
 
-Washington Post Frank Deford, who wrote about sports with panache and insight, dies at 78 Washington Post Frank Deford, often considered the finest sportswriter of his generation for his detailed psychological profiles of athletes and coaches, who also won acclaim for his novels, his television and radio commentaries and for a heartfelt book about his ... Frank Deford, NPR's Longtime Philosopher Of Sports, Dies At 78 NPR Frank Deford, Giant of Sports Journalism, Dies at 78 Hollywood Reporter Frank Deford was a dreamer who allowed rest of us to dream, too New York Daily News ABC News - Sports Illustrated - Pittsburgh Post-Gazette - HuffPost all 90 news articles »
+Washington Post Frank Deford, who wrote about sports with panache and insight, dies at 78 Washington Post Frank Deford, often considered the finest sportswriter of his generation for his detailed psychological profiles of athletes and coaches, who also won acclaim for his novels, his television and radio commentaries and for a heartfelt book about his ... Frank Deford, NPR's Longtime Philosopher Of Sports, Dies At 78 NPR Frank Deford, Giant of Sports Journalism, Dies at 78 Hollywood Reporter Frank Deford was a dreamer who allowed rest of us to dream, too New York Daily News ABC News - Deadline - Sports Illustrated - HuffPost all 89 news articles »
 
 
 Full story on F3News: [Frank Deford, who wrote about sports with panache and insight, dies at 78 - Washington Post](http://www.f3nws.com/n/ARfUq)
