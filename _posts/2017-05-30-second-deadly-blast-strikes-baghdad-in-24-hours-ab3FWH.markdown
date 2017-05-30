@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Second deadly blast strikes Baghdad in 24 hours"
-date: 2017-05-30 08:22:10Z
+date: 2017-05-30 08:50:55Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ At least seven killed at Al-Shahada Bridge following ISIL-claimed attack hours e
 
 Full story on F3News: [Second deadly blast strikes Baghdad in 24 hours](http://www.f3nws.com/n/ab3FWH)
 
-> Posted on: Tuesday, May 30, 2017 1:22:10 PM
+> Posted on: Tuesday, May 30, 2017 1:50:55 PM
