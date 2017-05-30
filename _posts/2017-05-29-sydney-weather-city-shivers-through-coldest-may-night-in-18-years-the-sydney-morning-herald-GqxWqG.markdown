@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Sydney weather: city shivers through coldest May night in 18 years - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/w/f/x/c/k/image.related.articleLeadwide.620x349.gwfxoh.png/1496096470329.jpg)
 
-The Sydney Morning Herald Sydney weather: city shivers through coldest May night in 18 years The Sydney Morning Herald Sydney's mild autumn spell has given way to a blast of frost and sub-zero temperatures overnight, with the city recording its coldest May night in nearly two decades, meteorologists say. The temperature dipped to a low of 7.1 degrees in the city just ... Sydney wakes to coldest autumn morning in 18 years 9news.com.au all 2 news articles »
+The Sydney Morning Herald Sydney weather: city shivers through coldest May night in 18 years The Sydney Morning Herald Sydney's mild autumn spell has given way to a blast of frost and sub-zero temperatures overnight, with the city recording its coldest May night in nearly two decades, meteorologists say. The temperature dipped to a low of 7.1 degrees in the city just ... Sydney shivers through its coldest May night in 18 years NEWS.com.au Sydney wakes to coldest autumn morning in 18 years 9news.com.au all 3 news articles »
 
 
 Full story on F3News: [Sydney weather: city shivers through coldest May night in 18 years - The Sydney Morning Herald](http://www.f3nws.com/n/GqxWqG)
