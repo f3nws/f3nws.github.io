@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines battles growing ISIS threat"
-date: 2017-05-30 00:12:50Z
+date: 2017-05-30 00:55:41Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The black flag of ISIS has been raised in the Philippines.
 
 Full story on F3News: [Philippines battles growing ISIS threat](http://www.f3nws.com/n/EFjgTC)
 
-> Posted on: Tuesday, May 30, 2017 5:12:50 AM
+> Posted on: Tuesday, May 30, 2017 5:55:41 AM
