@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WH communications director stepping down"
-date: 2017-05-30 12:08:46Z
+date: 2017-05-30 13:41:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ White House communications director Mike Dubke is leaving the administration, he
 
 Full story on F3News: [WH communications director stepping down](http://www.f3nws.com/n/d4BzBJ)
 
-> Posted on: Tuesday, May 30, 2017 5:08:46 PM
+> Posted on: Tuesday, May 30, 2017 6:41:11 PM
