@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ultimate sacrifice: Teen dies shielding cousin from gunfire"
-date: 2017-05-30 00:12:51Z
+date: 2017-05-30 04:28:09Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ BROOKHAVEN, Miss. (AP) — It was after midnight when a gunman burst into the li
 
 Full story on F3News: [Ultimate sacrifice: Teen dies shielding cousin from gunfire](http://www.f3nws.com/n/zAmETC)
 
-> Posted on: Tuesday, May 30, 2017 5:12:51 AM
+> Posted on: Tuesday, May 30, 2017 9:28:09 AM
