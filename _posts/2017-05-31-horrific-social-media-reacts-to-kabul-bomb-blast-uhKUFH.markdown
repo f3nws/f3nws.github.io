@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Horrific': Social media reacts to Kabul bomb blast"
-date: 2017-05-31 11:20:43Z
+date: 2017-05-31 11:46:18Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Social media users react to blast in Afghan capital Kabul, which has killed at l
 
 Full story on F3News: ['Horrific': Social media reacts to Kabul bomb blast](http://www.f3nws.com/n/uhKUFH)
 
-> Posted on: Wednesday, May 31, 2017 4:20:43 PM
+> Posted on: Wednesday, May 31, 2017 4:46:18 PM
