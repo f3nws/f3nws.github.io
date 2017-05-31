@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: ASIO boss stands by comments on refugees and terrorism](http://www.abc.net.au/news/image/5782490-1x1-700x700.jpg)
 
-ASIO boss Duncan Lewis defends his claim before Senate estimates that there is no link between refugees and terrorism. Follow live.
+ASIO boss Duncan Lewis defends his comments that there is no link between refugees and terrorism, saying "the reason they are terrorists is not because they are refugees, but because of the violent, extremist interpretation of Sunni Islam that they have adopted". Follow live.
 
 
 Full story on F3News: [Live: ASIO boss stands by comments on refugees and terrorism](http://www.f3nws.com/n/dBvF4C)
