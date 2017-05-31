@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 7 US citizens injured in Kabul blast"
-date: 2017-05-31 16:09:02Z
+date: 2017-05-31 18:48:05Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ At least seven US citizens were injured in the suicide bomb blast in Kabul, Afgh
 
 Full story on F3News: [At least 7 US citizens injured in Kabul blast](http://www.f3nws.com/n/4NbcNF)
 
-> Posted on: Wednesday, May 31, 2017 9:09:02 PM
+> Posted on: Wednesday, May 31, 2017 11:48:05 PM

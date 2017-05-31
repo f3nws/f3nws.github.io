@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN fires Kathy Griffin"
-date: 2017-05-31 18:08:21Z
+date: 2017-05-31 18:37:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [CNN fires Kathy Griffin](http://www.f3nws.com/n/3vMuQD)
 
-> Posted on: Wednesday, May 31, 2017 11:08:21 PM
+> Posted on: Wednesday, May 31, 2017 11:37:42 PM
