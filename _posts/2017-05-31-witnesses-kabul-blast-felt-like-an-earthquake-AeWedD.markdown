@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Witnesses: Kabul blast felt like an 'earthquake'"
-date: 2017-05-31 11:03:51Z
+date: 2017-05-31 15:23:08Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ People at site of huge blast that killed at least 80 people describe scenes of c
 
 Full story on F3News: [Witnesses: Kabul blast felt like an 'earthquake'](http://www.f3nws.com/n/AeWedD)
 
-> Posted on: Wednesday, May 31, 2017 4:03:51 PM
+> Posted on: Wednesday, May 31, 2017 8:23:08 PM

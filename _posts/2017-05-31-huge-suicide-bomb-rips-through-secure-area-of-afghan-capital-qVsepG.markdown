@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huge suicide bomb rips through secure area of Afghan capital"
-date: 2017-05-31 13:31:22Z
+date: 2017-05-31 15:08:34Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A huge suicide bomb ripped through a secure area of Kabul at the height of the W
 
 Full story on F3News: [Huge suicide bomb rips through secure area of Afghan capital](http://www.f3nws.com/n/qVsepG)
 
-> Posted on: Wednesday, May 31, 2017 6:31:22 PM
+> Posted on: Wednesday, May 31, 2017 8:08:34 PM
