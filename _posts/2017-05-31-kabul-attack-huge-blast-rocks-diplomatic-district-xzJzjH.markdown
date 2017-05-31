@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kabul attack: Huge blast rocks diplomatic district"
-date: 2017-05-31 05:39:21Z
+date: 2017-05-31 06:18:30Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Huge blast rips through the heart of Afghan capital, in an area close to many go
 
 Full story on F3News: [Kabul attack: Huge blast rocks diplomatic district](http://www.f3nws.com/n/xzJzjH)
 
-> Posted on: Wednesday, May 31, 2017 10:39:21 AM
+> Posted on: Wednesday, May 31, 2017 11:18:30 AM
