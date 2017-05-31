@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly storm causes chaos across Moscow"
-date: 2017-05-30 14:12:16Z
+date: 2017-05-30 23:31:02Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A fierce storm whipped through Moscow Monday, killing 16 people, toppling thousa
 
 Full story on F3News: [Deadly storm causes chaos across Moscow](http://www.f3nws.com/n/yDhXJG)
 
-> Posted on: Tuesday, May 30, 2017 7:12:16 PM
+> Posted on: Wednesday, May 31, 2017 4:31:02 AM
