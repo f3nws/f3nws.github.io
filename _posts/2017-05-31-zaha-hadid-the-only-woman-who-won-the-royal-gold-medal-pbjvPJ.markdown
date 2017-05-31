@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zaha Hadid: The only woman who won the Royal Gold Medal"
-date: 2017-05-31 09:38:14Z
+date: 2017-05-31 13:20:14Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Renowned architect, builder of numerous iconic buildings and recipient of presti
 
 Full story on F3News: [Zaha Hadid: The only woman who won the Royal Gold Medal](http://www.f3nws.com/n/pbjvPJ)
 
-> Posted on: Wednesday, May 31, 2017 2:38:14 PM
+> Posted on: Wednesday, May 31, 2017 6:20:14 PM
