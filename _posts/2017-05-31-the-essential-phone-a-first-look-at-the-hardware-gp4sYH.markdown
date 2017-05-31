@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![The Essential Phone: a first look at the hardware](https://cdn.vox-cdn.com/thumbor/QhJXWfU_2fseA3xkCTjmv4JIhMs=/0x50:2040x1198/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55019499/DSC01462_verge.0.jpg)
 
-The Verge The Essential Phone: a first look at the hardware The Verge Immediately after Essential CEO Andy Rubin finished up his interview with Walt Mossberg at the Code Conference, I headed out into the hotel to track the phone down and see it for myself. The units on hand here are prototypes, early enough that they ... Essential's road to mainstream success is a ten-year play TechCrunch Here's what we know about Andy Rubin's new Essential phone Recode There's room for more than one 'love brand' in phones, says the COO of Andy Rubin's new company CNBC SlashGear - Mashable - 9to5Google - Phone Arena all 355 news articles »
+The Verge The Essential Phone: a first look at the hardware The Verge Immediately after Essential CEO Andy Rubin finished up his interview with Walt Mossberg at the Code Conference, I headed out into the hotel to track the phone down and see it for myself. The units on hand here are prototypes, early enough that they ... Essential's road to mainstream success is a ten-year play TechCrunch There's room for more than one 'love brand' in phones, says the COO of Andy Rubin's new company CNBC Here's what we know about Andy Rubin's new Essential phone Recode SlashGear - BBC News - Mashable - 9to5Google all 356 news articles »
 
 
 Full story on F3News: [The Essential Phone: a first look at the hardware](http://www.f3nws.com/n/gp4sYH)
