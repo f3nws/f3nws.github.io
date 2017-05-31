@@ -5,9 +5,9 @@ date: 2017-05-31 07:02:08Z
 categories: google-news-australia
 ---
 
-![Box Hill Hospital employee in critical condition after serious assault - The Age](http://www.theage.com.au/content/dam/images/g/w/h/j/r/c/image.related.socialLead.620x349.gwgz8g.png/1496222069477.jpg)
+![Box Hill Hospital employee in critical condition after serious assault - The Age](http://www.theage.com.au/content/dam/images/g/w/h/j/r/c/image.related.socialLead.620x349.gwgz8g.png/1496223365151.jpg)
 
-The Age Box Hill Hospital employee in critical condition after serious assault The Age A Melbourne surgeon is fighting for his life after a terrifying one-punch attack in the foyer of Box Hill Hospital. Cardiac and thoracic surgeon Patrick Pritzwald-Stegmann suffered life-threatening injuries after being punched in the head on Tuesday ... Man critically injured after attack at Box Hill Hospital Herald Sun Melbourne surgeon critical after coward punch assault at hospital 9news.com.au Victorian police wish to speak to these people in relation to the Box Hill Hospital assault NEWS.com.au ABC Online - The Australian - Yahoo7 News - Daily Mail all 17 news articles »
+The Age Box Hill Hospital employee in critical condition after serious assault The Age A Melbourne surgeon is fighting for his life after a terrifying one-punch attack in the foyer of Box Hill Hospital. In the latest of a series of recent attacks on the state's health workers, cardiac and thoracic surgeon Patrick Pritzwald-Stegmann ... Box Hill Hospital surgeon fighting for life after one-punch assault in foyer ABC Online Man critically injured after attack at Box Hill Hospital Herald Sun Melbourne surgeon critical after coward punch assault at hospital 9news.com.au The Australian - NEWS.com.au - Yahoo7 News - Daily Mail all 17 news articles »
 
 
 Full story on F3News: [Box Hill Hospital employee in critical condition after serious assault - The Age](http://www.f3nws.com/n/AnYHhD)
