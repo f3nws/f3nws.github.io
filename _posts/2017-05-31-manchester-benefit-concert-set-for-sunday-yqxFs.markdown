@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester benefit concert set for Sunday"
-date: 2017-05-31 07:52:44Z
+date: 2017-05-31 15:56:05Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Ariana Grande has called on her celebrity friends to join forces with her for a 
 
 Full story on F3News: [Manchester benefit concert set for Sunday](http://www.f3nws.com/n/yqxFs)
 
-> Posted on: Wednesday, May 31, 2017 12:52:44 PM
+> Posted on: Wednesday, May 31, 2017 8:56:05 PM

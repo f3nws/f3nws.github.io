@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scott Pelley out at 'CBS Evening News'"
-date: 2017-05-31 02:47:57Z
+date: 2017-05-31 16:26:28Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Scott Pelley out at 'CBS Evening News'](http://www.f3nws.com/n/veVbsG)
 
-> Posted on: Wednesday, May 31, 2017 7:47:57 AM
+> Posted on: Wednesday, May 31, 2017 9:26:28 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How location, timing and scale make this attack so significant"
-date: 2017-05-31 13:29:42Z
+date: 2017-05-31 16:04:06Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A huge explosion ripped through the diplomatic quarter of Kabul Wednesday, killi
 
 Full story on F3News: [How location, timing and scale make this attack so significant](http://www.f3nws.com/n/y3F2N)
 
-> Posted on: Wednesday, May 31, 2017 6:29:42 PM
+> Posted on: Wednesday, May 31, 2017 9:04:06 PM
