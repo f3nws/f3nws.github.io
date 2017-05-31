@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kathy Griffin: 'I beg for your forgiveness' for gruesome anti-Trump photo shoot"
-date: 2017-05-31 01:38:58Z
+date: 2017-05-31 02:45:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Kathy Griffin is defending herself after drawing fierce criticism for participat
 
 Full story on F3News: [Kathy Griffin: 'I beg for your forgiveness' for gruesome anti-Trump photo shoot](http://www.f3nws.com/n/maYqjH)
 
-> Posted on: Wednesday, May 31, 2017 6:38:58 AM
+> Posted on: Wednesday, May 31, 2017 7:45:46 AM
