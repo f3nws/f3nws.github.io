@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says Kathy Griffin 'should be ashamed of herself'"
-date: 2017-05-31 11:53:25Z
+date: 2017-05-31 15:45:43Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ President Trump says Kathy Griffin should be "ashamed of herself" after the come
 
 Full story on F3News: [Trump says Kathy Griffin 'should be ashamed of herself'](http://www.f3nws.com/n/YVXYbH)
 
-> Posted on: Wednesday, May 31, 2017 4:53:25 PM
+> Posted on: Wednesday, May 31, 2017 8:45:43 PM
