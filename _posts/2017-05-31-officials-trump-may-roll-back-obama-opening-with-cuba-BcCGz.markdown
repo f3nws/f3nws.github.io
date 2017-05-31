@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials: Trump may roll back Obama opening with Cuba"
-date: 2017-05-31 09:03:45Z
+date: 2017-05-31 18:04:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is expected to roll back portions of the Obama opening wi
 
 Full story on F3News: [Officials: Trump may roll back Obama opening with Cuba](http://www.f3nws.com/n/BcCGz)
 
-> Posted on: Wednesday, May 31, 2017 2:03:45 PM
+> Posted on: Wednesday, May 31, 2017 11:04:49 PM

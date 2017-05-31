@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Comey to testify publicly about Trump confrontations - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170519061711-james-comey-file-super-tease.jpg)
 
-CNN Comey to testify publicly about Trump confrontations CNN (CNN) Fired FBI director James Comey plans to testify publicly in the Senate as early as next week to confirm bombshell accusations that President Donald Trump pressured him to end his investigation into a top Trump aide's ties to Russia, a source ... James Comey to tesify before Senate about Russia talks with Trump New York Daily News Reports: Trump vets FBI chief candidate with deep Atlanta ties Atlanta Journal Constitution (blog) James Comey plans to confirm bombshell allegations against Trump in public testimony: report Raw Story Yahoo News - TPM - Palm Beach Post - New York Magazine all 141 news articles »
+CNN Comey to testify publicly about Trump confrontations CNN (CNN) Fired FBI director James Comey plans to testify publicly in the Senate as early as next week to confirm bombshell accusations that President Donald Trump pressured him to end his investigation into a top Trump aide's ties to Russia, a source ... Comey to testify before Senate as soon as next week Politico Former TSA boss among candidates for FBI director Washington Post Comey to tell Congress Trump pressured him to end FBI's Russia investigation: Report Washington Examiner New York Daily News - TPM - Yahoo News - Newsmax all 157 news articles »
 
 
 Full story on F3News: [Comey to testify publicly about Trump confrontations - CNN](http://www.f3nws.com/n/WTyGPE)
