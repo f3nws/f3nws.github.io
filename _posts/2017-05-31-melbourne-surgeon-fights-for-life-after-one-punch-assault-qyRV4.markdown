@@ -5,7 +5,7 @@ date: 2017-05-31 03:13:04Z
 categories: abc-top-stories
 ---
 
-![Melbourne surgeon fights for life after one-punch assault](http://www.abc.net.au/news/image/8575922-1x1-700x700.jpg)
+![Melbourne surgeon fights for life after one-punch assault](http://www.abc.net.au/news/image/8576184-1x1-700x700.jpg)
 
 Victoria Police arrest a man following an alleged one-punch attack in the foyer of a hospital in Melbourne's east that has left a surgeon with life-threatening injuries.
 
