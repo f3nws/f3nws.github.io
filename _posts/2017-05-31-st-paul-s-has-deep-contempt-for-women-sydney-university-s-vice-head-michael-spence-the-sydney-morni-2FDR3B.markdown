@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![St Paul's has deep contempt for women: Sydney University's vice-head Michael Spence - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/w/8/n/8/z/image.related.articleLeadwide.620x349.gwgw47.png/1496214949604.jpg)
 
-The Sydney Morning Herald St Paul's has deep contempt for women: Sydney University's vice-head Michael Spence The Sydney Morning Herald University of Sydney vice-chancellor Michael Spence has lashed out at St Paul's College for its "deep contempt for women" after its warden responded to a sexist Facebook post with a warning to students about the impact of such incidents on their CVs. St Paul's College warns students against publishing sexist posts because it could hurt their CVs Honi Soit Elite college slammed over 'offensive' sexism dailytelegraph.com.au Sydney Uni head slams St Paul's College Facebook post Daily Mail Newshub - Yahoo7 News all 7 news articles »
+The Sydney Morning Herald St Paul's has deep contempt for women: Sydney University's vice-head Michael Spence The Sydney Morning Herald University of Sydney vice-chancellor Michael Spence has lashed out at St Paul's College for its "deep contempt for women" after its warden responded to a sexist Facebook post with a warning to students about the impact of such incidents on their CVs. Elite college slammed over 'offensive' sexism dailytelegraph.com.au Sydney Uni head slams St Paul's College Facebook post Daily Mail Australian student suspended after 'grossly offensive' Facebook post Newshub Yahoo7 News all 7 news articles »
 
 
 Full story on F3News: [St Paul's has deep contempt for women: Sydney University's vice-head Michael Spence - The Sydney Morning Herald](http://www.f3nws.com/n/2FDR3B)
