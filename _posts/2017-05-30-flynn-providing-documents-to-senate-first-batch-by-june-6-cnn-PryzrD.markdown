@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Flynn providing documents to Senate, first batch by June 6 - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170522175329-michael-flynn-december-5-2016-super-tease.jpg)
 
-CNN Flynn providing documents to Senate, first batch by June 6 CNN (CNN) Former national security adviser Michael Flynn will provide documents requested by the Senate intelligence committee -- including an initial batch by June 6 -- a person close to Flynn said Tuesday. The source said that Flynn's lawyers alerted the ... AP News in Brief at 12:04 am EDT Washington Post The Russia probe is too important to be muddled by politics New York Post Michael Flynn Reportedly Plans To Hand Over Some Documents In Senate Russia Probe HuffPost NBCNews.com - NPR - Politico - American Thinker all 195 news articles »
+CNN Flynn providing documents to Senate, first batch by June 6 CNN (CNN) Former national security adviser Michael Flynn will provide documents requested by the Senate intelligence committee -- including an initial batch by June 6 -- a person close to Flynn said Tuesday. The source said that Flynn's lawyers alerted the ... AP source: Flynn agrees to provide documents to Senate panel Washington Post Michael Flynn Reportedly Plans To Hand Over Some Documents In Senate Russia Probe HuffPost Flynn to Turn Over Some Documents to Senate Intelligence Committee NBCNews.com Fox News - NPR - Politico - New York Post all 210 news articles »
 
 
 Full story on F3News: [Flynn providing documents to Senate, first batch by June 6 - CNN](http://www.f3nws.com/n/PryzrD)
