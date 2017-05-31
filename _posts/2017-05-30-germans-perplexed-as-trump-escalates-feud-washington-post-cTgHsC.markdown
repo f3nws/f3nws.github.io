@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Germans perplexed as Trump escalates feud - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/05/30/Foreign/Images/05998888.jpg)
 
-Washington Post Germans perplexed as Trump escalates feud Washington Post LONDON — President Trump escalated his feud with Berlin on Tuesday, even as Germany's leader and Trump's own spokesman tried to defuse the conflict, which has sent tremors through Washington's core postwar alliances. Before the presidential tweets ... As Trump's Aides Touted His Alliance-Building, European Leaders Mocked And Disparaged Him HuffPost Trump Is Worried About The Trade Deficit With Germany. He Needn't Be NPR Trump's Antagonism Toward Germany Is Stupid and Dangerous Slate Magazine National Review - PolitiFact - Fox News - Bloomberg all 1,477 news articles »
+Washington Post Germans perplexed as Trump escalates feud Washington Post LONDON — President Trump escalated his feud with Berlin on Tuesday, even as Germany's leader and Trump's own spokesman tried to defuse the conflict, which has sent tremors through Washington's core postwar alliances. Before the presidential tweets ... Blind Spots in Trump's Trade Tirade Against Germany New York Times White House to Europe: Trump picks on you because he likes you Politico As Trump's Aides Touted His Alliance-Building, European Leaders Mocked And Disparaged Him HuffPost NPR - Slate Magazine - National Review - PolitiFact all 1,345 news articles »
 
 
 Full story on F3News: [Germans perplexed as Trump escalates feud - Washington Post](http://www.f3nws.com/n/cTgHsC)
