@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Microsoft is taking a second stab at one of its biggest failed experiments - Business Insider](http://static4.businessinsider.com/image/592ed2b4b74af40c508b4f1c-1190-625/microsoft-is-taking-a-second-stab-at-one-of-its-biggest-failed-experiments.jpg)
 
-Business Insider Microsoft is taking a second stab at one of its biggest failed experiments Business Insider The company's 2012 attempt at creating a “lite” version of its Windows operating system — the poorly-received Windows 8, to be specific — Windows RT only ran on simplified ARM processors, the same kind of internal chips that power smartphones and ... Asus, HP, and Lenovo will all build ARM-powered Windows 10 PCs The Verge Qualcomm inks deal to build mobile Windows 10 PCs with Asus, Lenovo, HP ZDNet Asus, HP, Lenovo to Make Snapdragon Windows PCs PCMag CNBC - PCWorld - TechRepublic - Forbes all 78 news articles »
+Business Insider Microsoft is taking a second stab at one of its biggest failed experiments Business Insider The company's 2012 attempt at creating a “lite” version of its Windows operating system — the poorly-received Windows 8, to be specific — Windows RT only ran on simplified ARM processors, the same kind of internal chips that power smartphones and ... First 'Always Connected' Windows 10 on ARM PCs are coming from ASUS, HP, Lenovo ZDNet Asus, HP, Lenovo to Make Snapdragon Windows PCs PCMag Why Microsoft's ARM-based Windows 10 laptops still have a lot to prove PCWorld CNBC - TechRepublic - The Verge - Forbes all 79 news articles »
 
 
 Full story on F3News: [Microsoft is taking a second stab at one of its biggest failed experiments - Business Insider](http://www.f3nws.com/n/ayWKYG)
