@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Wonder Woman' banned in Lebanon because lead actress is Israeli"
-date: 2017-06-01 13:12:19Z
+date: 2017-06-01 17:50:28Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['Wonder Woman' banned in Lebanon because lead actress is Israeli](http://www.f3nws.com/n/DVNWdF)
 
-> Posted on: Thursday, June 1, 2017 6:12:19 PM
+> Posted on: Thursday, June 1, 2017 10:50:28 PM
