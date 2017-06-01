@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Sense8' Canceled at Netflix - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/05/sense83_-_h_2017.jpg)
 
-Hollywood Reporter 'Sense8' Canceled at Netflix Hollywood Reporter The streaming service confirmed on Thursday that it would not be moving forward with the sci-fi drama from The Wachowskis. "After 23 episodes, 16 cities and 13 countries, the story of the Sense8 cluster is coming to an end," said Cindy Holland, Netflix ... Netflix cancels Sense8 after two seasons The Verge Sense8 Canceled by Netflix After Two Seasons ComingSoon.net Netflix cancels Sense8 -- which was really expensive to film CNET Business Insider - Salon - Gizmodo - Bustle all 42 news articles »
+Hollywood Reporter 'Sense8' Canceled at Netflix Hollywood Reporter The streaming service confirmed on Thursday that it would not be moving forward with the sci-fi drama from The Wachowskis. "After 23 episodes, 16 cities and 13 countries, the story of the Sense8 cluster is coming to an end," said Cindy Holland, Netflix ... Netflix cancels Wachowskis' sci-fi drama 'Sense8' after two seasons USA TODAY Netflix cancels Sense8 after two seasons The Verge Sense8 Canceled by Netflix After Two Seasons ComingSoon.net CNET - Business Insider - Salon - Gizmodo all 48 news articles »
 
 
 Full story on F3News: ['Sense8' Canceled at Netflix - Hollywood Reporter](http://www.f3nws.com/n/U4Hpv)
