@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU, China unite behind Paris climate deal"
-date: 2017-06-01 20:07:05Z
+date: 2017-06-01 21:12:16Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ European Union leaders and China vowed Thursday to push forward with the Paris A
 
 Full story on F3News: [EU, China unite behind Paris climate deal](http://www.f3nws.com/n/xkz4dC)
 
-> Posted on: Friday, June 2, 2017 1:07:05 AM
+> Posted on: Friday, June 2, 2017 2:12:16 AM
