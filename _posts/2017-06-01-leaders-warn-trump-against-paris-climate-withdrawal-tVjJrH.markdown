@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Leaders warn Trump against Paris climate withdrawal"
-date: 2017-06-01 10:14:59Z
+date: 2017-06-01 10:46:18Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ From world leaders to prominent intellectuals, many urge the US to keep its comm
 
 Full story on F3News: [Leaders warn Trump against Paris climate withdrawal](http://www.f3nws.com/n/tVjJrH)
 
-> Posted on: Thursday, June 1, 2017 3:14:59 PM
+> Posted on: Thursday, June 1, 2017 3:46:18 PM

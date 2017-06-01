@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police release dashcam video from DUI arrest for Tiger Woods - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0531%2Fr214424_1296x864_3%2D2.jpg)
 
-ESPN Police release dashcam video from DUI arrest for Tiger Woods ESPN Police in Jupiter, Florida, released dashcam video on Wednesday of Tiger Woods prior to the golfer being arrested on a DUI charge early Monday morning. The video shows that Woods is confused as to his location and very unsteady as an officer puts him ... Tiger Woods' DUI arrest: Golfer appears confused in dashcam video CNN Video takes Tiger's tale to new depths Golf Channel Tiger Woods confused, stumbling on police dash cam video Yahoo Sports Boston Herald - Washington Post - NBCNews.com - Newsweek all 389 news articles »
+CBS News Police release dashcam video from DUI arrest for Tiger Woods ESPN Police in Jupiter, Florida, released dashcam video on Wednesday of Tiger Woods prior to the golfer being arrested on a DUI charge early Monday morning. The video shows that Woods is confused as to his location and very unsteady as an officer puts him ... Tiger Woods confused, stumbling on police dash cam video Yahoo Sports Video takes Tiger's tale to new depths Golf Channel Tiger Woods' DUI arrest: Golfer appears confused in dashcam video CNN New York Post - Washington Post - Boston Herald - NBCNews.com all 397 news articles »
 
 
 Full story on F3News: [Police release dashcam video from DUI arrest for Tiger Woods - ESPN](http://www.f3nws.com/n/suqK2C)
