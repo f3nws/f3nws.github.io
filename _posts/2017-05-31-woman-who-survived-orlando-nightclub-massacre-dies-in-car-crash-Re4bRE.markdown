@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman who survived Orlando nightclub massacre dies in car crash"
-date: 2017-05-31 20:00:03Z
+date: 2017-05-31 23:09:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A young woman who survived a massacre at a gay Florida nightclub has been killed
 
 Full story on F3News: [Woman who survived Orlando nightclub massacre dies in car crash](http://www.f3nws.com/n/Re4bRE)
 
-> Posted on: Thursday, June 1, 2017 1:00:03 AM
+> Posted on: Thursday, June 1, 2017 4:09:00 AM
