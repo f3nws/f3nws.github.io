@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIL fighters seal off Mosul mosque for last stand"
-date: 2017-06-01 04:42:32Z
+date: 2017-06-01 06:07:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Residents say dozens of fighters taking up positions near the medieval mosque wh
 
 Full story on F3News: [ISIL fighters seal off Mosul mosque for last stand](http://www.f3nws.com/n/DbbDpH)
 
-> Posted on: Thursday, June 1, 2017 9:42:32 AM
+> Posted on: Thursday, June 1, 2017 11:07:16 AM
