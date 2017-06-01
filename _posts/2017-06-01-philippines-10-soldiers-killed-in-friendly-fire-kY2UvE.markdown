@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines: 10 soldiers killed in 'friendly fire'"
-date: 2017-06-01 04:08:22Z
+date: 2017-06-01 04:57:41Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ As battles rage in Marawi against ISIL-linked fighters, misdirected strikes kill
 
 Full story on F3News: [Philippines: 10 soldiers killed in 'friendly fire'](http://www.f3nws.com/n/kY2UvE)
 
-> Posted on: Thursday, June 1, 2017 9:08:22 AM
+> Posted on: Thursday, June 1, 2017 9:57:41 AM
