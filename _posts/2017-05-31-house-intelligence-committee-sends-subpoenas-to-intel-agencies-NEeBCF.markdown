@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House Intelligence Committee sends subpoenas to intel agencies"
-date: 2017-05-31 20:47:00Z
+date: 2017-05-31 22:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Three of the nation’s intelligence agencies received subpoenas Wednesday after
 
 Full story on F3News: [House Intelligence Committee sends subpoenas to intel agencies](http://www.f3nws.com/n/NEeBCF)
 
-> Posted on: Thursday, June 1, 2017 1:47:00 AM
+> Posted on: Thursday, June 1, 2017 3:45:00 AM
