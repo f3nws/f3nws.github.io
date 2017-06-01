@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump exits Paris climate deal, Elon Musk leaves councils     - CNET"
-date: 2017-06-01 21:32:42Z
+date: 2017-06-01 22:12:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Tesla CEO joined other tech leaders in warning against the devastating effec
 
 Full story on F3News: [Trump exits Paris climate deal, Elon Musk leaves councils     - CNET](http://www.f3nws.com/n/mfdecC)
 
-> Posted on: Friday, June 2, 2017 2:32:42 AM
+> Posted on: Friday, June 2, 2017 3:12:33 AM
