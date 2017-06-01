@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to announce decision on climate change Thursday"
-date: 2017-06-01 12:27:32Z
+date: 2017-06-01 12:55:12Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump will announce his decision on whether
 
 Full story on F3News: [Trump to announce decision on climate change Thursday](http://www.f3nws.com/n/jY4sxC)
 
-> Posted on: Thursday, June 1, 2017 5:27:32 PM
+> Posted on: Thursday, June 1, 2017 5:55:12 PM
