@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nintendo Switch Survives 1000 Foot Drop - Kotaku"
-date: 2017-05-31 23:18:12Z
+date: 2017-05-31 23:16:00Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Metro Nintendo Switch Survives 1000 Foot Drop Kotaku Nintendo products are prima
 
 Full story on F3News: [Nintendo Switch Survives 1000 Foot Drop - Kotaku](http://www.f3nws.com/n/kdgqWF)
 
-> Posted on: Thursday, June 1, 2017 4:18:12 AM
+> Posted on: Thursday, June 1, 2017 4:16:00 AM

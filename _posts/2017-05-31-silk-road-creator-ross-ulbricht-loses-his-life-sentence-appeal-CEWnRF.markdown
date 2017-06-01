@@ -5,6 +5,8 @@ date: 2017-05-31 17:12:52Z
 categories: wired-top-stories
 ---
 
+![Silk Road Creator Ross Ulbricht Loses His Life Sentence Appeal](https://www.wired.com/wp-content/uploads/2017/05/Ulbricht-Family_HP_h_14570888-1200x630-e1496250334271.jpg)
+
 An appellate court puts the final seal on Ulbricht's life sentence, rejecting arguments about corrupt investigators and the injustice of his harsh sentence. The post Silk Road Creator Ross Ulbricht Loses His Life Sentence Appeal appeared first on WIRED .
 
 
