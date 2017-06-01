@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump delays moving US embassy to Jerusalem"
-date: 2017-06-01 16:11:37Z
+date: 2017-06-01 16:58:31Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ US president signs six-month waiver delaying the relocation of the US embassy fr
 
 Full story on F3News: [Donald Trump delays moving US embassy to Jerusalem](http://www.f3nws.com/n/CkKMSF)
 
-> Posted on: Thursday, June 1, 2017 9:11:37 PM
+> Posted on: Thursday, June 1, 2017 9:58:31 PM
