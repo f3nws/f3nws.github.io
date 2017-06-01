@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Resorts World Manila complex on lockdown after attack"
-date: 2017-06-01 19:55:57Z
+date: 2017-06-01 20:19:52Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ SITE intelligence group reports ISIL opertive has claimed responsibility for att
 
 Full story on F3News: [Resorts World Manila complex on lockdown after attack](http://www.f3nws.com/n/TDnHWB)
 
-> Posted on: Friday, June 2, 2017 12:55:57 AM
+> Posted on: Friday, June 2, 2017 1:19:52 AM
