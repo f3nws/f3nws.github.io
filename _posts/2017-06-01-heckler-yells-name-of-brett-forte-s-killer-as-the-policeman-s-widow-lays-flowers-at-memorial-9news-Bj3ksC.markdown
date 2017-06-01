@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Heckler yells name of Brett Forte's killer as the policeman's widow lays flowers at memorial - 9news.com.au"
+date: 2017-06-01 09:26:00Z
+categories: google-news-australia
+---
+
+![Heckler yells name of Brett Forte's killer as the policeman's widow lays flowers at memorial - 9news.com.au](http://9network-vod-progressive.akamaized.net/media2/664969388001/2017/06/664969388001_5455707955001_5455688101001-vs.jpg)
+
+9news.com.au Heckler yells name of Brett Forte's killer as the policeman's widow lays flowers at memorial 9news.com.au A heartless heckler has yelled the name of the man who fatally shot Senior Constable Brett Forte, while the police officer's wife mourned at his makeshift memorial in Queensland. As Susan Forte, who is also a police officer, laid a large bouquet in ... Sick taunts aimed at slain cop's widow Courier Mail Brett Forte killing: Police remove damaged vehicles from deadly siege scene ABC Online Slain policeman Brett Forte's wife tormented at memorial The Queensland Times TripleM Sydney - Daily Mail - Yahoo7 News - Northern Star all 25 news articles »
+
+
+Full story on F3News: [Heckler yells name of Brett Forte's killer as the policeman's widow lays flowers at memorial - 9news.com.au](http://www.f3nws.com/n/Bj3ksC)
+
+> Posted on: Thursday, June 1, 2017 2:26:00 PM
