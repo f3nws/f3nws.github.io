@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Australian tech deals"
-date: 2017-05-31 00:39:20Z
+date: 2017-05-31 23:53:20Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ TechRadar hand-picks the best Aussie tech bargains three times a week
 
 Full story on F3News: [The best Australian tech deals](http://www.f3nws.com/n/qW2UsH)
 
-> Posted on: Wednesday, May 31, 2017 5:39:20 AM
+> Posted on: Thursday, June 1, 2017 4:53:20 AM
