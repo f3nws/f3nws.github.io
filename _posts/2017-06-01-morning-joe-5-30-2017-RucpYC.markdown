@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Morning Joe 5/30/2017"
-date: 2017-06-01 21:30:12Z
+date: 2017-06-01 22:00:09Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Joe and Mika discuss the big news of the day.
 
 Full story on F3News: [Morning Joe 5/30/2017](http://www.f3nws.com/n/RucpYC)
 
-> Posted on: Friday, June 2, 2017 2:30:12 AM
+> Posted on: Friday, June 2, 2017 3:00:09 AM
