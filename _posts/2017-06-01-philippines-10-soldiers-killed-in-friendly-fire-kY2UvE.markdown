@@ -5,7 +5,7 @@ date: 2017-06-01 04:57:41Z
 categories: al-jazeera-english
 ---
 
-![Philippines: 10 soldiers killed in 'friendly fire'](http://www.aljazeera.com/mritems/Images/2017/6/1/d8682d5736984ffdb9f2a8737561466d_18.jpg)
+![Philippines: 10 soldiers killed in 'friendly fire'](http://www.aljazeera.com/mritems/Images/2017/6/1/85988a44fac44004974c765dd79e1b06_18.jpg)
 
 As battles rage in Marawi against ISIL-linked fighters, misdirected strikes kill 10 soldiers, defence minister says.
 
