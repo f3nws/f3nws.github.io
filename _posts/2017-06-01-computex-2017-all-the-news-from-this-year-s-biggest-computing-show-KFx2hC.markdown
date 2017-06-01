@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Computex 2017: all the news from this year’s biggest computing show"
-date: 2017-06-01 07:00:00Z
+date: 2017-06-01 11:32:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Everything we have seen from the biggest names in computing attending Computex 2
 
 Full story on F3News: [Computex 2017: all the news from this year’s biggest computing show](http://www.f3nws.com/n/KFx2hC)
 
-> Posted on: Thursday, June 1, 2017 12:00:00 PM
+> Posted on: Thursday, June 1, 2017 4:32:00 PM
