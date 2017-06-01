@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump withdraws US from Paris climate accord"
-date: 2017-06-01 21:26:36Z
+date: 2017-06-01 22:29:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Withdrawal from 2016 agreement, in line with president's election campaign promi
 
 Full story on F3News: [Donald Trump withdraws US from Paris climate accord](http://www.f3nws.com/n/UNGqPB)
 
-> Posted on: Friday, June 2, 2017 2:26:36 AM
+> Posted on: Friday, June 2, 2017 3:29:27 AM

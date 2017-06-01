@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines: 11 soldiers killed in misdirected air raid"
-date: 2017-06-01 21:50:50Z
+date: 2017-06-01 21:56:12Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Defence ministry orders investigation into friendly-fire incident in Marawi that
 
 Full story on F3News: [Philippines: 11 soldiers killed in misdirected air raid](http://www.f3nws.com/n/kY2UvE)
 
-> Posted on: Friday, June 2, 2017 2:50:50 AM
+> Posted on: Friday, June 2, 2017 2:56:12 AM
