@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Deadly Bombing in Kabul Is One of the Afghan War's Worst Strikes - New York Times](https://static01.nyt.com/images/2017/05/31/world/31afghanistan-sub/31afghanistan-sub-facebookJumbo.jpg)
 
-New York Times Deadly Bombing in Kabul Is One of the Afghan War's Worst Strikes New York Times The site of a huge explosion in Kabul, the capital of Afghanistan, on Wednesday. Credit Shah Marai/Agence France-Presse — Getty Images. KABUL, Afghanistan — A truck bomb devastated a central area of Kabul near the presidential palace and foreign ... Kabul bombing: Anger as city buries dead after huge suicide blast CNN AP News in Brief at 11:04 pm EDT Washington Post Afghans mourn a day after massive truck bombing kills 90 ABC News ESPN - Boston Herald - Washington Times all 1,028 news articles »
+New York Times Deadly Bombing in Kabul Is One of the Afghan War's Worst Strikes New York Times The site of a huge explosion in Kabul, the capital of Afghanistan, on Wednesday. Credit Shah Marai/Agence France-Presse — Getty Images. KABUL, Afghanistan — A truck bomb devastated a central area of Kabul near the presidential palace and foreign ... Kabul bombing: Anger as city buries dead after huge suicide blast CNN AP Explains: Why can't the Afghan government protect Kabul? Washington Post Afghans Mourn a Day After Massive Truck Bombing Kills 90 U.S. News & World Report Boston Herald - ESPN - Washington Times - World Socialist Web Site all 1,038 news articles »
 
 
 Full story on F3News: [Deadly Bombing in Kabul Is One of the Afghan War's Worst Strikes - New York Times](http://www.f3nws.com/n/NJZTYG)
