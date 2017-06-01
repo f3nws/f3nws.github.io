@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "LeBron James: Racism is 'part of America'"
-date: 2017-06-01 05:51:54Z
+date: 2017-06-01 08:38:27Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Basketball superstar says 'racism is part of America' in pointed response after 
 
 Full story on F3News: [LeBron James: Racism is 'part of America'](http://www.f3nws.com/n/aCNGUF)
 
-> Posted on: Thursday, June 1, 2017 10:51:54 AM
+> Posted on: Thursday, June 1, 2017 1:38:27 PM
