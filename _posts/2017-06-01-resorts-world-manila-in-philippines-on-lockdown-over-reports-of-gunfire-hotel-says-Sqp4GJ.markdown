@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Resorts World Manila in Philippines on 'lockdown' over reports of gunfire, hotel says"
-date: 2017-06-01 18:30:00Z
+date: 2017-06-01 19:10:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Dozens of people are reportedly injured after gunfire erupted in a Philippines r
 
 Full story on F3News: [Resorts World Manila in Philippines on 'lockdown' over reports of gunfire, hotel says](http://www.f3nws.com/n/Sqp4GJ)
 
-> Posted on: Thursday, June 1, 2017 11:30:00 PM
+> Posted on: Friday, June 2, 2017 12:10:00 AM

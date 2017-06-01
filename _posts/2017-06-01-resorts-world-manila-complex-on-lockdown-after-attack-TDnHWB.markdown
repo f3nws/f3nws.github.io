@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Resorts World Manila complex on lockdown after attack"
-date: 2017-06-01 18:56:26Z
+date: 2017-06-01 19:10:15Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Images and videos posted on social media show emergency medical workers giving s
 
 Full story on F3News: [Resorts World Manila complex on lockdown after attack](http://www.f3nws.com/n/TDnHWB)
 
-> Posted on: Thursday, June 1, 2017 11:56:26 PM
+> Posted on: Friday, June 2, 2017 12:10:15 AM
