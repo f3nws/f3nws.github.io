@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Wonder Woman' does the job 'Superman' couldn't"
-date: 2017-06-02 17:21:18Z
+date: 2017-06-02 18:44:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The cure for DC Entertainment's Marvel envy arrives in the form of "Wonder Woman
 
 Full story on F3News: ['Wonder Woman' does the job 'Superman' couldn't](http://www.f3nws.com/n/QsYypC)
 
-> Posted on: Friday, June 2, 2017 10:21:18 PM
+> Posted on: Friday, June 2, 2017 11:44:54 PM

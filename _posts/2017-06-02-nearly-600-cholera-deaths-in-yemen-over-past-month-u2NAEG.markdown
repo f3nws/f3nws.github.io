@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Nearly 600 cholera deaths' in Yemen over past month"
-date: 2017-06-02 17:09:47Z
+date: 2017-06-02 18:15:16Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ UNICEF says disease spreading fast, with number of suspected cases expected to r
 
 Full story on F3News: ['Nearly 600 cholera deaths' in Yemen over past month](http://www.f3nws.com/n/u2NAEG)
 
-> Posted on: Friday, June 2, 2017 10:09:47 PM
+> Posted on: Friday, June 2, 2017 11:15:16 PM
