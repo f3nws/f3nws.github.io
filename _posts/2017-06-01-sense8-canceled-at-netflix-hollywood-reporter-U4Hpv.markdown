@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Sense8' Canceled at Netflix - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/05/sense83_-_h_2017.jpg)
 
-Hollywood Reporter 'Sense8' Canceled at Netflix Hollywood Reporter The streaming service on Thursday confirmed that it would not be moving forward with the sci-fi drama from Lana and Lilly Wachowski and J. Michael Straczynski. "After 23 episodes, 16 cities and 13 countries, the story of the Sense8 cluster is coming to ... 'Sense8' Canceled By Netflix After 2 Seasons Deadline Netflix Cancels 'Sense8' Variety Netflix's 'Sense8' Cancellation Strikes Many Blows — Including Inclusive, LGTBQ-Friendly Storytelling IndieWire The Verge - Slate Magazine (blog) - New York Times - ComingSoon.net all 103 news articles »
+Hollywood Reporter 'Sense8' Canceled at Netflix Hollywood Reporter The streaming service on Thursday confirmed that it would not be moving forward with the sci-fi drama from Lana and Lilly Wachowski and J. Michael Straczynski. "After 23 episodes, 16 cities and 13 countries, the story of the Sense8 cluster is coming to ... 'Sense8' Canceled By Netflix After 2 Seasons Deadline Netflix Cancels 'Sense8' Variety Netflix's 'Sense8' Cancellation Strikes Many Blows — Including Inclusive, LGTBQ-Friendly Storytelling IndieWire The Verge - Slate Magazine (blog) - USA TODAY - TV Guide (blog) all 114 news articles »
 
 
 Full story on F3News: ['Sense8' Canceled at Netflix - Hollywood Reporter](http://www.f3nws.com/n/U4Hpv)

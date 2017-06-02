@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![As Trump Exits Paris Agreement, Other Nations Are Defiant - New York Times](https://static01.nyt.com/images/2017/06/02/world/02climate-global-1/02climate-global-1-facebookJumbo.jpg)
 
-New York Times As Trump Exits Paris Agreement, Other Nations Are Defiant New York Times An unauthorized steel plant in the northern Chinese region of Inner Mongolia. The Paris Agreement calls on just about every country to take measures to address climate change. Credit Kevin Frayer/Getty Images. UNITED NATIONS — Leaders from around ... Trump defies globe to claim a political win CNN European Leaders: Climate Change Deal Can't Be Renegotiated U.S. News & World Report Steve Bannon and Scott Pruitt beat Kushner, Tillerson and Ivanka on Paris Agreement Washington Examiner BBC News - Reuters - The Denver Post - Business Insider all 5,045 news articles »
+New York Times As Trump Exits Paris Agreement, Other Nations Are Defiant New York Times An unauthorized steel plant in the northern Chinese region of Inner Mongolia. The Paris Agreement calls on just about every country to take measures to address climate change. Credit Kevin Frayer/Getty Images. UNITED NATIONS — Leaders from around ... Trump defies globe to claim a political win CNN GOP Leaders Laud Trump Decision to Exit Climate Pact RealClearPolitics Paris climate deal: Dismay as Trump signals exit from accord BBC News The Boston Globe - U.S. News & World Report - The Denver Post - Reuters all 5,095 news articles »
 
 
 Full story on F3News: [As Trump Exits Paris Agreement, Other Nations Are Defiant - New York Times](http://www.f3nws.com/n/gcufqB)
