@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World reacts to Trump's Paris climate accord withdrawal"
-date: 2017-06-02 14:42:19Z
+date: 2017-06-02 17:14:22Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Leaders, scientists and tech giants condemn Trump's decision to pull the US out 
 
 Full story on F3News: [World reacts to Trump's Paris climate accord withdrawal](http://www.f3nws.com/n/3MvWQJ)
 
-> Posted on: Friday, June 2, 2017 7:42:19 PM
+> Posted on: Friday, June 2, 2017 10:14:22 PM

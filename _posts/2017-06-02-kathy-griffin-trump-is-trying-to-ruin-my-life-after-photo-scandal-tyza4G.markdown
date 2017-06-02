@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kathy Griffin: Trump is 'trying to ruin my life' after photo scandal"
-date: 2017-06-02 16:39:37Z
+date: 2017-06-02 17:09:52Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Kathy Griffin is fighting back against the abuse and "death threats" she has rec
 
 Full story on F3News: [Kathy Griffin: Trump is 'trying to ruin my life' after photo scandal](http://www.f3nws.com/n/tyza4G)
 
-> Posted on: Friday, June 2, 2017 9:39:37 PM
+> Posted on: Friday, June 2, 2017 10:09:52 PM
