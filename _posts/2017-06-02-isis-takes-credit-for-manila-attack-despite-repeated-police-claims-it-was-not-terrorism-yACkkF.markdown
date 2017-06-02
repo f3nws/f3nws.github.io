@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS takes credit for Manila attack despite repeated police claims it was not terrorism"
-date: 2017-06-02 16:12:21Z
+date: 2017-06-02 16:44:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ ISIS has claimed responsibility for an attack at a casino in the Philippines cap
 
 Full story on F3News: [ISIS takes credit for Manila attack despite repeated police claims it was not terrorism](http://www.f3nws.com/n/yACkkF)
 
-> Posted on: Friday, June 2, 2017 9:12:21 PM
+> Posted on: Friday, June 2, 2017 9:44:38 PM
