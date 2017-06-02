@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disney CEO Bob Iger quits Trump advisory team as 'matter of principle'"
-date: 2017-06-02 02:25:25Z
+date: 2017-06-02 15:26:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Disney CEO Bob Iger quits Trump advisory team as 'matter of principle'](http://www.f3nws.com/n/Hr2dtF)
 
-> Posted on: Friday, June 2, 2017 7:25:25 AM
+> Posted on: Friday, June 2, 2017 8:26:03 PM
