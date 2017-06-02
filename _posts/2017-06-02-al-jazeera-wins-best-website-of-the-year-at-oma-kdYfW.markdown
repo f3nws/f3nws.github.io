@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Al Jazeera wins best website of the year at OMA"
-date: 2017-06-02 00:41:22Z
+date: 2017-06-02 01:17:43Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Qatar-based media network cleans up at Online Media Awards winning six top prize
 
 Full story on F3News: [Al Jazeera wins best website of the year at OMA](http://www.f3nws.com/n/kdYfW)
 
-> Posted on: Friday, June 2, 2017 5:41:22 AM
+> Posted on: Friday, June 2, 2017 6:17:43 AM
