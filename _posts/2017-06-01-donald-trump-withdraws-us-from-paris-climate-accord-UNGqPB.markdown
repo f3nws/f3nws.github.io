@@ -5,7 +5,7 @@ date: 2017-06-01 22:29:27Z
 categories: al-jazeera-english
 ---
 
-![Donald Trump withdraws US from Paris climate accord](http://www.aljazeera.com/mritems/Images/2017/6/1/e431c558b3e847d49295fb3363690c96_18.jpg)
+![Donald Trump withdraws US from Paris climate accord](http://www.aljazeera.com/mritems/Images/2016/11/3/97a3317f4daa4dc6951dd47c40736240_18.jpg)
 
 Withdrawal from 2016 agreement, in line with president's election campaign promise, could take up to four years.
 

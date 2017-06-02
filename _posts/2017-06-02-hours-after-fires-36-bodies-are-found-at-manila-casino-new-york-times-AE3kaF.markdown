@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hours After Fires, 36 Bodies Are Found at Manila Casino - New York Times](https://static01.nyt.com/images/2017/06/02/world/02manila2/02manila2-facebookJumbo.jpg)
 
-New York Times Hours After Fires, 36 Bodies Are Found at Manila Casino New York Times Evacuated employees and guests of hotels watched Friday as smoke billowed from the Resorts World building in the Pasay City neighborhood of Manila. Credit Erik De Castro/Reuters. MANILA — Thirty-six bodies were found at the biggest hotel-casino in the ... The Latest: Thick smoke had trapped dead in gambling space Washington Post 36 die of suffocation after gunman storms Manila hotel-casino and starts a fire Los Angeles Times Dozens found dead in Resorts World casino attack, Philippine officials say CBS News BBC News - New York Daily News - Reuters - HuffPost all 557 news articles »
+New York Times Hours After Fires, 36 Bodies Are Found at Manila Casino New York Times Evacuated employees and guests of hotels watched Friday as smoke billowed from the Resorts World building in the Pasay City neighborhood of Manila. Credit Erik De Castro/Reuters. MANILA — Thirty-six bodies were found at the biggest hotel-casino in the ... The Latest: Thick smoke had trapped dead in gambling space Washington Post Resorts World Manila: At least 36 bodies found at casino complex BBC News 36 die of suffocation when gunman storms Manila hotel-casino and starts a fire Los Angeles Times NBCNews.com - Reuters - CBS News - HuffPost all 581 news articles »
 
 
 Full story on F3News: [Hours After Fires, 36 Bodies Are Found at Manila Casino - New York Times](http://www.f3nws.com/n/AE3kaF)
