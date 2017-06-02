@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anger as Trump announces US withdrawal from global climate deal"
-date: 2017-06-02 02:29:42Z
+date: 2017-06-02 02:07:30Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump announced America's shock withdrawal from the Paris clima
 
 Full story on F3News: [Anger as Trump announces US withdrawal from global climate deal](http://www.f3nws.com/n/WZNFyC)
 
-> Posted on: Friday, June 2, 2017 7:29:42 AM
+> Posted on: Friday, June 2, 2017 7:07:30 AM
