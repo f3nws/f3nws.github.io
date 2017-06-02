@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Apple's WWDC 2017: a Siri speaker, iOS 11, and what else to expect - The Verge](https://cdn.vox-cdn.com/thumbor/_BDj9W_CH9pL9U2g0eybqGBb9W0=/0x0:2040x1148/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55058795/apple-iphone-watch-20160907-5731.0.0.jpeg)
 
-The Verge Apple's WWDC 2017: a Siri speaker, iOS 11, and what else to expect The Verge It's June again, so it's time for Apple to give the world a look at what it's been up to and what we should expect from the iPhone, the Mac, and everything in between in the months to come. On Monday, Apple will kick off this year's Worldwide ... Apple's WWDC Announcements: What are the chances? Macworld What to expect from Apple at WWDC 2017 Engadget Hey Apple, can you top Google and Facebook at AR and AI? CNET 9to5Mac - Gizmodo - BGR - Business Insider all 361 news articles »
+The Verge Apple's WWDC 2017: a Siri speaker, iOS 11, and what else to expect The Verge It's June again, so it's time for Apple to give the world a look at what it's been up to and what we should expect from the iPhone, the Mac, and everything in between in the months to come. On Monday, Apple will kick off this year's Worldwide ... Apple to Expand Siri to Work With More Types of Third-Party Apps Mac Rumors Apple's WWDC Announcements: What are the chances? Macworld Hey Apple, can you top Google and Facebook at AR and AI? CNET Engadget - 9to5Mac - Gizmodo - BGR all 358 news articles »
 
 
 Full story on F3News: [Apple's WWDC 2017: a Siri speaker, iOS 11, and what else to expect - The Verge](http://www.f3nws.com/n/ypyzfG)
