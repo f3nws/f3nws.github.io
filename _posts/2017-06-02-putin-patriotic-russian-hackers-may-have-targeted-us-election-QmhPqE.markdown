@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin: 'Patriotic' Russian hackers may have targeted US election"
-date: 2017-06-02 06:47:47Z
+date: 2017-06-02 07:25:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin seemed to suggest Thursday that "patriotic hack
 
 Full story on F3News: [Putin: 'Patriotic' Russian hackers may have targeted US election](http://www.f3nws.com/n/QmhPqE)
 
-> Posted on: Friday, June 2, 2017 11:47:47 AM
+> Posted on: Friday, June 2, 2017 12:25:16 PM
