@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Apple Slams Trump's Decision to Pull Out of Climate Deal - NBCNews.com](https://media1.s-nbcnews.com/j/newscms/2017_22/2022276/104505445-gettyimages-618595308-530x298_6dca6050ba7236513b9ece0925fab7d8.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Apple Slams Trump's Decision to Pull Out of Climate Deal NBCNews.com After President Donald Trump said Thursday that the United States will withdraw from the landmark Paris climate agreement, Apple CEO Tim Cook expressed his disappointment with the decision. In an email to employees, obtained by CNBC, Cook said he ... Apple, Microsoft and others supported staying in the Paris climate pact Engadget Trump Leaves Paris Climate Deal Amid Warnings From Tesla, Apple, Facebook And Google iTech Post From Apple to IBM: How the world's biggest tech firms reacted to Trump's climate deal exit International Business Times UK KOAT Albuquerque - Puget Sound Business Journal (Seattle) - Bloomberg - Twitter all 68 news articles »
+NBCNews.com Apple Slams Trump's Decision to Pull Out of Climate Deal NBCNews.com After President Donald Trump said Thursday that the United States will withdraw from the landmark Paris climate agreement, Apple CEO Tim Cook expressed his disappointment with the decision. In an email to employees, obtained by CNBC, Cook said he ... and more »
 
 
 Full story on F3News: [Apple Slams Trump's Decision to Pull Out of Climate Deal - NBCNews.com](http://www.f3nws.com/n/JgKcVH)

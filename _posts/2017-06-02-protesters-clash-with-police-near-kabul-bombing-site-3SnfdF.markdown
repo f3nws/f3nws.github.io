@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters clash with police near Kabul bombing site"
-date: 2017-06-02 16:00:10Z
+date: 2017-06-02 16:01:48Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Police fire into the air as stone-throwing protesters demand better security in 
 
 Full story on F3News: [Protesters clash with police near Kabul bombing site](http://www.f3nws.com/n/3SnfdF)
 
-> Posted on: Friday, June 2, 2017 9:00:10 PM
+> Posted on: Friday, June 2, 2017 9:01:48 PM
