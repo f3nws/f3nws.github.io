@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teenage girl shot by Israeli forces in Meto Dovan dies"
-date: 2017-06-02 10:20:42Z
+date: 2017-06-02 14:43:36Z
 categories: al-jazeera-english
 ---
 
@@ -12,4 +12,4 @@ Hospital official says Palestinian, 15, 'died from her wounds' after being shot 
 
 Full story on F3News: [Teenage girl shot by Israeli forces in Meto Dovan dies](http://www.f3nws.com/n/2hThCC)
 
-> Posted on: Friday, June 2, 2017 3:20:42 PM
+> Posted on: Friday, June 2, 2017 7:43:36 PM
