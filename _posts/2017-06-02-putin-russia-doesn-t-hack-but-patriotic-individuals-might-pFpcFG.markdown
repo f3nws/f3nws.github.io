@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin: Russia doesn't hack but 'patriotic' individuals might"
-date: 2017-06-02 00:58:14Z
+date: 2017-06-02 01:54:07Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ ST. PETERSBURG, Russia (AP) — President Vladimir Putin acknowledged that some 
 
 Full story on F3News: [Putin: Russia doesn't hack but "patriotic" individuals might](http://www.f3nws.com/n/pFpcFG)
 
-> Posted on: Friday, June 2, 2017 5:58:14 AM
+> Posted on: Friday, June 2, 2017 6:54:07 AM
