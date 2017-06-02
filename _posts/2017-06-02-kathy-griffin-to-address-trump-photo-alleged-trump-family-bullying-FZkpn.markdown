@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kathy Griffin to address Trump photo, alleged Trump family bullying"
-date: 2017-06-02 04:01:00Z
+date: 2017-06-02 13:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Kathy Griffin is set to explain the reasoning behind her controversial photo sho
 
 Full story on F3News: [Kathy Griffin to address Trump photo, alleged Trump family bullying](http://www.f3nws.com/n/FZkpn)
 
-> Posted on: Friday, June 2, 2017 9:01:00 AM
+> Posted on: Friday, June 2, 2017 6:00:00 PM

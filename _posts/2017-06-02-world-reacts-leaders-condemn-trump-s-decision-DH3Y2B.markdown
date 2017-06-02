@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World reacts: Leaders condemn Trump's decision"
-date: 2017-06-02 11:38:02Z
+date: 2017-06-02 13:05:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump faced a chorus of global disapproval Friday in the wake o
 
 Full story on F3News: [World reacts: Leaders condemn Trump's decision](http://www.f3nws.com/n/DH3Y2B)
 
-> Posted on: Friday, June 2, 2017 4:38:02 PM
+> Posted on: Friday, June 2, 2017 6:05:50 PM

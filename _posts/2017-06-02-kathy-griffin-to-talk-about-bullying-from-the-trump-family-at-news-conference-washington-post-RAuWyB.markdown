@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kathy Griffin to talk about 'bullying from the Trump family' at news conference - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-05-31/Reuters/2017-05-31T181704Z_1620342360_RC1B0CD4F9B0_RTRMADP_3_USA-TRUMP-KATHYGRIFFIN.jpg)
 
-Washington Post Kathy Griffin to talk about 'bullying from the Trump family' at news conference Washington Post Since outrage erupted this week over a photo of Kathy Griffin holding a faux bloodied head that resembled President Trump, the usually fast-talking comic has refrained from commenting beyond a brief, video-recorded apology posted to social media. Kathy Griffin, lawyer Lisa Bloom to talk Trump photo, bullying USA TODAY Kathy Griffin hires lawyer amid Donald Trump photo controversy New York Daily News Al Franken Cuts Off Kathy Griffin The Daily Caller Washington Times - Syracuse.com - Yahoo News - Townhall all 364 news articles »
+Washington Post Kathy Griffin to talk about 'bullying from the Trump family' at news conference Washington Post Since outrage erupted this week over a photo of Kathy Griffin holding a faux bloodied head that resembled President Trump, the usually fast-talking comic has refrained from commenting beyond a brief, video-recorded apology posted to social media. Kathy Griffin, lawyer Lisa Bloom to talk Trump photo, bullying USA TODAY Kathy Griffin hires lawyer amid Donald Trump photo controversy New York Daily News Al Franken Cuts Off Kathy Griffin The Daily Caller Washington Times - Syracuse.com - Hollywood Life - Yahoo News all 341 news articles »
 
 
 Full story on F3News: [Kathy Griffin to talk about 'bullying from the Trump family' at news conference - Washington Post](http://www.f3nws.com/n/RAuWyB)
