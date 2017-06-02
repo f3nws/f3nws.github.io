@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "OnePlus 5 release date, news and rumors"
-date: 2017-06-02 10:42:00Z
+date: 2017-06-02 13:44:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The OnePlus 5 rumors are increasing in volume, and we've got everything you need
 
 Full story on F3News: [OnePlus 5 release date, news and rumors](http://www.f3nws.com/n/cYEPWJ)
 
-> Posted on: Friday, June 2, 2017 3:42:00 PM
+> Posted on: Friday, June 2, 2017 6:44:00 PM
