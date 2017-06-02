@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Maybe Private Russian Hackers Meddled in Election, Putin Says - New York Times](https://static01.nyt.com/images/2017/06/02/world/02Putin/02Putin-facebookJumbo.jpg)
 
-New York Times Maybe Private Russian Hackers Meddled in Election, Putin Says New York Times President Vladimir V. Putin of Russia said on Thursday that it's possible Russian hackers may have independently staged cyber attacks against countries with strained relations with Moscow, but that the Russian state had never been involved. By REUTERS. Putin: 'Patriotic' Russian hackers may have targeted US election CNN Vladimir Putin takes an Orthodox route to cement power Washington Times Putin: Russia doesn't hack but 'patriotic' individuals might WCVB Boston International Business Times - CBS News - Al-Monitor - CNSNews.com all 522 news articles »
+New York Times Maybe Private Russian Hackers Meddled in Election, Putin Says New York Times President Vladimir V. Putin of Russia said on Thursday that it's possible Russian hackers may have independently staged cyber attacks against countries with strained relations with Moscow, but that the Russian state had never been involved. By REUTERS. Tricky Trump topics: Putin, Paris and the Philippines Newsday Putin: 'Patriotic' Russian hackers may have targeted US election WDIV Detroit US, Russia hold secret talks over south Syria safe zone Al-Monitor International Business Times - CNSNews.com - The Indian Express - Firstpost all 519 news articles »
 
 
 Full story on F3News: [Maybe Private Russian Hackers Meddled in Election, Putin Says - New York Times](http://www.f3nws.com/n/ntYQjG)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman dies after setting self on fire; victims appear to have suffocated"
-date: 2017-06-02 08:49:19Z
+date: 2017-06-02 09:24:15Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Gunfire and explosions have been heard at the Resorts World Manila in the Philip
 
 Full story on F3News: [Gunman dies after setting self on fire; victims appear to have suffocated](http://www.f3nws.com/n/sYCN2E)
 
-> Posted on: Friday, June 2, 2017 1:49:19 PM
+> Posted on: Friday, June 2, 2017 2:24:15 PM
