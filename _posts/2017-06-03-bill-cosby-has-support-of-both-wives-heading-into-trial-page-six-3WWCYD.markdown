@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bill Cosby has support of 'both wives' heading into trial - Page Six](https://nyppagesix.files.wordpress.com/2017/06/cosbyandwives.jpg?quality=90&strip=all&w=1200)
 
-Page Six Bill Cosby has support of 'both wives' heading into trial Page Six The comedian's real wife of more than 50 years, Camille, and his TV wife, Phylicia Rashad, are both expected to attend his sexual-assault trial in Philadelphia, which begins Monday. “Phylicia has never wavered in her support of Bill and she's said she ... Cosby accuser calm and focused as trial nears, friends say Fox News Bill Cosby's Sexual Assault Trial Slated to Begin Monday in Philadelphia KTLA Cosby 'wives' to support him at trial NEWS.com.au 41 NBC News - The Daily Star - NBCNews.com - Us Weekly all 326 news articles »
+Page Six Bill Cosby has support of 'both wives' heading into trial Page Six The comedian's real wife of more than 50 years, Camille, and his TV wife, Phylicia Rashad, are both expected to attend his sexual-assault trial in Philadelphia, which begins Monday. “Phylicia has never wavered in her support of Bill and she's said she ... Cosby accuser calm and focused as trial nears, friends say Fox News Bill Cosby's Sexual Assault Trial Slated to Begin Monday in Philadelphia KTLA Both of Bill Cosby's 'wives' will support him at trial Daily Mail NEWS.com.au - The Daily Star - Us Weekly - NBCNews.com all 335 news articles »
 
 
 Full story on F3News: [Bill Cosby has support of 'both wives' heading into trial - Page Six](http://www.f3nws.com/n/3WWCYD)
