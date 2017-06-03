@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Globe heaps scorn on Trump for Paris exit - The Hill](http://thehill.com/sites/default/files/article_images/trudeaujustin_merkelangela_macronemmanuel_getty_lead.jpg)
 
-The Hill Globe heaps scorn on Trump for Paris exit The Hill President Trump's decision to pull the United States out of the Paris climate agreement this week sent shockwaves through global diplomacy. Half a dozen world leaders lambasted the Thursday announcement, which Trump said was meant to protect ... AP FACT CHECK: A blast of hot air with Trump's climate move Washington Post Trump administration touts innovation, cuts funding for it CNN Gov. Jerry Brown, in a counter to Trump, lands in China to affirm climate change alliance Los Angeles Times ABC News - New York Times - Business Insider - McClatchy Washington Bureau all 11,115 news articles »
+The Hill Globe heaps scorn on Trump for Paris exit The Hill President Trump's decision to pull the United States out of the Paris climate agreement this week sent shockwaves through global diplomacy. Half a dozen world leaders lambasted the Thursday announcement, which Trump said was meant to protect ... AP FACT CHECK: A blast of hot air with Trump's climate move Washington Post Gov. Jerry Brown, in a counter to Trump, lands in China to affirm climate change alliance Los Angeles Times Trump supporters rally outside White House for 'Pittsburgh Not Paris' event ABC News New York Times - Newsweek - Business Insider - McClatchy Washington Bureau all 11,656 news articles »
 
 
 Full story on F3News: [Globe heaps scorn on Trump for Paris exit - The Hill](http://www.f3nws.com/n/QBaPME)

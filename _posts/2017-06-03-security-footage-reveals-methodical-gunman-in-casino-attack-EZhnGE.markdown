@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Security footage reveals methodical gunman in casino attack"
-date: 2017-06-03 16:37:36Z
+date: 2017-06-03 17:59:21Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Police in the Philippines say they are questioning a taxi driver who may be able
 
 Full story on F3News: [Security footage reveals methodical gunman in casino attack](http://www.f3nws.com/n/EZhnGE)
 
-> Posted on: Saturday, June 3, 2017 9:37:36 PM
+> Posted on: Saturday, June 3, 2017 10:59:21 PM
