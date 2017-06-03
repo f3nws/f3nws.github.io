@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Maher uses racial slur during 'Real Time' interview"
-date: 2017-06-03 14:39:20Z
+date: 2017-06-03 16:30:32Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Comedian Bill Maher used a racial epithet Friday night during an interview with 
 
 Full story on F3News: [Bill Maher uses racial slur during 'Real Time' interview](http://www.f3nws.com/n/BASSdC)
 
-> Posted on: Saturday, June 3, 2017 7:39:20 PM
+> Posted on: Saturday, June 3, 2017 9:30:32 PM

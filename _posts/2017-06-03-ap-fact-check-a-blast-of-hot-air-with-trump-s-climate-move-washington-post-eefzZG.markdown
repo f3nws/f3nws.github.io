@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![AP FACT CHECK: A blast of hot air with Trump's climate move - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-06-01/Reuters/2017-06-01T201634Z_519129311_HP1ED611KBL1N_RTRMADP_3_USA-CLIMATECHANGE.jpg)
 
-Washington Post AP FACT CHECK: A blast of hot air with Trump's climate move Washington Post WASHINGTON — President Donald Trump's announcement that the U.S. will leave the Paris climate accord came with a blast of hot air. Here's a reality check on some statements by Trump and his administration over the past week on global warming, jobs ... Trump administration touts innovation, cuts funding for it CNN 'Pittsburgh Not Paris' rally at White House thanks Trump The Hill Gov. Jerry Brown, in a counter to Trump, lands in China to affirm climate change alliance Los Angeles Times The Atlantic - Business Insider - USA TODAY - New York Times all 11,341 news articles »
+Washington Post AP FACT CHECK: A blast of hot air with Trump's climate move Washington Post WASHINGTON — President Donald Trump's announcement that the U.S. will leave the Paris climate accord came with a blast of hot air. Here's a reality check on some statements by Trump and his administration over the past week on global warming, jobs ... Trump administration touts innovation, cuts funding for it CNN Gov. Jerry Brown, in a counter to Trump, lands in China to affirm climate change alliance Los Angeles Times Avoiding Two Degrees of Warming 'Is Now Totally Unrealistic' The Atlantic Business Insider - USA TODAY - New York Times - HuffPost all 11,478 news articles »
 
 
 Full story on F3News: [AP FACT CHECK: A blast of hot air with Trump's climate move - Washington Post](http://www.f3nws.com/n/eefzZG)
