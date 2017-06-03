@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia probe counsel now has ex-Trump campaign chief in view"
-date: 2017-06-03 17:27:46Z
+date: 2017-06-03 17:49:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — The special counsel investigating possible ties between Pres
 
 Full story on F3News: [Russia probe counsel now has ex-Trump campaign chief in view](http://www.f3nws.com/n/kQGhcD)
 
-> Posted on: Saturday, June 3, 2017 10:27:46 PM
+> Posted on: Saturday, June 3, 2017 10:49:17 PM
