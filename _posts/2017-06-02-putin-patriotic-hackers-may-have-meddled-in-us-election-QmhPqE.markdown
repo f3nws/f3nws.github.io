@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin: 'Patriotic' hackers may have meddled in US election"
-date: 2017-06-02 13:39:25Z
+date: 2017-06-02 23:28:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin seemed to suggest Thursday that "patriotic hack
 
 Full story on F3News: [Putin: 'Patriotic' hackers may have meddled in US election](http://www.f3nws.com/n/QmhPqE)
 
-> Posted on: Friday, June 2, 2017 6:39:25 PM
+> Posted on: Saturday, June 3, 2017 4:28:21 AM
