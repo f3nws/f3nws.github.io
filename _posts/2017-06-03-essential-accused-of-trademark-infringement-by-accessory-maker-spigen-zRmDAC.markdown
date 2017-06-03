@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Essential accused of trademark infringement by accessory maker Spigen"
+date: 2017-06-03 19:00:01Z
+categories: google-news-technology
+---
+
+![Essential accused of trademark infringement by accessory maker Spigen](https://cdn.vox-cdn.com/thumbor/IFA0UViYNisjhYhLtYNnzs_2IRI=/0x38:2040x1186/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55076687/asa1.0.jpg)
+
+The Verge Essential accused of trademark infringement by accessory maker Spigen The Verge Essential hasn't yet shipped its first smartphone, but Andy Rubin's new company has already come upon its first trademark dispute. Spigen, a fairly well-known smartphone case and accessory maker, has sent Essential a cease and desist letter demanding ... Is Andy Rubin's Essential Phone Really That Essential? Android Headlines Andy Rubin's Essential phone is trying to revive an idea smartphone makers keep failing to pull off Business Insider Essential PH-1 vs. Galaxy S8: Sleek Flagships Face Off PCMag ExtremeTech - Engadget - 9to5Google - AndroidGuys all 68 news articles »
+
+
+Full story on F3News: [Essential accused of trademark infringement by accessory maker Spigen](http://www.f3nws.com/n/zRmDAC)
+
+> Posted on: Sunday, June 4, 2017 12:00:01 AM
