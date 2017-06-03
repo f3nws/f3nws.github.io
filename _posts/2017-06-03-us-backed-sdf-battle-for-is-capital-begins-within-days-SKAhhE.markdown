@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-backed SDF: Battle for IS capital begins 'within days'"
-date: 2017-06-03 21:20:07Z
+date: 2017-06-03 21:48:58Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BEIRUT (AP) — The battle for control of the Islamic State group's de facto cap
 
 Full story on F3News: [US-backed SDF: Battle for IS capital begins 'within days'](http://www.f3nws.com/n/SKAhhE)
 
-> Posted on: Sunday, June 4, 2017 2:20:07 AM
+> Posted on: Sunday, June 4, 2017 2:48:58 AM
