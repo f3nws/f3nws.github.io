@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to push for overhauling roads, bridges, air traffic"
-date: 2017-06-03 21:20:07Z
+date: 2017-06-03 22:58:34Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump is launching a major push for a $1 tr
 
 Full story on F3News: [Trump to push for overhauling roads, bridges, air traffic](http://www.f3nws.com/n/RU2aSH)
 
-> Posted on: Sunday, June 4, 2017 2:20:07 AM
+> Posted on: Sunday, June 4, 2017 3:58:34 AM
