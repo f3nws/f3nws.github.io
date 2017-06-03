@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cosby accuser calm and focused as trial nears, friends say"
-date: 2017-06-03 19:27:12Z
+date: 2017-06-03 19:55:07Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NORRISTOWN, Pa. (AP) — When Andrea Constand takes the stand in the coming days
 
 Full story on F3News: [Cosby accuser calm and focused as trial nears, friends say](http://www.f3nws.com/n/PASTDD)
 
-> Posted on: Sunday, June 4, 2017 12:27:12 AM
+> Posted on: Sunday, June 4, 2017 12:55:07 AM

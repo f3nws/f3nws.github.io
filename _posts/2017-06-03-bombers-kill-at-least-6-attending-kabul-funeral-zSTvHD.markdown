@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bombers kill at least 6 attending Kabul funeral"
-date: 2017-06-03 19:27:12Z
+date: 2017-06-03 19:55:07Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ KABUL, Afghanistan (AP) — At least six people were killed Saturday when a trio
 
 Full story on F3News: [Bombers kill at least 6 attending Kabul funeral](http://www.f3nws.com/n/zSTvHD)
 
-> Posted on: Sunday, June 4, 2017 12:27:12 AM
+> Posted on: Sunday, June 4, 2017 12:55:07 AM
