@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SpaceX launches 1st recycled supply ship"
-date: 2017-06-04 06:58:51Z
+date: 2017-06-04 07:14:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ CAPE CANAVERAL, Fla. (AP) — SpaceX launched its first recycled cargo ship to t
 
 Full story on F3News: [SpaceX launches 1st recycled supply ship](http://www.f3nws.com/n/3pUveG)
 
-> Posted on: Sunday, June 4, 2017 11:58:51 AM
+> Posted on: Sunday, June 4, 2017 12:14:36 PM

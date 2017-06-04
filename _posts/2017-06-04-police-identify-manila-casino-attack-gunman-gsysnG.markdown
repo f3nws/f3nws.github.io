@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police identify Manila casino attack gunman"
-date: 2017-06-04 06:55:16Z
+date: 2017-06-04 07:20:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The lone gunman who carried a deadly attack at a Manila casino was a troubled ma
 
 Full story on F3News: [Police identify Manila casino attack gunman](http://www.f3nws.com/n/gsysnG)
 
-> Posted on: Sunday, June 4, 2017 11:55:16 AM
+> Posted on: Sunday, June 4, 2017 12:20:18 PM

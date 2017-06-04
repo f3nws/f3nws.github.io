@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Watch: How the attacks unfolded"
-date: 2017-06-04 05:22:01Z
+date: 2017-06-04 07:19:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Terror in London after a van mowed down pedestrians on London Bridge and people 
 
 Full story on F3News: [Watch: How the attacks unfolded](http://www.f3nws.com/n/gSHveF)
 
-> Posted on: Sunday, June 4, 2017 10:22:01 AM
+> Posted on: Sunday, June 4, 2017 12:19:43 PM
