@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest updates: Attackers shot within 8 minutes of first call, police say"
-date: 2017-06-04 07:22:15Z
+date: 2017-06-04 08:37:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians as it swerved back and forth across London Bridge i
 
 Full story on F3News: [Latest updates: Attackers shot within 8 minutes of first call, police say](http://www.f3nws.com/n/Uqnd4H)
 
-> Posted on: Sunday, June 4, 2017 12:22:15 PM
+> Posted on: Sunday, June 4, 2017 1:37:53 PM
