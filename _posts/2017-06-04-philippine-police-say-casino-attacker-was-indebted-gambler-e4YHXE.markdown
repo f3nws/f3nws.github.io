@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippine police say casino attacker was indebted gambler"
-date: 2017-06-04 11:02:40Z
+date: 2017-06-04 11:17:02Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MANILA, Philippines (AP) — The lone suspect behind a deadly attack on a casino
 
 Full story on F3News: [Philippine police say casino attacker was indebted gambler](http://www.f3nws.com/n/e4YHXE)
 
-> Posted on: Sunday, June 4, 2017 4:02:40 PM
+> Posted on: Sunday, June 4, 2017 4:17:02 PM

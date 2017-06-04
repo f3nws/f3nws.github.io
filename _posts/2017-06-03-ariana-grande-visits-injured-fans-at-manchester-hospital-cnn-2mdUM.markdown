@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ariana Grande visits injured fans at Manchester hospital - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170603024059-ariana-grande-visits-hospital-super-tease.jpg)
 
-The Independent Ariana Grande visits injured fans at Manchester hospital CNN (CNN) American singer Ariana Grande made a surprise visit with fans injured in last month's terror attack at her concert in Manchester. The pop star surprised youngsters Friday night at the Royal Manchester Children's Hospital ahead of a benefit ... Ariana Grande Manchester Benefit Concert Will Go On “With Greater Purpose” Deadline 'She feels like a rock star': Injured fans swoon after Ariana Grande makes hospital visit Washington Post Police: Security will be increased for Ariana Grande's benefit concert CBS News PEOPLE.com - BBC News - Fox News - Variety all 961 news articles »
+BBC News Ariana Grande visits injured fans at Manchester hospital CNN (CNN) American singer Ariana Grande made a surprise visit with fans injured in last month's terror attack at her concert in Manchester. The pop star surprised youngsters Friday night at the Royal Manchester Children's Hospital ahead of a benefit ... Ariana Grande Manchester Benefit Concert Will Go On “With Greater Purpose” Deadline Ariana Grande Manchester benefit concert: How to watch and start time CBS News Ariana Grande's Manager: Manchester Concert Will Continue with a 'Greater Purpose' After London Attacks PEOPLE.com BBC News - USA TODAY - Fox News - Variety all 963 news articles »
 
 
 Full story on F3News: [Ariana Grande visits injured fans at Manchester hospital - CNN](http://www.f3nws.com/n/2mdUM)
