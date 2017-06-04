@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How it unfolded: 8 minutes of terror and mayhem"
-date: 2017-06-04 10:35:49Z
+date: 2017-06-04 12:25:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Attackers targeted the heart of London on Saturday night, with a white van plowi
 
 Full story on F3News: [How it unfolded: 8 minutes of terror and mayhem](http://www.f3nws.com/n/qHsWmE)
 
-> Posted on: Sunday, June 4, 2017 3:35:49 PM
+> Posted on: Sunday, June 4, 2017 5:25:17 PM

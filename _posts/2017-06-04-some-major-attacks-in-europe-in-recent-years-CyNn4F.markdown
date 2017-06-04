@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Some major attacks in Europe in recent years"
-date: 2017-06-04 11:58:58Z
+date: 2017-06-04 12:28:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — The deadly vehicle and knife attack on London Bridge and in near
 
 Full story on F3News: [Some major attacks in Europe in recent years](http://www.f3nws.com/n/CyNn4F)
 
-> Posted on: Sunday, June 4, 2017 4:58:58 PM
+> Posted on: Sunday, June 4, 2017 5:28:36 PM
