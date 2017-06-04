@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['Enough is enough': Theresa May condemns London attack](http://www.abc.net.au/news/image/8588274-1x1-700x700.jpg)
 
-The British Prime Minister says the country "cannot and must not pretend that things can continue as they are" following last night's attack on popular London nightlife spots that killed at least seven people and injured dozens.
+The British Prime Minister says the country "cannot and must not pretend that things can continue as they are" following Saturday night's attack on popular London nightlife spots that killed at least seven people and injured dozens.
 
 
 Full story on F3News: ['Enough is enough': Theresa May condemns London attack](http://www.f3nws.com/n/TySjRH)
