@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Resistance Will NOT Be Happy: Top Dem Admits ‘No Smoking Gun’ In Trump/Russia Probe"
-date: 2017-06-04 20:30:08Z
+date: 2017-06-04 22:00:14Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [The Resistance Will NOT Be Happy: Top Dem Admits ‘No Smoking Gun’ In Trump/Russia Probe](http://www.f3nws.com/n/nnKUkH)
 
-> Posted on: Monday, June 5, 2017 1:30:08 AM
+> Posted on: Monday, June 5, 2017 3:00:14 AM

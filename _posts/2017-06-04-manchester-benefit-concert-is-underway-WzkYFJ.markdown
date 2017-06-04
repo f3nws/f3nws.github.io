@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manchester benefit concert is underway"
-date: 2017-06-04 20:52:19Z
+date: 2017-06-04 21:42:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Less than 24 hours after a deadly terror attack in the heart of London a benefit
 
 Full story on F3News: [Manchester benefit concert is underway](http://www.f3nws.com/n/WzkYFJ)
 
-> Posted on: Monday, June 5, 2017 1:52:19 AM
+> Posted on: Monday, June 5, 2017 2:42:28 AM
