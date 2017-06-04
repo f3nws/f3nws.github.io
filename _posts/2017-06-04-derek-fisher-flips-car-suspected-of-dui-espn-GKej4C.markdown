@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Derek Fisher flips car, suspected of DUI - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2014%2F1023%2Fny_g_fisher_js_1296x729.jpg)
 
-ESPN Derek Fisher flips car, suspected of DUI ESPN SHERMAN OAKS, Calif. -- Former Los Angeles Lakers player and ex-New York Knicks head coach Derek Fisher was arrested Sunday on suspicion of drunken driving after he flipped his vehicle on a California highway, authorities said. Neither Fisher nor his ... Derek Fisher Arrested for DUI After Car Crash, Girlfriend Gloria Govan Uninjured Bleacher Report Ex-Knicks head coach Derek Fisher arrested on suspicion of DUI after crash FOXSports.com Derek Fisher arrested under suspicion of DUI after flipping his car, per report SB Nation Yahoo Sports - CBSSports.com - Sporting News - TMZ.com all 42 news articles »
+ESPN Derek Fisher flips car, suspected of DUI ESPN SHERMAN OAKS, Calif. -- Former Los Angeles Lakers player and ex-New York Knicks head coach Derek Fisher was arrested Sunday on suspicion of drunken driving after he flipped his vehicle on a California highway, authorities said. Neither Fisher nor his ... Derek Fisher Arrested for DUI After Car Crash, Girlfriend Gloria Govan Uninjured Bleacher Report Ex-NBA player, coach Derek Fisher arrested on suspicion of drunken driving after flipping car Washington Post Ex-Knicks head coach Derek Fisher arrested on suspicion of DUI after crash FOXSports.com SB Nation - Yahoo Sports - CBSSports.com - TMZ.com all 49 news articles »
 
 
 Full story on F3News: [Derek Fisher flips car, suspected of DUI - ESPN](http://www.f3nws.com/n/GKej4C)
