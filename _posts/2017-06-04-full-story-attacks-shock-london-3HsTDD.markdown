@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Full story: Attacks shock London"
-date: 2017-06-04 03:57:38Z
+date: 2017-06-04 04:46:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There has been an incident on London Bridge, London's Metropolitan Police said S
 
 Full story on F3News: [Full story: Attacks shock London](http://www.f3nws.com/n/3HsTDD)
 
-> Posted on: Sunday, June 4, 2017 8:57:38 AM
+> Posted on: Sunday, June 4, 2017 9:46:21 AM
