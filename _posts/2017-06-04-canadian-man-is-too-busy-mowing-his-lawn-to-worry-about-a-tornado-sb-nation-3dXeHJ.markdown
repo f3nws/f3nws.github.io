@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Canadian man is too busy mowing his lawn to worry about a tornado - SB Nation](https://cdn.vox-cdn.com/thumbor/_bs4HmRV8t1wjgy4vQuNLnf3uK8=/0x353:720x758/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55083327/DBW490jUAAAPUd2.0.jpg)
 
-SB Nation Canadian man is too busy mowing his lawn to worry about a tornado SB Nation The following post you are about to read is similar to “Florida man” news stories, in which a resident of the Sunshine State exhibits some sort of wacky behavior causing the rest of the country to collectively shake its head — only in this case it's ... Man mowing lawn near tornado "was keeping an eye on it" KWQC-TV6 Canadian man calmly mows lawn with tornado behind him UPI.com PIC: Just a man casually mowing his lawn while a tornado passes behind him Entertainment.ie International Business Times UK - TIME - CTV News - AccuWeather.com (blog) all 59 news articles »
+SB Nation Canadian man is too busy mowing his lawn to worry about a tornado SB Nation The following post you are about to read is similar to “Florida man” news stories, in which a resident of the Sunshine State exhibits some sort of wacky behavior causing the rest of the country to collectively shake its head — only in this case it's ... Man mowing lawn near tornado "was keeping an eye on it" KWQC-TV6 Man who mowed lawn with tornado behind him says he 'was keeping an eye on it' CBC.ca It takes more than a tornado to stop some South African men from mowing their lawns Times LIVE CTV News - UPI.com - Entertainment.ie - TIME all 61 news articles »
 
 
 Full story on F3News: [Canadian man is too busy mowing his lawn to worry about a tornado - SB Nation](http://www.f3nws.com/n/3dXeHJ)

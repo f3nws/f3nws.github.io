@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Digital crackdown: Internet must be regulated, Prime Minister says"
-date: 2017-06-04 16:21:37Z
+date: 2017-06-04 17:04:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Digital crackdown: Internet must be regulated, Prime Minister says](http://www.f3nws.com/n/MnJhS)
 
-> Posted on: Sunday, June 4, 2017 9:21:37 PM
+> Posted on: Sunday, June 4, 2017 10:04:13 PM

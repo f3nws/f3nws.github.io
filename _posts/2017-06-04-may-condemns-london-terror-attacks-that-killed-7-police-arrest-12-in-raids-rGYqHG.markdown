@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "May condemns London terror attacks that killed 7; police arrest 12 in raids"
-date: 2017-06-04 16:15:00Z
+date: 2017-06-04 17:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ British Prime Minister Theresa May condemned the “evil ideology” behind the 
 
 Full story on F3News: [May condemns London terror attacks that killed 7; police arrest 12 in raids](http://www.f3nws.com/n/rGYqHG)
 
-> Posted on: Sunday, June 4, 2017 9:15:00 PM
+> Posted on: Sunday, June 4, 2017 10:00:00 PM

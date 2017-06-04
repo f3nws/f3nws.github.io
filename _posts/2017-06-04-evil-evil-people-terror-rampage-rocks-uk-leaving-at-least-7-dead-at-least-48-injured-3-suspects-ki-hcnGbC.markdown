@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Evil, Evil People': Terror Rampage Rocks UK, Leaving At Least 7 Dead, At Least 48 Injured; 3 Suspects Killed"
-date: 2017-06-04 17:06:19Z
+date: 2017-06-04 17:30:12Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: ['Evil, Evil People': Terror Rampage Rocks UK, Leaving At Least 7 Dead, At Least 48 Injured; 3 Suspects Killed](http://www.f3nws.com/n/hcnGbC)
 
-> Posted on: Sunday, June 4, 2017 10:06:19 PM
+> Posted on: Sunday, June 4, 2017 10:30:12 PM

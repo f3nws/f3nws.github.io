@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook Safety Check activated after London Bridge attack     - CNET"
-date: 2017-06-04 00:57:11Z
+date: 2017-06-04 16:03:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The tool lets people notify friends and family that they're OK.
 
 Full story on F3News: [Facebook Safety Check activated after London Bridge attack     - CNET](http://www.f3nws.com/n/pAWxnD)
 
-> Posted on: Sunday, June 4, 2017 5:57:11 AM
+> Posted on: Sunday, June 4, 2017 9:03:48 PM
