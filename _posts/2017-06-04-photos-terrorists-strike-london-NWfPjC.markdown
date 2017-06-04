@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Photos: Terrorists strike London"
-date: 2017-06-04 02:48:26Z
+date: 2017-06-04 03:06:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians on London Bridge and people were stabbed at a resta
 
 Full story on F3News: [Photos: Terrorists strike London](http://www.f3nws.com/n/NWfPjC)
 
-> Posted on: Sunday, June 4, 2017 7:48:26 AM
+> Posted on: Sunday, June 4, 2017 8:06:34 AM

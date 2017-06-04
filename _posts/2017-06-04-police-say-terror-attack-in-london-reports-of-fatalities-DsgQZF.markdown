@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police say terror attack in London, reports of fatalities"
-date: 2017-06-04 01:01:01Z
+date: 2017-06-04 02:11:33Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ British police say they are dealing with an "incident" on London Bridge.
 
 Full story on F3News: [Police say terror attack in London, reports of fatalities](http://www.f3nws.com/n/DsgQZF)
 
-> Posted on: Sunday, June 4, 2017 6:01:01 AM
+> Posted on: Sunday, June 4, 2017 7:11:33 AM
