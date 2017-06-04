@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tourist's leg degloved in Whitsundays yachting accident - ABC Online"
-date: 2017-06-04 04:20:00Z
+date: 2017-06-04 04:22:50Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Tourist's leg degloved in Whitsundays yachting accident ABC Online A 
 
 Full story on F3News: [Tourist's leg degloved in Whitsundays yachting accident - ABC Online](http://www.f3nws.com/n/yDrAYD)
 
-> Posted on: Sunday, June 4, 2017 9:20:00 AM
+> Posted on: Sunday, June 4, 2017 9:22:50 AM
