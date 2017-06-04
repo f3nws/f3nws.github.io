@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "After liberation from IS, Fallujah struggles to rebuild"
-date: 2017-06-04 17:55:14Z
+date: 2017-06-04 18:28:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ FALLUJAH, Iraq (AP) — Even as Iraqi forces in Mosul close in on the last pocke
 
 Full story on F3News: [After liberation from IS, Fallujah struggles to rebuild](http://www.f3nws.com/n/TRqeg)
 
-> Posted on: Sunday, June 4, 2017 10:55:14 PM
+> Posted on: Sunday, June 4, 2017 11:28:48 PM

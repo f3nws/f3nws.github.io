@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How it unfolded: A night of terror and mayhem"
-date: 2017-06-04 17:09:20Z
+date: 2017-06-04 18:07:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Attackers targeted the heart of London on Saturday night, with a white van plowi
 
 Full story on F3News: [How it unfolded: A night of terror and mayhem](http://www.f3nws.com/n/qHsWmE)
 
-> Posted on: Sunday, June 4, 2017 10:09:20 PM
+> Posted on: Sunday, June 4, 2017 11:07:15 PM
