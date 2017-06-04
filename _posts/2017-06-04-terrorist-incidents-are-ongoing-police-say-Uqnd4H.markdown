@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Terrorist incidents' are ongoing, police say"
-date: 2017-06-04 00:52:24Z
+date: 2017-06-04 01:08:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians as it swerved back and forth across London Bridge i
 
 Full story on F3News: ['Terrorist incidents' are ongoing, police say](http://www.f3nws.com/n/Uqnd4H)
 
-> Posted on: Sunday, June 4, 2017 5:52:24 AM
+> Posted on: Sunday, June 4, 2017 6:08:15 AM
