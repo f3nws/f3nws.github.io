@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest updates: 6 killed by van, in knife attacks; 3 terrorists shot dead"
-date: 2017-06-04 03:04:38Z
+date: 2017-06-04 03:39:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians as it swerved back and forth across London Bridge i
 
 Full story on F3News: [Latest updates: 6 killed by van, in knife attacks; 3 terrorists shot dead](http://www.f3nws.com/n/Uqnd4H)
 
-> Posted on: Sunday, June 4, 2017 8:04:38 AM
+> Posted on: Sunday, June 4, 2017 8:39:45 AM

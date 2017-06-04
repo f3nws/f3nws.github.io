@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump touts travel ban after London attacks"
-date: 2017-06-04 00:41:44Z
+date: 2017-06-04 03:39:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump touted his so-called travel ban Saturday in the wake of t
 
 Full story on F3News: [Trump touts travel ban after London attacks](http://www.f3nws.com/n/bvQQWB)
 
-> Posted on: Sunday, June 4, 2017 5:41:44 AM
+> Posted on: Sunday, June 4, 2017 8:39:53 AM
