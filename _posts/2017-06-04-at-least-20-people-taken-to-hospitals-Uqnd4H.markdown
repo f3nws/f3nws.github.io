@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 20 people taken to hospitals"
-date: 2017-06-04 01:54:11Z
+date: 2017-06-04 02:30:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians as it swerved back and forth across London Bridge i
 
 Full story on F3News: [At least 20 people taken to hospitals](http://www.f3nws.com/n/Uqnd4H)
 
-> Posted on: Sunday, June 4, 2017 6:54:11 AM
+> Posted on: Sunday, June 4, 2017 7:30:00 AM

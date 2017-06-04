@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Security video shows methodical  gunman in casino attack"
-date: 2017-06-04 01:19:16Z
+date: 2017-06-04 02:16:50Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MANILA, Philippines (AP) — Security footage shows the man responsible for one 
 
 Full story on F3News: [Security video shows methodical  gunman in casino attack](http://www.f3nws.com/n/DCCTnD)
 
-> Posted on: Sunday, June 4, 2017 6:19:16 AM
+> Posted on: Sunday, June 4, 2017 7:16:50 AM
