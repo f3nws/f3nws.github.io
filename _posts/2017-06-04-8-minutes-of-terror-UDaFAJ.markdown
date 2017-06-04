@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "8 minutes of terror"
-date: 2017-06-04 12:29:09Z
+date: 2017-06-04 13:48:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The death toll has risen to seven with a further 48 injured following last night
 
 Full story on F3News: [8 minutes of terror](http://www.f3nws.com/n/UDaFAJ)
 
-> Posted on: Sunday, June 4, 2017 5:29:09 PM
+> Posted on: Sunday, June 4, 2017 6:48:26 PM
