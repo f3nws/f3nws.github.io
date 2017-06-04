@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London Bridge alert: van mows down pedestrians"
-date: 2017-06-04 00:14:45Z
+date: 2017-06-04 00:52:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There has been an incident on London Bridge, London's Metropolitan Police said S
 
 Full story on F3News: [London Bridge alert: van mows down pedestrians](http://www.f3nws.com/n/3HsTDD)
 
-> Posted on: Sunday, June 4, 2017 5:14:45 AM
+> Posted on: Sunday, June 4, 2017 5:52:24 AM

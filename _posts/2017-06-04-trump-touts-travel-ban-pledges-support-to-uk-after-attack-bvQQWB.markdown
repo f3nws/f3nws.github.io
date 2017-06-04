@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump touts travel ban, pledges support to UK after attack"
-date: 2017-06-04 00:14:10Z
+date: 2017-06-04 00:41:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump touted his so-called travel ban Saturday in the wake of w
 
 Full story on F3News: [Trump touts travel ban, pledges support to UK after attack](http://www.f3nws.com/n/bvQQWB)
 
-> Posted on: Sunday, June 4, 2017 5:14:10 AM
+> Posted on: Sunday, June 4, 2017 5:41:44 AM
