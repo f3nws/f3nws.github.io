@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Londoners offer beds, rides and tea"
-date: 2017-06-04 03:10:16Z
+date: 2017-06-04 13:32:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Londoners responded in classic British fashion after apparent terror attacks roc
 
 Full story on F3News: [Londoners offer beds, rides and tea](http://www.f3nws.com/n/PXkNxF)
 
-> Posted on: Sunday, June 4, 2017 8:10:16 AM
+> Posted on: Sunday, June 4, 2017 6:32:57 PM
