@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Violent events in London are ‘terrorist incidents’: police](https://www.thestar.com/content/dam/thestar/news/world/2017/06/03/british-police-respond-to-incident-on-london-bridge/london-people.jpg)
 
-While police respond to incidents including a hit-and-run and stabbings near London Bridge, they have confirmed a stabbing in the Vauxhall area of London is unrelated. At least one person has been confirmed dead.
+“They kept coming to try to stab me, they were stabbing everyone. Evil, evil people,” said Gerard Vowls, who tried to help a woman being stabbed by three men at the south end of London Bridge.
 
 
 Full story on F3News: [Violent events in London are ‘terrorist incidents’: police](http://www.f3nws.com/n/SyYQh)
