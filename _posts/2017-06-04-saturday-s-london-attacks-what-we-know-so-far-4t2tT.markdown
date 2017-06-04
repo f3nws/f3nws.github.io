@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saturday's London Attacks: What We Know So Far"
-date: 2017-06-04 20:00:12Z
+date: 2017-06-04 20:30:18Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Saturday's London Attacks: What We Know So Far](http://www.f3nws.com/n/4t2tT)
 
-> Posted on: Monday, June 5, 2017 1:00:12 AM
+> Posted on: Monday, June 5, 2017 1:30:18 AM

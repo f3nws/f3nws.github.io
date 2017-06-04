@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Next Week: Dodd-Frank Repeal, VA And James Comey"
-date: 2017-06-04 20:00:05Z
+date: 2017-06-04 20:30:09Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Next Week: Dodd-Frank Repeal, VA And James Comey](http://www.f3nws.com/n/D4DEeH)
 
-> Posted on: Monday, June 5, 2017 1:00:05 AM
+> Posted on: Monday, June 5, 2017 1:30:09 AM
