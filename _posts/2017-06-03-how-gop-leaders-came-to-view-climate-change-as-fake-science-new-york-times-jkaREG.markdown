@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![How GOP Leaders Came to View Climate Change as Fake Science - New York Times](https://static01.nyt.com/images/2017/06/04/us/04climate1/04climate1-facebookJumbo.jpg)
 
-New York Times How GOP Leaders Came to View Climate Change as Fake Science New York Times A coal-fired power station in Mount Storm, W.Va., in January. The coal industry played an instrumental role in efforts to unwind the Obama administration's climate policies. Credit Luke Sharrett/Bloomberg. WASHINGTON — The campaign ad appeared during ... The week in politics CNN Michael Bloomberg pledges his own money to help UN after Trump pulls out of Paris climate deal Washington Post Globe heaps scorn on Trump for Paris exit The Hill HuffPost - Pittsburgh Post-Gazette - Albany Times Union - Salon all 12,960 news articles »
+New York Times How GOP Leaders Came to View Climate Change as Fake Science New York Times A coal-fired power station in Mount Storm, W.Va., in January. The coal industry played an instrumental role in efforts to unwind the Obama administration's climate policies. Credit Luke Sharrett/Bloomberg. WASHINGTON — The campaign ad appeared during ... The week in politics CNN Michael Bloomberg pledges his own money to help UN after Trump pulls out of Paris climate deal Washington Post Globe heaps scorn on Trump for Paris exit The Hill Los Angeles Times - HuffPost - Albany Times Union - Salon all 12,859 news articles »
 
 
 Full story on F3News: [How GOP Leaders Came to View Climate Change as Fake Science - New York Times](http://www.f3nws.com/n/jkaREG)
