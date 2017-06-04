@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The attacks: What we know and don't know"
-date: 2017-06-04 06:00:33Z
+date: 2017-06-04 06:50:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two terror attacks were carried out in London late Saturday, in what could have 
 
 Full story on F3News: [The attacks: What we know and don't know](http://www.f3nws.com/n/xVBsKG)
 
-> Posted on: Sunday, June 4, 2017 11:00:33 AM
+> Posted on: Sunday, June 4, 2017 11:50:13 AM
