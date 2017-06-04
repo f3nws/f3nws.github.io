@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three attackers shot dead by police | Victims run down by van, stabbed in cafe"
-date: 2017-06-04 08:58:49Z
+date: 2017-06-04 09:21:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least six people have been killed and 48 injured in a terror attack in centra
 
 Full story on F3News: [Three attackers shot dead by police | Victims run down by van, stabbed in cafe](http://www.f3nws.com/n/UDaFAJ)
 
-> Posted on: Sunday, June 4, 2017 1:58:49 PM
+> Posted on: Sunday, June 4, 2017 2:21:38 PM
