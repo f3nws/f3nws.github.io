@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Latest: 1 French citizen among London victims, 1 missing"
-date: 2017-06-04 20:59:12Z
+date: 2017-06-04 21:29:04Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — The Latest on the attacks in the London Bridge area (all times l
 
 Full story on F3News: [The Latest: 1 French citizen among London victims, 1 missing](http://www.f3nws.com/n/hjUEqH)
 
-> Posted on: Monday, June 5, 2017 1:59:12 AM
+> Posted on: Monday, June 5, 2017 2:29:04 AM
