@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London police responding to incident on London Bridge"
-date: 2017-06-03 21:58:48Z
+date: 2017-06-03 23:15:32Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Reports say a van has hit pedestrians
 
 Full story on F3News: [London police responding to incident on London Bridge](http://www.f3nws.com/n/fzFcHB)
 
-> Posted on: Sunday, June 4, 2017 2:58:48 AM
+> Posted on: Sunday, June 4, 2017 4:15:32 AM

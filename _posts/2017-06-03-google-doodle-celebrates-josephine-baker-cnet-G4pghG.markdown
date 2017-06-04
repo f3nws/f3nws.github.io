@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google doodle celebrates Josephine Baker     - CNET"
-date: 2017-06-03 21:09:09Z
+date: 2017-06-03 23:45:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Jazz Age icon and civil rights champion struts her stuff in an interactive d
 
 Full story on F3News: [Google doodle celebrates Josephine Baker     - CNET](http://www.f3nws.com/n/G4pghG)
 
-> Posted on: Sunday, June 4, 2017 2:09:09 AM
+> Posted on: Sunday, June 4, 2017 4:45:30 AM

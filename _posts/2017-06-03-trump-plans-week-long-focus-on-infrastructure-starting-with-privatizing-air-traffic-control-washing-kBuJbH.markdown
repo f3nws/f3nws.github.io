@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump plans week-long focus on infrastructure, starting with privatizing air traffic control - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/03/National-Politics/Images/Botsford170602Trump16122.JPG)
 
-Washington Post Trump plans week-long focus on infrastructure, starting with privatizing air traffic control Washington Post President Trump will seek to put a spotlight on his vows to privatize the nation's air traffic control system and spur $1 trillion in new investment in roads, waterways and other infrastructure with a weeklong series of events starting Monday at the ... Trump Plans to Shift Infrastructure Funding to Cities, States and Business New York Times Trump to push for overhauling roads, bridges, air traffic WSB Radio The GOP is turning America into a one-party state Shareblue Media all 16 news articles »
+Washington Post Trump plans week-long focus on infrastructure, starting with privatizing air traffic control Washington Post President Trump will seek to put a spotlight on his vows to privatize the nation's air traffic control system and spur $1 trillion in new investment in roads, waterways and other infrastructure with a weeklong series of events starting Monday at the ... Trump Plans to Shift Infrastructure Funding to Cities, States and Business New York Times White House to ramp up infrastructure effort in coming days The Hill Trump plans to pivot to jobs and infrastructure amid the Russia controversy Business Insider Shareblue Media all 19 news articles »
 
 
 Full story on F3News: [Trump plans week-long focus on infrastructure, starting with privatizing air traffic control - Washington Post](http://www.f3nws.com/n/kBuJbH)
