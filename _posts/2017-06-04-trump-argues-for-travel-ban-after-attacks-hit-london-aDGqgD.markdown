@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump argues for travel ban after attacks hit London"
-date: 2017-06-04 04:54:00Z
+date: 2017-06-04 05:21:56Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump argued in favor of his controversial 
 
 Full story on F3News: [Trump argues for travel ban after attacks hit London](http://www.f3nws.com/n/aDGqgD)
 
-> Posted on: Sunday, June 4, 2017 9:54:00 AM
+> Posted on: Sunday, June 4, 2017 10:21:56 AM

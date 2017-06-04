@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Tourist's leg degloved in Whitsundays yachting accident - ABC Online](http://www.abc.net.au/news/image/8588074-1x1-700x700.jpg)
 
-ABC Online Tourist's leg degloved in Whitsundays yachting accident ABC Online A British tourist has lost muscle and skin on her left leg after it became entangled in a rope on a yacht off the Queensland coast. RACQ CQ Rescue helicopter were called to the 50-year-old woman's aid on Saturday afternoon just off Whitehaven Beach in ... Woman's leg degloved in Whitsundays yacht accident Brisbane Times all 2 news articles »
+ABC Online Tourist's leg degloved in Whitsundays yachting accident ABC Online A British tourist has lost muscle and skin on her left leg after it became entangled in a rope on a yacht off the Queensland coast. RACQ CQ Rescue helicopter were called to the 50-year-old woman's aid on Saturday afternoon just off Whitehaven Beach in ... Woman's leg degloved in Whitsundays yacht accident Brisbane Times Tourist injured in freak accident Townsville Bulletin all 3 news articles »
 
 
 Full story on F3News: [Tourist's leg degloved in Whitsundays yachting accident - ABC Online](http://www.f3nws.com/n/yDrAYD)

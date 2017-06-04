@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terrorist targets waitress: 'He stabbed her in the neck'"
-date: 2017-06-04 03:48:13Z
+date: 2017-06-04 05:24:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Panic spread quickly inside the crowded cafe.
 
 Full story on F3News: [Terrorist targets waitress: 'He stabbed her in the neck'](http://www.f3nws.com/n/kgjpgG)
 
-> Posted on: Sunday, June 4, 2017 8:48:13 AM
+> Posted on: Sunday, June 4, 2017 10:24:53 AM
