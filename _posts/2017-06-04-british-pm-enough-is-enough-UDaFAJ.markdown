@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British PM: 'Enough is enough'"
-date: 2017-06-04 14:07:55Z
+date: 2017-06-04 14:49:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May claimed there was "too much tolerance" of Isl
 
 Full story on F3News: [British PM: 'Enough is enough'](http://www.f3nws.com/n/UDaFAJ)
 
-> Posted on: Sunday, June 4, 2017 7:07:55 PM
+> Posted on: Sunday, June 4, 2017 7:49:59 PM

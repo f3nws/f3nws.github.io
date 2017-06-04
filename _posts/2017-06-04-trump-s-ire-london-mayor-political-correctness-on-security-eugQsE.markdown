@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's ire: London mayor, political correctness on security"
-date: 2017-06-04 14:19:53Z
+date: 2017-06-04 14:49:53Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump, in a flurry of Sunday morning tweets
 
 Full story on F3News: [Trump's ire: London mayor, political correctness on security](http://www.f3nws.com/n/eugQsE)
 
-> Posted on: Sunday, June 4, 2017 7:19:53 PM
+> Posted on: Sunday, June 4, 2017 7:49:53 PM
