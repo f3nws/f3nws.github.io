@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![London Bridge attack in photos](http://www.abc.net.au/news/image/8587688-1x1-700x700.jpg)
 
-People out and about in central London on a warm summer's evening have been shocked by events on London Bridge and at nearby Borough Market.
+The scene in London on Saturday night was one of panic with bodies lying on the street, armed police storming into restaurants and bystanders being marched away with their hands on their heads.
 
 
 Full story on F3News: [London Bridge attack in photos](http://www.f3nws.com/n/mqeFFG)

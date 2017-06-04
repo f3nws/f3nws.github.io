@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London attacks: Van crash into London Bridge crowd, stabbings nearby were terror, police say"
-date: 2017-06-04 00:45:00Z
+date: 2017-06-04 01:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ London was gripped by two acts of terror late Saturday -- a van crashing into a 
 
 Full story on F3News: [London attacks: Van crash into London Bridge crowd, stabbings nearby were terror, police say](http://www.f3nws.com/n/cxtfz)
 
-> Posted on: Sunday, June 4, 2017 5:45:00 AM
+> Posted on: Sunday, June 4, 2017 6:45:00 AM
