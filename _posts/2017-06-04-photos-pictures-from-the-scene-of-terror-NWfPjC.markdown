@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Photos: Pictures from the scene of terror"
-date: 2017-06-04 14:37:34Z
+date: 2017-06-04 17:32:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A van mowed down pedestrians on London Bridge and people were stabbed at a resta
 
 Full story on F3News: [Photos: Pictures from the scene of terror](http://www.f3nws.com/n/NWfPjC)
 
-> Posted on: Sunday, June 4, 2017 7:37:34 PM
+> Posted on: Sunday, June 4, 2017 10:32:37 PM
