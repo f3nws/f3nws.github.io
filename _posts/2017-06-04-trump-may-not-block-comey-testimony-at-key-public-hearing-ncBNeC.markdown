@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump may not block Comey testimony at key public hearing"
-date: 2017-06-04 21:56:34Z
+date: 2017-06-04 22:25:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — Days before a highly anticipated hearing, President Donald T
 
 Full story on F3News: [Trump may not block Comey testimony at key public hearing](http://www.f3nws.com/n/ncBNeC)
 
-> Posted on: Monday, June 5, 2017 2:56:34 AM
+> Posted on: Monday, June 5, 2017 3:25:27 AM

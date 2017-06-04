@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "Ariana Grande Says Manchester Benefit Concert “Is the Medicine the World Needs Right Now” - Hollywood Reporter"
+title:  "Ariana Grande Says Manchester Benefit Concert 'Is the Medicine the World Needs Right Now' - Hollywood Reporter"
 date: 2017-06-04 20:35:11Z
 categories: google-news-entertaintment
 ---
 
-![Ariana Grande Says Manchester Benefit Concert “Is the Medicine the World Needs Right Now” - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/06/ariana_grande_manchester_benefit.jpg)
+![Ariana Grande Says Manchester Benefit Concert "Is the Medicine the World Needs Right Now" - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/06/ariana_grande_manchester_benefit.jpg)
 
-Hollywood Reporter Ariana Grande Says Manchester Benefit Concert “Is the Medicine the World Needs Right Now” Hollywood Reporter Grande performed with Pharrell Williams, Mac Miller and Miley Cyrus and joined the Black Eyed Peas for "Where Is the Love?" Ariana Grande's One Love Manchester concert, a benefit for the victims and families of the May 22 terror attack after the singer ... Ariana Grande Brings Message of Defiance to Concert for Manchester Victims New York Times Brits gather to see Ariana Grande again — this time in defiance Washington Post Ariana Grande's 'One Love Manchester' Concert – Follow Our Live Blog Variety Deadline - E! Online - BuzzFeed News - NBCNews.com all 1,727 news articles »
+Hollywood Reporter Ariana Grande Says Manchester Benefit Concert "Is the Medicine the World Needs Right Now" Hollywood Reporter Grande performed with Pharrell Williams, Mac Miller and Miley Cyrus and joined the Black Eyed Peas for "Where Is the Love?" Ariana Grande's One Love Manchester concert, a benefit for the victims and families of the May 22 terror attack after the singer ... Ariana Grande Says 'Love & Unity Is The Medicine The World Needs Now' Deadline The Latest: Grande, Katy, Liam Gallagher sing for Manchester Washington Post Ariana Grande's 'One Love Manchester' Concert – Follow Our Live Blog Variety New York Times - USA TODAY - BuzzFeed News - ABC News all 1,815 news articles »
 
 
-Full story on F3News: [Ariana Grande Says Manchester Benefit Concert “Is the Medicine the World Needs Right Now” - Hollywood Reporter](http://www.f3nws.com/n/ZZJXNJ)
+Full story on F3News: [Ariana Grande Says Manchester Benefit Concert "Is the Medicine the World Needs Right Now" - Hollywood Reporter](http://www.f3nws.com/n/ZZJXNJ)
 
 > Posted on: Monday, June 5, 2017 1:35:11 AM
