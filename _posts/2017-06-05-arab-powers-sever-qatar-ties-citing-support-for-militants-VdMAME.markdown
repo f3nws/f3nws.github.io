@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arab powers sever Qatar ties, citing support for militants"
-date: 2017-06-05 17:54:06Z
+date: 2017-06-05 21:07:19Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ By Noah Browning DUBAI (Reuters) - The Arab world's biggest powers cut ties with
 
 Full story on F3News: [Arab powers sever Qatar ties, citing support for militants](http://www.f3nws.com/n/VdMAME)
 
-> Posted on: Monday, June 5, 2017 10:54:06 PM
+> Posted on: Tuesday, June 6, 2017 2:07:19 AM
