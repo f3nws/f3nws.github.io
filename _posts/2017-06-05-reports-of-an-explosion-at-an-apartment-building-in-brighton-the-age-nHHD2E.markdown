@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Reports of an explosion at an apartment building in Brighton - The Age"
-date: 2017-06-05 08:52:00Z
+date: 2017-06-05 09:13:00Z
 categories: google-news-australia
 ---
 
 ![Reports of an explosion at an apartment building in Brighton - The Age](http://www.theage.com.au/content/dam/images/g/u/v/n/u/q/image.related.socialLead.620x349.gwkw32.png/1496647227019.jpg)
 
-The Age Reports of an explosion at an apartment building in Brighton The Age Two police officers were shot, a man killed, a woman held hostage and a suspect gunned down during a dramatic siege in the Melbourne bayside suburb of Brighton. The suspect was shot by police in a volley of gunfire after the woman was taken hostage at ... Brighton explosion: Police dealing with hostage situation, body in Melbourne apartment ABC Online Hostage situation in Brighton after man shot dead The Australian Gunfire heard at hostage situation unfolding in Melbourne Herald Sun 9news.com.au - Sky News Australia - 3AW - Daily Mail all 29 news articles »
+The Age Reports of an explosion at an apartment building in Brighton The Age The gunman involved in the siege at Brighton reportedly called the Channel Seven newsroom during the standoff, telling them "This is for IS". Police have confirmed they are investigating whether the incident is terror-related. Two dead, police injured after hostage drama in Brighton The Australian Brighton hostage drama: police investigate terror link to deadly siege Herald Sun Brighton siege: Police injured, man shot dead following Melbourne hostage situation ABC Online 9news.com.au - Sky News Australia - SBS - New Zealand Herald all 43 news articles »
 
 
 Full story on F3News: [Reports of an explosion at an apartment building in Brighton - The Age](http://www.f3nws.com/n/nHHD2E)
 
-> Posted on: Monday, June 5, 2017 1:52:00 PM
+> Posted on: Monday, June 5, 2017 2:13:00 PM
