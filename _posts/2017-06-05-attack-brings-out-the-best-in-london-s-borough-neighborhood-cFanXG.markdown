@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Attack brings out the best in London's Borough neighborhood"
-date: 2017-06-05 04:15:40Z
+date: 2017-06-05 04:44:42Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — When Sue Brinklow dashed into The Lord Clyde pub during Saturday
 
 Full story on F3News: [Attack brings out the best in London's Borough neighborhood](http://www.f3nws.com/n/cFanXG)
 
-> Posted on: Monday, June 5, 2017 9:15:40 AM
+> Posted on: Monday, June 5, 2017 9:44:42 AM
