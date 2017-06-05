@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Portland pro-Trump, anti-Trump demonstrations converge, sparking violence"
-date: 2017-06-05 00:45:00Z
+date: 2017-06-05 02:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Violence broke out in Portland, Oregon, as groups of demonstrators both supporti
 
 Full story on F3News: [Portland pro-Trump, anti-Trump demonstrations converge, sparking violence](http://www.f3nws.com/n/mhdYF)
 
-> Posted on: Monday, June 5, 2017 5:45:00 AM
+> Posted on: Monday, June 5, 2017 7:15:00 AM
