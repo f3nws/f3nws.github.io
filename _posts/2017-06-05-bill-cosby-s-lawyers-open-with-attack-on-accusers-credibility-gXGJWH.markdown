@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby's lawyers open with attack on accusers' credibility"
-date: 2017-06-05 18:01:31Z
+date: 2017-06-05 19:31:27Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Bill Cosby arrived at the Montgomery County Courthouse in Pennsylvania to 
 
 Full story on F3News: [Bill Cosby's lawyers open with attack on accusers' credibility](http://www.f3nws.com/n/gXGJWH)
 
-> Posted on: Monday, June 5, 2017 11:01:31 PM
+> Posted on: Tuesday, June 6, 2017 12:31:27 AM

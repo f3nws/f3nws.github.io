@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Fired employee kills 5, then himself at Orlando business - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170605092044-02-orlando-workplace-shooting-0605-super-tease.jpg)
 
-CNN Fired employee kills 5, then himself at Orlando business CNN (CNN) [Breaking news update, posted at 2:25 p.m.]. The gunman in Monday's fatal shooting spree at an Orlando, Florida, business targeted his victims and had a "negative relationship" with at least one of them, Orlando County Sheriff Jerry Demings said. The Latest: Sheriff identifies Orlando shooter Washington Post Five Killed in Orlando Workplace Shooting, Officials Say New York Times Orlando Shooting: 5 Killed at RV Business by Angry Ex-Employee NBCNews.com CBS News - Fox News - Yahoo News - ABC News all 391 news articles »
+CNN Fired employee kills 5, then himself at Orlando business CNN (CNN) [Breaking news update, posted at 2:25 p.m.]. The gunman in Monday's fatal shooting spree at an Orlando, Florida, business targeted his victims and had a "negative relationship" with at least one of them, Orlando County Sheriff Jerry Demings said. The Latest: Sheriff identifies Orlando shooter Washington Post Five Killed in Orlando Workplace Shooting, Officials Say New York Times Orlando Shooting: 5 Killed at RV Business by Angry Ex-Employee NBCNews.com CBS News - Fox News - Yahoo News - PEOPLE.com all 558 news articles »
 
 
 Full story on F3News: [Fired employee kills 5, then himself at Orlando business - CNN](http://www.f3nws.com/n/ubtmrE)
