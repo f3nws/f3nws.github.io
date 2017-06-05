@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby arrives at court to face 2004 indecent assault charges"
-date: 2017-06-05 17:59:16Z
+date: 2017-06-05 18:01:31Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Bill Cosby arrived at the Montgomery County Courthouse in Pennsylvania to 
 
 Full story on F3News: [Bill Cosby arrives at court to face 2004 indecent assault charges](http://www.f3nws.com/n/gXGJWH)
 
-> Posted on: Monday, June 5, 2017 10:59:16 PM
+> Posted on: Monday, June 5, 2017 11:01:31 PM

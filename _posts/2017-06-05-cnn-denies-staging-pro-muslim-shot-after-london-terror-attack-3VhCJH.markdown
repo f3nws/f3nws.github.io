@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN denies staging pro-Muslim shot after London terror attack"
-date: 2017-06-05 15:12:00Z
+date: 2017-06-05 16:42:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ CNN is being accused of creating a pro-Muslim narrative for a live shot just hou
 
 Full story on F3News: [CNN denies staging pro-Muslim shot after London terror attack](http://www.f3nws.com/n/3VhCJH)
 
-> Posted on: Monday, June 5, 2017 8:12:00 PM
+> Posted on: Monday, June 5, 2017 9:42:00 PM
