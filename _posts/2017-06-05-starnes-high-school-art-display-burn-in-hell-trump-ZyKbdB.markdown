@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Starnes: High School Art Display: 'Burn in Hell, Trump'"
-date: 2017-06-05 21:00:09Z
+date: 2017-06-05 23:00:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Starnes: High School Art Display: 'Burn in Hell, Trump'](http://www.f3nws.com/n/ZyKbdB)
 
-> Posted on: Tuesday, June 6, 2017 2:00:09 AM
+> Posted on: Tuesday, June 6, 2017 4:00:04 AM

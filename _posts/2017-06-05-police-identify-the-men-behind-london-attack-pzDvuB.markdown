@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police identify the men behind London attack"
-date: 2017-06-05 21:34:52Z
+date: 2017-06-05 22:51:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British police are expected to name the men behind Saturday night's terror attac
 
 Full story on F3News: [Police identify the men behind London attack](http://www.f3nws.com/n/pzDvuB)
 
-> Posted on: Tuesday, June 6, 2017 2:34:52 AM
+> Posted on: Tuesday, June 6, 2017 3:51:28 AM
