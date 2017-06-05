@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "12 arrested in London's night of terror;  IS claims attack"
-date: 2017-06-05 05:17:09Z
+date: 2017-06-05 06:28:51Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — British police arrested a dozen people Sunday in a widening terr
 
 Full story on F3News: [12 arrested in London's night of terror;  IS claims attack](http://www.f3nws.com/n/u3tRzF)
 
-> Posted on: Monday, June 5, 2017 10:17:09 AM
+> Posted on: Monday, June 5, 2017 11:28:51 AM
