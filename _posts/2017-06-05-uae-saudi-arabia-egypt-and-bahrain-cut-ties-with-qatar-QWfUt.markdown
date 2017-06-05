@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UAE, Saudi Arabia, Egypt and Bahrain cut ties with Qatar"
-date: 2017-06-05 06:49:36Z
+date: 2017-06-05 07:17:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia, Bahrain, the United Arab Emirates and Egypt have broken diplomatic
 
 Full story on F3News: [UAE, Saudi Arabia, Egypt and Bahrain cut ties with Qatar](http://www.f3nws.com/n/QWfUt)
 
-> Posted on: Monday, June 5, 2017 11:49:36 AM
+> Posted on: Monday, June 5, 2017 12:17:12 PM

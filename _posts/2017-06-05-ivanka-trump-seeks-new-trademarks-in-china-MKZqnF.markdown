@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump seeks new trademarks in China"
-date: 2017-06-05 02:38:19Z
+date: 2017-06-05 07:12:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Ivanka Trump seeks new trademarks in China](http://www.f3nws.com/n/MKZqnF)
 
-> Posted on: Monday, June 5, 2017 7:38:19 AM
+> Posted on: Monday, June 5, 2017 12:12:31 PM
