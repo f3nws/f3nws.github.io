@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three Gulf countries and Egypt cut ties with Qatar over terrorism"
-date: 2017-06-05 18:55:09Z
+date: 2017-06-05 21:22:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia, Bahrain, Egypt and the United Arab Emirates have broken off relati
 
 Full story on F3News: [Three Gulf countries and Egypt cut ties with Qatar over terrorism](http://www.f3nws.com/n/QWfUt)
 
-> Posted on: Monday, June 5, 2017 11:55:09 PM
+> Posted on: Tuesday, June 6, 2017 2:22:10 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iOS 11 Release Date, Price and Specs     - CNET"
-date: 2017-06-05 20:26:56Z
+date: 2017-06-05 20:45:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Siri can suggest things you want to ask next, and you can pay your friends back 
 
 Full story on F3News: [Apple iOS 11 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/gkamUD)
 
-> Posted on: Tuesday, June 6, 2017 1:26:56 AM
+> Posted on: Tuesday, June 6, 2017 1:45:05 AM
