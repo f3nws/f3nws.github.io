@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Run, Hide, Tell? London attack response likely saved lives"
-date: 2017-06-05 08:24:28Z
+date: 2017-06-05 08:48:49Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ College student Vashu Tyagi was leaving his dorm and heading to a nearby bar to 
 
 Full story on F3News: [Run, Hide, Tell? London attack response likely saved lives](http://www.f3nws.com/n/qvYP4H)
 
-> Posted on: Monday, June 5, 2017 1:24:28 PM
+> Posted on: Monday, June 5, 2017 1:48:49 PM
