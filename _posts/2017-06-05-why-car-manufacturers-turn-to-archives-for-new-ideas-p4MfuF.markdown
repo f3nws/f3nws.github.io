@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why car manufacturers turn to archives for 'new' ideas"
-date: 2017-06-05 01:11:22Z
+date: 2017-06-05 07:46:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Mark Twain once said: "There is no such thing as a new idea. It is impossible. W
 
 Full story on F3News: [Why car manufacturers turn to archives for 'new' ideas](http://www.f3nws.com/n/p4MfuF)
 
-> Posted on: Monday, June 5, 2017 6:11:22 AM
+> Posted on: Monday, June 5, 2017 12:46:13 PM
