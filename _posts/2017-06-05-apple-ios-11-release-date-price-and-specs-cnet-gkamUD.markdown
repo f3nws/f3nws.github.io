@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iOS 11 Release Date, Price and Specs     - CNET"
-date: 2017-06-05 18:20:20Z
+date: 2017-06-05 19:09:47Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Here’s what’s in Apple’s software upgrade for the iPhone, iPad and Apple W
 
 Full story on F3News: [Apple iOS 11 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/gkamUD)
 
-> Posted on: Monday, June 5, 2017 11:20:20 PM
+> Posted on: Tuesday, June 6, 2017 12:09:47 AM
