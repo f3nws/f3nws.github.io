@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London terror attacks: What we know so far"
-date: 2017-06-04 16:45:00Z
+date: 2017-06-04 23:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ An incident involving a vehicle and reported stabbings in London "is being treat
 
 Full story on F3News: [London terror attacks: What we know so far](http://www.f3nws.com/n/FR3cPC)
 
-> Posted on: Sunday, June 4, 2017 9:45:00 PM
+> Posted on: Monday, June 5, 2017 4:45:00 AM
