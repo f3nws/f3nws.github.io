@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Oi, terrorists, cowards!' Fighting back in London's chaos"
-date: 2017-06-05 02:51:04Z
+date: 2017-06-05 03:23:09Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — For eight agonizing minutes, the orders came from all directions
 
 Full story on F3News: ['Oi, terrorists, cowards!' Fighting back in London's chaos](http://www.f3nws.com/n/zQY3mF)
 
-> Posted on: Monday, June 5, 2017 7:51:04 AM
+> Posted on: Monday, June 5, 2017 8:23:09 AM
