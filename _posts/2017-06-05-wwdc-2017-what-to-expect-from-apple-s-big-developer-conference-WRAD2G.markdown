@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WWDC 2017: what to expect from Apple's big developer conference"
-date: 2017-06-05 09:30:25Z
+date: 2017-06-05 14:41:25Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ WWDC 2017 starts today and could bring lots of new hardware and software, includ
 
 Full story on F3News: [WWDC 2017: what to expect from Apple's big developer conference](http://www.f3nws.com/n/WRAD2G)
 
-> Posted on: Monday, June 5, 2017 2:30:25 PM
+> Posted on: Monday, June 5, 2017 7:41:25 PM

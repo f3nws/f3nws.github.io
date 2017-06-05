@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby arrives at Andrea Constand trial"
-date: 2017-06-05 14:30:47Z
+date: 2017-06-05 15:23:06Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Bill Cosby arrived at the Montgomery County Courthouse in Pennsylvania to 
 
 Full story on F3News: [Bill Cosby arrives at Andrea Constand trial](http://www.f3nws.com/n/gXGJWH)
 
-> Posted on: Monday, June 5, 2017 7:30:47 PM
+> Posted on: Monday, June 5, 2017 8:23:06 PM

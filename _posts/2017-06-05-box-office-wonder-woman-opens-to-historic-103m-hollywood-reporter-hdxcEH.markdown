@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Box Office: 'Wonder Woman' Opens to Historic $103M - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/05/wonder_woman_still_4.jpg)
 
-Hollywood Reporter Box Office: 'Wonder Woman' Opens to Historic $103M Hollywood Reporter The tentpole lands the top domestic debut of all time for a female director, and launches the first major studio film franchise featuring a female superhero; overseas, the pic takes in $122.5 million for a $223 million global bow. In a defining moment ... How 'Wonder Woman' Tackles the Superhero Movie's Greatest Foe: Sexism RollingStone.com Why I cried through all the fight scenes in 'Wonder Woman' Los Angeles Times Is Wonder Woman Bulletproof? Comicbook.com CBS News - Forbes - Washington Post - ComingSoon.net all 1,059 news articles »
+Hollywood Reporter Box Office: 'Wonder Woman' Opens to Historic $103M Hollywood Reporter The tentpole lands the top domestic debut of all time for a female director, and launches the first major studio film franchise featuring a female superhero; overseas, the pic takes in $122.5 million for a $225.6 million global bow. In a defining ... How 'Wonder Woman' Tackles the Superhero Movie's... RollingStone.com 'Wonder Woman': 5 burning questions about the hit movie ABC News Why I cried through all the fight scenes in 'Wonder Woman' Los Angeles Times Forbes - Comicbook.com - CBS News - Washington Post all 1,078 news articles »
 
 
 Full story on F3News: [Box Office: 'Wonder Woman' Opens to Historic $103M - Hollywood Reporter](http://www.f3nws.com/n/hdxcEH)
