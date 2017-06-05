@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Orlando shooting: 5 people dead after 'disgruntled' ex-employee opens fire, police say"
-date: 2017-06-05 15:09:00Z
+date: 2017-06-05 18:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Five people died after a "disgruntled" employee opened fire inside a business in
 
 Full story on F3News: [Orlando shooting: 5 people dead after 'disgruntled' ex-employee opens fire, police say](http://www.f3nws.com/n/Pbctr)
 
-> Posted on: Monday, June 5, 2017 8:09:00 PM
+> Posted on: Monday, June 5, 2017 11:45:00 PM
