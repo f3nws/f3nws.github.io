@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Trump administration has a recruiting problem - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/03/27/National-Security/Images/Trump_89562-9b86e.jpg)
 
-Washington Post The Trump administration has a recruiting problem Washington Post It's been almost a month since President Trump fired James B. Comey on May 9, leaving the FBI without a director. Under normal circumstances, a president planning to fire the head of the nation's top law-enforcement agency might do so only once he had ... Comey tests GOP loyalty to Trump The Hill John Dean: Why Trump's Comey concession is a sham CNN Who has said what about James Comey? USA TODAY NBCNews.com - HuffPost - ABC News - Los Angeles Times all 802 news articles »
+Washington Post The Trump administration has a recruiting problem Washington Post It's been almost a month since President Trump fired James B. Comey on May 9, leaving the FBI without a director. Under normal circumstances, a president planning to fire the head of the nation's top law-enforcement agency might do so only once he had ... How the James Comey hearing is Washington's Super Bowl CNN Comey tests GOP loyalty to Trump The Hill Trump's Self-Inflicted Wounds Keep Coming, One Tweet at a Time NBCNews.com Politico - USA TODAY - ABC News - Los Angeles Times all 727 news articles »
 
 
 Full story on F3News: [The Trump administration has a recruiting problem - Washington Post](http://www.f3nws.com/n/sq2GYC)
