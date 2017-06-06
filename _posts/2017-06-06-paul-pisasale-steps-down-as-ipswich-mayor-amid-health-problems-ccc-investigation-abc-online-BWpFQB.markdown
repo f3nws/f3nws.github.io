@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation - ABC Online"
+date: 2017-06-06 08:19:00Z
+categories: abc-top-stories
+---
+
+![Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation - ABC Online](http://www.abc.net.au/news/image/8592912-1x1-700x700.jpg)
+
+ABC Online Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation ABC Online Ipswich Mayor Paul Pisasale was recently stopped at Melbourne Airport with $50,000 cash, police sources say, with the long-serving civic leader announcing his resignation due to ill-health on Tuesday. Ipswich mayor Paul Pisasale resigns after raids on home, offices The Australian Airport police catch mayor in gown with $50k cash NEWS.com.au Ipswich mayor quits in robe amid probe Yahoo7 News Brisbane Times - 9news.com.au - myGC.com.au - The Guardian all 26 news articles »
+
+
+Full story on F3News: [Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation - ABC Online](http://www.f3nws.com/n/BWpFQB)
+
+> Posted on: Tuesday, June 6, 2017 1:19:00 PM
