@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Banksy's 'legally dubious' election offer halted amid police probe"
-date: 2017-06-06 14:23:24Z
+date: 2017-06-06 14:29:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Street artist Banksy may have painted himself into a corner. The anonymous art s
 
 Full story on F3News: [Banksy's 'legally dubious' election offer halted amid police probe](http://www.f3nws.com/n/EbcpEF)
 
-> Posted on: Tuesday, June 6, 2017 7:23:24 PM
+> Posted on: Tuesday, June 6, 2017 7:29:53 PM
