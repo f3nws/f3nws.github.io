@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Little girl hid against her mother's corpse"
-date: 2017-06-06 10:49:04Z
+date: 2017-06-06 23:00:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Humvee screams into the field clinic a few kilometers from western Mosul's cur
 
 Full story on F3News: [Little girl hid against her mother's corpse](http://www.f3nws.com/n/RqcjKH)
 
-> Posted on: Tuesday, June 6, 2017 3:49:04 PM
+> Posted on: Wednesday, June 7, 2017 4:00:55 AM
