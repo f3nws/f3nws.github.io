@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Comey hearing is Washington's Super Bowl"
-date: 2017-06-06 15:26:37Z
+date: 2017-06-06 16:01:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Washington politics has often been described as sports for people who weren't al
 
 Full story on F3News: [How Comey hearing is Washington's Super Bowl](http://www.f3nws.com/n/mDhKNB)
 
-> Posted on: Tuesday, June 6, 2017 8:26:37 PM
+> Posted on: Tuesday, June 6, 2017 9:01:21 PM
