@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Qatar rift is headache for US"
-date: 2017-06-06 07:24:25Z
+date: 2017-06-06 10:32:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A feud among Washington's closest Gulf allies could disrupt US efforts to fight 
 
 Full story on F3News: [Why Qatar rift is headache for US](http://www.f3nws.com/n/PrvXrG)
 
-> Posted on: Tuesday, June 6, 2017 12:24:25 PM
+> Posted on: Tuesday, June 6, 2017 3:32:05 PM
