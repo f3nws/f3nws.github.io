@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatar rejects Trump terror allegations as crisis deepens"
-date: 2017-06-06 21:32:20Z
+date: 2017-06-06 22:12:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has waded into the Gulf diplomatic crisis, appearing t
 
 Full story on F3News: [Qatar rejects Trump terror allegations as crisis deepens](http://www.f3nws.com/n/zg3MQB)
 
-> Posted on: Wednesday, June 7, 2017 2:32:20 AM
+> Posted on: Wednesday, June 7, 2017 3:12:04 AM

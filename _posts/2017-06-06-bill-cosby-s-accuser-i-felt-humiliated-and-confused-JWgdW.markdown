@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby's accuser: I felt 'humiliated' and 'confused'"
-date: 2017-06-06 20:00:44Z
+date: 2017-06-06 22:06:40Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The mother of one of Bill Cosby's accusers recalled Tuesday how her daughter cal
 
 Full story on F3News: [Bill Cosby's accuser: I felt 'humiliated' and 'confused'](http://www.f3nws.com/n/JWgdW)
 
-> Posted on: Wednesday, June 7, 2017 1:00:44 AM
+> Posted on: Wednesday, June 7, 2017 3:06:40 AM
