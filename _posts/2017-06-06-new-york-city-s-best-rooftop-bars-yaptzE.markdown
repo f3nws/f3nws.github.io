@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New York City's best rooftop bars"
-date: 2017-06-06 16:00:58Z
+date: 2017-06-06 19:48:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There's something about being far above the hubbub of the Big Apple's streets, e
 
 Full story on F3News: [New York City's best rooftop bars](http://www.f3nws.com/n/yaptzE)
 
-> Posted on: Tuesday, June 6, 2017 9:00:58 PM
+> Posted on: Wednesday, June 7, 2017 12:48:33 AM
