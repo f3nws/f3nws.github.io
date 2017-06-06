@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Middle East freezes out Qatar: What you need to know"
-date: 2017-06-06 13:27:38Z
+date: 2017-06-06 21:45:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's the biggest political crisis to hit the Middle East in years.
 
 Full story on F3News: [Middle East freezes out Qatar: What you need to know](http://www.f3nws.com/n/NyXqUF)
 
-> Posted on: Tuesday, June 6, 2017 6:27:38 PM
+> Posted on: Wednesday, June 7, 2017 2:45:59 AM
