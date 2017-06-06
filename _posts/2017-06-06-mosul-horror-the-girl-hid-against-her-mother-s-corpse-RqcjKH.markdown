@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mosul horror: The girl hid against her mother's corpse"
-date: 2017-06-06 06:45:15Z
+date: 2017-06-06 09:09:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Humvee screams into the field clinic a few kilometers from western Mosul's cur
 
 Full story on F3News: [Mosul horror: The girl hid against her mother's corpse](http://www.f3nws.com/n/RqcjKH)
 
-> Posted on: Tuesday, June 6, 2017 11:45:15 AM
+> Posted on: Tuesday, June 6, 2017 2:09:55 PM
