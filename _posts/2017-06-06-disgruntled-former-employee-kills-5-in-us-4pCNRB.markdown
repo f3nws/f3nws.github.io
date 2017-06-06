@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disgruntled former employee kills 5 in US"
-date: 2017-06-06 06:19:17Z
+date: 2017-06-06 08:43:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five people, including the shooter, are dead after a shooting at an Orlando, Flo
 
 Full story on F3News: [Disgruntled former employee kills 5 in US](http://www.f3nws.com/n/4pCNRB)
 
-> Posted on: Tuesday, June 6, 2017 11:19:17 AM
+> Posted on: Tuesday, June 6, 2017 1:43:05 PM

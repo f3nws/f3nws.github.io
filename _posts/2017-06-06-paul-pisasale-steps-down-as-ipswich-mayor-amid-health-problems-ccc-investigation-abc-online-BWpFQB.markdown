@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation - ABC Online"
-date: 2017-06-06 08:19:00Z
+date: 2017-06-06 08:20:02Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC i
 
 Full story on F3News: [Paul Pisasale steps down as Ipswich Mayor amid health problems, CCC investigation - ABC Online](http://www.f3nws.com/n/BWpFQB)
 
-> Posted on: Tuesday, June 6, 2017 1:19:00 PM
+> Posted on: Tuesday, June 6, 2017 1:20:02 PM
