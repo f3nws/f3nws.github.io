@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK police identify third suspect as Youssef Zaghba, aged 22"
-date: 2017-06-06 11:19:14Z
+date: 2017-06-06 11:43:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London's Metropolitan Police have admitted that one of two men identified in Sat
 
 Full story on F3News: [UK police identify third suspect as Youssef Zaghba, aged 22](http://www.f3nws.com/n/Sbyky)
 
-> Posted on: Tuesday, June 6, 2017 4:19:14 PM
+> Posted on: Tuesday, June 6, 2017 4:43:08 PM
