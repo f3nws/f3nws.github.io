@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In the pouring rain, Londoners honor attack victims"
-date: 2017-06-06 11:32:54Z
+date: 2017-06-06 12:36:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The sky opened up over London on Monday evening, drenching hundreds of mourners 
 
 Full story on F3News: [In the pouring rain, Londoners honor attack victims](http://www.f3nws.com/n/mzMErG)
 
-> Posted on: Tuesday, June 6, 2017 4:32:54 PM
+> Posted on: Tuesday, June 6, 2017 5:36:21 PM
