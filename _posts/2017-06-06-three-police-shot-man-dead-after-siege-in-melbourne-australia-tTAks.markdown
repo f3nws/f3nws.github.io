@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three police shot, man dead after siege in Melbourne, Australia"
-date: 2017-06-06 04:04:40Z
+date: 2017-06-06 04:43:57Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ One man was killed and three police officers shot after a standoff at an apartme
 
 Full story on F3News: [Three police shot, man dead after siege in Melbourne, Australia](http://www.f3nws.com/n/tTAks)
 
-> Posted on: Tuesday, June 6, 2017 9:04:40 AM
+> Posted on: Tuesday, June 6, 2017 9:43:57 AM
