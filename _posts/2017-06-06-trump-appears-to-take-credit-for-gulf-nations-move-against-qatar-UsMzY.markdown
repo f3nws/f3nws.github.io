@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump appears to take credit for Gulf nations' move against Qatar"
-date: 2017-06-06 12:56:15Z
+date: 2017-06-06 15:34:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump appeared to take credit for Gulf nations' decision to cut
 
 Full story on F3News: [Trump appears to take credit for Gulf nations' move against Qatar](http://www.f3nws.com/n/UsMzY)
 
-> Posted on: Tuesday, June 6, 2017 5:56:15 PM
+> Posted on: Tuesday, June 6, 2017 8:34:15 PM
