@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ariana Grande holds benefit concert in wake of terror attacks"
-date: 2017-06-05 16:38:35Z
+date: 2017-06-05 23:48:40Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Ariana Grande and some of her famous friends held a benefit concert in Mancheste
 
 Full story on F3News: [Ariana Grande holds benefit concert in wake of terror attacks](http://www.f3nws.com/n/FEy2WF)
 
-> Posted on: Monday, June 5, 2017 9:38:35 PM
+> Posted on: Tuesday, June 6, 2017 4:48:40 AM
