@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who was London attacker Khuram Butt?"
-date: 2017-06-06 02:23:30Z
+date: 2017-06-06 06:42:52Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Khuram Shahzad Butt, a 27-year-old British national born in Pakistan who died in
 
 Full story on F3News: [Who was London attacker Khuram Butt?](http://www.f3nws.com/n/cehWNJ)
 
-> Posted on: Tuesday, June 6, 2017 7:23:30 AM
+> Posted on: Tuesday, June 6, 2017 11:42:52 AM
