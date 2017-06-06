@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British police name third London attacker"
-date: 2017-06-06 12:24:54Z
+date: 2017-06-06 13:53:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London's Metropolitan Police have admitted that one of two men identified in Sat
 
 Full story on F3News: [British police name third London attacker](http://www.f3nws.com/n/Sbyky)
 
-> Posted on: Tuesday, June 6, 2017 5:24:54 PM
+> Posted on: Tuesday, June 6, 2017 6:53:39 PM
