@@ -7,7 +7,7 @@ categories: the-verge
 
 ![iOS 11 makes the iPad feel more like a Mac](https://cdn.vox-cdn.com/thumbor/n0078gTVyLRK3IdbHCtFs0FeCWs=/0x150:2880x1770/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55102347/8A0A9736.0.jpeg)
 
-The Verge iOS 11 makes the iPad feel more like a Mac The Verge iOS 11 isn't coming out until this fall, but Apple had the preview loaded up on its new 10.5-inch iPad Pro today for members of the press to check out. I got to the play with the operating system for a few minutes while handling the tablet, and what ... Checking out the new iPad Pros and their fancy 120Hz screens Ars Technica 10.5-Inch and 12.9-Inch iPad Pro Models Gain All-New Leather Sleeve and Apple Pencil Case Accessories Mac Rumors First look: Apple's new 10.5" iPad Pro AppleInsider (press release) (blog) Engadget - BuzzFeed News - CNET - TechCrunch all 164 news articles »
+The Verge iOS 11 makes the iPad feel more like a Mac The Verge iOS 11 isn't coming out until this fall, but Apple had the preview loaded up on its new 10.5-inch iPad Pro today for members of the press to check out. I got to the play with the operating system for a few minutes while handling the tablet, and what ... Apple's MacBook refresh buys time for bigger changes AppleInsider (press release) (blog) iPad Pro: What you need to know about the all-new 10.5-inch model Macworld Checking out the new iPad Pros and their fancy 120Hz screens Ars Technica CNET - Engadget - BGR - Fast Company all 434 news articles »
 
 
 Full story on F3News: [iOS 11 makes the iPad feel more like a Mac](http://www.f3nws.com/n/B3nvUB)
