@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian jet intercepts US B-52 bomber"
-date: 2017-06-06 16:46:27Z
+date: 2017-06-06 20:15:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Russian fighter jet intercepted a US bomber over the Baltic Sea in internation
 
 Full story on F3News: [Russian jet intercepts US B-52 bomber](http://www.f3nws.com/n/SjqFXF)
 
-> Posted on: Tuesday, June 6, 2017 9:46:27 PM
+> Posted on: Wednesday, June 7, 2017 1:15:15 AM
