@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's latest tweets will probably hurt effort to restore travel ban - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/05/National-Security/Images/2017-06-05T120625Z_1863710665_RC195EA1E830_RTRMADP_3_USA-IMMIGRATION.jpg)
 
-Washington Post Trump's latest tweets will probably hurt effort to restore travel ban Washington Post President Trump on Monday derided the revised travel ban as a “watered down” version of the first and criticized his own Justice Department's handling of the case — potentially hurting the administration's defense of the ban as the legal battle over ... Trump's biggest enemy CNN Trump wants you to take his tweets seriously. His aides don't. Politico Trump blasts Justice Department over travel ban The Boston Globe HuffPost - Fox News - Washington Times - Daily Beast all 819 news articles »
+Washington Post Trump's latest tweets will probably hurt effort to restore travel ban Washington Post President Trump on Monday derided the revised travel ban as a “watered down” version of the first and criticized his own Justice Department's handling of the case — potentially hurting the administration's defense of the ban as the legal battle over ... Trump calls it a travel ban — lawyers call it sabotage The Hill Trump undercuts his lawyers with tweets about travel ban Los Angeles Times Trump blasts Justice Department over travel ban The Boston Globe TIME - Fox News - RealClearPolitics - Washington Times all 814 news articles »
 
 
 Full story on F3News: [Trump's latest tweets will probably hurt effort to restore travel ban - Washington Post](http://www.f3nws.com/n/SGNRQF)

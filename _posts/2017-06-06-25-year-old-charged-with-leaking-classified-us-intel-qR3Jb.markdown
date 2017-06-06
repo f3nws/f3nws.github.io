@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "25-year-old charged with leaking classified US intel"
-date: 2017-06-06 03:06:30Z
+date: 2017-06-06 10:11:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Justice Department announced charges Monday against a federal contractor wit
 
 Full story on F3News: [25-year-old charged with leaking classified US intel](http://www.f3nws.com/n/qR3Jb)
 
-> Posted on: Tuesday, June 6, 2017 8:06:30 AM
+> Posted on: Tuesday, June 6, 2017 3:11:12 PM
