@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I've been stabbed': Stories from London attack survivors"
-date: 2017-06-06 00:00:18Z
+date: 2017-06-06 01:24:42Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — The knife-wielding attackers appeared to be leaving the restaura
 
 Full story on F3News: ['I've been stabbed': Stories from London attack survivors](http://www.f3nws.com/n/mTMyBG)
 
-> Posted on: Tuesday, June 6, 2017 5:00:18 AM
+> Posted on: Tuesday, June 6, 2017 6:24:42 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NSA contractor accused of leaking top secret report on Russian hacking efforts"
-date: 2017-06-06 00:00:00Z
+date: 2017-06-06 01:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A federal contractor was arrested over the weekend and accused of leaking a clas
 
 Full story on F3News: [NSA contractor accused of leaking top secret report on Russian hacking efforts](http://www.f3nws.com/n/YpaXmC)
 
-> Posted on: Tuesday, June 6, 2017 5:00:00 AM
+> Posted on: Tuesday, June 6, 2017 6:00:00 AM

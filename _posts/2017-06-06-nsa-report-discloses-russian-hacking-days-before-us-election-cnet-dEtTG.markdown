@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NSA report discloses Russian hacking days before US election     - CNET"
-date: 2017-06-06 00:02:54Z
+date: 2017-06-06 01:01:22Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ More than 100 local government organizations and a voting software company were 
 
 Full story on F3News: [NSA report discloses Russian hacking days before US election     - CNET](http://www.f3nws.com/n/dEtTG)
 
-> Posted on: Tuesday, June 6, 2017 5:02:54 AM
+> Posted on: Tuesday, June 6, 2017 6:01:22 AM
