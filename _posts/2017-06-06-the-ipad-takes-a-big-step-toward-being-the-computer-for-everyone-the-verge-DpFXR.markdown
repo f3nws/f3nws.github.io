@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![The iPad takes a big step toward being the computer for everyone - The Verge](https://cdn.vox-cdn.com/thumbor/LGCl47UVMiTDluYWqRb0rrd0jKU=/0x0:1142x642/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55109581/apple_pencil_keyboard_set.0.jpg)
 
-The Verge The iPad takes a big step toward being the computer for everyone The Verge The iPad has never been a full-fledged computer. At its launch back in 2010, it was mocked for having a large screen without a typical large-screen operating system like macOS or Windows, and it was dismissed as just a bigger iPhone. But, as it turned ... HomePod First Listen Impressions: 'Incredible' Audio With Bass-Heavy Sound That Easily Beats Echo Mac Rumors iOS 11 is hiding two game-changing new iPhone features BGR WWDC 2017: Everything you need to know about Apple and AR Computerworld Business Insider - Macworld - Engadget - AppleInsider (press release) (blog) all 3,104 news articles »
+The Verge The iPad takes a big step toward being the computer for everyone The Verge The iPad has never been a full-fledged computer. At its launch back in 2010, it was mocked for having a large screen without a typical large-screen operating system like macOS or Windows, and it was dismissed as just a bigger iPhone. But, as it turned ... Apple's WWDC 2017: An Event Lacking Vision From A Company Without A Visionary Forbes iOS 11 is hiding two game-changing new iPhone features BGR Apple HomePod vs. Amazon Echo vs. Google Home: Smart Speaker Showdown PCMag Business Insider - Mac Rumors - Computerworld - Macworld all 2,278 news articles »
 
 
 Full story on F3News: [The iPad takes a big step toward being the computer for everyone - The Verge](http://www.f3nws.com/n/DpFXR)
