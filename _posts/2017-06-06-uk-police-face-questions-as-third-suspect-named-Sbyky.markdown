@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK police face questions as third suspect named"
-date: 2017-06-06 18:25:30Z
+date: 2017-06-06 19:22:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British police have named the third London attacker as Youssef Zaghba, a Morocca
 
 Full story on F3News: [UK police face questions as third suspect named](http://www.f3nws.com/n/Sbyky)
 
-> Posted on: Tuesday, June 6, 2017 11:25:30 PM
+> Posted on: Wednesday, June 7, 2017 12:22:40 AM

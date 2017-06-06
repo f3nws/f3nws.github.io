@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian jet intercepts US bomber over Baltic Sea"
-date: 2017-06-06 17:15:00Z
+date: 2017-06-06 19:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A U.S. Air Force B-52 bomber flying a "routine mission" in international airspac
 
 Full story on F3News: [Russian jet intercepts US bomber over Baltic Sea](http://www.f3nws.com/n/QRuftF)
 
-> Posted on: Tuesday, June 6, 2017 10:15:00 PM
+> Posted on: Wednesday, June 7, 2017 12:15:00 AM
