@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatar hosts largest US military base in Mideast"
-date: 2017-06-06 05:50:20Z
+date: 2017-06-06 06:00:05Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ As Saudi Arabia, along with a growing list of other countries, cut diplomatic ti
 
 Full story on F3News: [Qatar hosts largest US military base in Mideast](http://www.f3nws.com/n/MvrvHD)
 
-> Posted on: Tuesday, June 6, 2017 10:50:20 AM
+> Posted on: Tuesday, June 6, 2017 11:00:05 AM

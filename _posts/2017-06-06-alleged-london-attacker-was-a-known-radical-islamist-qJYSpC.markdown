@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alleged London attacker was a known radical Islamist"
-date: 2017-06-06 05:47:59Z
+date: 2017-06-06 06:18:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — One of the men believed to have carried out the deadly weekend a
 
 Full story on F3News: [Alleged London attacker was a known radical Islamist](http://www.f3nws.com/n/qJYSpC)
 
-> Posted on: Tuesday, June 6, 2017 10:47:59 AM
+> Posted on: Tuesday, June 6, 2017 11:18:00 AM
