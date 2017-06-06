@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela blocking medicine, humanitarian aid from US groups"
-date: 2017-06-06 18:00:09Z
+date: 2017-06-06 18:30:11Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Venezuelans have struggled in recent years to get their hands on all types of me
 
 Full story on F3News: [Venezuela blocking medicine, humanitarian aid from US groups](http://www.f3nws.com/n/vhPfPF)
 
-> Posted on: Tuesday, June 6, 2017 11:00:09 PM
+> Posted on: Tuesday, June 6, 2017 11:30:11 PM
