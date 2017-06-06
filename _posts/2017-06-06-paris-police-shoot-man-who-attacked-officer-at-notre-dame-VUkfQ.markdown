@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris: Police shoot man who attacked officer at Notre Dame"
-date: 2017-06-06 17:41:53Z
+date: 2017-06-06 18:33:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in Paris have shot and injured a man who tried to attack police with a ha
 
 Full story on F3News: [Paris: Police shoot man who attacked officer at Notre Dame](http://www.f3nws.com/n/VUkfQ)
 
-> Posted on: Tuesday, June 6, 2017 10:41:53 PM
+> Posted on: Tuesday, June 6, 2017 11:33:54 PM

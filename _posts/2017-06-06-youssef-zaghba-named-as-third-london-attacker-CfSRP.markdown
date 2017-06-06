@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Youssef Zaghba named as third London attacker"
-date: 2017-06-06 11:19:00Z
+date: 2017-06-06 18:32:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The third London Bridge attacker was identified Tuesday as a 22-year-old Morocca
 
 Full story on F3News: [Youssef Zaghba named as third London attacker](http://www.f3nws.com/n/CfSRP)
 
-> Posted on: Tuesday, June 6, 2017 4:19:00 PM
+> Posted on: Tuesday, June 6, 2017 11:32:00 PM
