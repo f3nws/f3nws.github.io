@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Acting US ambassador to China quits"
-date: 2017-06-06 12:44:29Z
+date: 2017-06-06 13:05:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Acting US ambassador to China David Rank resigned from his post in Beijing over 
 
 Full story on F3News: [Acting US ambassador to China quits](http://www.f3nws.com/n/yCCFZ)
 
-> Posted on: Tuesday, June 6, 2017 5:44:29 PM
+> Posted on: Tuesday, June 6, 2017 6:05:01 PM

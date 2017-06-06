@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Third London attacker named as imams refuse to perform funeral rites"
-date: 2017-06-06 12:25:00Z
+date: 2017-06-06 13:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ British police on Tuesday named the final member of the terror trio who murdered
 
 Full story on F3News: [Third London attacker named as imams refuse to perform funeral rites](http://www.f3nws.com/n/tcgeWC)
 
-> Posted on: Tuesday, June 6, 2017 5:25:00 PM
+> Posted on: Tuesday, June 6, 2017 6:00:00 PM
