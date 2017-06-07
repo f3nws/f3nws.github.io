@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Foundation funneled $100K in donations into revenue for Trump Organization: report - The Hill](http://thehill.com/sites/default/files/article_images/trump_hotel_getty.jpg)
 
-The Hill Trump Foundation funneled $100K in donations into revenue for Trump Organization: report The Hill President Trump's charity foundation funneled $100,000 in donations meant for St. Jude's Children's Research Hospital into revenue for the Trump Organization by using his son's charity, Forbes reported Tuesday. For 10 years Eric Trump hosted an annual ... The Eric Trump cover-up ThinkProgress Today's Impeach-O-Meter: Trump Accused of Laundering Money Through Pediatric Cancer Charity Slate Magazine (blog) Trump profited from kids cancer charity, report says USA TODAY Vanity Fair - The Atlantic - Newsweek - New York Post all 38 news articles »
+The Hill Trump Foundation funneled $100K in donations into revenue for Trump Organization: report The Hill President Trump's charity foundation funneled $100,000 in donations meant for St. Jude's Children's Research Hospital into revenue for the Trump Organization by using his son's charity, Forbes reported Tuesday. For 10 years Eric Trump hosted an annual ... Don and Eric's American Idea The Atlantic Today's Impeach-O-Meter: Trump Accused of Laundering Money Through Pediatric Cancer Charity Slate Magazine (blog) The Eric Trump cover-up ThinkProgress USA TODAY - Vanity Fair - CNBC - Newsweek all 42 news articles »
 
 
 Full story on F3News: [Trump Foundation funneled $100K in donations into revenue for Trump Organization: report - The Hill](http://www.f3nws.com/n/stJJDE)
