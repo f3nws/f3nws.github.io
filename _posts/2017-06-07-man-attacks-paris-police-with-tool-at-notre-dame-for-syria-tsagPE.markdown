@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man attacks Paris police with tool at Notre Dame 'for Syria'"
-date: 2017-06-07 05:17:41Z
+date: 2017-06-07 05:45:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ PARIS (AP) — An assailant wielding a hammer attacked Paris police guarding Not
 
 Full story on F3News: [Man attacks Paris police with tool at Notre Dame 'for Syria'](http://www.f3nws.com/n/tsagPE)
 
-> Posted on: Wednesday, June 7, 2017 10:17:41 AM
+> Posted on: Wednesday, June 7, 2017 10:45:30 AM

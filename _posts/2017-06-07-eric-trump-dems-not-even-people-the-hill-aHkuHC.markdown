@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eric Trump: Dems 'not even people' - The Hill](http://thehill.com/sites/default/files/article_images/trump_eric_getty.jpg)
 
-Newsweek Eric Trump: Dems 'not even people' The Hill President Trump's son Eric Trump on Tuesday said Democrats are “not even people” to him after their obstruction of his father's agenda. “I've never seen hatred like this,” he said on Fox News's “Hannity” Tuesday night. “To me, they're not even people ... Today's Impeach-O-Meter: Trump Accused of Laundering Money Through Pediatric Cancer Charity Slate Magazine (blog) Eric Trump to Sean Hannity: Democrats "Are Not Even People" Newsweek Trump profited from kids cancer charity, report says USA TODAY CNBC - ThinkProgress - Vanity Fair - New York Daily News all 46 news articles »
+New York Post Eric Trump: Dems 'not even people' The Hill President Trump's son Eric Trump on Tuesday said Democrats are “not even people” to him after their obstruction of his father's agenda. “I've never seen hatred like this,” he said on Fox News's “Hannity” Tuesday night. “To me, they're not even people ... Today's Impeach-O-Meter: Trump Accused of Laundering Money Through Pediatric Cancer Charity Slate Magazine (blog) Eric Trump to Sean Hannity: Democrats "Are Not Even People" Newsweek Trump profited from kids cancer charity, report says USA TODAY CNBC - ThinkProgress - Business Insider - Vanity Fair all 50 news articles »
 
 
 Full story on F3News: [Eric Trump: Dems 'not even people' - The Hill](http://www.f3nws.com/n/aHkuHC)
