@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French Open: Djokovic crushed by Thiem, Nadal quickly advances"
-date: 2017-06-07 13:47:07Z
+date: 2017-06-07 17:31:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If Novak Djokovic entered the French Open with plenty of question marks hanging 
 
 Full story on F3News: [French Open: Djokovic crushed by Thiem, Nadal quickly advances](http://www.f3nws.com/n/WP3m3G)
 
-> Posted on: Wednesday, June 7, 2017 6:47:07 PM
+> Posted on: Wednesday, June 7, 2017 10:31:40 PM
