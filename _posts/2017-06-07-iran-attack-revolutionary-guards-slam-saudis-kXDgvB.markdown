@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran attack: Revolutionary guards slam Saudis"
-date: 2017-06-07 20:43:19Z
+date: 2017-06-07 22:12:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There has been a shooting inside the Iranian parliament in Tehran, according to 
 
 Full story on F3News: [Iran attack: Revolutionary guards slam Saudis](http://www.f3nws.com/n/kXDgvB)
 
-> Posted on: Thursday, June 8, 2017 1:43:19 AM
+> Posted on: Thursday, June 8, 2017 3:12:50 AM
