@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State - Washington Post"
-date: 2017-06-07 13:47:06Z
+date: 2017-06-07 17:38:52Z
 categories: google-news-top-stories
 ---
 
 ![In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/07/Foreign/Images/2017-06-07T080635Z_1740798898_RC153FB07D00_RTRMADP_3_IRAN-SECURITY.jpg)
 
-Washington Post In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post Gunmen stormed two major sites in Iran's capital Wednesday, killing at least 12 people in gunfire and suicide blasts in parliament and at the revered tomb of the nation's Islamic revolutionary leader. The Islamic State claimed responsibility for the ... At least 12 killed in rare militant attack in Tehran Reuters Twin Attacks Hit Iran's Parliament And Khomeini Mausoleum; ISIS Claims Responsibility NPR Iran Parliament, Khomeini's Mausoleum Attacked; ISIS Claims Responsibility NBCNews.com Bloomberg - Miami Herald - New York Times - Washington Times all 596 news articles »
+Washington Post In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post The Islamic State has stuck at Iran and its allies for years — but always from afar, in places such as Iraq against Tehran-backed militias and in Syria battling government troops aided by Iranian forces. That appeared to change Wednesday when ... Iran Assails Saudi Arabia After Pair of Deadly Terrorist Attacks New York Times IRAN ATTACK: ISIS claims responsibility for pair of assaults in Tehran Fox News At least 12 killed in militant attack in Iran, Guards blame Saudi Arabia Reuters BBC News - Los Angeles Times - CBS News - New York Daily News all 764 news articles »
 
 
 Full story on F3News: [In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State - Washington Post](http://www.f3nws.com/n/RdmHE)
 
-> Posted on: Wednesday, June 7, 2017 6:47:06 PM
+> Posted on: Wednesday, June 7, 2017 10:38:52 PM
