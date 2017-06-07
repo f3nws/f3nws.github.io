@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump names next FBI director"
-date: 2017-06-07 15:31:48Z
+date: 2017-06-07 16:40:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump announced Wednesday he plans to nominate Christopher A. W
 
 Full story on F3News: [Trump names next FBI director](http://www.f3nws.com/n/YunB4E)
 
-> Posted on: Wednesday, June 7, 2017 8:31:48 PM
+> Posted on: Wednesday, June 7, 2017 9:40:58 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did girlfriend's texts push teen to take his own life?"
-date: 2017-06-07 10:54:39Z
+date: 2017-06-07 16:57:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On the last day of Conrad Roy III's young life, the text messages popped up on h
 
 Full story on F3News: [Did girlfriend's texts push teen to take his own life?](http://www.f3nws.com/n/DcvuYG)
 
-> Posted on: Wednesday, June 7, 2017 3:54:39 PM
+> Posted on: Wednesday, June 7, 2017 9:57:32 PM

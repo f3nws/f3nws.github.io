@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French Open: Djokovic crashes out"
-date: 2017-06-07 13:21:01Z
+date: 2017-06-07 17:31:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rafael Nadal was the favorite heading into the French Open -- and he will be wel
 
 Full story on F3News: [French Open: Djokovic crashes out](http://www.f3nws.com/n/WP3m3G)
 
-> Posted on: Wednesday, June 7, 2017 6:21:01 PM
+> Posted on: Wednesday, June 7, 2017 10:31:40 PM
