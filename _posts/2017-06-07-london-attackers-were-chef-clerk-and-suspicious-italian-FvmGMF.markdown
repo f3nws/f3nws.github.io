@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London attackers were chef, clerk and 'suspicious' Italian"
-date: 2017-06-07 06:28:02Z
+date: 2017-06-07 06:46:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LONDON (AP) — Details emerged Tuesday of the three London Bridge attackers: a 
 
 Full story on F3News: [London attackers were chef, clerk and 'suspicious' Italian](http://www.f3nws.com/n/FvmGMF)
 
-> Posted on: Wednesday, June 7, 2017 11:28:02 AM
+> Posted on: Wednesday, June 7, 2017 11:46:48 AM
