@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![What we know about Reality Winner, the contractor accused of leaking an NSA document - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-06-05/Reuters/2017-06-06T013040Z_2003764090_RC1438E3D9B0_RTRMADP_3_USA-TRUMP-RUSSIA-LEAKS.jpg)
 
-Washington Post What we know about Reality Winner, the contractor accused of leaking an NSA document Washington Post During the Memorial Day holiday weekend last month, Reality Winner, a 25-year-old living in Georgia, took a brief trip to Belize. Like so many people her age, she documented it on social media, posting about the little resort where she stayed, the ... The GOP wants to distract you with Reality Winner CNN Who Is Reality Winner, NSA Contractor Accused in Top Secret Leak? NBCNews.com 5 Unanswered Questions Raised By The Leaked NSA Hacking Report NPR Miami Herald - USA TODAY - CBS News - WND.com all 678 news articles »
+Washington Post What we know about Reality Winner, the contractor accused of leaking an NSA document Washington Post During the Memorial Day holiday weekend last month, Reality Winner, a 25-year-old living in Georgia, took a brief trip to Belize. Like so many people her age, she documented it on social media, posting about the little resort where she stayed, the ... Charges show peril for leakers, journalists alike Politico The GOP wants to distract you with Reality Winner CNN Who Is Reality Winner, NSA Contractor Accused in Top Secret Leak? NBCNews.com NPR - The Atlantic - Daily Beast - WND.com all 709 news articles »
 
 
 Full story on F3News: [What we know about Reality Winner, the contractor accused of leaking an NSA document - Washington Post](http://www.f3nws.com/n/PnaWnG)
