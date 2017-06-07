@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reports: Sessions offered to resign amid tensions with Trump"
-date: 2017-06-07 10:30:16Z
+date: 2017-06-07 11:00:11Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The relationship between President Trump and his attorney general, Jeff Sessions
 
 Full story on F3News: [Reports: Sessions offered to resign amid tensions with Trump](http://www.f3nws.com/n/yttSaD)
 
-> Posted on: Wednesday, June 7, 2017 3:30:16 PM
+> Posted on: Wednesday, June 7, 2017 4:00:11 PM
