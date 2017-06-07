@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Reality Winner, NSA Contractor Accused of Leak, Was Undone by Trail of Clues - New York Times](https://static01.nyt.com/images/2017/06/07/us/07dc-intel/07dc-intel-facebookJumbo.jpg)
 
-New York Times Reality Winner, NSA Contractor Accused of Leak, Was Undone by Trail of Clues New York Times An Instagram image of Reality Leigh Winner, 25, who was charged with sending classified material to a news website. Credit via Reuters. WASHINGTON — In the months after President Trump was elected, Reality Leigh Winner frequently expressed outraged ... Charges show peril for leakers, journalists alike Politico The GOP wants to distract you with Reality Winner CNN Who Is Reality Winner, NSA Contractor Accused in Top Secret Leak? NBCNews.com New York Post - BuzzFeed News - The Hill (blog) - HuffPost all 828 news articles »
+New York Times Reality Winner, NSA Contractor Accused of Leak, Was Undone by Trail of Clues New York Times An Instagram image of Reality Leigh Winner, 25, who was charged with sending classified material to a news website. Credit via Reuters. WASHINGTON — In the months after President Trump was elected, Reality Leigh Winner frequently expressed outraged ... Charges show peril for leakers, journalists alike Politico Why printers add secret tracking dots BBC News The GOP wants to distract you with Reality Winner CNN Fox News - ABC News - BuzzFeed News - HuffPost all 835 news articles »
 
 
 Full story on F3News: [Reality Winner, NSA Contractor Accused of Leak, Was Undone by Trail of Clues - New York Times](http://www.f3nws.com/n/nyeVcG)
