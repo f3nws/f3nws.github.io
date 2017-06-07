@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Source: US attorney general offered to quit in row with Trump"
-date: 2017-06-07 01:19:07Z
+date: 2017-06-07 11:42:05Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and Attorney General Jeff Sessions have had a series of h
 
 Full story on F3News: [Source: US attorney general offered to quit in row with Trump](http://www.f3nws.com/n/Fc2bUE)
 
-> Posted on: Wednesday, June 7, 2017 6:19:07 AM
+> Posted on: Wednesday, June 7, 2017 4:42:05 PM

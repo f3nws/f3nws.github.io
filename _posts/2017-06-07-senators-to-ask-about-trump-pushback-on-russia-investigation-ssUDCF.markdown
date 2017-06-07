@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senators to ask about Trump pushback on Russia investigation"
-date: 2017-06-07 11:28:00Z
+date: 2017-06-07 12:00:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — A day before a Senate panel hears former FBI Director James 
 
 Full story on F3News: [Senators to ask about Trump pushback on Russia investigation](http://www.f3nws.com/n/ssUDCF)
 
-> Posted on: Wednesday, June 7, 2017 4:28:00 PM
+> Posted on: Wednesday, June 7, 2017 5:00:30 PM

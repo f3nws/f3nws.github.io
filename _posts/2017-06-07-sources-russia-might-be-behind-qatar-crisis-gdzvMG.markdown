@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sources: Russia might be behind Qatar crisis"
-date: 2017-06-07 00:21:22Z
+date: 2017-06-07 11:34:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US investigators believe Russian hackers breached Qatar's state news agency and 
 
 Full story on F3News: [Sources: Russia might be behind Qatar crisis](http://www.f3nws.com/n/gdzvMG)
 
-> Posted on: Wednesday, June 7, 2017 5:21:22 AM
+> Posted on: Wednesday, June 7, 2017 4:34:06 PM
