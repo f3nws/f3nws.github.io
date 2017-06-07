@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suicide blast at Iran parliament and shrine attack"
-date: 2017-06-07 12:50:31Z
+date: 2017-06-07 13:08:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There has been a shooting inside the Iranian parliament in Tehran, according to 
 
 Full story on F3News: [Suicide blast at Iran parliament and shrine attack](http://www.f3nws.com/n/kXDgvB)
 
-> Posted on: Wednesday, June 7, 2017 5:50:31 PM
+> Posted on: Wednesday, June 7, 2017 6:08:41 PM

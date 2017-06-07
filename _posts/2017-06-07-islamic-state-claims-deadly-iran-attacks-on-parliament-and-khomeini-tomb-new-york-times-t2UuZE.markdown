@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb - New York Times](https://static01.nyt.com/images/2017/06/08/world/08Iran3/08Iran3-facebookJumbo-v2.jpg)
 
-New York Times Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb New York Times At least 12 people were killed and 42 others wounded Wednesday morning in a pair of devastating attacks on two of Iran's most potent symbols: the national Parliament and the mausoleum of the Islamic Republic's founder, Ayatollah Ruhollah Khomeini. In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post Iran Parliament, Khomeini's Mausoleum Attacked; ISIS Claims Responsibility NBCNews.com Iran attacks leave 12 dead at parliament and Khomeini mausoleum BBC News Fox News - Reuters - NPR - Miami Herald all 502 news articles »
+New York Times Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb New York Times At least 12 people were killed and 42 others were wounded Wednesday morning in a pair of devastating attacks on two of Iran's most potent symbols: the national Parliament and the mausoleum of the Islamic Republic's founder, Ayatollah Ruhollah Khomeini. In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post Iran Parliament, Khomeini's Mausoleum Attacked; ISIS Claims Responsibility NBCNews.com Attackers bomb Iran parliament and mausoleum, at least 12 dead: Iranian media Reuters NPR - Fox News - Miami Herald - PRI all 527 news articles »
 
 
 Full story on F3News: [Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb - New York Times](http://www.f3nws.com/n/t2UuZE)
