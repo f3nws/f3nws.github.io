@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Fatalities & injuries after shootings, bombings at Iranian parliament & Khomeini shrine](https://img.rt.com/files/static.en/article/breaking.jpg)
 
-At least two people died and dozens were injured after gunfire and bombings at the Iranian parliament and Ayatollah Khomeini’s shrine in Tehran. Both assaults were later claimed by IS. Read Full Article at RT.com
+At least 12 people died and dozens were injured in gun and bomb attacks at the Iranian parliament and Ayatollah Khomeini’s shrine in Tehran, emergency services said, as cited by local media. Both assaults were later claimed by Islamic State. Read Full Article at RT.com
 
 
 Full story on F3News: [Fatalities & injuries after shootings, bombings at Iranian parliament & Khomeini shrine](http://www.f3nws.com/n/gDdQdE)
