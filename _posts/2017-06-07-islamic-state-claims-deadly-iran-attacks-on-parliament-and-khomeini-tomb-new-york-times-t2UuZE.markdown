@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb - New York Times"
-date: 2017-06-07 11:53:00Z
+date: 2017-06-07 12:30:37Z
 categories: google-news-top-stories
 ---
 
 ![Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb - New York Times](https://static01.nyt.com/images/2017/06/08/world/08Iran3/08Iran3-facebookJumbo-v2.jpg)
 
-New York Times Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb New York Times Iranian police officers helping civilians leave the Parliament building in Tehran on Wednesday. Credit Omid Vahabzadeh, via Agence France-Presse — Getty Images. At least 12 people were killed and 42 others wounded Wednesday morning in a pair of ... In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post Iran attacks leave 12 dead at parliament and Khomeini mausoleum BBC News IRAN ATTACK: ISIS claims responsibility for pair of assaults in Tehran Fox News NBCNews.com - NPR - Reuters - Miami Herald all 456 news articles »
+New York Times Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb New York Times At least 12 people were killed and 42 others wounded Wednesday morning in a pair of devastating attacks on two of Iran's most potent symbols: the national Parliament and the mausoleum of the Islamic Republic's founder, Ayatollah Ruhollah Khomeini. In rare attacks in Tehran, gunmen storm parliament and shrine in assaults claimed by Islamic State Washington Post Iran Parliament, Khomeini's Mausoleum Attacked; ISIS Claims Responsibility NBCNews.com Iran attacks leave 12 dead at parliament and Khomeini mausoleum BBC News Fox News - Reuters - NPR - Miami Herald all 502 news articles »
 
 
 Full story on F3News: [Islamic State Claims Deadly Iran Attacks on Parliament and Khomeini Tomb - New York Times](http://www.f3nws.com/n/t2UuZE)
 
-> Posted on: Wednesday, June 7, 2017 4:53:00 PM
+> Posted on: Wednesday, June 7, 2017 5:30:37 PM
