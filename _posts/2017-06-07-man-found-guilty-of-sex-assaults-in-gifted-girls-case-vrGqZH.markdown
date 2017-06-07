@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man found guilty of sex assaults in 'gifted' girls case"
-date: 2017-06-07 02:18:15Z
+date: 2017-06-07 02:40:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Pennsylvania man was convicted Tuesday of sexually assaulting six young sister
 
 Full story on F3News: [Man found guilty of sex assaults in 'gifted' girls case](http://www.f3nws.com/n/vrGqZH)
 
-> Posted on: Wednesday, June 7, 2017 7:18:15 AM
+> Posted on: Wednesday, June 7, 2017 7:40:37 AM
