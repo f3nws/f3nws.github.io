@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fired FBI chief says Trump asked him to let go of probe into Flynn's ties to Russia"
-date: 2017-06-07 19:23:13Z
+date: 2017-06-07 20:26:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI Director James Comey will say Thursday that President Donald Trump as
 
 Full story on F3News: [Fired FBI chief says Trump asked him to let go of probe into Flynn's ties to Russia](http://www.f3nws.com/n/qUsTPD)
 
-> Posted on: Thursday, June 8, 2017 12:23:13 AM
+> Posted on: Thursday, June 8, 2017 1:26:56 AM
