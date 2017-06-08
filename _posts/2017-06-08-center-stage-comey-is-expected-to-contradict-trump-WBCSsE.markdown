@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Center stage: Comey is expected to contradict Trump"
-date: 2017-06-08 11:50:25Z
+date: 2017-06-08 12:43:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fired FBI Chief James Comey seizes center stage in a compelling national politic
 
 Full story on F3News: [Center stage: Comey is expected to contradict Trump](http://www.f3nws.com/n/WBCSsE)
 
-> Posted on: Thursday, June 8, 2017 4:50:25 PM
+> Posted on: Thursday, June 8, 2017 5:43:02 PM
