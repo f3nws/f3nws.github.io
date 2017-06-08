@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Iran attack: Revolutionary guards slam Saudis](http://i2.cdn.cnn.com/cnnnext/dam/assets/170607144924-iran-flag-tease-super-tease.jpg)
 
-There has been a shooting inside the Iranian parliament in Tehran, according to state media.
+Iran's Revolutionary Guards say Saudi Arabia supported ISIS in the deadly twin attacks in Tehran on Wednesday, an accusation likely to infuriate the Saudi kingdom amid high tensions in the region.
 
 
 Full story on F3News: [Iran attack: Revolutionary guards slam Saudis](http://www.f3nws.com/n/kXDgvB)
