@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oldest Homo sapiens fossils discovered"
-date: 2017-06-08 00:46:45Z
+date: 2017-06-08 05:27:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The oldest fossil remains of Homo sapiens, dating back to 300,000 years ago, hav
 
 Full story on F3News: [Oldest Homo sapiens fossils discovered](http://www.f3nws.com/n/WdTTsF)
 
-> Posted on: Thursday, June 8, 2017 5:46:45 AM
+> Posted on: Thursday, June 8, 2017 10:27:23 AM
