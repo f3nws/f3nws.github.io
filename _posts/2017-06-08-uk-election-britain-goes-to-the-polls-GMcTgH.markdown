@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK election: Britain goes to the polls"
-date: 2017-06-08 11:04:13Z
+date: 2017-06-08 14:58:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain goes to the polls Thursday, 52 days after Prime Minister Theresa May cal
 
 Full story on F3News: [UK election: Britain goes to the polls](http://www.f3nws.com/n/GMcTgH)
 
-> Posted on: Thursday, June 8, 2017 4:04:13 PM
+> Posted on: Thursday, June 8, 2017 7:58:41 PM
