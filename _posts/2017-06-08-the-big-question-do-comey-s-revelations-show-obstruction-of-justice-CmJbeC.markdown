@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The big question: Do Comey's revelations show obstruction of justice?"
-date: 2017-06-08 02:04:17Z
+date: 2017-06-08 05:56:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fired FBI Director James Comey publicly confirmed for the first time Wednesday a
 
 Full story on F3News: [The big question: Do Comey's revelations show obstruction of justice?](http://www.f3nws.com/n/CmJbeC)
 
-> Posted on: Thursday, June 8, 2017 7:04:17 AM
+> Posted on: Thursday, June 8, 2017 10:56:52 AM

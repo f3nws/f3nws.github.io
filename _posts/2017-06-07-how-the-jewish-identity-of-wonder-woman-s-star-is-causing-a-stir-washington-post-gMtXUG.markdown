@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![How the Jewish identity of 'Wonder Woman's' star is causing a stir - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-05-31/AP/Film_Review_Wonder_Woman_70196-307da.jpg)
 
-Washington Post How the Jewish identity of 'Wonder Woman's' star is causing a stir Washington Post “Wonder Woman” has drawn all kinds of controversy over gender politics since its release last Friday, but it has also put the spotlight on Jewish debates over race and nationality. The star of the film, Gal Gadot, who speaks English with an Israeli ... Wonder Woman 2: Details On Patty Jenkins' Contract Reportedly Revealed Comicbook.com 'Wonder Woman' Release Halted In Tunisia As Political Party Files Demand For Ban Deadline Wonder Woman: 15 Movie Moments That CRUSH Sexism Screen Rant Chicago Tribune - Washington Times - Newsweek - Wichita Eagle all 838 news articles »
+Washington Post How the Jewish identity of 'Wonder Woman's' star is causing a stir Washington Post “Wonder Woman” has drawn all kinds of controversy over gender politics since its release last Friday, but it has also put the spotlight on Jewish debates over race and nationality. The star of the film, Gal Gadot, who speaks English with an Israeli ... The Fitful Evolution of Wonder Woman's Look The Atlantic 'Wonder Woman' Release Halted In Tunisia As Political Party Files Demand For Ban Deadline Wonder Woman 2: Details On Patty Jenkins' Contract Reportedly Revealed Comicbook.com Screen Rant - Boston Herald - Bustle - Chicago Tribune all 871 news articles »
 
 
 Full story on F3News: [How the Jewish identity of 'Wonder Woman's' star is causing a stir - Washington Post](http://www.f3nws.com/n/gMtXUG)
