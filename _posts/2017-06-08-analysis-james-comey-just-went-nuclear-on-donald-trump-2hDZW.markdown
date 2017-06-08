@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: James Comey just went nuclear on Donald Trump"
-date: 2017-06-08 01:59:47Z
+date: 2017-06-08 03:41:03Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ James Comey's written testimony regarding his interactions with President Donald
 
 Full story on F3News: [Analysis: James Comey just went nuclear on Donald Trump](http://www.f3nws.com/n/2hDZW)
 
-> Posted on: Thursday, June 8, 2017 6:59:47 AM
+> Posted on: Thursday, June 8, 2017 8:41:03 AM
