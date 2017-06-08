@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Civil War submarine reveals more clues, human remains"
-date: 2017-06-08 13:45:25Z
+date: 2017-06-08 19:34:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More clues of the H.L. Hunley mystery are being revealed during conservation of 
 
 Full story on F3News: [Civil War submarine reveals more clues, human remains](http://www.f3nws.com/n/sXHNdB)
 
-> Posted on: Thursday, June 8, 2017 6:45:25 PM
+> Posted on: Friday, June 9, 2017 12:34:59 AM

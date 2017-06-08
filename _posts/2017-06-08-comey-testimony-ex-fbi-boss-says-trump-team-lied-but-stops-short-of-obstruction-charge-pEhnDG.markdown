@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey testimony: Ex-FBI boss says Trump team lied, but stops short of obstruction charge"
-date: 2017-06-08 15:45:00Z
+date: 2017-06-08 19:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Former FBI Director James Comey’s testimony before a Senate panel on Thursday 
 
 Full story on F3News: [Comey testimony: Ex-FBI boss says Trump team lied, but stops short of obstruction charge](http://www.f3nws.com/n/pEhnDG)
 
-> Posted on: Thursday, June 8, 2017 8:45:00 PM
+> Posted on: Friday, June 9, 2017 12:00:00 AM
