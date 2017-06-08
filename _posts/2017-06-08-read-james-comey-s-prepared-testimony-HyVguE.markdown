@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "READ: James Comey's prepared testimony"
-date: 2017-06-08 01:13:49Z
+date: 2017-06-08 01:26:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Statement for the Record
 
 Full story on F3News: [READ: James Comey's prepared testimony](http://www.f3nws.com/n/HyVguE)
 
-> Posted on: Thursday, June 8, 2017 6:13:49 AM
+> Posted on: Thursday, June 8, 2017 6:26:31 AM

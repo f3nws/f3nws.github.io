@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea test-fires multiple missiles, South says"
-date: 2017-06-08 00:29:45Z
+date: 2017-06-08 02:31:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea on Thursday morning fired multiple unidentified projectiles, assumed
 
 Full story on F3News: [North Korea test-fires multiple missiles, South says](http://www.f3nws.com/n/XuRNsF)
 
-> Posted on: Thursday, June 8, 2017 5:29:45 AM
+> Posted on: Thursday, June 8, 2017 7:31:42 AM
