@@ -5,7 +5,7 @@ date: 2017-06-08 02:05:02Z
 categories: abc-top-stories
 ---
 
-![Hanson slaps gag order on former party treasurer over covert tapes](http://www.abc.net.au/news/image/8596612-1x1-700x700.jpg)
+![Hanson slaps gag order on former party treasurer over covert tapes](http://www.abc.net.au/news/image/8572384-1x1-700x700.jpg)
 
 One Nation leader Pauline Hanson succeeds in temporarily gagging former party treasurer Ian Nelson from making more secret recordings public, a week after a phone conversation between the pair was revealed by the ABC.
 
