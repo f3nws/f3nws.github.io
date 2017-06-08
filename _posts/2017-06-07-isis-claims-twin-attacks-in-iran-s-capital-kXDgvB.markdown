@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS claims twin attacks in Iran's capital"
-date: 2017-06-07 17:15:55Z
+date: 2017-06-07 22:12:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There has been a shooting inside the Iranian parliament in Tehran, according to 
 
 Full story on F3News: [ISIS claims twin attacks in Iran's capital](http://www.f3nws.com/n/kXDgvB)
 
-> Posted on: Wednesday, June 7, 2017 10:15:55 PM
+> Posted on: Thursday, June 8, 2017 3:12:50 AM
