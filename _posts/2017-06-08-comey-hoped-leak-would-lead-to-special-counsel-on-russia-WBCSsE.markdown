@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey hoped leak would lead to special counsel on Russia"
-date: 2017-06-08 16:26:13Z
+date: 2017-06-08 17:53:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI director James Comey testified Thursday that he orchestrated the leak
 
 Full story on F3News: [Comey hoped leak would lead to special counsel on Russia](http://www.f3nws.com/n/WBCSsE)
 
-> Posted on: Thursday, June 8, 2017 9:26:13 PM
+> Posted on: Thursday, June 8, 2017 10:53:55 PM
