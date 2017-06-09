@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jerry Seinfeld Explains Awkward Kesha Interaction: 'I Don't Hug a Total Stranger' - RollingStone.com](http://img.wennermedia.com/social/seinfeld-kesha-865dde34-189e-4194-8b9c-f3ea4c7c9466.jpg)
 
-RollingStone.com Jerry Seinfeld Explains Awkward Kesha Interaction: 'I Don't Hug a Total Stranger' RollingStone.com Jerry Seinfeld has a good explanation for that awkward Kesha interaction – and according to the veteran comedian, the affront wasn't meant to be taken personally. Related. Watch Jerry Seinfeld Deny Kesha a Hug: 'Don't Know Who That Is'. Veteran ... Jerry Seinfeld Explains Awkward Kesha Moment: 'I Don't Hug a Total Stranger' Variety Jerry Seinfeld on Kesha snub: 'I don't hug a total stranger' EW.com Jerry Seinfeld Defends Himself After Rebuffing Kesha's Hug Refinery29 PerezHilton.com - New York Daily News - Just Jared - Vulture all 56 news articles »
+RollingStone.com Jerry Seinfeld Explains Awkward Kesha Interaction: 'I Don't Hug a Total Stranger' RollingStone.com Jerry Seinfeld has a good explanation for that awkward Kesha interaction – and according to the veteran comedian, the affront wasn't meant to be taken personally. Related. Watch Jerry Seinfeld Deny Kesha a Hug: 'Don't Know Who That Is'. Veteran ... Jerry Seinfeld Explains Awkward Kesha Moment: 'I Don't Hug a Total Stranger' Variety Jerry Seinfeld on Kesha snub: 'I don't hug a total stranger' EW.com Jerry Seinfeld Defends Himself After Rebuffing Kesha's Hug Refinery29 PerezHilton.com - New York Daily News - Just Jared - UPROXX all 57 news articles »
 
 
 Full story on F3News: [Jerry Seinfeld Explains Awkward Kesha Interaction: 'I Don't Hug a Total Stranger' - RollingStone.com](http://www.f3nws.com/n/PJDUPC)

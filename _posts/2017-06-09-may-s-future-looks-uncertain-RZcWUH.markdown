@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "May's future looks uncertain"
-date: 2017-06-09 07:09:11Z
+date: 2017-06-09 07:56:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Voters across the UK are casting their ballots in a snap general election that c
 
 Full story on F3News: [May's future looks uncertain](http://www.f3nws.com/n/RZcWUH)
 
-> Posted on: Friday, June 9, 2017 12:09:11 PM
+> Posted on: Friday, June 9, 2017 12:56:09 PM
