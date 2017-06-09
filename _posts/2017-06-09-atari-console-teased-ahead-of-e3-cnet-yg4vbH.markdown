@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Atari' console teased ahead of E3     - CNET"
-date: 2017-06-09 17:47:24Z
+date: 2017-06-09 18:52:50Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We don't know anything yet beyond a bare-bones teaser video.
 
 Full story on F3News: ['Atari' console teased ahead of E3     - CNET](http://www.f3nws.com/n/yg4vbH)
 
-> Posted on: Friday, June 9, 2017 10:47:24 PM
+> Posted on: Friday, June 9, 2017 11:52:50 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Actress Glenne Headly dies at 62"
-date: 2017-06-09 17:23:12Z
+date: 2017-06-09 19:00:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Glenne Headly passed away on Thursday night, a representative of the actress tol
 
 Full story on F3News: [Actress Glenne Headly dies at 62](http://www.f3nws.com/n/ntRkDB)
 
-> Posted on: Friday, June 9, 2017 10:23:12 PM
+> Posted on: Saturday, June 10, 2017 12:00:46 AM
