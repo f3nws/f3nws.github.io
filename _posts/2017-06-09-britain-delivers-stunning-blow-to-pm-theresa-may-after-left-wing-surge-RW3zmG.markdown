@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Britain delivers stunning blow to PM Theresa May after left-wing surge"
-date: 2017-06-09 05:38:20Z
+date: 2017-06-09 07:12:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May's Conservative Party appears on course to los
 
 Full story on F3News: [Britain delivers stunning blow to PM Theresa May after left-wing surge](http://www.f3nws.com/n/RW3zmG)
 
-> Posted on: Friday, June 9, 2017 10:38:20 AM
+> Posted on: Friday, June 9, 2017 12:12:04 PM
