@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia doesn’t cry ‘Washington hackers’ despite daily attacks from US territory – Kremlin"
-date: 2017-06-09 02:50:49Z
+date: 2017-06-09 02:50:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Moscow registers daily cyberattacks emanating from the territory of the United S
 
 Full story on F3News: [Russia doesn’t cry ‘Washington hackers’ despite daily attacks from US territory – Kremlin](http://www.f3nws.com/n/EHjfmG)
 
-> Posted on: Friday, June 9, 2017 7:50:49 AM
+> Posted on: Friday, June 9, 2017 7:50:00 AM
