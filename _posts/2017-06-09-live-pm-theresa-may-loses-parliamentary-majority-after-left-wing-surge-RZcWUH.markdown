@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "LIVE: PM Theresa May loses parliamentary majority after left-wing surge"
-date: 2017-06-09 05:29:47Z
+date: 2017-06-09 06:04:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Voters across the UK are casting their ballots in a snap general election that c
 
 Full story on F3News: [LIVE: PM Theresa May loses parliamentary majority after left-wing surge](http://www.f3nws.com/n/RZcWUH)
 
-> Posted on: Friday, June 9, 2017 10:29:47 AM
+> Posted on: Friday, June 9, 2017 11:04:52 AM
