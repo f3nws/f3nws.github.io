@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Happy St. Comey's Day': Late night jokes about James Comey's testimony"
-date: 2017-06-09 11:49:21Z
+date: 2017-06-09 15:30:36Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['Happy St. Comey's Day': Late night jokes about James Comey's testimony](http://www.f3nws.com/n/zfAKeF)
 
-> Posted on: Friday, June 9, 2017 4:49:21 PM
+> Posted on: Friday, June 9, 2017 8:30:36 PM

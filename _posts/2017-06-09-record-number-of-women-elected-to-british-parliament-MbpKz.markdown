@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Record number of women elected to British Parliament"
-date: 2017-06-09 14:07:12Z
+date: 2017-06-09 16:24:30Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ It's official -- Britain will have more women members of Parliament than ever be
 
 Full story on F3News: [Record number of women elected to British Parliament](http://www.f3nws.com/n/MbpKz)
 
-> Posted on: Friday, June 9, 2017 7:07:12 PM
+> Posted on: Friday, June 9, 2017 9:24:30 PM

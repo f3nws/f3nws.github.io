@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bill Cosby Trial Day 4: More Testimony, but No Mrs. Cosby - New York Times](https://static01.nyt.com/images/2017/06/09/arts/09COSBYWATCHLIVE/09COSBYWATCHLIVE-facebookJumbo-v2.jpg)
 
-New York Times Bill Cosby Trial Day 4: More Testimony, but No Mrs. Cosby New York Times ... • With the major prosecution witnesses now finished testifying at Bill Cosby's trial on sexual assault charges, who will the defense introduce soon as part of its rebuttal? Mr. Cosby has said he will not testify. Might he change his mind? • The ... Bill Cosby's Insanely Fucked-Up Ideas About Consent And What Sex Is Are Read To Jurors Jezebel Cosby arrives with Joe Torry for day 5 of trial Fox News By Forcing Gay Issue in Sexual Assault Trial TMZ.com ABC News - Page Six - Reuters - The Intelligencer all 276 news articles »
+New York Times Bill Cosby Trial Day 4: More Testimony, but No Mrs. Cosby New York Times ... • With the major prosecution witnesses now finished testifying at Bill Cosby's trial on sexual assault charges, who will the defense introduce soon as part of its rebuttal? Mr. Cosby has said he will not testify. Might he change his mind? • The ... Bill Cosby Feared Looking Like “A Dirty Old Man”, Jury Hears Deadline The Latest: More Cosby deposition read into court record Washington Post Bill Cosby trial Day 5: Jury hears more about Cosby, sex and quaaludes USA TODAY ABC News - Fox News - TMZ.com - Page Six all 274 news articles »
 
 
 Full story on F3News: [Bill Cosby Trial Day 4: More Testimony, but No Mrs. Cosby - New York Times](http://www.f3nws.com/n/kKyJNF)

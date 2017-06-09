@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chris Holtmann to leave Butler for Ohio State coaching vacancy - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2015%2F0615%2Fncb_a_butlerts_1296x729.jpg)
 
-ESPN Chris Holtmann to leave Butler for Ohio State coaching vacancy ESPN Chris Holtmann will leave Butler to become the next men's basketball coach at Ohio State, agreeing to an eight-year deal with the Buckeyes, sources confirmed to ESPN on Friday. Holtmann, 45, will receive $3 million per season as the replacement for ... Chris Holtmann Reportedly Agrees to Ohio State Contract After Thad Matta's Exit Bleacher Report Chris Holtmann's contract at Ohio State will be 8 years, $3.1 million per year: Reports cleveland.com Ohio State reportedly hires Butler's Chris Holtmann to be its next men's basketball coach Washington Post CBSSports.com - Big Ten Network - Sports Illustrated - The Columbus Dispatch all 117 news articles »
+ESPN Chris Holtmann to leave Butler for Ohio State coaching vacancy ESPN Chris Holtmann will leave Butler to become the next men's basketball coach at Ohio State, agreeing to an eight-year deal with the Buckeyes, sources confirmed to ESPN on Friday. Holtmann, 45, will receive $3 million per season as the replacement for ... Butler's Chris Holtmann named new Ohio State basketball coach, replacing Thad Matta cleveland.com Holtmann leaves Butler to take reins at Ohio State FOXSports.com One word to describe new Ohio State coach Chris Holtmann: 'Phenomenal' Sporting News ABC News - Indianapolis Star - Omaha World-Herald all 160 news articles »
 
 
 Full story on F3News: [Chris Holtmann to leave Butler for Ohio State coaching vacancy - ESPN](http://www.f3nws.com/n/2HDSXH)

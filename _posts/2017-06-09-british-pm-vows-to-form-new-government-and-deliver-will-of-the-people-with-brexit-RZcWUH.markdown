@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British PM vows to form new government and deliver 'will of the people' with Brexit"
-date: 2017-06-09 15:04:42Z
+date: 2017-06-09 16:14:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Voters across the UK are casting their ballots in a snap general election that c
 
 Full story on F3News: [British PM vows to form new government and deliver 'will of the people' with Brexit](http://www.f3nws.com/n/RZcWUH)
 
-> Posted on: Friday, June 9, 2017 8:04:42 PM
+> Posted on: Friday, June 9, 2017 9:14:21 PM
