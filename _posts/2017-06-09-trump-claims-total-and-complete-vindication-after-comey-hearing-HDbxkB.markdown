@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump claims 'total and complete vindication' after Comey hearing"
-date: 2017-06-09 12:20:24Z
+date: 2017-06-09 14:53:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is claiming "total and complete vindication" the day afte
 
 Full story on F3News: [Trump claims 'total and complete vindication' after Comey hearing](http://www.f3nws.com/n/HDbxkB)
 
-> Posted on: Friday, June 9, 2017 5:20:24 PM
+> Posted on: Friday, June 9, 2017 7:53:57 PM

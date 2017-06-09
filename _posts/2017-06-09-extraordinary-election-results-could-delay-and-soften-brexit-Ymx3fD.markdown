@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Extraordinary election results could delay and soften Brexit"
-date: 2017-06-09 13:18:13Z
+date: 2017-06-09 14:43:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Extraordinary election results could delay and soften Brexit](http://www.f3nws.com/n/Ymx3fD)
 
-> Posted on: Friday, June 9, 2017 6:18:13 PM
+> Posted on: Friday, June 9, 2017 7:43:10 PM
