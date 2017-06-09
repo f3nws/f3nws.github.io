@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What is a hung Parliament?"
-date: 2017-06-09 05:50:58Z
+date: 2017-06-09 10:21:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The UK general election could result British Prime Minister Theresa May losing h
 
 Full story on F3News: [What is a hung Parliament?](http://www.f3nws.com/n/XNNYAB)
 
-> Posted on: Friday, June 9, 2017 10:50:58 AM
+> Posted on: Friday, June 9, 2017 3:21:24 PM

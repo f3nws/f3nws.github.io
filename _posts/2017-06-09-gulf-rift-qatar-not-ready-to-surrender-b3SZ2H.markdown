@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gulf rift: Qatar 'not ready to surrender'"
-date: 2017-06-09 06:05:20Z
+date: 2017-06-09 10:28:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Qatar has said "it's not ready to surrender" as the diplomatic stranglehold plac
 
 Full story on F3News: [Gulf rift: Qatar 'not ready to surrender'](http://www.f3nws.com/n/b3SZ2H)
 
-> Posted on: Friday, June 9, 2017 11:05:20 AM
+> Posted on: Friday, June 9, 2017 3:28:47 PM
