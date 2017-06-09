@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Queen's permission sought: May visited Buckingham Palace"
-date: 2017-06-09 11:37:18Z
+date: 2017-06-09 12:55:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May's Conservative Party appears on course to los
 
 Full story on F3News: [Queen's permission sought: May visited Buckingham Palace](http://www.f3nws.com/n/RW3zmG)
 
-> Posted on: Friday, June 9, 2017 4:37:18 PM
+> Posted on: Friday, June 9, 2017 5:55:51 PM
