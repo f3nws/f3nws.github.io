@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "May vows to 'get to work' after striking deal to form government"
+date: 2017-06-09 10:45:43Z
+categories: abc-top-stories
+---
+
+![May vows to 'get to work' after striking deal to form government](http://www.abc.net.au/news/image/8606686-1x1-700x700.jpg)
+
+UK Prime Minister Theresa May pledges to deliver a "successful Brexit" after confirming her diminished Conservative Party would form a government with the Northern Irish Democratic Unionists Party to stay in power.
+
+
+Full story on F3News: [May vows to 'get to work' after striking deal to form government](http://www.f3nws.com/n/KEajGG)
+
+> Posted on: Friday, June 9, 2017 3:45:43 PM

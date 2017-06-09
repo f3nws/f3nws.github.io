@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Britain and the EU: Shock result could soften Brexit"
-date: 2017-06-09 13:02:58Z
+date: 2017-06-09 13:18:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Britain and the EU: Shock result could soften Brexit](http://www.f3nws.com/n/Ymx3fD)
 
-> Posted on: Friday, June 9, 2017 6:02:58 PM
+> Posted on: Friday, June 9, 2017 6:18:13 PM
