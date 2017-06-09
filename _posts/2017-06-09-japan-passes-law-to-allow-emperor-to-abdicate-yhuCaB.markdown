@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan passes law to allow Emperor to abdicate"
-date: 2017-06-09 05:23:14Z
+date: 2017-06-09 07:40:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan's parliament has passed into law a historic bill that enables Emperor Akhi
 
 Full story on F3News: [Japan passes law to allow Emperor to abdicate](http://www.f3nws.com/n/yhuCaB)
 
-> Posted on: Friday, June 9, 2017 10:23:14 AM
+> Posted on: Friday, June 9, 2017 12:40:56 PM
