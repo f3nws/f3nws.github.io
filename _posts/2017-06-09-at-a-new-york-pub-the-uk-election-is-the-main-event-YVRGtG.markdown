@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At a New York pub, the UK election is the main event"
-date: 2017-06-09 18:41:02Z
+date: 2017-06-09 20:59:56Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ British expats and vacationers packed into the Churchill Tavern in midtown Manha
 
 Full story on F3News: [At a New York pub, the UK election is the main event](http://www.f3nws.com/n/YVRGtG)
 
-> Posted on: Friday, June 9, 2017 11:41:02 PM
+> Posted on: Saturday, June 10, 2017 1:59:56 AM
