@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Shiloh sailor reported overboard now found hiding in engine room - NavyTimes.com](http://snagfilms-a.akamaihd.net/db/59/eed465314cf7a2473647ffc8b40b/gsm3-mims.jpg)
 
-NavyTimes.com Shiloh sailor reported overboard now found hiding in engine room NavyTimes.com A sailor from the cruiser Shiloh whom Navy officials said fell overboard last week, triggering a massive search-and-rescue effort, has been discovered on board. Presumed dead after going missing June 8, Gas Turbine Systems Technician (Mechanical) 3rd ... Sailor presumed dead was just hiding aboard boat New York Post Navy sailor presumed overboard found hiding on ship: report My Fox Boston Navy sailor from Putnam County found in engine room after massive search called off Florida Times-Union Minneapolis Star Tribune all 31 news articles »
+NavyTimes.com Shiloh sailor reported overboard now found hiding in engine room NavyTimes.com A sailor from the cruiser Shiloh whom Navy officials said fell overboard last week, triggering a massive search-and-rescue effort, has been discovered on board. Presumed dead after going missing June 8, Gas Turbine Systems Technician (Mechanical) 3rd ... Navy sailor, believed to have fallen overboard, found hiding in engine room Washington Examiner USS Shiloh's missing sailor found hiding on board after 50-hour search UPI.com all 42 news articles »
 
 
 Full story on F3News: [Shiloh sailor reported overboard now found hiding in engine room - NavyTimes.com](http://www.f3nws.com/n/btdDmG)
