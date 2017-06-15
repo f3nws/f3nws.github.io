@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Otto Warmbier: Student Was 'Terrorized and Brutalized' by North Korea, Dad Says"
-date: 2017-06-15 19:00:07Z
+date: 2017-06-15 20:00:09Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Otto Warmbier: Student Was 'Terrorized and Brutalized' by North Korea, Dad Says](http://www.f3nws.com/n/aTrpvD)
 
-> Posted on: Friday, June 16, 2017 12:00:07 AM
+> Posted on: Friday, June 16, 2017 1:00:09 AM
