@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Polygamist Mormon sect leader Lyle Jeffs arrested in South Dakota - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170615110023-01-lyle-jeffs-mugshot-super-tease.jpg)
 
-CNN Polygamist Mormon sect leader Lyle Jeffs arrested in South Dakota CNN (CNN) Bishop Lyle Jeffs, leader of the Fundamentalist Church of Jesus Christ of Latter-day Saints, was arrested Wednesday night in South Dakota after almost a year on the run, according to the FBI. Jeffs, 57, is being held in Minnehaha County Jail in ... Lyle Jeffs, Polygamist Accused Of Fraud, Arrested After Nearly A Year On The Run NPR Lyle Jeffs captured: Fugitive leader of polygamous sect behind bars after being on run for year New York Daily News Lyle Jeffs, fugitive polygamist, captured in South Dakota after almost a year on the run Salt Lake Tribune U.S. News & World Report - Deseret News - KSFY all 28 news articles »
+CNN Polygamist Mormon sect leader Lyle Jeffs arrested in South Dakota CNN (CNN) Bishop Lyle Jeffs, leader of the Fundamentalist Church of Jesus Christ of Latter-day Saints, was arrested Wednesday night in South Dakota after almost a year on the run, according to the FBI. Jeffs, 57, is being held in Minnehaha County Jail in ... Lyle Jeffs' capture is just the latest twist involving embattled polygamist Utah sect New York Daily News Leader of Polygamous Breakaway Sect is Arrested After a Year on the Run New York Times Polygamous sect leader Lyle Jeffs captured after 1 year Washington Post BBC News - ABC News - U.S. News & World Report - Religion News Service all 57 news articles »
 
 
 Full story on F3News: [Polygamist Mormon sect leader Lyle Jeffs arrested in South Dakota - CNN](http://www.f3nws.com/n/BFRsvH)
