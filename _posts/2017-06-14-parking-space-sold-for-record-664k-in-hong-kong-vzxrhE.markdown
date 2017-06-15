@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![Parking space sold for record $664K in Hong Kong](https://img.rt.com/files/2017.06/article/5941498fc46188690d8b4635.jpg)
 
-
+Famous for its sky-high property prices, Hong Kong has just set another price record with the sale of a parking place which cost the owner more than the price of some two-bedroom homes in the city. Read Full Article at RT.com
 
 
 Full story on F3News: [Parking space sold for record $664K in Hong Kong](http://www.f3nws.com/n/vzxrhE)

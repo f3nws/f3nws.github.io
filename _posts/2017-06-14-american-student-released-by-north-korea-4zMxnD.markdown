@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American student released by North Korea"
-date: 2017-06-14 10:58:09Z
+date: 2017-06-14 23:41:42Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Otto Warmbier, an American college student jailed in North Korea, has been relea
 
 Full story on F3News: [American student released by North Korea](http://www.f3nws.com/n/4zMxnD)
 
-> Posted on: Wednesday, June 14, 2017 3:58:09 PM
+> Posted on: Thursday, June 15, 2017 4:41:42 AM
