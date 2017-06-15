@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly explosion rocks Chinese kindergarten"
-date: 2017-06-15 14:50:07Z
+date: 2017-06-15 18:51:42Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ At least seven people were killed and 66 people were injured in a blast Thursday
 
 Full story on F3News: [Deadly explosion rocks Chinese kindergarten](http://www.f3nws.com/n/YdeAFB)
 
-> Posted on: Thursday, June 15, 2017 7:50:07 PM
+> Posted on: Thursday, June 15, 2017 11:51:42 PM

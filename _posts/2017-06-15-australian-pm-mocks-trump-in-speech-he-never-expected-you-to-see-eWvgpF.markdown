@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian PM mocks Trump in speech he never expected you to see"
-date: 2017-06-15 15:04:00Z
+date: 2017-06-15 18:36:16Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Malcolm Turnbull's next phone call with Donald Trump could be awkward.
 
 Full story on F3News: [Australian PM mocks Trump in speech he never expected you to see](http://www.f3nws.com/n/eWvgpF)
 
-> Posted on: Thursday, June 15, 2017 8:04:00 PM
+> Posted on: Thursday, June 15, 2017 11:36:16 PM
