@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Doctors: Ex-North Korea detainee Otto Warmbier has severe brain injury, no signs of botulism - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170614065100-warmbier-stretcher-super-tease.jpg)
 
-CNN Doctors: Ex-North Korea detainee Otto Warmbier has severe brain injury, no signs of botulism CNN (CNN) [Breaking news update, published at 3:50 p.m. ET]. Released North Korea detainee Otto Warmbier suffered extensive brain damage and shows no current signs of botulism, doctors at the University of Cincinnati Medical Center said Thursday. Otto Warmbier's father denounces North Korea as his son is treated for a 'severe neurological injury' Washington Post Otto Warmbier, American Released From North Korean Prison, Was 'Brutalized': Family NBCNews.com Otto Warmbier has extensive brain damage, doctor says Fox News New York Times - BuzzFeed News - The Hill - ABC News all 690 news articles »
+CNN Doctors: Ex-North Korea detainee Otto Warmbier has severe brain injury, no signs of botulism CNN (CNN) [Breaking news update, published at 3:50 p.m. ET]. Released North Korea detainee Otto Warmbier suffered extensive brain damage and shows no current signs of botulism, doctors at the University of Cincinnati Medical Center said Thursday. Otto Warmbier has extensive loss of brain tissue, no obvious signs of trauma, doctors say Washington Post Otto Warmbier Was 'Brutalized and Terrorized' in North Korea, Father Says New York Times Otto Warmbier has extensive brain damage, doctor says Fox News NBCNews.com - BuzzFeed News - BBC News - Charlotte Observer all 709 news articles »
 
 
 Full story on F3News: [Doctors: Ex-North Korea detainee Otto Warmbier has severe brain injury, no signs of botulism - CNN](http://www.f3nws.com/n/a4UQcB)
