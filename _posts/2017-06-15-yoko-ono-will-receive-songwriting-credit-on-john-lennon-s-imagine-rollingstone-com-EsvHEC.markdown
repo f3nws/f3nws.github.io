@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine' - RollingStone.com](http://img.wennermedia.com/social/yoko-ono-songwriting-credit-imagine-read-1cadeadb-2177-4d11-a21e-2cda16e4627e.jpg)
 
-RollingStone.com Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine' RollingStone.com The National Music Publishers Association plans to add Yoko Ono as a songwriter on John Lennon's "Imagine." Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine'. By Elias Leight. 3 hours ago ... Yoko Ono To Receive Songwriting Credit On 'Imagine,' 48 Years Later NPR Yoko Ono set to receive credit with John Lennon as songwriter of 'Imagine' Washington Post Yoko Ono added to Imagine writing credits BBC News CNN - The Mercury News - Refinery29 - New York Times all 82 news articles »
+RollingStone.com Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine' RollingStone.com The National Music Publishers Association plans to add Yoko Ono as a songwriter on John Lennon's "Imagine." Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine'. By Elias Leight. 7 hours ago ... Yoko Ono To Receive Songwriting Credit On 'Imagine,' 48 Years Later NPR Yoko Ono set to receive credit with John Lennon as songwriter of 'Imagine' Washington Post NMPA Honors Jon Lennon's 'Imagine' with Centennial Song Award, Surprises Yoko Ono by Declaring Her Co-Writer Billboard NBCNews.com - BBC News - Bustle - CBS News all 96 news articles »
 
 
 Full story on F3News: [Yoko Ono Will Receive Songwriting Credit on John Lennon's 'Imagine' - RollingStone.com](http://www.f3nws.com/n/EsvHEC)

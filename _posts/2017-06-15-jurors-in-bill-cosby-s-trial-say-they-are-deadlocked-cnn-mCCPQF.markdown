@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jurors in Bill Cosby's trial say they are deadlocked - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170614094437-01-bill-cosby-0614-super-tease.jpg)
 
-TIME Jurors in Bill Cosby's trial say they are deadlocked CNN (CNN) Jurors in the Bill Cosby trial said Thursday they are deadlocked and cannot come to a unanimous consensus on any of the three counts of aggravated indecent assault the comedian faces. Judge Steven O'Neill asked the jury, which began deliberating ... Bill Cosby Trial: What to Watch for Next Variety Jury in Bill Cosby Trial Reports It Is Deadlocked New York Times Jury in Bill Cosby sexual assault trial says it is deadlocked Los Angeles Times ABC News - Washington Post - Jezebel - Vulture all 362 news articles »
+Los Angeles Times Jurors in Bill Cosby's trial say they are deadlocked CNN (CNN) Jurors in the Bill Cosby trial said Thursday they are deadlocked and cannot come to a unanimous consensus on any of the three counts of aggravated indecent assault the comedian faces. Judge Steven O'Neill asked the jury, which began deliberating ... Deadlocked jury in Bill Cosby trial struggles to end impasse Washington Post Bill Cosby Trial: What to Watch for Next Variety Jury in Bill Cosby Trial Reports It Is Deadlocked New York Times ABC News - Jezebel - Vulture - WPXI Pittsburgh all 684 news articles »
 
 
 Full story on F3News: [Jurors in Bill Cosby's trial say they are deadlocked - CNN](http://www.f3nws.com/n/mCCPQF)
