@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fatal fire tears through apartments in London"
-date: 2017-06-14 13:15:22Z
+date: 2017-06-14 15:05:32Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [Fatal fire tears through apartments in London](http://www.f3nws.com/n/NZvakG)
 
-> Posted on: Wednesday, June 14, 2017 6:15:22 PM
+> Posted on: Wednesday, June 14, 2017 8:05:32 PM
