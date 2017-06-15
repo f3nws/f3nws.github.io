@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump warned of a 'constitutional crisis'..."
-date: 2017-06-15 12:43:56Z
+date: 2017-06-15 12:43:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ As recently as last year, Republicans said there'd be a "crisis" if a sitting pr
 
 Full story on F3News: [Trump warned of a 'constitutional crisis'...](http://www.f3nws.com/n/ytryUJ)
 
-> Posted on: Thursday, June 15, 2017 5:43:56 PM
+> Posted on: Thursday, June 15, 2017 5:43:00 PM
