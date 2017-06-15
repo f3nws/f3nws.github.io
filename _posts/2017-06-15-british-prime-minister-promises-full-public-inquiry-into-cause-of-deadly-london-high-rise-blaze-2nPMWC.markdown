@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British Prime Minister promises full public inquiry into cause of deadly London high-rise blaze"
-date: 2017-06-15 13:03:12Z
+date: 2017-06-15 18:19:38Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [British Prime Minister promises full public inquiry into cause of deadly London high-rise blaze](http://www.f3nws.com/n/2nPMWC)
 
-> Posted on: Thursday, June 15, 2017 6:03:12 PM
+> Posted on: Thursday, June 15, 2017 11:19:38 PM
