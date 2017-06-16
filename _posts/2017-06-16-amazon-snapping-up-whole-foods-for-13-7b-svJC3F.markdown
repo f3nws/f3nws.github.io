@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon snapping up Whole Foods for $13.7b"
-date: 2017-06-16 15:47:06Z
+date: 2017-06-16 19:47:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Amazon snapping up Whole Foods for $13.7b](http://www.f3nws.com/n/svJC3F)
 
-> Posted on: Friday, June 16, 2017 8:47:06 PM
+> Posted on: Saturday, June 17, 2017 12:47:30 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alex Jones Says He Recorded Entire Interview with NBC's Megyn Kelly"
-date: 2017-06-16 19:00:04Z
+date: 2017-06-16 20:00:12Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Alex Jones Says He Recorded Entire Interview with NBC's Megyn Kelly](http://www.f3nws.com/n/4cUyGC)
 
-> Posted on: Saturday, June 17, 2017 12:00:04 AM
+> Posted on: Saturday, June 17, 2017 1:00:12 AM

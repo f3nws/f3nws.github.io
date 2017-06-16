@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman, 20, guilty of involuntary manslaughter in text suicide case"
-date: 2017-06-16 17:15:29Z
+date: 2017-06-16 19:08:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a case that hinged largely on a teenage couple's intimate text messages, Mich
 
 Full story on F3News: [Woman, 20, guilty of involuntary manslaughter in text suicide case](http://www.f3nws.com/n/sBFstB)
 
-> Posted on: Friday, June 16, 2017 10:15:29 PM
+> Posted on: Saturday, June 17, 2017 12:08:38 AM
