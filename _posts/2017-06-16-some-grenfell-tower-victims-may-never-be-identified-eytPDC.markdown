@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Some Grenfell Tower victims may never be identified"
-date: 2017-06-16 18:14:41Z
+date: 2017-06-16 19:04:16Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ British police say they may never be able to identify all of those who perished 
 
 Full story on F3News: [Some Grenfell Tower victims may never be identified](http://www.f3nws.com/n/eytPDC)
 
-> Posted on: Friday, June 16, 2017 11:14:41 PM
+> Posted on: Saturday, June 17, 2017 12:04:16 AM
