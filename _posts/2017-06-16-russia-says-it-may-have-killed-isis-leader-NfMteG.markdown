@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia says it may have killed ISIS leader"
-date: 2017-06-16 14:31:13Z
+date: 2017-06-16 15:10:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia's Defense Ministry says it is investigating reports that ISIS leader Abu 
 
 Full story on F3News: [Russia says it may have killed ISIS leader](http://www.f3nws.com/n/NfMteG)
 
-> Posted on: Friday, June 16, 2017 7:31:13 PM
+> Posted on: Friday, June 16, 2017 8:10:19 PM

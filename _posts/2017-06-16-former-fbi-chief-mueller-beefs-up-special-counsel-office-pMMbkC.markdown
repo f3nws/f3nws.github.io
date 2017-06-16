@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former FBI chief Mueller beefs up special counsel office"
-date: 2017-06-16 11:28:56Z
+date: 2017-06-16 15:14:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Special counsel Robert Mueller has brought 13 lawyers on board to handle the Rus
 
 Full story on F3News: [Former FBI chief Mueller beefs up special counsel office](http://www.f3nws.com/n/pMMbkC)
 
-> Posted on: Friday, June 16, 2017 4:28:56 PM
+> Posted on: Friday, June 16, 2017 8:14:38 PM
