@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon to buy Whole Foods for $13.7 billion     - CNET"
-date: 2017-06-16 13:37:31Z
+date: 2017-06-16 14:08:40Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The online retailer is stepping into the physical retail world in a big, big way
 
 Full story on F3News: [Amazon to buy Whole Foods for $13.7 billion     - CNET](http://www.f3nws.com/n/udyUpB)
 
-> Posted on: Friday, June 16, 2017 6:37:31 PM
+> Posted on: Friday, June 16, 2017 7:08:40 PM

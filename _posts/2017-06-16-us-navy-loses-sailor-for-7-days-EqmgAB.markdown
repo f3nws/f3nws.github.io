@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy loses sailor for 7 days"
-date: 2017-06-16 00:43:58Z
+date: 2017-06-16 14:18:22Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A US Navy sailor who was thought to have gone overboard seven days ago and was p
 
 Full story on F3News: [US Navy loses sailor for 7 days](http://www.f3nws.com/n/EqmgAB)
 
-> Posted on: Friday, June 16, 2017 5:43:58 AM
+> Posted on: Friday, June 16, 2017 7:18:22 PM
