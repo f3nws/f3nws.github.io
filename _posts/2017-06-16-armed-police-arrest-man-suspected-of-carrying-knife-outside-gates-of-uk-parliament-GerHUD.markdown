@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Armed police arrest man suspected of carrying knife outside gates of UK parliament"
+date: 2017-06-16 10:25:00Z
+categories: rt-daily-news
+---
+
+![Armed police arrest man suspected of carrying knife outside gates of UK parliament](https://img.rt.com/files/static.en/article/breaking.jpg)
+
+UK police have arrested a man suspected of carrying a knife outside the Palace of Westminster. Read Full Article at RT.com
+
+
+Full story on F3News: [Armed police arrest man suspected of carrying knife outside gates of UK parliament](http://www.f3nws.com/n/GerHUD)
+
+> Posted on: Friday, June 16, 2017 3:25:00 PM

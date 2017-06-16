@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump gave away his most consequential decision to the Pentagon"
-date: 2017-06-16 04:47:05Z
+date: 2017-06-16 09:58:03Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Trump has given Secretary of Defense James Mattis full authority to se
 
 Full story on F3News: [Trump gave away his most consequential decision to the Pentagon](http://www.f3nws.com/n/PZtjgG)
 
-> Posted on: Friday, June 16, 2017 9:47:05 AM
+> Posted on: Friday, June 16, 2017 2:58:03 PM

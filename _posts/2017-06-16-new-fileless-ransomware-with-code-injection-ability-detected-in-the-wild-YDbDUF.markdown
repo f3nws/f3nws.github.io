@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Fileless Ransomware with Code Injection Ability Detected in the Wild"
-date: 2017-06-16 10:09:36Z
+date: 2017-06-16 10:21:41Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ It is no secret that hackers and cybercriminals are becoming dramatically more a
 
 Full story on F3News: [New Fileless Ransomware with Code Injection Ability Detected in the Wild](http://www.f3nws.com/n/YDbDUF)
 
-> Posted on: Friday, June 16, 2017 3:09:36 PM
+> Posted on: Friday, June 16, 2017 3:21:41 PM
