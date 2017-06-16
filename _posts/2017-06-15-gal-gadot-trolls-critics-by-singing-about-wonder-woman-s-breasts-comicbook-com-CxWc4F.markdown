@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Gal Gadot Trolls Critics By Singing About Wonder Woman's Breasts - Comicbook.com](http://media.comicbook.com/2017/06/wonder-woman-gal-gadot-1003054-640x320.png)
 
-Comicbook.com Gal Gadot Trolls Critics By Singing About Wonder Woman's Breasts Comicbook.com Wonder Woman's unstoppable box office has proven its merit to most haters, but there are still those who want to pick at dead arguments. Over the last few months, netizens have tried to create controversy out of Gal Gadot's body hair and cleavage, but ... Yes, Gal Gadot Wore Platform Flip Flops on the Red Carpet PEOPLE.com 'Wonder Woman' Will Be Screened in Jordan, Despite Controversy Over Israeli Actress Gal Gadot Newsweek 15 Crazy Little Details In "Wonder Woman" You 100% Missed BuzzFeed News The Mary Sue - HuffPost - Hypable - Philly.com all 48 news articles »
+Comicbook.com Gal Gadot Trolls Critics By Singing About Wonder Woman's Breasts Comicbook.com Wonder Woman's unstoppable box office has proven its merit to most haters, but there are still those who want to pick at dead arguments. Over the last few months, netizens have tried to create controversy out of Gal Gadot's body hair and cleavage, but ... Yes, Gal Gadot Wore Platform Flip Flops on the Red Carpet PEOPLE.com Wonder Woman fans are hiding swords in their dresses EW.com 'Wonder Woman' Will Be Screened in Jordan, Despite Controversy Over Israeli Actress Gal Gadot Newsweek The Mary Sue - TIME - HuffPost - Cinema Blend all 61 news articles »
 
 
 Full story on F3News: [Gal Gadot Trolls Critics By Singing About Wonder Woman's Breasts - Comicbook.com](http://www.f3nws.com/n/CxWc4F)
