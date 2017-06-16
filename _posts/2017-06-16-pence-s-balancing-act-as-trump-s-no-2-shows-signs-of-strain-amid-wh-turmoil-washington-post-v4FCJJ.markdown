@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Pence's balancing act as Trump's No. 2 shows signs of strain amid WH turmoil - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/05/National-Politics/Images/Botsford170602Trump16148.JPG)
 
-Washington Post Pence's balancing act as Trump's No. 2 shows signs of strain amid WH turmoil Washington Post Vice President Pence turned 58 on the same day that two senior intelligence officials fielded questions before a Senate committee about the FBI's ongoing Russia probe — and one day before fired FBI Director James B. Comey appeared before the same ... Man on a Wire: Mike Pence's Tightrope Act Politico Vice President Mike Pence hires outside counsel in Russia probe CNN Pence Hires His Own Lawyer For Russia Probes HuffPost NPR - The Hill - USA TODAY - Chicago Tribune all 128 news articles »
+Washington Post Pence's balancing act as Trump's No. 2 shows signs of strain amid WH turmoil Washington Post Vice President Pence turned 58 on the same day that two senior intelligence officials fielded questions before a Senate committee about the FBI's ongoing Russia probe — and one day before fired FBI Director James B. Comey appeared before the same ... Pence hires his own lawyer for Russia probes Reuters Trump lashes out at Russia probe while Pence hires a lawyer Chicago Tribune 5 things you need to know Friday USA TODAY BBC News - MSNBC - POLITICO Magazine - WBUR all 127 news articles »
 
 
 Full story on F3News: [Pence's balancing act as Trump's No. 2 shows signs of strain amid WH turmoil - Washington Post](http://www.f3nws.com/n/v4FCJJ)
