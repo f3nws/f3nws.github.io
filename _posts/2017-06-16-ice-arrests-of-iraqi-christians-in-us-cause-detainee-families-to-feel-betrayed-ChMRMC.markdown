@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ICE arrests of Iraqi Christians in US cause detainee families to feel betrayed"
-date: 2017-06-16 20:30:08Z
+date: 2017-06-16 21:30:08Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Members of the Iraqi Christian community in the U.S. are expressing feelings of 
 
 Full story on F3News: [ICE arrests of Iraqi Christians in US cause detainee families to feel betrayed](http://www.f3nws.com/n/ChMRMC)
 
-> Posted on: Saturday, June 17, 2017 1:30:08 AM
+> Posted on: Saturday, June 17, 2017 2:30:08 AM
