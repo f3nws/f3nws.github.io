@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Amazon wants to own Whole Foods and sell you groceries     - CNET"
-date: 2017-06-16 17:56:21Z
+date: 2017-06-16 18:03:21Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ For $13.7 billion, the world's largest online retailer is gaining 460 upscale gr
 
 Full story on F3News: [Why Amazon wants to own Whole Foods and sell you groceries     - CNET](http://www.f3nws.com/n/udyUpB)
 
-> Posted on: Friday, June 16, 2017 10:56:21 PM
+> Posted on: Friday, June 16, 2017 11:03:21 PM
