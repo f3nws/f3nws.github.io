@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump confirms he's under investigation, takes swipe at Rosenstein"
-date: 2017-06-16 14:07:00Z
+date: 2017-06-16 16:04:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump confirmed he is under investigation by Special Counsel Robert Mu
 
 Full story on F3News: [Trump confirms he's under investigation, takes swipe at Rosenstein](http://www.f3nws.com/n/PkfVf)
 
-> Posted on: Friday, June 16, 2017 7:07:00 PM
+> Posted on: Friday, June 16, 2017 9:04:00 PM
