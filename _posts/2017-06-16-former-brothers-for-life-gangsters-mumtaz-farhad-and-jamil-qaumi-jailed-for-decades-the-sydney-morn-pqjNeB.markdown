@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Former Brothers for Life gangsters Mumtaz, Farhad and Jamil Qaumi jailed for decades - The Sydney Morning Herald"
+date: 2017-06-16 03:01:00Z
+categories: google-news-australia
+---
+
+![Former Brothers for Life gangsters Mumtaz, Farhad and Jamil Qaumi jailed for decades - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/h/h/q/p/p/image.related.articleLeadwide.620x349.gws80e.png/1497582072654.jpg)
+
+The Sydney Morning Herald Former Brothers for Life gangsters Mumtaz, Farhad and Jamil Qaumi jailed for decades The Sydney Morning Herald Former Brothers for Life heavyweight Farhad Qaumi has been sentenced to 60 years behind bars and his brothers will spend decades in prison for their roles in a violent gangland war. The Qaumi brothers were part of the gang's Blacktown chapter when it ... Brothers 4 Life trio handed lengthy jail terms over 2013 gangland violence in western Sydney 9news.com.au Brothers 4 Life gang leader Farhad Qaumi sentenced to 60 years' jail for murder of Joe Antoun ABC Online all 5 news articles »
+
+
+Full story on F3News: [Former Brothers for Life gangsters Mumtaz, Farhad and Jamil Qaumi jailed for decades - The Sydney Morning Herald](http://www.f3nws.com/n/pqjNeB)
+
+> Posted on: Friday, June 16, 2017 8:01:00 AM
