@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London fire victim on phone with parents when she died"
-date: 2017-06-16 19:52:30Z
+date: 2017-06-16 20:42:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Architect Gloria Trevisan was on the phone with her family in Italy when she bec
 
 Full story on F3News: [London fire victim on phone with parents when she died](http://www.f3nws.com/n/WsU2BB)
 
-> Posted on: Saturday, June 17, 2017 12:52:30 AM
+> Posted on: Saturday, June 17, 2017 1:42:45 AM
