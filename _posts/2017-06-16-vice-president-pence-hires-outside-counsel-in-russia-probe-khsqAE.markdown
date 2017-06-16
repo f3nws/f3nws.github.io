@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vice President Pence hires outside counsel in Russia probe"
-date: 2017-06-16 04:49:02Z
+date: 2017-06-16 17:47:18Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Vice President Mike Pence has hired his own lawyer to represent him in the speci
 
 Full story on F3News: [Vice President Pence hires outside counsel in Russia probe](http://www.f3nws.com/n/khsqAE)
 
-> Posted on: Friday, June 16, 2017 9:49:02 AM
+> Posted on: Friday, June 16, 2017 10:47:18 PM
