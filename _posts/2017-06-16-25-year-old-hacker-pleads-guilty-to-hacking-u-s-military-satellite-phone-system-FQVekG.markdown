@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "25-Year-Old Hacker Pleads Guilty to Hacking U.S. Military Satellite Phone System"
-date: 2017-06-16 08:52:06Z
+date: 2017-06-16 09:00:23Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ A British computer hacker who allegedly hacked a United States Department of Def
 
 Full story on F3News: [25-Year-Old Hacker Pleads Guilty to Hacking U.S. Military Satellite Phone System](http://www.f3nws.com/n/FQVekG)
 
-> Posted on: Friday, June 16, 2017 1:52:06 PM
+> Posted on: Friday, June 16, 2017 2:00:23 PM
