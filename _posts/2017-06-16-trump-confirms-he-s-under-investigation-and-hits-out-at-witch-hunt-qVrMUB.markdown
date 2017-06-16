@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump confirms he's under investigation and hits out at 'witch hunt'"
-date: 2017-06-16 15:42:04Z
+date: 2017-06-16 17:14:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, in a furious Friday morning message, confirmed that he i
 
 Full story on F3News: [Trump confirms he's under investigation and hits out at 'witch hunt'](http://www.f3nws.com/n/qVrMUB)
 
-> Posted on: Friday, June 16, 2017 8:42:04 PM
+> Posted on: Friday, June 16, 2017 10:14:13 PM
