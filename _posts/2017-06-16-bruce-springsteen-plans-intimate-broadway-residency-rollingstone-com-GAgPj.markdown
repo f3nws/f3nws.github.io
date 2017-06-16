@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bruce Springsteen Plans Intimate Broadway Residency - RollingStone.com](http://img.wennermedia.com/social/rs-bruce-springsteen-824170db-dfbd-4ae7-a96c-9057fb27c231.jpg)
 
-RollingStone.com Bruce Springsteen Plans Intimate Broadway Residency RollingStone.com Bruce Springsteen will reportedly stage an intimate Broadway residency, with the rocker performing eight weeks of solo concerts at a New York theatre. Credit: Jemal Countess/Getty. By Daniel Kreps. 2 hours ago ... Bruce Springsteen heads to Broadway this fall New York Post all 27 news articles »
+RollingStone.com Bruce Springsteen Plans Intimate Broadway Residency RollingStone.com Bruce Springsteen will reportedly stage an intimate Broadway residency, with the rocker performing eight weeks of solo concerts at a New York theatre. Credit: Jemal Countess/Getty. By Daniel Kreps. 5 hours ago ... Bruce Springsteen Is Headed to Broadway Vanity Fair Bruce Springsteen Reportedly Planning Two-Month Broadway Run This Fall Ultimate Classic Rock Is Bruce Springsteen Headed for Broadway? Variety Philly.com - SPIN - HuffPost - Vulture all 33 news articles »
 
 
 Full story on F3News: [Bruce Springsteen Plans Intimate Broadway Residency - RollingStone.com](http://www.f3nws.com/n/GAgPj)
