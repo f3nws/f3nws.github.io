@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: I am being probed over Comey firing"
-date: 2017-06-16 13:55:50Z
+date: 2017-06-16 14:35:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, in a furious Friday morning message, confirmed that he i
 
 Full story on F3News: [Trump: I am being probed over Comey firing](http://www.f3nws.com/n/qVrMUB)
 
-> Posted on: Friday, June 16, 2017 6:55:50 PM
+> Posted on: Friday, June 16, 2017 7:35:39 PM
