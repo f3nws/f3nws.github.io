@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Vice President Mike Pence hires outside counsel in Russia probe - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170609110537-pence-arrival-screengrab-0609-super-tease.jpg)
 
-CNN Vice President Mike Pence hires outside counsel in Russia probe CNN Washington (CNN) Vice President Mike Pence has hired his own lawyer to represent him in the special counsel investigation and congressional inquiries into Russia's role in the 2016 election. The lawyer, Richard Cullen, is a former Virginia attorney ... Pence hires outside counsel to deal with Russia probe inquiries Washington Post Pence Hires Criminal Defense Lawyer to Aid Him in Investigations New York Times Vice President Pence Hires Outside Lawyer To Deal With Russia Inquiries NPR Politico - The Hill - BBC News - NBCNews.com all 216 news articles »
+CNN Vice President Mike Pence hires outside counsel in Russia probe CNN Washington (CNN) Vice President Mike Pence has hired his own lawyer to represent him in the special counsel investigation and congressional inquiries into Russia's role in the 2016 election. The lawyer, Richard Cullen, is a former Virginia attorney ... Pence Hires Outside Counsel To Deal With Russia Probe Inquiries HuffPost Vice President Pence Hires Outside Lawyer To Deal With Russia Inquiries NPR Pence hires outside counsel for Russia probe The Hill Reuters - Chicago Tribune - USA TODAY - BBC News all 109 news articles »
 
 
 Full story on F3News: [Vice President Mike Pence hires outside counsel in Russia probe - CNN](http://www.f3nws.com/n/khsqAE)
