@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Adopts Harder Line On Cuba - NPR](https://media.npr.org/assets/img/2017/06/15/ap_17166513495889_wide-4bf799ebf0dfb16e46974f84a833c66fddebb6a4.jpg?s=1400)
 
-NPR Trump Adopts Harder Line On Cuba NPR President Trump is preparing to announce new restrictions on travel and trade with Cuba, backtracking on the policy of greater engagement with the island pushed by his predecessor, Barack Obama. Trump will not go so far as to sever diplomatic ties with ... With shift on Cuba, Trump could undercut his company's hotel-industry rivals Washington Post Moving to Scuttle Obama Legacy, Donald Trump to Crack Down on Cuba New York Times Trump's new Cuba policy restricts tourism, military business The Hill U.S. News & World Report - Reuters - HuffPost - Los Angeles Times all 172 news articles »
+NPR Trump Adopts Harder Line On Cuba NPR President Trump is preparing to announce new restrictions on travel and trade with Cuba, backtracking on the policy of greater engagement with the island pushed by his predecessor, Barack Obama. Trump will not go so far as to sever diplomatic ties with ... Trump to revise parts of Obama's Cuba policy Washington Post Moving to Scuttle Obama Legacy, Donald Trump to Crack Down on Cuba New York Times Trump's new Cuba policy restricts tourism, military business The Hill New York Daily News - U.S. News & World Report - Los Angeles Times - HuffPost all 195 news articles »
 
 
 Full story on F3News: [Trump Adopts Harder Line On Cuba - NPR](http://www.f3nws.com/n/xGFUSE)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Student released from North Korea has suffered extensive brain damage, doctors say"
-date: 2017-06-16 00:06:11Z
+date: 2017-06-16 04:02:49Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Doctors caring for released North Korea detainee Otto Warmbier said he has not s
 
 Full story on F3News: [Student released from North Korea has suffered extensive brain damage, doctors say](http://www.f3nws.com/n/a4UQcB)
 
-> Posted on: Friday, June 16, 2017 5:06:11 AM
+> Posted on: Friday, June 16, 2017 9:02:49 AM
