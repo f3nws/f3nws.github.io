@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaii soldier on surfboard dead after boat runs over him"
-date: 2017-06-16 12:00:15Z
+date: 2017-06-16 12:30:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hawaii officials say an Army soldier is dead after he was run over by a fishing 
 
 Full story on F3News: [Hawaii soldier on surfboard dead after boat runs over him](http://www.f3nws.com/n/2XDaKF)
 
-> Posted on: Friday, June 16, 2017 5:00:15 PM
+> Posted on: Friday, June 16, 2017 5:30:08 PM
