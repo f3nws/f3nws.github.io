@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seven missing after US destroyer collision"
-date: 2017-06-17 07:16:15Z
+date: 2017-06-17 08:18:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seven US sailors are missing and the commanding officer of a US destroyer is amo
 
 Full story on F3News: [Seven missing after US destroyer collision](http://www.f3nws.com/n/TTFHAE)
 
-> Posted on: Saturday, June 17, 2017 12:16:15 PM
+> Posted on: Saturday, June 17, 2017 1:18:38 PM
