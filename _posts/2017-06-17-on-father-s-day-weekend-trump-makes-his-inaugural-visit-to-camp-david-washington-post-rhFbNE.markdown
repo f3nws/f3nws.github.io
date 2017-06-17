@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![On Father's Day weekend, Trump makes his inaugural visit to Camp David - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/17/National-Politics/Images/Trump_20522-97364.jpg)
 
-Washington Post On Father's Day weekend, Trump makes his inaugural visit to Camp David Washington Post This weekend, the Trump family is trading ritzy for rustic. Instead of heading to one of his plush properties, President Trump boarded Marine One late Saturday morning en route to Camp David, the secluded government-owned retreat in Maryland's Catoctin ... Trump makes first presidential visit to 'rustic' Camp David Fox News Trump heads to Camp David for first stay as president USA TODAY Trump ditches resorts to rough it at Camp David New York Daily News Washington Examiner - myfox8.com - Hollywood Life - Mic all 36 news articles »
+Washington Post On Father's Day weekend, Trump makes his inaugural visit to Camp David Washington Post This weekend, the Trump family is trading ritzy for rustic. Instead of heading to one of his plush properties, President Trump boarded Marine One late Saturday morning en route to Camp David, the secluded government-owned retreat in Maryland's Catoctin ... Trump makes first presidential visit to 'rustic' Camp David Fox News Trump heads to Camp David for first stay as president USA TODAY Trump family flies to Camp David for Father's Day weekend AOL New York Daily News - Washington Examiner - myfox8.com - Hollywood Life all 38 news articles »
 
 
 Full story on F3News: [On Father's Day weekend, Trump makes his inaugural visit to Camp David - Washington Post](http://www.f3nws.com/n/rhFbNE)

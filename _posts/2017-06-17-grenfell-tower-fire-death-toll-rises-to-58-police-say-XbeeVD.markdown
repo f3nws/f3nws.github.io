@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Grenfell tower fire death toll rises to 58, police say](http://www.abc.net.au/news/image/8628386-1x1-700x700.jpg)
 
-London police raise the number of deaths either confirmed or presumed dead to 58 following the horrific inferno that turned the city's Grenfell Tower public housing block into a charred hulk.
+London police raise the number of confirmed or presumed dead to 58 following the horrific inferno that turned the city's Grenfell Tower public housing block into a charred hulk.
 
 
 Full story on F3News: [Grenfell tower fire death toll rises to 58, police say](http://www.f3nws.com/n/XbeeVD)

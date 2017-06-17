@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "May says support to families in aftermath not 'good enough'"
-date: 2017-06-17 18:47:02Z
+date: 2017-06-17 21:17:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May said that support for families in the initial
 
 Full story on F3News: [May says support to families in aftermath not 'good enough'](http://www.f3nws.com/n/CBCrb)
 
-> Posted on: Saturday, June 17, 2017 11:47:02 PM
+> Posted on: Sunday, June 18, 2017 2:17:55 AM
