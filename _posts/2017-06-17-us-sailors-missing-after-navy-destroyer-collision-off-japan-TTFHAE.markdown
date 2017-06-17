@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US sailors missing after Navy destroyer collision off Japan"
-date: 2017-06-17 12:36:43Z
+date: 2017-06-17 13:12:50Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seven US sailors are missing and the commanding officer of a US destroyer is amo
 
 Full story on F3News: [US sailors missing after Navy destroyer collision off Japan](http://www.f3nws.com/n/TTFHAE)
 
-> Posted on: Saturday, June 17, 2017 5:36:43 PM
+> Posted on: Saturday, June 17, 2017 6:12:50 PM
