@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![For Trump, a selective focus on human rights - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170616144239-04-trump-cuba-speech-0616-super-tease.jpg)
 
-CNN For Trump, a selective focus on human rights CNN (CNN) When President Donald Trump traveled to Saudi Arabia last month, he danced with a sword and sipped coffee with the king, but made no mention of the country's political oppression or routine beheadings. Sitting aside Egyptian President Abdel ... Republicans divided as Trump reverses some Obama Cuba policy Washington Post Cuba Is Trump's Most Revealing Foreign-Policy Blunder New York Magazine Castro slams Trump's 'hostile rhetoric' toward Cuba The Hill CNBC - Reuters - Los Angeles Times - TIME all 947 news articles »
+CNN For Trump, a selective focus on human rights CNN (CNN) When President Donald Trump traveled to Saudi Arabia last month, he danced with a sword and sipped coffee with the king, but made no mention of the country's political oppression or routine beheadings. Sitting aside Egyptian President Abdel ... Trump's Washington hotel saw almost $20 million in revenue ABC News Republicans divided as Trump reverses some Obama Cuba policy Washington Post Cuba to President Trump: We need to continue to cooperate and coexist Miami Herald all 962 news articles »
 
 
 Full story on F3News: [For Trump, a selective focus on human rights - CNN](http://www.f3nws.com/n/NpccVJ)
