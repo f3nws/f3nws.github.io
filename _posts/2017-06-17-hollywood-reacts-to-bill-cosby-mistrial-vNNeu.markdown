@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hollywood reacts to Bill Cosby mistrial"
-date: 2017-06-17 20:43:12Z
+date: 2017-06-17 22:17:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Celebrities took to social media‪ Saturday ‬to comment on the mistrial of Bi
 
 Full story on F3News: [Hollywood reacts to Bill Cosby mistrial](http://www.f3nws.com/n/vNNeu)
 
-> Posted on: Sunday, June 18, 2017 1:43:12 AM
+> Posted on: Sunday, June 18, 2017 3:17:46 AM
