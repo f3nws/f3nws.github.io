@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![On Father's Day weekend, Trump makes his inaugural visit to Camp David - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/17/National-Politics/Images/Trump_20522-97364.jpg)
 
-Washington Post On Father's Day weekend, Trump makes his inaugural visit to Camp David Washington Post This weekend, the Trump family is trading ritzy for rustic. Instead of heading to one of his plush properties, President Trump boarded Marine One late Saturday morning en route to Camp David, the secluded government-owned retreat in Maryland's Catoctin ... Trump visits Camp David for the first time The Week Magazine Trumps to stay at Camp David for first time this weekend Washington Examiner Protests Follow Minn. Officer's Acquittal Pueblo Chieftain The Hill - ABC News - Baltimore Sun - Newser all 25 news articles »
+Washington Post On Father's Day weekend, Trump makes his inaugural visit to Camp David Washington Post This weekend, the Trump family is trading ritzy for rustic. Instead of heading to one of his plush properties, President Trump boarded Marine One late Saturday morning en route to Camp David, the secluded government-owned retreat in Maryland's Catoctin ... Trump goes from regal to rustic this weekend at Camp David Washington Times Trump forgoes Mar-a-Lago this weekend to celebrate Father's Day with first Camp David getaway Mic Trump visits Camp David for the first time The Week Magazine Footwear News - Pueblo Chieftain - Yahoo Food - The Hill all 30 news articles »
 
 
 Full story on F3News: [On Father's Day weekend, Trump makes his inaugural visit to Camp David - Washington Post](http://www.f3nws.com/n/rhFbNE)
