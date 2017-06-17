@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump pulls back Obama's outreach to Cuba"
-date: 2017-06-17 17:14:47Z
+date: 2017-06-17 18:00:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump slammed former President Barack Obama's dealings with the
 
 Full story on F3News: [Trump pulls back Obama's outreach to Cuba](http://www.f3nws.com/n/SGgQeG)
 
-> Posted on: Saturday, June 17, 2017 10:14:47 PM
+> Posted on: Saturday, June 17, 2017 11:00:46 PM

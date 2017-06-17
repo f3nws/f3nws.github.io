@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mistrial declared in Bill Cosby's criminal trial as jury deadlocks"
-date: 2017-06-17 17:25:30Z
+date: 2017-06-17 18:21:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Mistrial declared in Bill Cosby's criminal trial as jury deadlocks](http://www.f3nws.com/n/EXAPEG)
 
-> Posted on: Saturday, June 17, 2017 10:25:30 PM
+> Posted on: Saturday, June 17, 2017 11:21:02 PM
