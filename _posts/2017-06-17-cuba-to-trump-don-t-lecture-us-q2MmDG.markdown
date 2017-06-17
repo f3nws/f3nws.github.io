@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cuba to Trump: Don't lecture us"
-date: 2017-06-17 21:31:50Z
+date: 2017-06-17 21:33:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Responding to President Donald Trump's announcement Friday that he is reversing 
 
 Full story on F3News: [Cuba to Trump: Don't lecture us](http://www.f3nws.com/n/q2MmDG)
 
-> Posted on: Sunday, June 18, 2017 2:31:50 AM
+> Posted on: Sunday, June 18, 2017 2:33:29 AM

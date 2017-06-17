@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby: A big legacy, forever tarnished"
-date: 2017-06-17 18:24:42Z
+date: 2017-06-17 21:36:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ For those who grew up with Bill Cosby's comedy, feelings of sadness shouldn't be
 
 Full story on F3News: [Bill Cosby: A big legacy, forever tarnished](http://www.f3nws.com/n/P32hJE)
 
-> Posted on: Saturday, June 17, 2017 11:24:42 PM
+> Posted on: Sunday, June 18, 2017 2:36:41 AM
