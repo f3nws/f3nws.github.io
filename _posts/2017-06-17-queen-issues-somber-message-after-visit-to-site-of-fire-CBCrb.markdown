@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Queen issues somber message after visit to site of fire"
-date: 2017-06-17 14:42:34Z
+date: 2017-06-17 15:11:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As London mourned the victims of a building inferno that left 30 people dead, Qu
 
 Full story on F3News: [Queen issues somber message after visit to site of fire](http://www.f3nws.com/n/CBCrb)
 
-> Posted on: Saturday, June 17, 2017 7:42:34 PM
+> Posted on: Saturday, June 17, 2017 8:11:43 PM
