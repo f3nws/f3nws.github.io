@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7 amazing things your smartphone's camera can do"
-date: 2017-06-17 10:00:10Z
+date: 2017-06-17 10:30:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Camera phones are changing the landscape of photography.Professionals are carryi
 
 Full story on F3News: [7 amazing things your smartphone's camera can do](http://www.f3nws.com/n/pASTrH)
 
-> Posted on: Saturday, June 17, 2017 3:00:10 PM
+> Posted on: Saturday, June 17, 2017 3:30:02 PM
