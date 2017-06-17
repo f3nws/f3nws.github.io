@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seven missing after US destroyer collision"
-date: 2017-06-17 14:50:07Z
+date: 2017-06-17 17:19:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The search was on Saturday for seven US sailors missing after an American warshi
 
 Full story on F3News: [Seven missing after US destroyer collision](http://www.f3nws.com/n/CC4THC)
 
-> Posted on: Saturday, June 17, 2017 7:50:07 PM
+> Posted on: Saturday, June 17, 2017 10:19:55 PM
