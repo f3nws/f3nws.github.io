@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "E3 2017: all the announcements from gaming's biggest show"
-date: 2017-06-16 17:27:20Z
+date: 2017-06-16 22:55:20Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ E3 is officially over - here's everything revealed this week at the massive gami
 
 Full story on F3News: [E3 2017: all the announcements from gaming's biggest show](http://www.f3nws.com/n/cKCnvH)
 
-> Posted on: Friday, June 16, 2017 10:27:20 PM
+> Posted on: Saturday, June 17, 2017 3:55:20 AM

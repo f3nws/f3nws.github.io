@@ -5,6 +5,8 @@ date: 2017-06-16 17:57:00Z
 categories: fox-news
 ---
 
+![Army's transgender policy includes guidelines on male pregnancies](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 The Army has begun mandatory transgender sensitivity training for soldiers. The training covers everything from “transfemale” soldiers to transgender shower etiquette to dealing with a male soldier who becomes pregnant.
 
 
