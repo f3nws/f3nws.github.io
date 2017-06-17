@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Seven missing after US destroyer collision](http://i2.cdn.cnn.com/cnnnext/dam/assets/170616175607-uss-fitzgerald-damage-super-tease.jpg)
 
-A US Navy destroyer is under its own power but has limited propulsion after colliding with a merchant ship about 56 nautical miles off the coast of Yokosuka, Japan, a US Navy official told CNN on Friday.
+Seven US sailors are missing and the commanding officer of a US destroyer is among the injured after the warship collided with a merchant ship off the coast of Japan, the US Navy said Friday.
 
 
 Full story on F3News: [Seven missing after US destroyer collision](http://www.f3nws.com/n/TTFHAE)
