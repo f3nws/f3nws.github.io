@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Large protests after Castile not-guilty verdict"
-date: 2017-06-17 03:50:51Z
+date: 2017-06-17 04:38:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Protests large and small were mounted Friday night after a jury found a police o
 
 Full story on F3News: [Large protests after Castile not-guilty verdict](http://www.f3nws.com/n/kv2Vq)
 
-> Posted on: Saturday, June 17, 2017 8:50:51 AM
+> Posted on: Saturday, June 17, 2017 9:38:29 AM

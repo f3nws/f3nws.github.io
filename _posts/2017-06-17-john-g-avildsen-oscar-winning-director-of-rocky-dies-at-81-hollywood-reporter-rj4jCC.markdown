@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![John G. Avildsen, Oscar-Winning Director of 'Rocky,' Dies at 81 - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/06/john_avildsen_10_-_h_2017.jpg)
 
-Hollywood Reporter John G. Avildsen, Oscar-Winning Director of 'Rocky,' Dies at 81 Hollywood Reporter He also guided Jack Lemmon to an Academy Award in 'Save the Tiger' and helmed the first three 'Karate Kid' films. John G. Avildsen, who won an Academy Award for directing Rocky and helmed the first three original Karate Kid movies, has died. He was 81. John G. Avildsen, Director of 'Rocky,' 'Karate Kid' Films, Dies at 81 Variety RIP John G. Avildsen, director of Rocky and The Karate Kid A.V. Club Rocky and Karate Kid director John G. Avildsen dies at 81 EW.com (blog) RollingStone.com - Newsmax - Cinema Blend - Deadline all 35 news articles »
+Hollywood Reporter John G. Avildsen, Oscar-Winning Director of 'Rocky,' Dies at 81 Hollywood Reporter He also guided Jack Lemmon to an Academy Award in 'Save the Tiger' and helmed the first three 'Karate Kid' films. John G. Avildsen, who won an Academy Award for directing Rocky and helmed the first three original Karate Kid movies, has died. He was 81. John Avildsen, Director of 'Rocky' and 'The Karate Kid,' Dies at 81 New York Times John Avildsen, Director Who Won Oscar for 'Rocky,' Dead at 81 NBCNews.com John Avildsen, Oscar-winning director of 'Rocky,' dead at 81 New York Daily News Variety - Los Angeles Times - A.V. Club - Heavy.com all 48 news articles »
 
 
 Full story on F3News: [John G. Avildsen, Oscar-Winning Director of 'Rocky,' Dies at 81 - Hollywood Reporter](http://www.f3nws.com/n/rj4jCC)
