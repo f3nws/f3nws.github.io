@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US protests follow Castile shooting verdict"
-date: 2017-06-17 07:55:38Z
+date: 2017-06-17 09:24:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Protests large and small were mounted Friday night after a jury found a police o
 
 Full story on F3News: [US protests follow Castile shooting verdict](http://www.f3nws.com/n/kv2Vq)
 
-> Posted on: Saturday, June 17, 2017 12:55:38 PM
+> Posted on: Saturday, June 17, 2017 2:24:16 PM
