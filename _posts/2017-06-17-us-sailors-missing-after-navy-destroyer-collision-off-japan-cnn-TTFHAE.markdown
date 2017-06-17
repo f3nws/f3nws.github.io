@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US sailors missing after Navy destroyer collision off Japan - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170616175607-uss-fitzgerald-damage-super-tease.jpg)
 
-CNN US sailors missing after Navy destroyer collision off Japan CNN Washington (CNN) Seven US sailors are missing and the commanding officer of a US destroyer is among the injured after the warship collided with a merchant ship off the coast of Japan, the US Navy said Friday. The USS Fitzgerald suffered damage to its ... US Sailors Unaccounted for After Navy Destroyer Collides With Ship Off Japan NBCNews.com US Navy destroyer collides with container ship near Japan, suffers damage Washington Post Woman dies after vehicle strikes guard rail in Madison County AL.com Reuters - New York Times - NPR - U.S. News & World Report all 268 news articles »
+CNN US sailors missing after Navy destroyer collision off Japan CNN Washington (CNN) Seven US sailors are missing and the commanding officer of a US destroyer is among the injured after the warship collided with a merchant ship off the coast of Japan, the US Navy said Friday. The USS Fitzgerald suffered damage to its ... US Sailors Unaccounted for After Navy Destroyer Collides With Ship Off Japan NBCNews.com The Latest: 2 injured airlifted after US Navy ship collision Washington Post At least three injured, seven missing after US Navy destroyer collides with merchant vessel off Japan Reuters AL.com - U.S. News & World Report - New York Times - NPR all 278 news articles »
 
 
 Full story on F3News: [US sailors missing after Navy destroyer collision off Japan - CNN](http://www.f3nws.com/n/TTFHAE)
