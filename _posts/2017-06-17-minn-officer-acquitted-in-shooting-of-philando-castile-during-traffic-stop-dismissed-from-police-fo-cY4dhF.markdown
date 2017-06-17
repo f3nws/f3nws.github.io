@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Minn. officer acquitted in shooting of Philando Castile during traffic stop, dismissed from police force - Washington Post"
-date: 2017-06-17 04:05:23Z
+date: 2017-06-17 05:37:50Z
 categories: google-news-top-stories
 ---
 
 ![Minn. officer acquitted in shooting of Philando Castile during traffic stop, dismissed from police force - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-06-07/AP/Castile_Shooting_Officer_Trial_90883-8248e.jpg)
 
-Washington Post Minn. officer acquitted in shooting of Philando Castile during traffic stop, dismissed from police force Washington Post The Minnesota police officer who fatally shot Philando Castile during a traffic stop was acquitted on all charges by a jury Friday, a decision that came nearly a year after the encounter was partially streamed online to a rapt nation in the midst of a ... Protests erupt after Minnesota police officer is acquitted in shooting death of Philando Castile Los Angeles Times Protesters of Castile shooting largely cleared from freeway ABC News Officer Yanez found not guilty in fatal shooting of Philando Castile; hours later marchers head on I-94 Minneapolis Star Tribune CNN - HuffPost - AL.com - New York Daily News all 403 news articles »
+Washington Post Minn. officer acquitted in shooting of Philando Castile during traffic stop, dismissed from police force Washington Post The Minnesota police officer who fatally shot Philando Castile during a traffic stop was acquitted on all charges by a jury Friday, a decision that came nearly a year after the encounter was partially streamed online to a rapt nation in the midst of a ... Protests erupt after Minnesota police officer is acquitted in shooting death of Philando Castile Los Angeles Times Protesters of Castile shooting largely cleared from freeway ABC News Yanez found not guilty in fatal shooting of Philando Castile Minneapolis Star Tribune CNN - HuffPost - San Francisco Chronicle - New York Daily News all 416 news articles »
 
 
 Full story on F3News: [Minn. officer acquitted in shooting of Philando Castile during traffic stop, dismissed from police force - Washington Post](http://www.f3nws.com/n/cY4dhF)
 
-> Posted on: Saturday, June 17, 2017 9:05:23 AM
+> Posted on: Saturday, June 17, 2017 10:37:50 AM
