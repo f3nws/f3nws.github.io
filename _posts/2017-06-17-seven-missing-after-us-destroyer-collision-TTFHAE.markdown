@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seven missing after US destroyer collision"
-date: 2017-06-17 06:26:54Z
+date: 2017-06-17 07:16:15Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US Navy destroyer is under its own power but has limited propulsion after coll
 
 Full story on F3News: [Seven missing after US destroyer collision](http://www.f3nws.com/n/TTFHAE)
 
-> Posted on: Saturday, June 17, 2017 11:26:54 AM
+> Posted on: Saturday, June 17, 2017 12:16:15 PM
