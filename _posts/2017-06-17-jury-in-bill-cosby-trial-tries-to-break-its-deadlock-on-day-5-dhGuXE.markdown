@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jury in Bill Cosby trial tries to break its deadlock on Day 5"
-date: 2017-06-17 00:22:29Z
+date: 2017-06-17 01:47:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The jury in Bill Cosby's trial began its fifth day of deliberations on Friday in
 
 Full story on F3News: [Jury in Bill Cosby trial tries to break its deadlock on Day 5](http://www.f3nws.com/n/dhGuXE)
 
-> Posted on: Saturday, June 17, 2017 5:22:29 AM
+> Posted on: Saturday, June 17, 2017 6:47:17 AM
