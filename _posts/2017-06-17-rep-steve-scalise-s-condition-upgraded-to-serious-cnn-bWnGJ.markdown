@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Rep. Steve Scalise's condition upgraded to 'serious' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170614212743-steve-scalise-and-children-super-tease.jpg)
 
-CNN Rep. Steve Scalise's condition upgraded to 'serious' CNN (CNN) Louisiana Rep. Steve Scalise's condition has been upgraded to "serious" after he underwent surgery Saturday for injuries sustained in a shooting at a Republican congressional baseball practice earlier this week, the hospital treating him said in ... Rep. Steve Scalise's condition is upgraded to serious from critical USA TODAY Lawmakers try to move past shooting at congressional baseball game Politico all 6,435 news articles »
+CNN Rep. Steve Scalise's condition upgraded to 'serious' CNN (CNN) Louisiana Rep. Steve Scalise's condition has been upgraded to "serious" after he underwent surgery Saturday for injuries sustained in a shooting at a Republican congressional baseball practice earlier this week, the hospital treating him said in ... Hospital says Scalise showing 'signs of improvement' after additional surgery Politico As Scalise recovers, some seek to heal US political divide NOLA.com Rep. Steve Scalise's condition is upgraded to serious from critical USA TODAY STLtoday.com - Newsday - Washington Post - MedStar Washington Hospital Center all 971 news articles »
 
 
 Full story on F3News: [Rep. Steve Scalise's condition upgraded to 'serious' - CNN](http://www.f3nws.com/n/bWnGJ)
