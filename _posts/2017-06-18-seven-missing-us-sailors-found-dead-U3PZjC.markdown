@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seven missing US sailors found dead"
-date: 2017-06-18 03:56:59Z
+date: 2017-06-18 04:09:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ All seven missing sailors from the USS Fitzgerald were found dead in flooded ber
 
 Full story on F3News: [Seven missing US sailors found dead](http://www.f3nws.com/n/U3PZjC)
 
-> Posted on: Sunday, June 18, 2017 8:56:59 AM
+> Posted on: Sunday, June 18, 2017 9:09:12 AM
