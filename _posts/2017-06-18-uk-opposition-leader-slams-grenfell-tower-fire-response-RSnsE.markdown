@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK opposition leader slams Grenfell Tower fire response"
-date: 2017-06-18 16:20:20Z
+date: 2017-06-18 17:31:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The leader of Britain's main opposition party added his voice Sunday to a mounti
 
 Full story on F3News: [UK opposition leader slams Grenfell Tower fire response](http://www.f3nws.com/n/RSnsE)
 
-> Posted on: Sunday, June 18, 2017 9:20:20 PM
+> Posted on: Sunday, June 18, 2017 10:31:04 PM
