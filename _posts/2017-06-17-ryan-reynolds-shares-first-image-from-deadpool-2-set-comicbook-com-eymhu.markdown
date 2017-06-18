@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ryan Reynolds Shares First Image From Deadpool 2 Set - Comicbook.com](http://media.comicbook.com/2017/06/deadpool2header-1003262-640x320.jpg)
 
-Comicbook.com Ryan Reynolds Shares First Image From Deadpool 2 Set Comicbook.com Ryan Reynolds has shared the first official image from the set of Deadpool 2. The image shows Reynolds in Deadpool costume relaxing in front of the X-Mansion, confirming earlier reports that the production was filming at the location. See it below ... Ryan Reynolds Teases 'Deadpool' Sequel With X-Mansion Photo Hollywood Reporter Ryan Reynolds Shared A Deadpool 2 Image, And It's Perfect Cinema Blend Deadpool 2: Ryan Reynolds poses in front of the X-Mansion on set EW.com Screen Rant - Bleeding Cool News - International Business Times - MovieWeb all 61 news articles »
+Comicbook.com Ryan Reynolds Shares First Image From Deadpool 2 Set Comicbook.com Ryan Reynolds has shared the first official image from the set of Deadpool 2. The image shows Reynolds in Deadpool costume relaxing in front of the X-Mansion, confirming earlier reports that the production was filming at the location. See it below ... Ryan Reynolds Teases 'Deadpool' Sequel With X-Mansion Photo Hollywood Reporter Ryan Reynolds Shared A Deadpool 2 Image, And It's Perfect Cinema Blend Deadpool 2: Ryan Reynolds poses in front of the X-Mansion on set EW.com Screen Rant - Bleeding Cool News - MovieWeb - CBR all 62 news articles »
 
 
 Full story on F3News: [Ryan Reynolds Shares First Image From Deadpool 2 Set - Comicbook.com](http://www.f3nws.com/n/eymhu)

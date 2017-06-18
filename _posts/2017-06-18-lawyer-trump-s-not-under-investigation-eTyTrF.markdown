@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawyer: Trump's not under investigation"
-date: 2017-06-18 15:33:10Z
+date: 2017-06-18 16:35:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A representative from President Donald Trump's legal team said Trump is not unde
 
 Full story on F3News: [Lawyer: Trump's not under investigation](http://www.f3nws.com/n/eTyTrF)
 
-> Posted on: Sunday, June 18, 2017 8:33:10 PM
+> Posted on: Sunday, June 18, 2017 9:35:42 PM
