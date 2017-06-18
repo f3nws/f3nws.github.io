@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bill Cosby's Sexual Assault Case Ends in a Mistrial - New York Times](https://static01.nyt.com/images/2017/06/18/arts/18cosbywatchlive-cosby1/18cosbywatchlive-cosby1-facebookJumbo.jpg)
 
-New York Times Bill Cosby's Sexual Assault Case Ends in a Mistrial New York Times Bill Cosby, center, stands with his spokesman Andrew Wyatt, left, outside of the Montgomery County Courthouse in Norristown, Pa. Credit Lucas Jackson/Reuters. The judge in the sexual assault trial of Bill Cosby declared a mistrial Saturday after jurors ... Cosby's sex assault trial has ended with a mistrial. These people believe it's all a conspiracy. Washington Post Bill Cosby's sexual assault case ends in mistrial as prosecutors vow he'll face retrial New York Daily News Bill Cosby Sexual Assault Trial Ends in Mistrial NBCNews.com Deadline - ABC News - Variety - HuffPost all 848 news articles »
+New York Times Bill Cosby's Sexual Assault Case Ends in a Mistrial New York Times Bill Cosby, center, stands with his spokesman Andrew Wyatt, left, outside of the Montgomery County Courthouse in Norristown, Pa. Credit Lucas Jackson/Reuters. The judge in the sexual assault trial of Bill Cosby declared a mistrial Saturday after jurors ... Cosby's sex assault trial has ended with a mistrial. These people believe it's all a conspiracy. Washington Post Bill Cosby's sexual assault case ends in mistrial as prosecutors vow he'll face retrial New York Daily News Bill Cosby Sexual Assault Trial Ends in Mistrial NBCNews.com Deadline - ABC News - Variety - HuffPost all 862 news articles »
 
 
 Full story on F3News: [Bill Cosby's Sexual Assault Case Ends in a Mistrial - New York Times](http://www.f3nws.com/n/AcUpSG)
