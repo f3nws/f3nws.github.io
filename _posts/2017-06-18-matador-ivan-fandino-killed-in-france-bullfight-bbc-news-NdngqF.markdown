@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Matador Ivan Fandino killed in France bullfight - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/5C01/production/_96535532_mediaitem96535531.jpg)
 
-BBC News Matador Ivan Fandino killed in France bullfight BBC News A Spanish bullfighter has died after being gored during a festival in southwest France. Ivan Fandino, 36, caught his feet in his cloak and fell to the floor, where he was gored by the bull. He suffered a lung injury and died on his way to hospital from ... Bull gores matador to death during fight in France (WARNING: GRAPHIC CONTENT) New York Daily News Renowned Spanish Bullfighter Dies After Being Gored by Bull Daily Beast June 18th is National Cheesemakers Day! WISN Milwaukee New York Post - News24 - Reuters - Mirror.co.uk all 35 news articles »
+BBC News Matador Ivan Fandino killed in France bullfight BBC News A Spanish bullfighter has died after being gored during a festival in southwest France. Ivan Fandino, 36, caught his feet in his cloak and fell to the floor, where he was gored by the bull. He suffered a lung injury and died on his way to hospital from ... Beloved matador Ivan Fandino, 36, gored to death by bull in France NEWS.com.au Bullfighter gored to death after tripping on his cloak Metro Bullfighting legend Ivan Fandino dies in the ring International Business Times, India Edition Sky News - NDTV all 35 news articles »
 
 
 Full story on F3News: [Matador Ivan Fandino killed in France bullfight - BBC News](http://www.f3nws.com/n/NdngqF)
