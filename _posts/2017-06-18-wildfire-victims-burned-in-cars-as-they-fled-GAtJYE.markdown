@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wildfire victims burned in cars as they fled"
-date: 2017-06-18 11:54:43Z
+date: 2017-06-18 13:14:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twenty-four people were killed in Portugal in what officials are calling the cou
 
 Full story on F3News: [Wildfire victims burned in cars as they fled](http://www.f3nws.com/n/GAtJYE)
 
-> Posted on: Sunday, June 18, 2017 4:54:43 PM
+> Posted on: Sunday, June 18, 2017 6:14:07 PM
