@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US military personnel wounded in Afghanistan"
-date: 2017-06-17 15:42:30Z
+date: 2017-06-17 23:07:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Several US military personnel were wounded and evacuated after an apparent insid
 
 Full story on F3News: [US military personnel wounded in Afghanistan](http://www.f3nws.com/n/sE3SpB)
 
-> Posted on: Saturday, June 17, 2017 8:42:30 PM
+> Posted on: Sunday, June 18, 2017 4:07:26 AM
