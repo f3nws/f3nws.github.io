@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What anonymous sources cost journalism"
-date: 2017-06-18 13:25:08Z
+date: 2017-06-18 18:05:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Deputy Attorney General Rod Rosenstein put out a very odd statement late Thursda
 
 Full story on F3News: [What anonymous sources cost journalism](http://www.f3nws.com/n/E3nqXG)
 
-> Posted on: Sunday, June 18, 2017 6:25:08 PM
+> Posted on: Sunday, June 18, 2017 11:05:44 PM

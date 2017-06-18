@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Doctors Upgrade Rep. Scalise's Condition To 'Serious' - NPR](https://media.npr.org/assets/img/2017/06/18/gettyimages-482192972_wide-946543f3b72021f120705cf3094c266e6a4dff15.jpg?s=1400)
 
-NPR Doctors Upgrade Rep. Scalise's Condition To 'Serious' NPR Doctors treating wounded House Majority Whip Rep. Steve Scalise have upgraded his condition from "critical" to "serious." Scalise and three others were shot Wednesday morning at a baseball practice in Alexandria, Va. The 51-year-old Republican ... Rep. Steve Scalise upgraded from 'critical' to 'serious' condition Minneapolis Star Tribune Play ball! Watch the Congressional Baseball Game live stream here NOLA.com Scalise Update - MedStar Washington Hospital Center MedStar Washington Hospital Center all 6,084 news articles »
+NPR Doctors Upgrade Rep. Scalise's Condition To 'Serious' NPR Doctors treating wounded House Majority Whip Rep. Steve Scalise have upgraded his condition from "critical" to "serious." Scalise and three others were shot Wednesday morning at a baseball practice in Alexandria, Va. The 51-year-old Republican ... Scalise Shooting: GOP congressman upgraded from 'critical' to 'serious' condition Fox News Hospital says Scalise showing 'signs of improvement' after additional surgery Politico Rep. Steve Scalise upgraded from 'critical' to 'serious' condition Minneapolis Star Tribune USA TODAY - Reuters - MedStar Washington Hospital Center - C-Span all 1,087 news articles »
 
 
 Full story on F3News: [Doctors Upgrade Rep. Scalise's Condition To 'Serious' - NPR](http://www.f3nws.com/n/G3YkDD)
