@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 24 killed in Portugal fires"
-date: 2017-06-18 05:55:55Z
+date: 2017-06-18 08:15:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twenty-four people were killed in Portugal in what officials are calling the cou
 
 Full story on F3News: [At least 24 killed in Portugal fires](http://www.f3nws.com/n/GAtJYE)
 
-> Posted on: Sunday, June 18, 2017 10:55:55 AM
+> Posted on: Sunday, June 18, 2017 1:15:47 PM
