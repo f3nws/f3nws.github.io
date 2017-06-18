@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Portugal wildfire: 57 dead; some burned to death in cars"
-date: 2017-06-18 10:53:55Z
+date: 2017-06-18 11:23:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twenty-four people were killed in Portugal in what officials are calling the cou
 
 Full story on F3News: [Portugal wildfire: 57 dead; some burned to death in cars](http://www.f3nws.com/n/GAtJYE)
 
-> Posted on: Sunday, June 18, 2017 3:53:55 PM
+> Posted on: Sunday, June 18, 2017 4:23:24 PM
