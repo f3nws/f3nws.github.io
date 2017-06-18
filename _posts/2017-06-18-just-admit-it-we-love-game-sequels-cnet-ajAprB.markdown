@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Just admit it, we love game sequels     - CNET"
-date: 2017-06-18 18:42:21Z
+date: 2017-06-18 22:02:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The video game industry hasn't run out of ideas or gotten lazy. It’s just foll
 
 Full story on F3News: [Just admit it, we love game sequels     - CNET](http://www.f3nws.com/n/ajAprB)
 
-> Posted on: Sunday, June 18, 2017 11:42:21 PM
+> Posted on: Monday, June 19, 2017 3:02:01 AM
