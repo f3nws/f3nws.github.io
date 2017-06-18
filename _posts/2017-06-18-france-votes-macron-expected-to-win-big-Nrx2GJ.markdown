@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France votes: Macron expected to win big"
-date: 2017-06-18 16:30:17Z
+date: 2017-06-18 19:53:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Polls have opened Sunday for France's legislative elections and President Emmanu
 
 Full story on F3News: [France votes: Macron expected to win big](http://www.f3nws.com/n/Nrx2GJ)
 
-> Posted on: Sunday, June 18, 2017 9:30:17 PM
+> Posted on: Monday, June 19, 2017 12:53:46 AM
