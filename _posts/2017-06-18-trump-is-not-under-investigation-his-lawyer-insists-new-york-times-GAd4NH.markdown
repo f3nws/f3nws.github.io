@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump 'Is Not Under Investigation,' His Lawyer Insists - New York Times](https://static01.nyt.com/images/2017/06/18/us/19dc-trump/19dc-trump-facebookJumbo.jpg)
 
-New York Times Trump 'Is Not Under Investigation,' His Lawyer Insists New York Times President Trump wrote on Twitter on Friday: “I am being investigated for firing the FBI Director by the man who told me to fire the FBI Director! Witch Hunt.” Credit Al Drago/The New York Times. WASHINGTON — A member of President Trump's legal team ... Trump lawyer insists there is no obstruction investigation — but then hedges Washington Post Trump's lawyer: The president is not under investigation, despite what he tweeted Los Angeles Times Trump Lawyer Says President Not Under Investigation, Despite Tweets U.S. News & World Report Breitbart News - HuffPost - The Hill - Politico all 137 news articles »
+New York Times Trump 'Is Not Under Investigation,' His Lawyer Insists New York Times President Trump wrote on Twitter on Friday: “I am being investigated for firing the FBI Director by the man who told me to fire the FBI Director! Witch Hunt.” Credit Al Drago/The New York Times. WASHINGTON — A member of President Trump's legal team ... Trump lawyer: The president is not under investigation for obstruction Washington Post Trump attorney: There's no investigation of the president, period The Hill Trump Lawyer Says President Not Under Investigation, Despite Tweets U.S. News & World Report HuffPost - Breitbart News - Politico - NOLA.com all 138 news articles »
 
 
 Full story on F3News: [Trump 'Is Not Under Investigation,' His Lawyer Insists - New York Times](http://www.f3nws.com/n/GAd4NH)
