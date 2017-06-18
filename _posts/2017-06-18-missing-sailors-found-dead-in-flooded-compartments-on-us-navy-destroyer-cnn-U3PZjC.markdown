@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Missing sailors found dead in flooded compartments on US Navy destroyer - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170617023512-uss-fitzgerald-damaged-super-tease.jpg)
 
-CNN Missing sailors found dead in flooded compartments on US Navy destroyer CNN (CNN) Seven missing sailors from the USS Fitzgerald were found dead in flooded berthing compartments following the warship's collision with a merchant vessel, a US military official said. The Navy's 7th Fleet said searchers found the bodies Sunday ... 'Traumatic' collision that killed sailors almost sank destroyer, Navy says Washington Post Sleeping Sailors on USS Fitzgerald Awoke to a Calamity at Sea New York Times Navy collisions rare but provide lessons in their wake USA TODAY ABC News - The Atlantic - CBS News - Business Insider all 1,055 news articles »
+CNN Missing sailors found dead in flooded compartments on US Navy destroyer CNN (CNN) Seven missing sailors from the USS Fitzgerald were found dead in flooded berthing compartments following the warship's collision with a merchant vessel, a US military official said. The Navy's 7th Fleet said searchers found the bodies Sunday ... 'Traumatic' collision that killed sailors almost sank destroyer, Navy says Washington Post Search for 7 Navy sailors called off Politico Bodies of Several Sailors Are Found Aboard Damaged US Destroyer New York Times USA TODAY - WAVY-TV - Reuters - ABC News all 1,084 news articles »
 
 
 Full story on F3News: [Missing sailors found dead in flooded compartments on US Navy destroyer - CNN](http://www.f3nws.com/n/U3PZjC)
