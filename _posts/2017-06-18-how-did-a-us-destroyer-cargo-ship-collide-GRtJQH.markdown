@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How did a US destroyer, cargo ship collide?"
-date: 2017-06-18 03:35:50Z
+date: 2017-06-18 05:55:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There is -- at this writing -- a lot we do not know about how the destroyer USS 
 
 Full story on F3News: [How did a US destroyer, cargo ship collide?](http://www.f3nws.com/n/GRtJQH)
 
-> Posted on: Sunday, June 18, 2017 8:35:50 AM
+> Posted on: Sunday, June 18, 2017 10:55:37 AM
