@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stephen Furst, actor who played Flounder in 'Animal House,' dies at 63"
-date: 2017-06-18 01:41:41Z
+date: 2017-06-18 11:47:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Stephen Furst, the actor who played the hapless, beanie-wearing frat boy Flounde
 
 Full story on F3News: [Stephen Furst, actor who played Flounder in 'Animal House,' dies at 63](http://www.f3nws.com/n/J4huvD)
 
-> Posted on: Sunday, June 18, 2017 6:41:41 AM
+> Posted on: Sunday, June 18, 2017 4:47:12 PM

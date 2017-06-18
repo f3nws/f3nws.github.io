@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby's attorney says he is worried about entertainer's health"
-date: 2017-06-18 10:07:44Z
+date: 2017-06-18 11:48:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Bill Cosby's defense lawyer says he is concerned about the entertainer's health 
 
 Full story on F3News: [Bill Cosby's attorney says he is worried about entertainer's health](http://www.f3nws.com/n/su4Ef)
 
-> Posted on: Sunday, June 18, 2017 3:07:44 PM
+> Posted on: Sunday, June 18, 2017 4:48:43 PM
