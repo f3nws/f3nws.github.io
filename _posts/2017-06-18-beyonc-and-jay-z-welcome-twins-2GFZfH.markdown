@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beyoncé and Jay Z welcome twins"
-date: 2017-06-18 14:05:13Z
+date: 2017-06-18 16:15:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Beyoncé and Jay Z have welcomed twins, a source close to the couple tells CNN.
 
 Full story on F3News: [Beyoncé and Jay Z welcome twins](http://www.f3nws.com/n/2GFZfH)
 
-> Posted on: Sunday, June 18, 2017 7:05:13 PM
+> Posted on: Sunday, June 18, 2017 9:15:55 PM

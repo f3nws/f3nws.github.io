@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Latest: Portuguese soccer team sends condolences on fire - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-06-18/AP/Images/Portugal_Forest_Fires_14759.jpg-c057f.jpg)
 
-Washington Post The Latest: Portuguese soccer team sends condolences on fire Washington Post LISBON, Portugal — The Latest on the Portugal forest fires (all times local):. 5:25 p.m.. Portugal's national soccer team is wearing black arm bands and has stood for a moment of silence with the Mexican team in solidarity with the country's forest ... Portugal forest fires: Three days of mourning for 61 victims BBC News Portugal fire victims burned in cars as they fled; 62 killed CNN Portugal Forest Fire Traps Drivers, Killing at Least 62 People New York Times NPR - New York Daily News - ABC News - NBCNews.com all 277 news articles »
+Washington Post The Latest: Portuguese soccer team sends condolences on fire Washington Post LISBON, Portugal — The Latest on the Portugal forest fires (all times local):. 5:25 p.m.. Portugal's national soccer team is wearing black arm bands and has stood for a moment of silence with the Mexican team in solidarity with the country's forest ... Portugal forest fires: Three days of mourning for 61 victims BBC News Portugal wildfire: 61 killed, victims burned in cars as they fled CNN Portugal Forest Fire Traps Drivers, Killing at Least 62 People New York Times NPR - New York Daily News - ABC News - NBCNews.com all 281 news articles »
 
 
 Full story on F3News: [The Latest: Portuguese soccer team sends condolences on fire - Washington Post](http://www.f3nws.com/n/yyKzqG)
