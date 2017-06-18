@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Stephen Furst, 'Animal House' and 'St. Elsewhere' Actor, Dies at 63 - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2017/06/furst.jpg)
 
-Hollywood Reporter Stephen Furst, 'Animal House' and 'St. Elsewhere' Actor, Dies at 63 Hollywood Reporter The actor and filmmaker was well known for his breakout role of Flounder in 'Animal House.' Stephen Furst, perhaps best known as Flounder in 1978's Animal House, died Friday from complications with diabetes, the actor's rep told The Hollywood Reporter. Stephen Furst, 'Animal House' Actor, Dead at 63 RollingStone.com Animal House star Stephen Furst dies at 63 EW.com (blog) Animal House Star Stephen Furst Has Died At 62 Cinema Blend A.V. Club - Slate Magazine (blog) - Vulture - Fox17 all 78 news articles »
+Hollywood Reporter Stephen Furst, 'Animal House' and 'St. Elsewhere' Actor, Dies at 63 Hollywood Reporter The actor and filmmaker was well known for his breakout role of Flounder in 'Animal House.' Stephen Furst, perhaps best known as Flounder in 1978's Animal House, died Friday from complications with diabetes, the actor's rep told The Hollywood Reporter. Stephen Furst, 'Animal House' Actor, Dead at 63 RollingStone.com Animal House star Stephen Furst dies at 63 EW.com (blog) RIP Stephen Furst, from Animal House and St. Elsewhere A.V. Club Vulture - Slate Magazine (blog) - The Boston Globe - Cinema Blend all 81 news articles »
 
 
 Full story on F3News: [Stephen Furst, 'Animal House' and 'St. Elsewhere' Actor, Dies at 63 - Hollywood Reporter](http://www.f3nws.com/n/E2JW3B)
