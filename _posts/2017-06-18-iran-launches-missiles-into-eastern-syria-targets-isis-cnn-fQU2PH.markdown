@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Iran launches missiles into eastern Syria, targets ISIS - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/150325082132-social-gfx-breaking-news-super-tease.jpg)
 
-CNN Iran launches missiles into eastern Syria, targets ISIS CNN (CNN) Iran's military announced on Sunday that it launched several missiles into Syria, targeting Islamic State fighters in retaliation for the attacks in Tehran on June 7. The missile strikes, which occurred on Saturday, are the first reported ground ... Iran launches strikes against ISIS in Syria in response to Tehran attacks Fox News Iran fires missiles at militant groups in eastern Syria Reuters Iran fires missiles at ISIS in retaliation for Tehran terror attacks New York Post Bloomberg - The Hill - The Daily Caller - UPI.com all 41 news articles »
+CNN Iran launches missiles into eastern Syria, targets ISIS CNN (CNN) Iran's military announced on Sunday that it launched several missiles into Syria, targeting Islamic State fighters in retaliation for the attacks in Tehran on June 7. The missile strikes, which occurred on Saturday, are the first reported ground ... Iran Launches Missiles to Punish 'Terrorists' in Syria New York Times Iran launches strikes against ISIS in Syria in response to Tehran attacks Fox News Iran Launches Missile Strikes Targeting ISIS in Syria, Dramatically Escalating Role in Syrian Conflict Slate Magazine (blog) New York Post - Bloomberg - The Hill - CNBC all 54 news articles »
 
 
 Full story on F3News: [Iran launches missiles into eastern Syria, targets ISIS - CNN](http://www.f3nws.com/n/fQU2PH)
