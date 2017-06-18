@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7 US sailors found dead after crash off Japan coast"
-date: 2017-06-18 05:39:46Z
+date: 2017-06-18 06:24:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ All seven missing sailors from the USS Fitzgerald were found dead in flooded ber
 
 Full story on F3News: [7 US sailors found dead after crash off Japan coast](http://www.f3nws.com/n/U3PZjC)
 
-> Posted on: Sunday, June 18, 2017 10:39:46 AM
+> Posted on: Sunday, June 18, 2017 11:24:40 AM
