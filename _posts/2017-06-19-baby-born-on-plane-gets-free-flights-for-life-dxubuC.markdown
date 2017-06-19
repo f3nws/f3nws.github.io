@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baby born on plane gets free flights for life"
-date: 2017-06-19 10:43:07Z
+date: 2017-06-19 16:11:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Baby born on plane gets free flights for life](http://www.f3nws.com/n/dxubuC)
 
-> Posted on: Monday, June 19, 2017 3:43:07 PM
+> Posted on: Monday, June 19, 2017 9:11:52 PM

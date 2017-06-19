@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Supreme Court to hear potentially landmark case on partisan gerrymandering - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/14/Others/Images/2017-06-01/COURT003-001.JPG)
 
-Washington Post Supreme Court to hear potentially landmark case on partisan gerrymandering Washington Post The Supreme Court declared Monday that it will consider whether gerrymandered election maps favoring one political party over another violate the Constitution, a potentially fundamental change in the way American elections are conducted. The justices ... Justices to Hear Major Challenge to Partisan Gerrymandering New York Times Supreme Court Agrees To Hear Potentially Monumental Political Gerrymandering Case HuffPost Justice Kennedy's Beauty Pageant The Atlantic The Hill - NBCNews.com - Los Angeles Times - USA TODAY all 80 news articles »
+Washington Post Supreme Court to hear potentially landmark case on partisan gerrymandering Washington Post The Supreme Court declared Monday that it will consider whether gerrymandered election maps favoring one political party over another violate the Constitution, a potentially fundamental change in the way American elections are conducted. The justices ... OPINION: Gerrymandering harms all American voters, regardless of party The Hill (blog) Supreme Court Agrees To Hear Wisconsin Gerrymandering Case NPR Justice Kennedy's Beauty Pageant The Atlantic Reuters - BBC News - Charlotte Observer - TIME all 96 news articles »
 
 
 Full story on F3News: [Supreme Court to hear potentially landmark case on partisan gerrymandering - Washington Post](http://www.f3nws.com/n/4VNtD)
