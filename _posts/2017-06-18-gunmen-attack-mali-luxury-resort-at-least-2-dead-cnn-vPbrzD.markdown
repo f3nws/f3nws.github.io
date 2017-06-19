@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Gunmen attack Mali luxury resort, at least 2 dead - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/150325082152-social-gfx-cnn-logo-super-tease.jpg)
 
-CNN Gunmen attack Mali luxury resort, at least 2 dead CNN (CNN) At least two tourists were killed and 32 others rescued on Sunday after gunmen attacked a luxury resort popular with Westerners near Mali's capital city of Bamako, a source briefed on the investigation told CNN. Two of the three attackers were ... Attack shows Mali as jihadi breeding ground Boston Herald Gunmen attack resort outside Mali's capital, two dead New York Daily News Security Forces Respond To 'Ongoing Attack' At Luxury Resort In Mali NPR NBCNews.com - Washington Post - The Boston Globe - Newsweek all 161 news articles »
+CNN Gunmen attack Mali luxury resort, at least 2 dead CNN (CNN) At least two tourists were killed and 32 others rescued on Sunday after gunmen attacked a luxury resort popular with Westerners near Mali's capital city of Bamako, a source briefed on the investigation told CNN. Two of the three attackers were ... Mali resort attacked by gunmen; at least 2 dead USA TODAY Attack shows Mali as jihadi breeding ground Boston Herald Mali resort hit by terror attack, at least 2 people killed Fox News NPR - NBCNews.com - New York Daily News - Washington Post all 167 news articles »
 
 
 Full story on F3News: [Gunmen attack Mali luxury resort, at least 2 dead - CNN](http://www.f3nws.com/n/vPbrzD)
