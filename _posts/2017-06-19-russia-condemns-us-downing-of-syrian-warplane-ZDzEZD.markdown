@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia condemns US downing of Syrian warplane"
-date: 2017-06-19 16:31:08Z
+date: 2017-06-19 17:43:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after a US Navy fighter jet shot down a Syrian warplane, a top Russian off
 
 Full story on F3News: [Russia condemns US downing of Syrian warplane](http://www.f3nws.com/n/ZDzEZD)
 
-> Posted on: Monday, June 19, 2017 9:31:08 PM
+> Posted on: Monday, June 19, 2017 10:43:31 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jews, Christians, Muslims' US holy ground"
-date: 2017-06-19 16:36:04Z
+date: 2017-06-19 17:29:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When most people think of Omaha, they imagine sizzling steaks, billionaire Warre
 
 Full story on F3News: [Jews, Christians, Muslims' US holy ground](http://www.f3nws.com/n/P4vtdH)
 
-> Posted on: Monday, June 19, 2017 9:36:04 PM
+> Posted on: Monday, June 19, 2017 10:29:46 PM

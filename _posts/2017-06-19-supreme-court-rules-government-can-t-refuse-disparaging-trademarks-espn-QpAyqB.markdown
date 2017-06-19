@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Supreme Court rules government can't refuse disparaging trademarks - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2015%2F0708%2Fnfl_u_redskins_d1_1296x729.jpg)
 
-ESPN Supreme Court rules government can't refuse disparaging trademarks ESPN The Supreme Court on Monday struck down part of a law that bans offensive trademarks in a ruling that is expected to help the Washington Redskins in their legal fight over the team name. The justices ruled that the 71-year-old trademark law barring ... Supreme Court: Rejecting trademarks that 'disparage' others violates the First Amendment Washington Post The Slants Win Supreme Court Battle Over Band's Name In Trademark Dispute NPR Supreme Court upholds offensive trademarks as form of free speech USA TODAY SB Nation - ABC News - MLive.com - New York Times all 95 news articles »
+ESPN Supreme Court rules government can't refuse disparaging trademarks ESPN The Supreme Court on Monday struck down part of a law that bans offensive trademarks in a ruling that is expected to help the Washington Redskins in their legal fight over the team name. The justices ruled that the 71-year-old trademark law barring ... Supreme Court delivers victory for Washington on trademark case NBCSports.com US Supreme Court rules in favor of Alabama death row inmate AL.com The Slants Win Supreme Court Battle Over Band's Name In Trademark Dispute NPR Washington Post - Los Angeles Times - MLive.com - USA TODAY all 134 news articles »
 
 
 Full story on F3News: [Supreme Court rules government can't refuse disparaging trademarks - ESPN](http://www.f3nws.com/n/QpAyqB)
