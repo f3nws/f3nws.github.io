@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Officials: 17-year-old Muslim girl assaulted and killed after leaving Virginia mosque - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/19/Interactivity/Images/crop_90Missing_197.JPG)
 
-Washington Post Officials: 17-year-old Muslim girl assaulted and killed after leaving Virginia mosque Washington Post Police said Monday they are not investigating the murder of a Virginia teenager who they say was assaulted and then disappeared overnight after leaving a mosque in the Sterling area as a hate crime. On Sunday, police found the girl's remains and a ... Man Charged With Murder of Muslim Teen Who Disappeared on Way to Mosque NBCNews.com Muslim Teen Missing After Assault Found Dead; Man Charged NBC New York Virginia Muslim girl found dead near mosque BBC News HuffPost - BuzzFeed News - Newsweek - Business Insider all 81 news articles »
+Washington Post Officials: 17-year-old Muslim girl assaulted and killed after leaving Virginia mosque Washington Post The death of a Virginia teenager who police say was assaulted and then disappeared after leaving a mosque in the Sterling area isn't being investigated as a hate crime, authorities said Monday. On Sunday, police found the girl's remains and a 22-year ... Man Charged With Murder of Muslim Teen Who Disappeared on Way to Mosque NBCNews.com Authorities: Muslim teen assaulted and killed after leaving mosque The Mercury News Muslim teen murdered after leaving mosque New York Post MLive.com - BBC News - WFAA - PEOPLE.com all 103 news articles »
 
 
 Full story on F3News: [Officials: 17-year-old Muslim girl assaulted and killed after leaving Virginia mosque - Washington Post](http://www.f3nws.com/n/ydKaFH)
