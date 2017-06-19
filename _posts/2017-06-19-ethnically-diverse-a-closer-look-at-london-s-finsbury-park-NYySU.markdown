@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ethnically diverse: A closer look at London's Finsbury Park"
-date: 2017-06-19 09:21:00Z
+date: 2017-06-19 14:43:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The area of London where a vehicle hit pedestrians early Monday local time is et
 
 Full story on F3News: [Ethnically diverse: A closer look at London's Finsbury Park](http://www.f3nws.com/n/NYySU)
 
-> Posted on: Monday, June 19, 2017 2:21:00 PM
+> Posted on: Monday, June 19, 2017 7:43:26 PM
