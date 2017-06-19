@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Carrie Fisher's autopsy reveals cocktail of drugs, including cocaine, opiates and ecstasy - Los Angeles Times](http://www.trbimg.com/img-5947faf9/turbine/la-me-ln-carrie-fisher-autopsy-report-20170619)
 
-Los Angeles Times Carrie Fisher's autopsy reveals cocktail of drugs, including cocaine, opiates and ecstasy Los Angeles Times A Los Angeles County coroner's report released on Monday revealed a mixture of drugs that were inside actress Carrie Fisher's system when she went into cardiac arrest on an L.A.-bound flight and later died. Fisher's toxicology review found evidence of ... Cocaine among drugs found in Carrie Fisher's system: coroner ABC News Carrie Fisher Had Cocaine, Heroin, Ecstasy in Her System, Autopsy Shows Variety Tests Revealed Cocaine, Other Opiates TMZ.com Tulsa World - Washington Post - Daily Mail - fox8.com all 59 news articles »
+Los Angeles Times Carrie Fisher's autopsy reveals cocktail of drugs, including cocaine, opiates and ecstasy Los Angeles Times A Los Angeles County coroner's report released on Monday revealed a mixture of drugs that were in actress Carrie Fisher's system when she went into cardiac arrest on an L.A.-bound flight and later died. Fisher's toxicology review found evidence of ... Carrie Fisher Had Cocaine, Heroin, Ecstasy in Her System, Autopsy Shows Variety Carrie Fisher Had Cocaine and Opiates in Her System at Time of Death Hollywood Reporter Cocaine among drugs found in Carrie Fisher's system: coroner ABC News TMZ.com - NBCNews.com - New York Daily News - MLive.com all 92 news articles »
 
 
 Full story on F3News: [Carrie Fisher's autopsy reveals cocktail of drugs, including cocaine, opiates and ecstasy - Los Angeles Times](http://www.f3nws.com/n/xUWvBB)
