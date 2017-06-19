@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What we know: 48-year-old male suspect detained by public at the scene"
-date: 2017-06-19 07:19:55Z
+date: 2017-06-19 07:31:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A vehicle hit pedestrians in London and there are "a number of casualties being 
 
 Full story on F3News: [What we know: 48-year-old male suspect detained by public at the scene](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Monday, June 19, 2017 12:19:55 PM
+> Posted on: Monday, June 19, 2017 12:31:12 PM
