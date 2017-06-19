@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Horrific' van attack near London mosque: One dead"
-date: 2017-06-19 07:31:45Z
+date: 2017-06-19 09:32:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Emergency services are attending a number of casualties after a vehicle hit pede
 
 Full story on F3News: ['Horrific' van attack near London mosque: One dead](http://www.f3nws.com/n/cdkjPJ)
 
-> Posted on: Monday, June 19, 2017 12:31:45 PM
+> Posted on: Monday, June 19, 2017 2:32:52 PM

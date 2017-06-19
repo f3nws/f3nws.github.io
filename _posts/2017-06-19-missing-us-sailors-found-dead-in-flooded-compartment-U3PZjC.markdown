@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing US sailors found dead in flooded compartment"
-date: 2017-06-19 07:17:46Z
+date: 2017-06-19 09:38:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seven missing sailors from the USS Fitzgerald were found dead in flooded berthin
 
 Full story on F3News: [Missing US sailors found dead in flooded compartment](http://www.f3nws.com/n/U3PZjC)
 
-> Posted on: Monday, June 19, 2017 12:17:46 PM
+> Posted on: Monday, June 19, 2017 2:38:25 PM

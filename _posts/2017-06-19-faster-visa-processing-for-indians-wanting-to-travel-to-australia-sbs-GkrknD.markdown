@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Faster visa processing for Indians wanting to travel to Australia - SBS](http://www.sbs.com.au/yourlanguage/sites/sbs.com.au.yourlanguage/files/australian_visa_istockphoto.jpg)
 
-SBS Faster visa processing for Indians wanting to travel to Australia SBS From July 1, 2017, all Indian passport holders will have the option of lodging Visitor visa applications online -- a move which will see faster processing of visitor visa applications in India, and will also give the applicants the ability to monitor ... Australia immigration stats: 64000 living illegally Courier Mail More than 64000 illegal immigrants living in Australia, with 20000 said to be working Yahoo7 News Australian visitor visa becomes easier for Indians, here's how The Indian Express Ten Eyewitness News - The Star Online - Times of India - Scroll.in all 15 news articles »
+SBS Faster visa processing for Indians wanting to travel to Australia SBS From July 1, 2017, all Indian passport holders will have the option of lodging Visitor visa applications online -- a move which will see faster processing of visitor visa applications in India, and will also give the applicants the ability to monitor ... Australia immigration stats: 64000 living illegally Courier Mail More than 64000 illegal immigrants living in Australia, with 20000 said to be working Yahoo7 News Australian visitor visa becomes easier for Indians, here's how The Indian Express Ten Eyewitness News - Times of India - The Star Online - Starts at 60 all 16 news articles »
 
 
 Full story on F3News: [Faster visa processing for Indians wanting to travel to Australia - SBS](http://www.f3nws.com/n/GkrknD)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What we know: Man, 48, arrested on suspicion of attempted murder"
-date: 2017-06-19 08:00:23Z
+date: 2017-06-19 09:41:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A vehicle hit pedestrians in London and there are "a number of casualties being 
 
 Full story on F3News: [What we know: Man, 48, arrested on suspicion of attempted murder](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Monday, June 19, 2017 1:00:23 PM
+> Posted on: Monday, June 19, 2017 2:41:51 PM
