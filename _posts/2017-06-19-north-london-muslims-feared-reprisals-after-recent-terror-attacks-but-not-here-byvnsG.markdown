@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North London Muslims feared reprisals after recent terror attacks -- but not here"
-date: 2017-06-19 17:28:49Z
+date: 2017-06-19 18:12:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A series of deadly terror attacks in Britain in recent weeks had left Muslims in
 
 Full story on F3News: [North London Muslims feared reprisals after recent terror attacks -- but not here](http://www.f3nws.com/n/byvnsG)
 
-> Posted on: Monday, June 19, 2017 10:28:49 PM
+> Posted on: Monday, June 19, 2017 11:12:13 PM

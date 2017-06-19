@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris: Car with weapons, explosives rams police van"
-date: 2017-06-19 16:29:42Z
+date: 2017-06-19 17:32:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A car rammed into a mobile police unit Monday on the iconic Champs-Elysees in Pa
 
 Full story on F3News: [Paris: Car with weapons, explosives rams police van](http://www.f3nws.com/n/RpMBtB)
 
-> Posted on: Monday, June 19, 2017 9:29:42 PM
+> Posted on: Monday, June 19, 2017 10:32:57 PM
