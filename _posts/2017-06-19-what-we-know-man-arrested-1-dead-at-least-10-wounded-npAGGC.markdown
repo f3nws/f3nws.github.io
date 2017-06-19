@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What we know: Man arrested, 1 dead, at least 10 wounded"
-date: 2017-06-19 13:54:06Z
+date: 2017-06-19 13:58:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A vehicle hit pedestrians in London and there are "a number of casualties being 
 
 Full story on F3News: [What we know: Man arrested, 1 dead, at least 10 wounded](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Monday, June 19, 2017 6:54:06 PM
+> Posted on: Monday, June 19, 2017 6:58:39 PM
