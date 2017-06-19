@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What we know: Van drives into pedestrians, one person in custody"
-date: 2017-06-19 02:49:11Z
+date: 2017-06-19 03:13:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A vehicle hit pedestrians in London and there are "a number of casualties being 
 
 Full story on F3News: [What we know: Van drives into pedestrians, one person in custody](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Monday, June 19, 2017 7:49:11 AM
+> Posted on: Monday, June 19, 2017 8:13:55 AM
