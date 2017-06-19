@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car rams police van in Paris; suspect dead"
-date: 2017-06-19 18:32:20Z
+date: 2017-06-19 21:48:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tourists strolling along Paris' famous Champs-Elysees boulevard watched in horro
 
 Full story on F3News: [Car rams police van in Paris; suspect dead](http://www.f3nws.com/n/RpMBtB)
 
-> Posted on: Monday, June 19, 2017 11:32:20 PM
+> Posted on: Tuesday, June 20, 2017 2:48:41 AM
