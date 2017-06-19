@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brexit talks begin with UK in disarray"
-date: 2017-06-19 13:22:46Z
+date: 2017-06-19 15:34:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Brexit talks begin with UK in disarray](http://www.f3nws.com/n/t4HTB)
 
-> Posted on: Monday, June 19, 2017 6:22:46 PM
+> Posted on: Monday, June 19, 2017 8:34:34 PM
