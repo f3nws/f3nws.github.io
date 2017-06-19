@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syrian warplane shot down by US-led coalition"
-date: 2017-06-18 22:11:20Z
+date: 2017-06-18 23:35:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Syrian warplane was shot down over Raqqa by the United States-led coalition af
 
 Full story on F3News: [Syrian warplane shot down by US-led coalition](http://www.f3nws.com/n/Ghc2G)
 
-> Posted on: Monday, June 19, 2017 3:11:20 AM
+> Posted on: Monday, June 19, 2017 4:35:03 AM
