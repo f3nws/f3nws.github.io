@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump defiant as pressure grows"
-date: 2017-06-19 11:29:22Z
+date: 2017-06-19 12:21:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ America is edging ever closer to a new long, national nightmare, given President
 
 Full story on F3News: [Trump defiant as pressure grows](http://www.f3nws.com/n/vmuuFE)
 
-> Posted on: Monday, June 19, 2017 4:29:22 PM
+> Posted on: Monday, June 19, 2017 5:21:44 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Take that, Airbus: Boeing's bigger 737 Max"
-date: 2017-06-19 11:13:07Z
+date: 2017-06-19 12:16:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Take that, Airbus: Boeing's bigger 737 Max](http://www.f3nws.com/n/apBuAC)
 
-> Posted on: Monday, June 19, 2017 4:13:07 PM
+> Posted on: Monday, June 19, 2017 5:16:49 PM
