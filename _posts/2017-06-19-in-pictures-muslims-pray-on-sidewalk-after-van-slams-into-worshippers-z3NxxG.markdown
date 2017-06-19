@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In pictures: Muslims pray on sidewalk after van slams into worshippers"
-date: 2017-06-19 05:11:26Z
+date: 2017-06-19 05:35:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [In pictures: Muslims pray on sidewalk after van slams into worshippers](http://www.f3nws.com/n/z3NxxG)
 
-> Posted on: Monday, June 19, 2017 10:11:26 AM
+> Posted on: Monday, June 19, 2017 10:35:00 AM
