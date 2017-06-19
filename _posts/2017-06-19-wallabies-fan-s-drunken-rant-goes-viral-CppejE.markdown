@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Wallabies fan's drunken rant goes viral](http://www.abc.net.au/news/image/8629870-1x1-700x700.jpg)
 
-A self-described 'pleb' who wrote a late-night, beer-fuelled rant criticising Australia's Rugby Union side, the Wallabies, is shocked by the viral success of his post.
+A self-described 'pleb' who wrote a late-night, beer-fuelled rant criticising Australia's Rugby Union side, the Wallabies, is shocked by the viral success of his post, which prompted coach Michael Cheika to call him.
 
 
 Full story on F3News: [Wallabies fan's drunken rant goes viral](http://www.f3nws.com/n/CppejE)
