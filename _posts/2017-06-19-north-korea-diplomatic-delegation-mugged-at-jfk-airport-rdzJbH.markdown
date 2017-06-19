@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: Diplomatic delegation 'mugged' at JFK Airport"
-date: 2017-06-19 07:01:35Z
+date: 2017-06-19 13:31:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea says delegates it sent to a United Nations' conference in New York w
 
 Full story on F3News: [North Korea: Diplomatic delegation 'mugged' at JFK Airport](http://www.f3nws.com/n/rdzJbH)
 
-> Posted on: Monday, June 19, 2017 12:01:35 PM
+> Posted on: Monday, June 19, 2017 6:31:16 PM
