@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former North Korea detainee Otto Warmbier dies"
-date: 2017-06-19 21:54:10Z
+date: 2017-06-19 22:10:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Otto Warmbier, the American college student who spent 17 months in detention in 
 
 Full story on F3News: [Former North Korea detainee Otto Warmbier dies](http://www.f3nws.com/n/FmNyx)
 
-> Posted on: Tuesday, June 20, 2017 2:54:10 AM
+> Posted on: Tuesday, June 20, 2017 3:10:20 AM

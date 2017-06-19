@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guns kill 'nearly 1,300 US kids each year'"
-date: 2017-06-19 07:35:16Z
+date: 2017-06-19 22:01:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rambunctious third-graders filled a classroom in Seattle on a crisp autumn day. 
 
 Full story on F3News: [Guns kill 'nearly 1,300 US kids each year'](http://www.f3nws.com/n/gVyNtE)
 
-> Posted on: Monday, June 19, 2017 12:35:16 PM
+> Posted on: Tuesday, June 20, 2017 3:01:34 AM
