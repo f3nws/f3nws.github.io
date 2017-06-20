@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pretty stars who go gritty on screen"
-date: 2017-06-20 03:00:10Z
+date: 2017-06-20 10:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ While makeup artists and stylists are usually there to make stars look their bes
 
 Full story on F3News: [Pretty stars who go gritty on screen](http://www.f3nws.com/n/MqsxJC)
 
-> Posted on: Tuesday, June 20, 2017 8:00:10 AM
+> Posted on: Tuesday, June 20, 2017 3:30:00 PM
