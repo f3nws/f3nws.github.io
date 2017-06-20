@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Black bears kill 2 in Alaska, including teen in extreme race"
-date: 2017-06-20 18:30:00Z
+date: 2017-06-20 19:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Patrick Cooper had already turned around after reaching the halfway point in a p
 
 Full story on F3News: [Black bears kill 2 in Alaska, including teen in extreme race](http://www.f3nws.com/n/RbQ4XG)
 
-> Posted on: Tuesday, June 20, 2017 11:30:00 PM
+> Posted on: Wednesday, June 21, 2017 12:00:00 AM

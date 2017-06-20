@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Critics rip University of California for favoring illegal immigrants over out-of-state Americans"
-date: 2017-06-20 18:30:00Z
+date: 2017-06-20 19:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A California university’s decision to put a limit on the number of American ci
 
 Full story on F3News: [Critics rip University of California for favoring illegal immigrants over out-of-state Americans](http://www.f3nws.com/n/k24sUJ)
 
-> Posted on: Tuesday, June 20, 2017 11:30:00 PM
+> Posted on: Wednesday, June 21, 2017 12:00:00 AM
