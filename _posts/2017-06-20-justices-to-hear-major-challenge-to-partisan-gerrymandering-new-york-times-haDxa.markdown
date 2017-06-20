@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Justices to Hear Major Challenge to Partisan Gerrymandering - New York Times"
-date: 2017-06-20 01:07:00Z
+date: 2017-06-20 01:39:13Z
 categories: google-news-top-stories
 ---
 
 ![Justices to Hear Major Challenge to Partisan Gerrymandering - New York Times](https://static01.nyt.com/images/2017/06/19/us/19suprmecourt/19suprmecourt-facebookJumbo-v2.jpg)
 
-New York Times Justices to Hear Major Challenge to Partisan Gerrymandering New York Times The Supreme Court has never disallowed an election map on the ground that it gives a political party an unfair advantage. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Supreme Court announced on Monday that it would consider ... Supreme Court to hear potentially landmark case on partisan gerrymandering Washington Post How SCOTUS can make elections fairer CNN Partisan gerrymandering is almost as old as America, but will the Supreme Court decide it has gone too far? Los Angeles Times NPR - Christian Science Monitor - Washington Examiner - Baltimore Sun all 267 news articles »
+New York Times Justices to Hear Major Challenge to Partisan Gerrymandering New York Times The Supreme Court has never disallowed an election map on the ground that it gives a political party an unfair advantage. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Supreme Court announced on Monday that it would consider ... Supreme Court to hear potentially landmark case on partisan gerrymandering Washington Post How SCOTUS can make elections fairer CNN Supreme Court Agrees To Hear Wisconsin Gerrymandering Case NPR The Hill - Reuters - Washington Examiner - SCOTUSblog all 260 news articles »
 
 
 Full story on F3News: [Justices to Hear Major Challenge to Partisan Gerrymandering - New York Times](http://www.f3nws.com/n/haDxa)
 
-> Posted on: Tuesday, June 20, 2017 6:07:00 AM
+> Posted on: Tuesday, June 20, 2017 6:39:13 AM

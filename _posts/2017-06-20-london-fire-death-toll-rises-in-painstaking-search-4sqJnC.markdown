@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London fire: Death toll rises in 'painstaking' search"
-date: 2017-06-20 03:47:20Z
+date: 2017-06-20 03:57:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 79 people are dead or missing and presumed dead following the fire that
 
 Full story on F3News: [London fire: Death toll rises in 'painstaking' search](http://www.f3nws.com/n/4sqJnC)
 
-> Posted on: Tuesday, June 20, 2017 8:47:20 AM
+> Posted on: Tuesday, June 20, 2017 8:57:05 AM
