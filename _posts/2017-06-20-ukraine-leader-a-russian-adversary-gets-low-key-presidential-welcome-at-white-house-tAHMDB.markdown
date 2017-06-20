@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ukraine leader, a Russian adversary, gets low-key presidential welcome at White House"
-date: 2017-06-20 16:51:11Z
+date: 2017-06-20 20:20:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ When Petro Poroshenko visited the White House on Tuesday, the Ukrainian presiden
 
 Full story on F3News: [Ukraine leader, a Russian adversary, gets low-key presidential welcome at White House](http://www.f3nws.com/n/tAHMDB)
 
-> Posted on: Tuesday, June 20, 2017 9:51:11 PM
+> Posted on: Wednesday, June 21, 2017 1:20:48 AM
