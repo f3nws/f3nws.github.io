@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Is North Korea's tourism industry luring Americans into a trap?"
-date: 2017-06-20 00:27:32Z
+date: 2017-06-20 12:13:31Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Otto Warmbier went to North Korea as a bright-eyed 21-year-old student looking f
 
 Full story on F3News: [Is North Korea's tourism industry luring Americans into a trap?](http://www.f3nws.com/n/jBeUHH)
 
-> Posted on: Tuesday, June 20, 2017 5:27:32 AM
+> Posted on: Tuesday, June 20, 2017 5:13:31 PM
