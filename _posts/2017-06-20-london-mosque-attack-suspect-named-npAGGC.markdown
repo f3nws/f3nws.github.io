@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London mosque attack suspect named"
-date: 2017-06-20 14:16:13Z
+date: 2017-06-20 21:14:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The driver of the van that plowed into pedestrians near a mosque in north London
 
 Full story on F3News: [London mosque attack suspect named](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Tuesday, June 20, 2017 7:16:13 PM
+> Posted on: Wednesday, June 21, 2017 2:14:22 AM
