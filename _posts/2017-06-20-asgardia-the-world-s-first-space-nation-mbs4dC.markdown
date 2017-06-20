@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asgardia: the world's first space nation"
-date: 2017-06-20 06:19:05Z
+date: 2017-06-20 07:48:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Coming soon: a nation in space for humans.
 
 Full story on F3News: [Asgardia: the world's first space nation](http://www.f3nws.com/n/mbs4dC)
 
-> Posted on: Tuesday, June 20, 2017 11:19:05 AM
+> Posted on: Tuesday, June 20, 2017 12:48:46 PM
