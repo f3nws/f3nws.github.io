@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tropical Storm Bret Spreading Heavy Rain, Gusty Winds Across Windward Islands, Northeastern Venezuela - The Weather Channel](https://s.w-x.co/bret_mon_eve.gif)
 
-The Weather Channel Tropical Storm Bret Spreading Heavy Rain, Gusty Winds Across Windward Islands, Northeastern Venezuela The Weather Channel Meteorologist Ari Sarsalari is tracking Tropical Storm Bret that's already bringing a lot of wind to Trinidad and Tobago. Tropical Storm Bret: What to Expect. The Most Extreme We've Seen on Satellite. Inland Precautions for Hurricane Season. Meet the ... As Valley boils, Tropical Storm Bret emerges Valley morning Star Tropical systems threatening Gulf coastal areas WXIA-TV Tropical Storm Bret forms off South America Hawaii News Now Caribbean Hurricane Network all 508 news articles »
+The Weather Channel Tropical Storm Bret Spreading Heavy Rain, Gusty Winds Across Windward Islands, Northeastern Venezuela The Weather Channel Meteorologist Ari Sarsalari is tracking Tropical Storm Bret that's already bringing a lot of wind to Trinidad and Tobago. Tropical Storm Bret: What to Expect. The Most Extreme We've Seen on Satellite. Inland Precautions for Hurricane Season. Meet the ... As Valley boils, Tropical Storm Bret emerges Valley morning Star all 511 news articles »
 
 
 Full story on F3News: [Tropical Storm Bret Spreading Heavy Rain, Gusty Winds Across Windward Islands, Northeastern Venezuela - The Weather Channel](http://www.f3nws.com/n/tcmsUE)
