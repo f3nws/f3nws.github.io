@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Perry sees climate denial as evidence of bein"
-date: 2017-06-20 12:40:13Z
+date: 2017-06-20 12:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ It's not just Rick Perry's rejection of climate science that rankles; it's how h
 
 Full story on F3News: [Perry sees climate denial as evidence of bein](http://www.f3nws.com/n/rCCfuE)
 
-> Posted on: Tuesday, June 20, 2017 5:40:13 PM
+> Posted on: Tuesday, June 20, 2017 5:40:00 PM
