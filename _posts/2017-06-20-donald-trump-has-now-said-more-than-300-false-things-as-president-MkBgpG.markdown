@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump has now said more than 300 false things as president"
-date: 2017-06-20 20:30:18Z
+date: 2017-06-20 21:00:05Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ The Star’s running tally of every false claim the president of the United Stat
 
 Full story on F3News: [Donald Trump has now said more than 300 false things as president](http://www.f3nws.com/n/MkBgpG)
 
-> Posted on: Wednesday, June 21, 2017 1:30:18 AM
+> Posted on: Wednesday, June 21, 2017 2:00:05 AM
