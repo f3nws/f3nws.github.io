@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two big changes in Antarctica have scientists worried"
-date: 2017-06-20 02:30:13Z
+date: 2017-06-20 10:19:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Antarctica is experiencing weird weather, and the changes have some scientists w
 
 Full story on F3News: [Two big changes in Antarctica have scientists worried](http://www.f3nws.com/n/BYGj3)
 
-> Posted on: Tuesday, June 20, 2017 7:30:13 AM
+> Posted on: Tuesday, June 20, 2017 3:19:33 PM
