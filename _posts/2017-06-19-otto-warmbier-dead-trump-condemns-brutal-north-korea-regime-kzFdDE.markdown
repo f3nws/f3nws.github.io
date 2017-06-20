@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Otto Warmbier dead: Trump condemns 'brutal' North Korea regime"
-date: 2017-06-19 22:15:00Z
+date: 2017-06-19 23:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump slammed North Korea's "brutal regime" Monday after the death of 
 
 Full story on F3News: [Otto Warmbier dead: Trump condemns 'brutal' North Korea regime](http://www.f3nws.com/n/kzFdDE)
 
-> Posted on: Tuesday, June 20, 2017 3:15:00 AM
+> Posted on: Tuesday, June 20, 2017 4:15:00 AM
