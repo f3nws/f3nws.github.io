@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "OnePlus 5 release date, news and rumors"
-date: 2017-06-20 09:21:00Z
+date: 2017-06-20 16:06:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Watch the live stream right here to see the phone being unveiled!
 
 Full story on F3News: [OnePlus 5 release date, news and rumors](http://www.f3nws.com/n/cYEPWJ)
 
-> Posted on: Tuesday, June 20, 2017 2:21:00 PM
+> Posted on: Tuesday, June 20, 2017 9:06:00 PM
