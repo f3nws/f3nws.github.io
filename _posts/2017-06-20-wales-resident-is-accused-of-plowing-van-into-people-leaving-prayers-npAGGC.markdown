@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wales resident is accused of plowing van into people leaving prayers"
-date: 2017-06-20 05:35:08Z
+date: 2017-06-20 14:16:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The driver of the van that plowed into pedestrians near a mosque in north London
 
 Full story on F3News: [Wales resident is accused of plowing van into people leaving prayers](http://www.f3nws.com/n/npAGGC)
 
-> Posted on: Tuesday, June 20, 2017 10:35:08 AM
+> Posted on: Tuesday, June 20, 2017 7:16:13 PM
