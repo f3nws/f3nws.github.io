@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why you should care about increasing secrecy in White House and Senate"
-date: 2017-06-20 16:04:25Z
+date: 2017-06-20 17:11:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Inch by inch by inch, the Trump administration is rolling back press access, whi
 
 Full story on F3News: [Why you should care about increasing secrecy in White House and Senate](http://www.f3nws.com/n/YGaRV)
 
-> Posted on: Tuesday, June 20, 2017 9:04:25 PM
+> Posted on: Tuesday, June 20, 2017 10:11:21 PM
