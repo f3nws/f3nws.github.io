@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "HANDEL'D: Republican Karen Handel Wins Most Expensive House Race in History; Crushing Defeat to Democrat Jon Ossoff"
-date: 2017-06-21 13:31:58Z
+date: 2017-06-21 14:10:28Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [HANDEL'D: Republican Karen Handel Wins Most Expensive House Race in History; Crushing Defeat to Democrat Jon Ossoff](http://www.f3nws.com/n/mjByQH)
 
-> Posted on: Wednesday, June 21, 2017 6:31:58 PM
+> Posted on: Wednesday, June 21, 2017 7:10:28 PM
