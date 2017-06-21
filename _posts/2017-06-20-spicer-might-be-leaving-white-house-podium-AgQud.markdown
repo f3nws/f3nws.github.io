@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spicer might be leaving White House podium"
-date: 2017-06-20 02:08:42Z
+date: 2017-06-20 17:17:35Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House is mulling a new role for White House press secretary Sean Spice
 
 Full story on F3News: [Spicer might be leaving White House podium](http://www.f3nws.com/n/AgQud)
 
-> Posted on: Tuesday, June 20, 2017 7:08:42 AM
+> Posted on: Tuesday, June 20, 2017 10:17:35 PM
