@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pro-ISIS rebels storm school in Philippines, students held hostage"
-date: 2017-06-21 14:10:23Z
+date: 2017-06-21 17:33:33Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ About 300 pro-ISIS militants on Wednesday stormed a school in the southern Phili
 
 Full story on F3News: [Pro-ISIS rebels storm school in Philippines, students held hostage](http://www.f3nws.com/n/Nz4KkH)
 
-> Posted on: Wednesday, June 21, 2017 7:10:23 PM
+> Posted on: Wednesday, June 21, 2017 10:33:33 PM
