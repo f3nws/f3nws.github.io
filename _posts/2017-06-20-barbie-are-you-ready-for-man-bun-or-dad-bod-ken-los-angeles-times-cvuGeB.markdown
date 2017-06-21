@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Barbie, are you ready for man-bun or Dad-bod Ken? - Los Angeles Times](http://www.trbimg.com/img-5948befc/turbine/la-ig-ken-body-style-20170620)
 
-Los Angeles Times Barbie, are you ready for man-bun or Dad-bod Ken? Los Angeles Times Last year when El Segundo-based Mattel unveiled a bumper crop of new Barbies, including curvier, taller and more petite versions of its flagship fashion doll, one social media commenter quipped, “But what about #dadbod Ken?” referring to the perfectly ... Barbie's boyfriend, Ken, gets a makeover Washington Post The Ken Doll Got a Makeover (and a Man Bun). Here's What it Teaches Us About Buzz. Entrepreneur The Ken Doll Reboot: Beefy, Cornrowed, and Pan-Racial GQ Magazine TIME - USA TODAY - HuffPost - BBC News all 162 news articles »
+Los Angeles Times Barbie, are you ready for man-bun or Dad-bod Ken? Los Angeles Times Last year when El Segundo-based Mattel unveiled a bumper crop of new Barbies, including curvier, taller and more petite versions of its flagship fashion doll, one social media commenter quipped, “But what about #dadbod Ken?” referring to the perfectly ... Barbie's boyfriend, Ken, gets a makeover Washington Post The Ken Doll Got a Makeover (and a Man Bun). Here's What it Teaches Us About Buzz. Entrepreneur The Ken Doll Reboot: Beefy, Cornrowed, and Pan-Racial GQ Magazine TIME - USA TODAY - Hollywood Reporter - BBC News all 167 news articles »
 
 
 Full story on F3News: [Barbie, are you ready for man-bun or Dad-bod Ken? - Los Angeles Times](http://www.f3nws.com/n/cvuGeB)
