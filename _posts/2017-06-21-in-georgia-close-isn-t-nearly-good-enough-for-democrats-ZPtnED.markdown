@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![In Georgia, close isn't nearly good enough for Democrats](http://i2.cdn.cnn.com/cnnnext/dam/assets/170620183333-03-jon-ossoff-0620-super-tease.jpg)
 
-Winning isn't everything in politics. It's the only thing.
+
 
 
 Full story on F3News: [In Georgia, close isn't nearly good enough for Democrats](http://www.f3nws.com/n/ZPtnED)

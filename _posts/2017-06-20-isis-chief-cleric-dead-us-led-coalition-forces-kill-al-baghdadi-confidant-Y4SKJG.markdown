@@ -7,7 +7,7 @@ categories: fox-news
 
 ![ISIS CHIEF CLERIC DEAD: US-led coalition forces kill al-Baghdadi confidant](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-U.S.-led coalition forces killed Turki al-Bin’ali, ISIS chief cleric, in Syria airstrike.
+
 
 
 Full story on F3News: [ISIS CHIEF CLERIC DEAD: US-led coalition forces kill al-Baghdadi confidant](http://www.f3nws.com/n/Y4SKJG)

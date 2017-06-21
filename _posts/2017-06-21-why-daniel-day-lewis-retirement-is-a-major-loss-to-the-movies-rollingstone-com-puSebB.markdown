@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Why Daniel Day-Lewis' Retirement Is a Major Loss to the Movies - RollingStone.com](http://img.wennermedia.com/social/rs-daniel-day-lewis-95e506f4-26bd-4efd-9e8e-907e1f2ede9b.jpg)
 
-RollingStone.com Why Daniel Day-Lewis' Retirement Is a Major Loss to the Movies RollingStone.com Daniel Day-Lewis announced that he'll retire after finishing Paul Thomas Anderson's 'Phantom Thread' – why his absence will be a blow to the movies. Credit: Paramount Pictures/Photofest. By Tim Grierson. 16 minutes ago ... Actor Daniel Day-Lewis retires at 60 but doesn't say why The Boston Globe Oscar legend Daniel Day-Lewis retiring from acting CNN Daniel Day-Lewis Retires With One Last Film Awaiting Release Forbes New York Daily News - Variety - Refinery29 - The Guardian all 250 news articles »
+
 
 
 Full story on F3News: [Why Daniel Day-Lewis' Retirement Is a Major Loss to the Movies - RollingStone.com](http://www.f3nws.com/n/puSebB)

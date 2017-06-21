@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Saudi Arabia's crown prince deposed](http://i2.cdn.cnn.com/cnnnext/dam/assets/170621115819-mohammed-bin-salman-and-trump-super-tease.jpg)
 
-Saudi Arabia's king deposed the sitting crown prince Wednesday and replaced him with Mohammed bin Salman bin Abdulaziz, the deputy crown prince, the state news agency reported.
+
 
 
 Full story on F3News: [Saudi Arabia's crown prince deposed](http://www.f3nws.com/n/AHFJCJ)

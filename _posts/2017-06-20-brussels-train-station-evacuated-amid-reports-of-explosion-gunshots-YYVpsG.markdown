@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Brussels train station evacuated amid reports of explosion, gunshots](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-Brussels Central station was evacuated Tuesday amid reports of an explosion and at least one man shot.
+
 
 
 Full story on F3News: [Brussels train station evacuated amid reports of explosion, gunshots](http://www.f3nws.com/n/YYVpsG)
