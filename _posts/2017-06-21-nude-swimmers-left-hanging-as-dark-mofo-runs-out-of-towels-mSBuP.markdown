@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Nude swimmers left hanging as Dark Mofo runs out of towels](http://www.abc.net.au/news/image/8637748-1x1-700x700.jpg)
 
-A record number of Dark Mofo nude swimmers results in a towel shortage on a Hobart beach but does not deter 1,000 people from plunging in the Derwent River.
+A record number of Dark Mofo nude swimmers results in a towel shortage on a Hobart beach but does not deter 1,000 people from plunging into the Derwent River.
 
 
 Full story on F3News: [Nude swimmers left hanging as Dark Mofo runs out of towels](http://www.f3nws.com/n/mSBuP)
