@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Han Solo 'Star Wars' film loses its directors during production"
-date: 2017-06-21 13:13:42Z
+date: 2017-06-21 15:09:56Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ In a surprising development that sent a disturbance throughout the "Star Wars" g
 
 Full story on F3News: [Han Solo 'Star Wars' film loses its directors during production](http://www.f3nws.com/n/uSybdD)
 
-> Posted on: Wednesday, June 21, 2017 6:13:42 PM
+> Posted on: Wednesday, June 21, 2017 8:09:56 PM

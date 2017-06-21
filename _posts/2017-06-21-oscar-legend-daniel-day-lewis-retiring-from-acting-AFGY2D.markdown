@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oscar legend Daniel Day-Lewis retiring from acting"
-date: 2017-06-21 09:48:48Z
+date: 2017-06-21 15:08:13Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Daniel Day-Lewis has officially announced his retirement.
 
 Full story on F3News: [Oscar legend Daniel Day-Lewis retiring from acting](http://www.f3nws.com/n/AFGY2D)
 
-> Posted on: Wednesday, June 21, 2017 2:48:48 PM
+> Posted on: Wednesday, June 21, 2017 8:08:13 PM
