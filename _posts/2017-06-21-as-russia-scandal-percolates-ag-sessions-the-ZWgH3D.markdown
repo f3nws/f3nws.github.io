@@ -7,7 +7,7 @@ categories: msnbc
 
 ![As Russia scandal percolates, AG Sessions the](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/trump_attorney_general_58211.jpg-e5a93.jpg?itok=OwzTaQ6d)
 
-
+The president, vice president, and attorney general have all secured outside counsel to represent their interests. There's nothing routine about any of this.
 
 
 Full story on F3News: [As Russia scandal percolates, AG Sessions the](http://www.f3nws.com/n/ZWgH3D)

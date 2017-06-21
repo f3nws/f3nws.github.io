@@ -7,7 +7,7 @@ categories: the-hacker-news
 
 ![NSA Opens Github Account — Lists 32 Projects Developed by the Agency](https://2.bp.blogspot.com/-xz97yI-0gpo/WUoYeGl7h-I/AAAAAAAAtQc/7HdOijzpIAsE2Uk5ZB9teWKCLpZJXGgIACLcBGAs/s1600/nsa-github-projects.png)
 
-
+The National Security Agency (NSA) — the United States intelligence agency which is known for its secrecy and working in the dark — has finally joined GitHub and launched an official GitHub page. The NSA employs genius-level coders and brightest mathematicians, who continually work to break codes, gather intelligence on everyone, and develop hacking tools like EternalBlue that was leaked by
 
 
 Full story on F3News: [NSA Opens Github Account — Lists 32 Projects Developed by the Agency](http://www.f3nws.com/n/tWT3EH)

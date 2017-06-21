@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Australia suspends air ops as Syria conflict escalates](http://i2.cdn.cnn.com/cnnnext/dam/assets/170620060833-01-australia-syria-conflict-file-super-tease.jpg)
 
-
+Australia has suspended all air operations over Syria in the wake of US forces downing a Syrian jet and a warning from Russia that US-led coalition planes are now targets for its forces in parts of the country.
 
 
 Full story on F3News: [Australia suspends air ops as Syria conflict escalates](http://www.f3nws.com/n/r2XxEC)
