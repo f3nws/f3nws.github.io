@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prodigy of Mobb Deep dies at 42"
-date: 2017-06-21 08:14:15Z
+date: 2017-06-21 09:06:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Rapper Prodigy, one half of the influential hip hop duo Mobb Deep has died, acco
 
 Full story on F3News: [Prodigy of Mobb Deep dies at 42](http://www.f3nws.com/n/2VdgkE)
 
-> Posted on: Wednesday, June 21, 2017 1:14:15 PM
+> Posted on: Wednesday, June 21, 2017 2:06:11 PM
