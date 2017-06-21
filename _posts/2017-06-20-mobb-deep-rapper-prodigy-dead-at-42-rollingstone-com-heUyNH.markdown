@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Mobb Deep Rapper Prodigy Dead at 42 - RollingStone.com](http://img.wennermedia.com/social/prodigy-mobb-deep-dead-age-42-2017-adebd161-77a3-41e0-a24e-a203e4057e28.jpg)
 
-RollingStone.com Mobb Deep Rapper Prodigy Dead at 42 RollingStone.com Prodigy, one-half of the seminal New York City hip-hop outfit Mobb Deep, died Tuesday at the age of 42. Mobb Deep's publicist confirmed the rapper's death in a statement to Rolling Stone. Related. 50 Greatest Hip-Hop Songs of All Time. Jay Z, Eminem ... Losing Prodigy: Close Friend & 'Commissary Kitchen' Co-Author Kathy Iandoli Remembers Mobb Deep MC Billboard Prodigy's Next Project Was Going to Be a Musical About the Illuminati Complex Mobb Deep's Prodigy dies at 42 Los Angeles Times TMZ.com - Washington Post - Noisey - BuzzFeed News all 201 news articles »
+RollingStone.com Mobb Deep Rapper Prodigy Dead at 42 RollingStone.com Prodigy, one-half of the seminal New York City hip-hop outfit Mobb Deep, died Tuesday at the age of 42. Mobb Deep's publicist confirmed the rapper's death in a statement to Rolling Stone. Related. 50 Greatest Hip-Hop Songs of All Time. Jay Z, Eminem ... Losing Prodigy: Close Friend & 'Commissary Kitchen' Co-Author Kathy Iandoli Remembers Mobb Deep MC Billboard Prodigy Beefed With All Your Favorite Rappers, and Always Held His Own Complex Memorializing Mobb Deep's Prodigy in 6 Songs Pitchfork Los Angeles Times - TMZ.com - XXLMAG.COM - Washington Post all 208 news articles »
 
 
 Full story on F3News: [Mobb Deep Rapper Prodigy Dead at 42 - RollingStone.com](http://www.f3nws.com/n/heUyNH)
