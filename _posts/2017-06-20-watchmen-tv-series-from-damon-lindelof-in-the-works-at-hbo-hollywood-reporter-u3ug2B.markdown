@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Watchmen' TV Series From Damon Lindelof in the Works at HBO - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/06/watchmen_cover_and_damon_lindelof_-_split_-_getty_-_h_2017.jpg)
 
-Hollywood Reporter 'Watchmen' TV Series From Damon Lindelof in the Works at HBO Hollywood Reporter Zack Snyder — who directed the 2009 feature film — is no longer on board the potential project based on the Alan Moore comic series. DC Comics favorite Watchmen may be headed for the small screen. Fresh off of critical favorite The Leftovers, Damon ... Damon Lindelof Eyeing An Adaptation Of 'Watchmen' For HBO Deadline Damon Lindelof to Develop 'Watchmen' for HBO Variety Lost's Lindelof Talks Marketing Watchmen for Geeks, Others | Observer Observer all 51 news articles »
+Hollywood Reporter 'Watchmen' TV Series From Damon Lindelof in the Works at HBO Hollywood Reporter Zack Snyder — who directed the 2009 feature film — is no longer on board the potential project based on the Alan Moore comic series. DC Comics favorite Watchmen may be headed for the small screen. Fresh off of critical favorite The Leftovers, Damon ... HBO's Wonderfully Odd Posthumous Promotion for 'The Leftovers' Variety HBO is in talks for a Watchmen TV series with Lost co-creator Damon Lindelof The Verge What Will Damon Lindelof's Watchmen Series Be About? Comicbook.com ComingSoon.net - Deadline - EW.com (blog) - Screen Rant all 62 news articles »
 
 
 Full story on F3News: ['Watchmen' TV Series From Damon Lindelof in the Works at HBO - Hollywood Reporter](http://www.f3nws.com/n/u3ug2B)
