@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6.8 earthquake off of Guatemala's Pacific coast, USGS says"
-date: 2017-06-22 13:49:53Z
+date: 2017-06-22 14:22:07Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A magnitude 6.8 earthquake struck off of Guatemala's Pacific coast Thursday, the
 
 Full story on F3News: [6.8 earthquake off of Guatemala's Pacific coast, USGS says](http://www.f3nws.com/n/qDpZNF)
 
-> Posted on: Thursday, June 22, 2017 6:49:53 PM
+> Posted on: Thursday, June 22, 2017 7:22:07 PM
