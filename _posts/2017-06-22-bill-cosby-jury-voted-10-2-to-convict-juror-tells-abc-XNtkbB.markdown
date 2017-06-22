@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Cosby jury voted 10-2 to convict, juror tells ABC"
-date: 2017-06-22 17:19:30Z
+date: 2017-06-22 20:07:27Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ Ten of the 12 jurors in Bill Cosby's assault trial voted to convict the comedian
 
 Full story on F3News: [Bill Cosby jury voted 10-2 to convict, juror tells ABC](http://www.f3nws.com/n/XNtkbB)
 
-> Posted on: Thursday, June 22, 2017 10:19:30 PM
+> Posted on: Friday, June 23, 2017 1:07:27 AM
