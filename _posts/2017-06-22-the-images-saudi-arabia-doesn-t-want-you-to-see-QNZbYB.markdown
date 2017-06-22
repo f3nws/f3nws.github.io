@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The images Saudi Arabia doesn't want you to see"
-date: 2017-06-22 08:26:49Z
+date: 2017-06-22 16:26:56Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Batool Ali is six years old, though you would never guess that from her huge, ha
 
 Full story on F3News: [The images Saudi Arabia doesn't want you to see](http://www.f3nws.com/n/QNZbYB)
 
-> Posted on: Thursday, June 22, 2017 1:26:49 PM
+> Posted on: Thursday, June 22, 2017 9:26:56 PM

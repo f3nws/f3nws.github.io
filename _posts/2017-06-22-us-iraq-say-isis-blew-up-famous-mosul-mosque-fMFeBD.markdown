@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, Iraq say ISIS blew up famous Mosul mosque"
-date: 2017-06-22 13:14:36Z
+date: 2017-06-22 16:57:19Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States and Iraq said ISIS blew up a historic mosque in Mosul that was
 
 Full story on F3News: [US, Iraq say ISIS blew up famous Mosul mosque](http://www.f3nws.com/n/fMFeBD)
 
-> Posted on: Thursday, June 22, 2017 6:14:36 PM
+> Posted on: Thursday, June 22, 2017 9:57:19 PM
