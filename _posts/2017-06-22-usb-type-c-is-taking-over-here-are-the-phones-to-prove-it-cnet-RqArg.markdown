@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USB Type-C is taking over -- here are the phones to prove it     - CNET"
-date: 2017-06-22 18:45:04Z
+date: 2017-06-22 22:14:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Move over Micro-USB. The USB Type-C standard is here, faster and (best of all) f
 
 Full story on F3News: [USB Type-C is taking over -- here are the phones to prove it     - CNET](http://www.f3nws.com/n/RqArg)
 
-> Posted on: Thursday, June 22, 2017 11:45:04 PM
+> Posted on: Friday, June 23, 2017 3:14:39 AM
