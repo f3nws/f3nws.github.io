@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Donald Trump says 'beautiful' solar panels would allow Mexico border wall to 'pay for itself' - ABC Online](http://www.abc.net.au/news/image/8642836-1x1-700x700.jpg)
 
-ABC Online Donald Trump says 'beautiful' solar panels would allow Mexico border wall to 'pay for itself' ABC Online US President Donald Trump has vowed he will eventually get funding for his proposed wall on the Mexican border, saying he is considering a barrier clad with solar panels that would "create energy and pay for itself". Mr Trump made the comments during a ... Trump ponders solar panels on border wall The Australian Donald Trump says border wall with Mexico could be made of solar panels to pay for itself The New Daily Donald Trump touts plan for solar-panelled Mexico wall which 'pays for itself' Sky News Washington Post - Yahoo7 News - BBC News - CNBC all 35 news articles »
+ABC Online Donald Trump says 'beautiful' solar panels would allow Mexico border wall to 'pay for itself' ABC Online US President Donald Trump has vowed he will eventually get funding for his proposed wall on the Mexican border, saying he is considering a barrier clad with solar panels that would "create energy and pay for itself". Mr Trump made the comments during a ... Donald Trump says border wall with Mexico could be made of solar panels to pay for itself The New Daily Trump returns to campaign mode; talks immigration, border wall New Haven Register Donald Trump talks up solar panel plan for Mexico wall BBC News Sky News - CNBC - Greentech Media - The Independent all 50 news articles »
 
 
 Full story on F3News: [Donald Trump says 'beautiful' solar panels would allow Mexico border wall to 'pay for itself' - ABC Online](http://www.f3nws.com/n/JxYEuD)
