@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Turns an Iowa Rally Into a Venting Session - New York Times](https://static01.nyt.com/images/2017/06/22/us/22DC-TRUMP-IOWA/22DC-TRUMP-IOWA-facebookJumbo.jpg)
 
-New York Times Trump Turns an Iowa Rally Into a Venting Session New York Times President Trump in Cedar Rapids, Iowa, on Wednesday. His mood was buoyant after two special elections a day earlier. Credit Stephen Crowley/The New York Times. CEDAR RAPIDS, Iowa — President Trump said on Wednesday that he was crafting ... Trump's tease of possible Comey tapes fits familiar pattern ABC News In Iowa, the president channels his inner candidate Trump Washington Post After Georgia Win, A Triumphant Trump Returns To Campaign Trail In Iowa NPR USA TODAY - Fox News - Business Insider - TIME all 287 news articles »
+New York Times Trump Turns an Iowa Rally Into a Venting Session New York Times President Trump in Cedar Rapids, Iowa, on Wednesday. His mood was buoyant after two special elections a day earlier. Credit Stephen Crowley/The New York Times. CEDAR RAPIDS, Iowa — President Trump said on Wednesday that he was crafting ... Trump's tease of possible Comey tapes fits familiar pattern ABC News In Iowa, the president channels his inner candidate Trump Washington Post After Georgia Win, A Triumphant Trump Returns To Campaign Trail In Iowa NPR USA TODAY - CBS News - Fox News - Business Insider all 291 news articles »
 
 
 Full story on F3News: [Trump Turns an Iowa Rally Into a Venting Session - New York Times](http://www.f3nws.com/n/nECqAB)
