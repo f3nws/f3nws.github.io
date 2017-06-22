@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![George Clooney's Tequila Company Sold for Up to $1 Billion - New York Times](https://static01.nyt.com/images/2017/06/22/business/22db-clooney2/22db-clooney2-facebookJumbo.jpg)
 
-New York Times George Clooney's Tequila Company Sold for Up to $1 Billion New York Times George Clooney has reason to smile: Casamigos, the tequila brand he founded with his friends Rande Gerber and Mike Meldman, has been sold to Diageo in a deal that values the company at up to $1 billion. Credit Jordan Strauss/Invision, via Associated ... George Clooney and Rande Gerber Sell Casamigos Tequila for $1 Billion PEOPLE.com George Clooney and Rande Gerber Sell Casamigos Tequila Company for $1 Billion E! Online George Clooney, partners sell tequila company for $1 billion ABC News BBC News - Syracuse.com - Vanity Fair - TMZ.com all 152 news articles »
+New York Times George Clooney's Tequila Company Sold for Up to $1 Billion New York Times George Clooney has reason to smile: Casamigos, the tequila brand he founded with his friends Rande Gerber and Mike Meldman, has been sold to Diageo in a deal that values the company at up to $1 billion. Credit Jordan Strauss/Invision, via Associated ... George Clooney and Rande Gerber Sell Casamigos Tequila for $1 Billion PEOPLE.com George Clooney sells his tequila company Casamigos for $1 billion New York Daily News George Clooney and Rande Gerber Sell Casamigos Tequila Company for $1 Billion E! Online ABC News - Deadline - BBC News - Business Insider all 155 news articles »
 
 
 Full story on F3News: [George Clooney's Tequila Company Sold for Up to $1 Billion - New York Times](http://www.f3nws.com/n/kHyxpE)
