@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London fire: 600 other high-rises could be under threat"
-date: 2017-06-22 17:42:18Z
+date: 2017-06-22 18:28:42Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The British government has estimated that 600 high-rise buildings across England
 
 Full story on F3News: [London fire: 600 other high-rises could be under threat](http://www.f3nws.com/n/mG2cMC)
 
-> Posted on: Thursday, June 22, 2017 10:42:18 PM
+> Posted on: Thursday, June 22, 2017 11:28:42 PM
