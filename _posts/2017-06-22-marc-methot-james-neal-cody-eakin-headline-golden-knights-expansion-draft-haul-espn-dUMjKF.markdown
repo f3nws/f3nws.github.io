@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Marc Methot, James Neal, Cody Eakin headline Golden Knights' expansion draft haul - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0621%2Fr222913_818x460_16%2D9.jpg)
 
-ESPN Marc Methot, James Neal, Cody Eakin headline Golden Knights' expansion draft haul ESPN James Neal was the biggest individual name revealed in the second round of expansion announcements. The veteran forward posted 41 points for the Stanley Cup Finals runner-up Nashville Predators during the regular season. In addition to Neal, the ... Fleury's era in Pittsburgh comes to an end NHL.com Stars lose Eakin to Vegas in expansion draft FOXSports.com Fleury leads Vegas Golden Knights' expansion draft choices Los Angeles Times NBCSports.com - Washington Post - Bleacher Report - ABC News all 613 news articles »
+ESPN Marc Methot, James Neal, Cody Eakin headline Golden Knights' expansion draft haul ESPN James Neal was the biggest individual name revealed in the second round of expansion announcements. The veteran forward posted 41 points for the Stanley Cup Finals runner-up Nashville Predators during the regular season. In addition to Neal, the ... Pelicans trade Tim Frazier to Wizards FOXSports.com Fleury leads Vegas Golden Knights' expansion draft choices Los Angeles Times Vegas selects Marc-Andre Fleury in NHL expansion draft Pittsburgh Post-Gazette NBCSports.com - New York Times - Yahoo Sports - Bleacher Report all 641 news articles »
 
 
 Full story on F3News: [Marc Methot, James Neal, Cody Eakin headline Golden Knights' expansion draft haul - ESPN](http://www.f3nws.com/n/dUMjKF)
