@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![What parents think of Pauline Hanson's disability comments](http://www.abc.net.au/news/image/8643028-1x1-700x700.jpg)
 
-Parents of children with special needs react strongly to Pauline Hanson's controversial calls for them to be removed from mainstream classrooms, with many calling the comments "offensive".
+"The autistic kids are the ones left behind". That's what one woman with a special needs child had to say in the wake of Pauline Hanson's "totally deplorable" call for them to be removed from mainstream classrooms.
 
 
 Full story on F3News: [What parents think of Pauline Hanson's disability comments](http://www.f3nws.com/n/hgJSyF)
