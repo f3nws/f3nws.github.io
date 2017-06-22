@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flint airport attack: Michigan officer stabbed in 'act of terrorism,' FBI says"
-date: 2017-06-22 02:15:00Z
+date: 2017-06-22 03:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The stabbing of a police officer at a Michigan airport Wednesday by a Canadian c
 
 Full story on F3News: [Flint airport attack: Michigan officer stabbed in 'act of terrorism,' FBI says](http://www.f3nws.com/n/VBeEDF)
 
-> Posted on: Thursday, June 22, 2017 7:15:00 AM
+> Posted on: Thursday, June 22, 2017 8:15:00 AM
