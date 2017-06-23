@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mummy DNA may shake up Egyptian history"
-date: 2017-06-23 05:40:01Z
+date: 2017-06-23 13:46:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ancient Egyptians and their modern counterparts share less in common than you mi
 
 Full story on F3News: [Mummy DNA may shake up Egyptian history](http://www.f3nws.com/n/ChnfEE)
 
-> Posted on: Friday, June 23, 2017 10:40:01 AM
+> Posted on: Friday, June 23, 2017 6:46:29 PM
