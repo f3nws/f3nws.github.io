@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Sued For Allegedly Violating Presidential Records Act - NPR](https://media.npr.org/include/images/facebook-default-wide.jpg?s=1400)
 
-Washington Post Trump Sued For Allegedly Violating Presidential Records Act NPR Two government watchdog groups, Citizens for Responsibility and Ethics in Washington and the National Security Archive, filed a lawsuit Thursday against President Trump and the Executive Office of the President. The complaint alleges that White House ... Outgoing GE chief Jeff Immelt met with Trump about drones, the 'Internet of things' The Boston Globe At the White House's emerging tech event, drones are one of the day's big topics TechCrunch Drones, 5G Internet Dominate Talks as Tech Execs Visit White House Voice of America Recode - UPI.com - Washington Post - International Business Times all 97 news articles »
+New York Daily News Trump Sued For Allegedly Violating Presidential Records Act NPR Two government watchdog groups, Citizens for Responsibility and Ethics in Washington and the National Security Archive, filed a lawsuit Thursday against President Trump and the Executive Office of the President. The complaint alleges that White House ... Trump: Scalise children got 'beautiful' tour of White House The Hill (blog) Outgoing GE chief Jeff Immelt met with Trump about drones, the 'Internet of things' The Boston Globe Trump gives Scalise's children tour of White House at annual picnic, calls for unity Washington Times Voice of America - WTNH Connecticut News (press release) - Mic - UPI.com all 107 news articles »
 
 
 Full story on F3News: [Trump Sued For Allegedly Violating Presidential Records Act - NPR](http://www.f3nws.com/n/GhuTWB)
