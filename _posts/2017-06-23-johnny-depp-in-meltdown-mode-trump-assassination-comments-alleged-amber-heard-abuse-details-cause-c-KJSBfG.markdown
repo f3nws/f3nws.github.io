@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Johnny Depp in meltdown mode? Trump assassination comments, alleged Amber Heard abuse details cause concern"
-date: 2017-06-23 18:45:00Z
+date: 2017-06-23 19:25:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Johnny Depp’s jokes at a Thursday appearance about assassinating Donald Trump,
 
 Full story on F3News: [Johnny Depp in meltdown mode? Trump assassination comments, alleged Amber Heard abuse details cause concern](http://www.f3nws.com/n/KJSBfG)
 
-> Posted on: Friday, June 23, 2017 11:45:00 PM
+> Posted on: Saturday, June 24, 2017 12:25:00 AM

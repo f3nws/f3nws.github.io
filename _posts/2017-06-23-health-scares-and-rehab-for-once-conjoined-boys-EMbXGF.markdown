@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Health scares and rehab for once-conjoined boys"
-date: 2017-06-23 14:27:05Z
+date: 2017-06-23 19:55:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nicole McDonald eases her silver minivan across Bear Mountain Bridge and hooks a
 
 Full story on F3News: [Health scares and rehab for once-conjoined boys](http://www.f3nws.com/n/EMbXGF)
 
-> Posted on: Friday, June 23, 2017 7:27:05 PM
+> Posted on: Saturday, June 24, 2017 12:55:58 AM
