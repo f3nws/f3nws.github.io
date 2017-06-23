@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "With cameras banned, CNN sends sketch artist to White House briefing"
-date: 2017-06-23 22:12:24Z
+date: 2017-06-23 22:52:32Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNNMoney With cameras banned, CNN sends sketch artist to White House briefing CN
 
 Full story on F3News: [With cameras banned, CNN sends sketch artist to White House briefing](http://www.f3nws.com/n/WxQhRC)
 
-> Posted on: Saturday, June 24, 2017 3:12:24 AM
+> Posted on: Saturday, June 24, 2017 3:52:32 AM
