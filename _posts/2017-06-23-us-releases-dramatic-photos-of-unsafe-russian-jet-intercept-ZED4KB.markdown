@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US releases dramatic photos of 'unsafe' Russian jet intercept"
-date: 2017-06-23 17:39:54Z
+date: 2017-06-23 18:16:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US European Command released dramatic photos on Thursday that show the moment a 
 
 Full story on F3News: [US releases dramatic photos of 'unsafe' Russian jet intercept](http://www.f3nws.com/n/ZED4KB)
 
-> Posted on: Friday, June 23, 2017 10:39:54 PM
+> Posted on: Friday, June 23, 2017 11:16:02 PM
