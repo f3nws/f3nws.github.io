@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Shifting Dollars From Poor to Rich Is a Key Part of the Senate Health Bill - New York Times](https://static01.nyt.com/images/2017/06/23/upshot/up-health-2/up-health-2-facebookJumbo.jpg)
 
-New York Times Shifting Dollars From Poor to Rich Is a Key Part of the Senate Health Bill New York Times The Affordable Care Act gave health insurance to millions of Americans by shifting resources from the wealthy to the poor and by moving oversight from states to the federal government. The Senate bill introduced Thursday pushes back forcefully on both ... The Health 202: McConnell will be a legislative wizard if health care passes Washington Post Trump Signals He Will Work With Republican Holdouts on Health Bill U.S. News & World Report The Senate GOP Health Care Bill Has A Fatal Flaw HuffPost CNNMoney - USA TODAY - Los Angeles Times - Business Insider all 4,696 news articles »
+New York Times Shifting Dollars From Poor to Rich Is a Key Part of the Senate Health Bill New York Times Senate Majority Leader Mitch McConnell at his office on Thursday, when the Republican health plan was made public. Credit Doug Mills/The New York Times. The Affordable Care Act gave health insurance to millions of Americans by shifting resources from ... The Health 202: McConnell will be a legislative wizard if health care passes Washington Post RNC Chair: Time for Democrats to admit ObamaCare fails Americans The Hill (blog) Just About Every Major Medical Group Hates the GOP Health Care Plans NBCNews.com HuffPost - The Atlantic - CNNMoney - U.S. News & World Report all 4,541 news articles »
 
 
 Full story on F3News: [Shifting Dollars From Poor to Rich Is a Key Part of the Senate Health Bill - New York Times](http://www.f3nws.com/n/MxhY2D)
