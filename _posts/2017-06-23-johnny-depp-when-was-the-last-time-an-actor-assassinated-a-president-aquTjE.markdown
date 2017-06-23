@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Johnny Depp: 'When was the last time an actor assassinated a President?'"
-date: 2017-06-23 04:34:10Z
+date: 2017-06-23 08:33:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Even before Johnny Depp said it, the actor seemed to know that his comment would
 
 Full story on F3News: [Johnny Depp: 'When was the last time an actor assassinated a President?'](http://www.f3nws.com/n/aquTjE)
 
-> Posted on: Friday, June 23, 2017 9:34:10 AM
+> Posted on: Friday, June 23, 2017 1:33:35 PM
