@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Arab states issue ultimatum to Qatar: close Jazeera, curb ties with Iran - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20170623&t=2&i=1190191915&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED5M06V)
 
-Reuters Arab states issue ultimatum to Qatar: close Jazeera, curb ties with Iran Reuters DUBAI Four Arab states that imposed a boycott on Qatar have issued an ultimatum to Doha to close Al Jazeera television, curb ties with Iran, shut a Turkish base and pay reparations, demands so far reaching it would appear to be hard for Doha to comply. The Latest: UAE minister: Qatar undermining reconciliation Washington Post Neighbors demand that Qatar close Al-Jazeera, cut Iran ties CBS News Arab Nations Issue Demands to Qatar New York Times Los Angeles Times - Bloomberg - The Hill - The Boston Globe all 1,515 news articles »
+Reuters Arab states issue ultimatum to Qatar: close Jazeera, curb ties with Iran Reuters DUBAI Four Arab states that imposed a boycott on Qatar have issued an ultimatum to Doha to close Al Jazeera television, curb ties with Iran, shut a Turkish base and pay reparations, demands so far reaching it would appear to be hard for Doha to comply. The Latest: UAE minister: Qatar undermining reconciliation Washington Post Neighbors demand that Qatar close Al-Jazeera, cut Iran ties CBS News Arab Nations Issue Demands to Qatar New York Times NPR - Los Angeles Times - Bloomberg - The Hill all 1,542 news articles »
 
 
 Full story on F3News: [Arab states issue ultimatum to Qatar: close Jazeera, curb ties with Iran - Reuters](http://www.f3nws.com/n/DD3QEB)
