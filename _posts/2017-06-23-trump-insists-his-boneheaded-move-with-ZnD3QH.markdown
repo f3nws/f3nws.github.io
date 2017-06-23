@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump insists his boneheaded move with..."
-date: 2017-06-23 14:58:38Z
+date: 2017-06-23 14:58:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Is there anything more cringe-worthy than watching someone falsely assume he's f
 
 Full story on F3News: [Trump insists his boneheaded move with...](http://www.f3nws.com/n/ZnD3QH)
 
-> Posted on: Friday, June 23, 2017 7:58:38 PM
+> Posted on: Friday, June 23, 2017 7:58:00 PM
