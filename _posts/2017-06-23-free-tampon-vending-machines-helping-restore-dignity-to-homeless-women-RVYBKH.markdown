@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Free tampon vending machines helping restore dignity to homeless women](http://www.abc.net.au/news/image/8646710-1x1-700x700.jpg)
 
-Dealing with your monthly period when you haven't got money is a harsh reality of life for homeless women — but new vending machines being rolled out in capital are trying to change that.
+Dealing with your monthly period when you haven't got money is a harsh reality of life for homeless women — but new vending machines being rolled out in capital cities are trying to change that.
 
 
 Full story on F3News: [Free tampon vending machines helping restore dignity to homeless women](http://www.f3nws.com/n/RVYBKH)
