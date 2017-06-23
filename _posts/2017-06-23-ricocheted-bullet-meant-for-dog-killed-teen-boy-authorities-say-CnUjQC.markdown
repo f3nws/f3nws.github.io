@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ricocheted bullet meant for dog killed teen boy, authorities say"
-date: 2017-06-23 10:00:24Z
+date: 2017-06-23 11:30:17Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Deputies opened fire at a charging pit bull and one bullet apparently ricocheted
 
 Full story on F3News: [Ricocheted bullet meant for dog killed teen boy, authorities say](http://www.f3nws.com/n/CnUjQC)
 
-> Posted on: Friday, June 23, 2017 3:00:24 PM
+> Posted on: Friday, June 23, 2017 4:30:17 PM
