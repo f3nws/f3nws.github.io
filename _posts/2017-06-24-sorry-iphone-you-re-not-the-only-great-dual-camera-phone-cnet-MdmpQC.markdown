@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sorry iPhone, you’re not the only great dual-camera phone     - CNET"
-date: 2017-06-24 17:46:47Z
+date: 2017-06-24 19:34:59Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The iPhone 7 Plus has Portrait Mode, but so does the OnePlus 5.
 
 Full story on F3News: [Sorry iPhone, you’re not the only great dual-camera phone     - CNET](http://www.f3nws.com/n/MdmpQC)
 
-> Posted on: Saturday, June 24, 2017 10:46:47 PM
+> Posted on: Sunday, June 25, 2017 12:34:59 AM
