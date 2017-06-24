@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White Helmets member caught on camera disposing of Syrian soldiers’ mutilated bodies (GRAPHIC VIDEO)"
-date: 2017-06-23 22:35:41Z
+date: 2017-06-23 22:35:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A member of the so-called White Helmets which has been hailed by the western med
 
 Full story on F3News: [White Helmets member caught on camera disposing of Syrian soldiers’ mutilated bodies (GRAPHIC VIDEO)](http://www.f3nws.com/n/hdS24B)
 
-> Posted on: Saturday, June 24, 2017 3:35:41 AM
+> Posted on: Saturday, June 24, 2017 3:35:00 AM
