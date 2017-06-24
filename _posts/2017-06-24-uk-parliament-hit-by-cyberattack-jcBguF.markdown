@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK Parliament hit by cyberattack"
-date: 2017-06-24 17:04:03Z
+date: 2017-06-24 17:31:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The UK Parliament's computer system has been hit by a cyberattack, a spokesperso
 
 Full story on F3News: [UK Parliament hit by cyberattack](http://www.f3nws.com/n/jcBguF)
 
-> Posted on: Saturday, June 24, 2017 10:04:03 PM
+> Posted on: Saturday, June 24, 2017 10:31:02 PM
