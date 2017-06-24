@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatar handed stern list of 13 demands by Arab states"
-date: 2017-06-24 08:31:56Z
+date: 2017-06-24 09:24:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Four Arab states that have isolated Qatar have handed the country a list of 13 d
 
 Full story on F3News: [Qatar handed stern list of 13 demands by Arab states](http://www.f3nws.com/n/PUNTRD)
 
-> Posted on: Saturday, June 24, 2017 1:31:56 PM
+> Posted on: Saturday, June 24, 2017 2:24:20 PM

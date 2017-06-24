@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Cladding fire tests failed by 27 high-rise blocks - BBC News"
+date: 2017-06-24 10:07:21Z
+categories: google-news-top-stories
+---
+
+![Cladding fire tests failed by 27 high-rise blocks - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p056tl39.jpg)
+
+BBC News Cladding fire tests failed by 27 high-rise blocks BBC News Cladding on 27 tower blocks in 15 council areas in England has failed fire safety tests, the government says. This comes after Camden Council became the first authority to evacuate residents over fire safety concerns, asking people living in four high ... Why Grenfell Tower Burned: Regulators Put Cost Before Safety New York Times Camden tower evacuation in chaos as residents refuse to leave homes amid safety fears after Grenfell fire Telegraph.co.uk How The Grenfell Tower Community Helped Themselves – Because No One Else Would BuzzFeed News St. Augustine Record - NDTV - The Times of Israel - Evening Standard all 492 news articles »
+
+
+Full story on F3News: [Cladding fire tests failed by 27 high-rise blocks - BBC News](http://www.f3nws.com/n/WktmmD)
+
+> Posted on: Saturday, June 24, 2017 3:07:21 PM
