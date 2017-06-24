@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shadow of high-rise fire looms across UK"
-date: 2017-06-24 13:51:53Z
+date: 2017-06-24 14:33:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Ten days after an inferno swept through Grenfell Tower in west London, leaving t
 
 Full story on F3News: [Shadow of high-rise fire looms across UK](http://www.f3nws.com/n/DJHCzH)
 
-> Posted on: Saturday, June 24, 2017 6:51:53 PM
+> Posted on: Saturday, June 24, 2017 7:33:49 PM
