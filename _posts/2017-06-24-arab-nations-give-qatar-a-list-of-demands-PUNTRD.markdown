@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arab nations give Qatar a list of demands"
-date: 2017-06-24 01:20:21Z
+date: 2017-06-24 08:31:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Four Arab states that have isolated Qatar have reportedly handed the country a l
 
 Full story on F3News: [Arab nations give Qatar a list of demands](http://www.f3nws.com/n/PUNTRD)
 
-> Posted on: Saturday, June 24, 2017 6:20:21 AM
+> Posted on: Saturday, June 24, 2017 1:31:56 PM
