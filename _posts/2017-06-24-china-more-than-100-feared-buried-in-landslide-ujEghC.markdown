@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China: More than 100 feared buried in landslide"
-date: 2017-06-24 07:27:59Z
+date: 2017-06-24 09:47:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A landslide in southwest China's Sichuan province buried more than 100 people, t
 
 Full story on F3News: [China: More than 100 feared buried in landslide](http://www.f3nws.com/n/ujEghC)
 
-> Posted on: Saturday, June 24, 2017 12:27:59 PM
+> Posted on: Saturday, June 24, 2017 2:47:23 PM
