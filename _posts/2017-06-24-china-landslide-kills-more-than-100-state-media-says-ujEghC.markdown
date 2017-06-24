@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China landslide kills more than 100, state media says"
-date: 2017-06-24 10:03:43Z
+date: 2017-06-24 15:12:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A landslide in southwest China's Sichuan province buried more than 100 people, t
 
 Full story on F3News: [China landslide kills more than 100, state media says](http://www.f3nws.com/n/ujEghC)
 
-> Posted on: Saturday, June 24, 2017 3:03:43 PM
+> Posted on: Saturday, June 24, 2017 8:12:04 PM
