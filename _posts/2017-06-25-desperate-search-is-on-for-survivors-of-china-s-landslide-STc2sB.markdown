@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Desperate search is on for survivors of China's landslide"
-date: 2017-06-25 09:35:53Z
+date: 2017-06-25 17:17:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of rescuers are searching through rubble to find 93 people missing aft
 
 Full story on F3News: [Desperate search is on for survivors of China's landslide](http://www.f3nws.com/n/STc2sB)
 
-> Posted on: Sunday, June 25, 2017 2:35:53 PM
+> Posted on: Sunday, June 25, 2017 10:17:18 PM
