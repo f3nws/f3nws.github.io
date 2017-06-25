@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Microsoft confirms some Windows 10 source code has leaked](https://cdn.vox-cdn.com/thumbor/yEiE2V0zKjtRalEFq_MUvMXfdmQ=/0x107:2040x1255/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55426063/mswindows2_2040.0.0.jpg)
 
-The Verge Microsoft confirms some Windows 10 source code has leaked The Verge A portion of Microsoft's Windows 10 source code has leaked online this week. Files related to Microsoft's USB, storage, and Wi-Fi drivers in Windows 10 were posted to Beta Archive this week. Beta Archive is an enthusiast site that tracks Windows ... Windows 10 source code leak is an embarrassment for Microsoft Engadget Windows 10 Source Code Leaked Fortune Leak of Windows 10 Source Code Raises Security Concerns Gizmodo Tech Times - Ars Technica - ZDNet - BetaNews all 108 news articles »
+The Verge Microsoft confirms some Windows 10 source code has leaked The Verge A portion of Microsoft's Windows 10 source code has leaked online this week. Files related to Microsoft's USB, storage, and Wi-Fi drivers in Windows 10 were posted to Beta Archive this week. Beta Archive is an enthusiast site that tracks Windows ... Windows 10 source code leak is an embarrassment for Microsoft Engadget Windows 10 Source Code Leaked Fortune Leak of Windows 10 Source Code Raises Security Concerns Gizmodo Tech Times - Ars Technica - ZDNet - BetaNews all 109 news articles »
 
 
 Full story on F3News: [Microsoft confirms some Windows 10 source code has leaked](http://www.f3nws.com/n/kkhzMJ)
