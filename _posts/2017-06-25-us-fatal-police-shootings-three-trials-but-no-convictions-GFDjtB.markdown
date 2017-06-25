@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US fatal police shootings: Three trials, but no convictions"
-date: 2017-06-25 10:03:21Z
+date: 2017-06-25 11:37:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ All three cases started with a traffic stop.
 
 Full story on F3News: [US fatal police shootings: Three trials, but no convictions](http://www.f3nws.com/n/GFDjtB)
 
-> Posted on: Sunday, June 25, 2017 3:03:21 PM
+> Posted on: Sunday, June 25, 2017 4:37:32 PM
