@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Pakistan fuel tanker truck explosion kills at least 140 - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170625012531-oil-tanker-explosion-map-image-super-tease.jpg)
 
-CNN Pakistan fuel tanker truck explosion kills at least 140 CNN Karachi, Pakistan (CNN) A fuel tanker wrecked in eastern Pakistan on Sunday, and as villagers converged to collect fuel leaking from the truck, it exploded, killing at least 140 people, according to police and hospital officials. Nishtar Hospital ... 'Horrible Tragedy' as Fuel Tanker Fire in Pakistan Leaves at Least 150 Dead New York Times Oil truck explosion kills 146 people in Pakistan Reuters The Latest: 153 killed in Pakistan tanker fire Washington Post NBCNews.com - USA TODAY - ABC News - The Atlantic all 304 news articles »
+CNN Pakistan fuel tanker truck explosion kills at least 140 CNN Karachi, Pakistan (CNN) A fuel tanker wrecked in eastern Pakistan on Sunday, and as villagers converged to collect fuel leaking from the truck, it exploded, killing at least 140 people, according to police and hospital officials. Nishtar Hospital ... Oil truck explosion kills 146 people in Pakistan Reuters 'Horrible Tragedy' as Fuel Tanker Fire in Pakistan Leaves at Least 150 Dead New York Times The Latest: 153 killed in Pakistan tanker fire Washington Post NBCNews.com - USA TODAY - ABC News - The Atlantic all 317 news articles »
 
 
 Full story on F3News: [Pakistan fuel tanker truck explosion kills at least 140 - CNN](http://www.f3nws.com/n/mWkfyC)
