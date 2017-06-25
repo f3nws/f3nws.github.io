@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate health-care bill faces serious resistance from GOP moderates - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/24/Health-Environment-Science/Images/Congress_Health_Overhaul_45410-50df0-0956.jpg)
 
-Washington Post Senate health-care bill faces serious resistance from GOP moderates Washington Post A small group of moderate Republican senators, worried that their leaders' health-care bill could damage the nation's social safety net, may pose at least as significant an obstacle to the measure's passage as their colleagues on the right. The vast ... Health Law Repeal Leaves Nevada Republican Torn Between Lawmakers New York Times Opioid crisis threatens GOP ObamaCare repeal The Hill The Good, The Bad, And The Senate Health-Care Bill National Review CNN - Politico - HuffPost - Bloomberg all 6,719 news articles »
+Washington Post Senate health-care bill faces serious resistance from GOP moderates Washington Post A small group of moderate Republican senators, worried that their leaders' health-care bill could damage the nation's social safety net, may pose at least as significant an obstacle to the measure's passage as their colleagues on the right. The vast ... Health Law Repeal Leaves Nevada Republican Torn Between Lawmakers New York Times Opioid crisis threatens GOP ObamaCare repeal The Hill Trump's previous promises on health care CNN Politico - National Review - HuffPost - NPR all 6,982 news articles »
 
 
 Full story on F3News: [Senate health-care bill faces serious resistance from GOP moderates - Washington Post](http://www.f3nws.com/n/NpQUbC)
