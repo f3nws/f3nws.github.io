@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![She Was Named World's Ugliest Dog, but 'She's Just Darling' - New York Times](https://static01.nyt.com/images/2017/06/25/us/25UGLYDOG2/25UGLYDOG2-facebookJumbo.jpg)
 
-New York Times She Was Named World's Ugliest Dog, but 'She's Just Darling' New York Times Martha, a Neapolitan mastiff, won the annual “World's Ugliest Dog” competition on Friday at the Sonoma-Marin County Fair in California. Credit Josh Edelson/Agence France-Presse — Getty Images. Jessica Burkard of Penngrove, Calif., saw a beautiful ... World's Ugliest Dog: This gassy Neapolitan Mastiff named Martha USA TODAY World's ugliest dog, Martha, crowned in California BBC News 125-pound Mastiff named Martha wins world's ugliest dog SFGate Today.com - Arizona Daily Star - E! Online - PerezHilton.com all 161 news articles »
+New York Times She Was Named World's Ugliest Dog, but 'She's Just Darling' New York Times Martha, a Neapolitan mastiff, won the annual “World's Ugliest Dog” competition on Friday at the Sonoma-Marin County Fair in California. Credit Josh Edelson/Agence France-Presse — Getty Images. Jessica Burkard of Penngrove, Calif., saw a beautiful ... World's Ugliest Dog: This gassy Neapolitan Mastiff named Martha USA TODAY World's ugliest dog, Martha, crowned in California BBC News 125-pound Mastiff named Martha wins world's ugliest dog SFGate Today.com - E! Online - Arizona Daily Star - KRIS Corpus Christi News all 167 news articles »
 
 
 Full story on F3News: [She Was Named World's Ugliest Dog, but 'She's Just Darling' - New York Times](http://www.f3nws.com/n/x2nkcH)

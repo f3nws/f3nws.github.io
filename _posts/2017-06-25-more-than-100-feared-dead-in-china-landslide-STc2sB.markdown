@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More than 100 feared dead in China landslide"
-date: 2017-06-25 06:25:20Z
+date: 2017-06-25 07:33:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ About a thousand rescuers are searching through rubble to find 118 people missin
 
 Full story on F3News: [More than 100 feared dead in China landslide](http://www.f3nws.com/n/STc2sB)
 
-> Posted on: Sunday, June 25, 2017 11:25:20 AM
+> Posted on: Sunday, June 25, 2017 12:33:06 PM
