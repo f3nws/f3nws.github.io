@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan rejects Arab demands; Turkish troops stay in Qatar"
-date: 2017-06-25 09:01:04Z
+date: 2017-06-25 09:01:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Turkey's president says he will not pull Turkish troops from their base in Qatar
 
 Full story on F3News: [Erdogan rejects Arab demands; Turkish troops stay in Qatar](http://www.f3nws.com/n/EncCgH)
 
-> Posted on: Sunday, June 25, 2017 2:01:04 PM
+> Posted on: Sunday, June 25, 2017 2:01:00 PM
