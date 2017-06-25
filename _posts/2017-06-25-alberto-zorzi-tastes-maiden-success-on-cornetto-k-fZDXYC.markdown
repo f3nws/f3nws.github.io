@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alberto Zorzi tastes maiden success on Cornetto K"
-date: 2017-06-25 13:40:27Z
+date: 2017-06-25 14:20:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Italy's Alberto Zorzi claimed his maiden victory on the Longines Global Champion
 
 Full story on F3News: [Alberto Zorzi tastes maiden success on Cornetto K](http://www.f3nws.com/n/fZDXYC)
 
-> Posted on: Sunday, June 25, 2017 6:40:27 PM
+> Posted on: Sunday, June 25, 2017 7:20:39 PM
