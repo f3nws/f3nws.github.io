@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Trump just ended a long tradition of celebrating Ramadan at the White House - SFGate](http://ww4.hdnux.com/photos/62/05/71/13131383/3/rawImage.jpg)
 
-SFGate Trump just ended a long tradition of celebrating Ramadan at the White House SFGate In the early days of December 1805, a handful of prominent politicians received formal invitations to join President Thomas Jefferson for a White House dinner. Such entreaties were not uncommon: Jefferson frequently hosted lawmakers for political ... President Trump skips hosting annual Ramadan dinner, breaking with almost 20 years of tradition New York Daily News Muslims in Birmingham celebrate Eid al-Fitr amid increased security The Guardian Largest Eid celebration in Europe as 100000 Muslims gather in Birmingham Telegraph.co.uk CBC.ca - CBN News - Evening Standard - gulfnews.com all 803 news articles »
+SFGate Trump just ended a long tradition of celebrating Ramadan at the White House SFGate In the early days of December 1805, a handful of prominent politicians received formal invitations to join President Thomas Jefferson for a White House dinner. Such entreaties were not uncommon: Jefferson frequently hosted lawmakers for political ... President Trump skips hosting annual Ramadan dinner, breaking with almost 20 years of tradition New York Daily News PHOTOS: Here's How Muslims Worldwide Are Celebrating Ramadan's End NPR Muslims in Birmingham celebrate Eid al-Fitr amid increased security The Guardian Telegraph.co.uk - International Business Times - Times of India - CBN News all 818 news articles »
 
 
 Full story on F3News: [Trump just ended a long tradition of celebrating Ramadan at the White House - SFGate](http://www.f3nws.com/n/bNAfcH)
