@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scores feared dead in China as landslide buries village"
-date: 2017-06-25 09:15:56Z
+date: 2017-06-25 09:35:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ About a thousand rescuers are searching through rubble to find 118 people missin
 
 Full story on F3News: [Scores feared dead in China as landslide buries village](http://www.f3nws.com/n/STc2sB)
 
-> Posted on: Sunday, June 25, 2017 2:15:56 PM
+> Posted on: Sunday, June 25, 2017 2:35:53 PM
