@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6 injured as car collides with crowd celebrating Eid in the UK"
-date: 2017-06-25 14:08:50Z
+date: 2017-06-25 14:57:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An incident in which a car collided with six pedestrians following an Eid al-Fit
 
 Full story on F3News: [6 injured as car collides with crowd celebrating Eid in the UK](http://www.f3nws.com/n/tetjjF)
 
-> Posted on: Sunday, June 25, 2017 7:08:50 PM
+> Posted on: Sunday, June 25, 2017 7:57:38 PM
