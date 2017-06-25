@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudis: Attack foiled on Grand Mosque in Mecca"
-date: 2017-06-24 07:57:43Z
+date: 2017-06-24 10:27:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi security forces on Friday prevented an imminent attack on the Grand Mosque
 
 Full story on F3News: [Saudis: Attack foiled on Grand Mosque in Mecca](http://www.f3nws.com/n/vXTTdF)
 
-> Posted on: Saturday, June 24, 2017 12:57:43 PM
+> Posted on: Saturday, June 24, 2017 3:27:00 PM
