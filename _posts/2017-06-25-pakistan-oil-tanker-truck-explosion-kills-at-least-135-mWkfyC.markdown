@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan oil tanker truck explosion kills at least 135"
-date: 2017-06-25 16:58:01Z
+date: 2017-06-25 18:49:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A devastating accident involving an exploding oil tanker has left at least 135 p
 
 Full story on F3News: [Pakistan oil tanker truck explosion kills at least 135](http://www.f3nws.com/n/mWkfyC)
 
-> Posted on: Sunday, June 25, 2017 9:58:01 PM
+> Posted on: Sunday, June 25, 2017 11:49:35 PM

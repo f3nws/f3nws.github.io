@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Forest fire in Spain threatens renowned national park"
-date: 2017-06-25 16:24:21Z
+date: 2017-06-25 17:58:56Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Spanish authorities say a forest fire has forced the evacuation of camp sites an
 
 Full story on F3News: [Forest fire in Spain threatens renowned national park](http://www.f3nws.com/n/WfzjkC)
 
-> Posted on: Sunday, June 25, 2017 9:24:21 PM
+> Posted on: Sunday, June 25, 2017 10:58:56 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Albanian vote in election seen as key to moving toward EU"
-date: 2017-06-25 10:05:44Z
+date: 2017-06-25 18:07:47Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Albanians have started to cast ballots in a general election that follows a land
 
 Full story on F3News: [Albanian vote in election seen as key to moving toward EU](http://www.f3nws.com/n/vbdBSJ)
 
-> Posted on: Sunday, June 25, 2017 3:05:44 PM
+> Posted on: Sunday, June 25, 2017 11:07:47 PM
