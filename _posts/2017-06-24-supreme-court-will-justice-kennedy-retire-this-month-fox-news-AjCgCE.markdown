@@ -5,7 +5,7 @@ date: 2017-06-24 20:11:02Z
 categories: google-news-top-stories
 ---
 
-Fox News Supreme Court: Will Justice Kennedy retire this month? Fox News The Supreme Court's term ends next week with growing speculation that Justice Anthony Kennedy--the panel's most pivotal member--may retire at age 80 after 29 years on the court. Action is expected on President Trump's travel ban before the court's long ... Is Justice Anthony Kennedy Getting Ready to Announce Retirement? Slate Magazine (blog) Supreme Court Justice Anthony Kennedy Retirement Rumors Has Washington on Edge For Next Term Newsweek Kennedy considering retiring from Supreme Court: reports The Hill Washington Examiner - KTLA - Hot Air - Mic all 46 news articles »
+Fox News Supreme Court: Will Justice Kennedy retire this month? Fox News The Supreme Court's term ends next week with growing speculation that Justice Anthony Kennedy--the panel's most pivotal member--may retire at age 80 after 29 years on the court. Action is expected on President Trump's travel ban before the court's long ... Is Justice Anthony Kennedy Getting Ready to Announce Retirement? Slate Magazine (blog) Kennedy considering retiring from Supreme Court: reports The Hill Big cases, retirement rumors as Supreme Court nears finish CNBC KTLA - Raw Story - Mic - GeekWire all 46 news articles »
 
 
 Full story on F3News: [Supreme Court: Will Justice Kennedy retire this month? - Fox News](http://www.f3nws.com/n/AjCgCE)
