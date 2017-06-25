@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump: Obama 'did nothing' about Russia election meddling - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170615132528-01-vladimir-putin-0615-super-tease.jpg)
 
-CNN Trump: Obama 'did nothing' about Russia election meddling CNN (CNN) President Donald Trump questioned former President Barack Obama's response to Russia's attempts to influence the 2016 election in an interview airing Sunday morning, saying Obama didn't do enough to address the situation. "Well I just heard today ... Evidence is mounting that Russia took 4 clear paths to meddle in the US election Business Insider Trump on Russian election meddling: Focus on Obama administration Politico Former Obama intelligence official: Russian hack 'the political equivalent of 9/11' The Hill Washington Examiner - CBS News - HuffPost - Washington Times all 439 news articles »
+CNN Trump: Obama 'did nothing' about Russia election meddling CNN (CNN) President Donald Trump questioned former President Barack Obama's response to Russia's attempts to influence the 2016 election in an interview airing Sunday morning, saying Obama didn't do enough to address the situation. "Well I just heard today ... Trump lashes out at Obama over latest report on Russian election meddling Washington Post Trump Asks 'Why No Action?' Amid Questions About Obama's Response To Russian Meddling NPR Why CIA Vets Say Putin Hates America—And Why President Trump Can't Trust Him Daily Beast BBC News - NBCNews.com - Politico - HuffPost all 505 news articles »
 
 
 Full story on F3News: [Trump: Obama 'did nothing' about Russia election meddling - CNN](http://www.f3nws.com/n/XNPnUC)
