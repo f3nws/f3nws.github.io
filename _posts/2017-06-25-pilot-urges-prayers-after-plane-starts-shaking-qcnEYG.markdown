@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pilot urges prayers after plane starts shaking"
-date: 2017-06-25 15:04:41Z
+date: 2017-06-25 15:59:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An AirAsia X flight to Malaysia from Perth, Australia, was forced to turn back S
 
 Full story on F3News: [Pilot urges prayers after plane starts shaking](http://www.f3nws.com/n/qcnEYG)
 
-> Posted on: Sunday, June 25, 2017 8:04:41 PM
+> Posted on: Sunday, June 25, 2017 8:59:56 PM
