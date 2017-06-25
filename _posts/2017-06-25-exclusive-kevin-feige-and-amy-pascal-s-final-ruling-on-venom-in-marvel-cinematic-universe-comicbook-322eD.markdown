@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Exclusive: Kevin Feige And Amy Pascal's Final Ruling On Venom In Marvel Cinematic Universe - Comicbook.com](http://media.comicbook.com/2017/06/venom-marvelstudios-1004590-640x320.jpg)
 
-Comicbook.com Exclusive: Kevin Feige And Amy Pascal's Final Ruling On Venom In Marvel Cinematic Universe Comicbook.com It's time to settle the debate, once and for all. Will Venom and the rest of Sony's Marvel characters be a part of the Marvel Cinematic Universe? Not at all. Speaking to the heads of Marvel Studios and Sony Pictures, Kevin Feige and Amy Pascal ... The Next Spider-Man Film Will Be the Civil War of Marvel's Phase Four Gizmodo Watch the Spider-Man: Homecoming Press Conference! ComingSoon.net Spider-Man: Homecoming Is Diverse, and Its Producer Explained Why in Just Nine Words Vulture UPROXX - EW.com - Screen Rant - Den of Geek US all 308 news articles »
+Comicbook.com Exclusive: Kevin Feige And Amy Pascal's Final Ruling On Venom In Marvel Cinematic Universe Comicbook.com It's time to settle the debate, once and for all. Will Venom and the rest of Sony's Marvel characters be a part of the Marvel Cinematic Universe? Not at all. Speaking to the heads of Marvel Studios and Sony Pictures, Kevin Feige and Amy Pascal ... 'Spider-Man: Homecoming' Has A Diverse Cast For This Amazing Reason Bustle Spider-Man: Homecoming Is Diverse, and Its Producer Explained Why in Just Nine Words Vulture The 'Spider-Man: Homecoming' Connection To 'Venom' Makes Sense After This Explanation From Kevin Feige UPROXX Gizmodo - EW.com - Screen Rant - Forbes all 317 news articles »
 
 
 Full story on F3News: [Exclusive: Kevin Feige And Amy Pascal's Final Ruling On Venom In Marvel Cinematic Universe - Comicbook.com](http://www.f3nws.com/n/322eD)
