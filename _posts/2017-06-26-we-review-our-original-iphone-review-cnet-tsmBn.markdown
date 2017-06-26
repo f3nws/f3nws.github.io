@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "We review our original iPhone review     - CNET"
-date: 2017-06-26 16:04:05Z
+date: 2017-06-26 16:20:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A decade after we tested the first iPhone, CNET annotates our review to see what
 
 Full story on F3News: [We review our original iPhone review     - CNET](http://www.f3nws.com/n/tsmBn)
 
-> Posted on: Monday, June 26, 2017 9:04:05 PM
+> Posted on: Monday, June 26, 2017 9:20:57 PM

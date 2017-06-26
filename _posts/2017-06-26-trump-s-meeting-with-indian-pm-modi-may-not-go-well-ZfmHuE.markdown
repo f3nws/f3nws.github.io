@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's meeting with Indian PM Modi may not go well"
-date: 2017-06-26 13:20:38Z
+date: 2017-06-26 16:31:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump's meeting with Indian PM Modi may not go well](http://www.f3nws.com/n/ZfmHuE)
 
-> Posted on: Monday, June 26, 2017 6:20:38 PM
+> Posted on: Monday, June 26, 2017 9:31:55 PM

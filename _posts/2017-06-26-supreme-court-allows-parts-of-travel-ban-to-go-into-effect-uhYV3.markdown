@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supreme Court allows parts of travel ban to go into effect"
-date: 2017-06-26 16:18:18Z
+date: 2017-06-26 16:38:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Supreme Court Monday allowed parts of President Donald Trump's travel ban to
 
 Full story on F3News: [Supreme Court allows parts of travel ban to go into effect](http://www.f3nws.com/n/uhYV3)
 
-> Posted on: Monday, June 26, 2017 9:18:18 PM
+> Posted on: Monday, June 26, 2017 9:38:11 PM

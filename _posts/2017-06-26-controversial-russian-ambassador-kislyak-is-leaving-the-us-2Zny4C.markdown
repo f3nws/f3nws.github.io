@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Controversial Russian ambassador Kislyak is leaving the US"
-date: 2017-06-26 15:30:50Z
+date: 2017-06-26 16:42:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Russian Ambassador to the US at the center of a political firestorm over his
 
 Full story on F3News: [Controversial Russian ambassador Kislyak is leaving the US](http://www.f3nws.com/n/2Zny4C)
 
-> Posted on: Monday, June 26, 2017 8:30:50 PM
+> Posted on: Monday, June 26, 2017 9:42:05 PM
