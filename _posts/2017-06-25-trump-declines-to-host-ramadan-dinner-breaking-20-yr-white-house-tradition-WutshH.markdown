@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump declines to host Ramadan dinner, breaking 20-yr White House tradition"
-date: 2017-06-25 12:53:21Z
+date: 2017-06-25 12:53:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Donald Trump has declined to host a dinner to mark the end of Ramadan, ending a 
 
 Full story on F3News: [Trump declines to host Ramadan dinner, breaking 20-yr White House tradition](http://www.f3nws.com/n/WutshH)
 
-> Posted on: Sunday, June 25, 2017 5:53:21 PM
+> Posted on: Sunday, June 25, 2017 5:53:00 PM
