@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Takata files for bankruptcy in US"
-date: 2017-06-26 01:10:06Z
+date: 2017-06-26 01:37:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Takata files for bankruptcy in US](http://www.f3nws.com/n/rjUGyG)
 
-> Posted on: Monday, June 26, 2017 6:10:06 AM
+> Posted on: Monday, June 26, 2017 6:37:47 AM

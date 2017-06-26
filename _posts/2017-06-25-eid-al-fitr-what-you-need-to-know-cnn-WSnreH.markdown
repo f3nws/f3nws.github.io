@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eid al-Fitr: What you need to know - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170625155706-02-ramadan-2017-restricted-super-tease.jpg)
 
-CNN Eid al-Fitr: What you need to know CNN (CNN) More than one billion Muslims around the world celebrated Eid al-Fitr on Sunday, as the month-long Ramadan fast ends and the festivities begin. This year's Eid comes amid ongoing crises in the Middle East -- the civil war in Syria, the diplomatic ... Fake News: Washington Post Claims Thomas Jefferson Held White House Iftar Dinner to 'Celebrate Ramadan' Breitbart News Donald Trump Becomes First President In Two Decades To Not Host A Ramadan Dinner HuffPost Trump Ends 20-Year Tradition of Celebrating Ramadan at White House Slate Magazine (blog) Los Angeles Times - Chron.com - ABC News - NPR all 1,030 news articles »
+CNN Eid al-Fitr: What you need to know CNN (CNN) More than one billion Muslims around the world celebrated Eid al-Fitr on Sunday, as the month-long Ramadan fast ends and the festivities begin. This year's Eid comes amid ongoing crises in the Middle East -- the civil war in Syria, the diplomatic ... Fake News: Washington Post Claims Thomas Jefferson Held White House Iftar Dinner to 'Celebrate Ramadan' Breitbart News Donald Trump Becomes First President In Two Decades To Not Host A Ramadan Dinner HuffPost Trump Ends 20-Year Tradition of Celebrating Ramadan at White House Slate Magazine (blog) Los Angeles Times - ABC News - NPR - OCRegister all 988 news articles »
 
 
 Full story on F3News: [Eid al-Fitr: What you need to know - CNN](http://www.f3nws.com/n/WSnreH)

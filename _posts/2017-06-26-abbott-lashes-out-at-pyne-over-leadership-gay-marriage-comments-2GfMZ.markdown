@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Abbott lashes out at Pyne over leadership, gay marriage comments](http://www.abc.net.au/news/image/4910064-1x1-700x700.jpg)
 
-Factional tensions flare within the Liberal Party as Tony Abbott criticises Liberal frontbencher Christopher Pyne for being disloyal over leaked comments he made about leadership and same-sex marriage.
+Factional tensions flare within the Liberal Party as Tony Abbott criticises frontbencher Christopher Pyne for being disloyal over leaked comments he made about leadership and same-sex marriage.
 
 
 Full story on F3News: [Abbott lashes out at Pyne over leadership, gay marriage comments](http://www.f3nws.com/n/2GfMZ)
