@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seven dead in Kashmir cable car accident"
-date: 2017-06-26 08:33:18Z
+date: 2017-06-26 09:20:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least seven people have died after falling from a cable car during strong win
 
 Full story on F3News: [Seven dead in Kashmir cable car accident](http://www.f3nws.com/n/vZ3QF)
 
-> Posted on: Monday, June 26, 2017 1:33:18 PM
+> Posted on: Monday, June 26, 2017 2:20:37 PM
