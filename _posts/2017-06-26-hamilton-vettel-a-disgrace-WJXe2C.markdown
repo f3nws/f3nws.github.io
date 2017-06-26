@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamilton: Vettel a 'disgrace'"
-date: 2017-06-26 13:12:49Z
+date: 2017-06-26 14:04:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Daniel Ricciardo won a chaotic Azerbaijan Grand Prix Sunday as Sebastian Vettel 
 
 Full story on F3News: [Hamilton: Vettel a 'disgrace'](http://www.f3nws.com/n/WJXe2C)
 
-> Posted on: Monday, June 26, 2017 6:12:49 PM
+> Posted on: Monday, June 26, 2017 7:04:38 PM
