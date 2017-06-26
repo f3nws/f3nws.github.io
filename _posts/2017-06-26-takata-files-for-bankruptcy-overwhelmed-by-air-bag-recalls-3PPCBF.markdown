@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Takata files for bankruptcy, overwhelmed by air bag recalls"
-date: 2017-06-26 03:26:21Z
+date: 2017-06-26 04:10:49Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Drowning in a sea of lawsuits and recall costs, Japanese air bag maker Takata Co
 
 Full story on F3News: [Takata files for bankruptcy, overwhelmed by air bag recalls](http://www.f3nws.com/n/3PPCBF)
 
-> Posted on: Monday, June 26, 2017 8:26:21 AM
+> Posted on: Monday, June 26, 2017 9:10:49 AM
