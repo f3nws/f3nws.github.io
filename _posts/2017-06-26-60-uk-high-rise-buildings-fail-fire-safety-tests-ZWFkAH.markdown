@@ -7,7 +7,7 @@ categories: cnn-com-world
 
 ![60 UK high-rise buildings fail fire safety tests](http://i2.cdn.cnn.com/cnnnext/dam/assets/170615184219-02-week-in-photos-0616-super-tease.jpg)
 
-Fallout from this month's catastrophic apartment tower fire keeps spreading across the UK, with more inspection failures and an order to vacate unsafe apartment buildings.
+At least 60 high-rise buildings across the UK have failed safety tests in the wake of the catastrophic fire that swept through Grenfell Tower in West London on June 14.
 
 
 Full story on F3News: [60 UK high-rise buildings fail fire safety tests](http://www.f3nws.com/n/ZWFkAH)
