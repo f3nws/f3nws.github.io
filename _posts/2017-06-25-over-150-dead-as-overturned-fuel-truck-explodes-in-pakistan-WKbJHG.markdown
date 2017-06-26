@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Over 150 dead as overturned fuel truck explodes in Pakistan"
-date: 2017-06-25 15:58:00Z
+date: 2017-06-25 23:03:57Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Pakistani official says more than 100 people have been killed after an oil tan
 
 Full story on F3News: [Over 150 dead as overturned fuel truck explodes in Pakistan](http://www.f3nws.com/n/WKbJHG)
 
-> Posted on: Sunday, June 25, 2017 8:58:00 PM
+> Posted on: Monday, June 26, 2017 4:03:57 AM
