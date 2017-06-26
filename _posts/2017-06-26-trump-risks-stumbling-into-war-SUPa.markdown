@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump risks stumbling into war"
-date: 2017-06-26 11:48:10Z
+date: 2017-06-26 13:31:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In his first six months in office, President Donald Trump has overseen a steady 
 
 Full story on F3News: [Trump risks stumbling into war](http://www.f3nws.com/n/SUPa)
 
-> Posted on: Monday, June 26, 2017 4:48:10 PM
+> Posted on: Monday, June 26, 2017 6:31:23 PM
