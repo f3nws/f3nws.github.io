@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Salvador Dali to be exhumed amid paternity suit"
-date: 2017-06-26 15:03:39Z
+date: 2017-06-26 17:26:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Madrid court has ordered that the remains of Spanish surrealist artist Salvado
 
 Full story on F3News: [Salvador Dali to be exhumed amid paternity suit](http://www.f3nws.com/n/XYfqpB)
 
-> Posted on: Monday, June 26, 2017 8:03:39 PM
+> Posted on: Monday, June 26, 2017 10:26:46 PM

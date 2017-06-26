@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Grieving Iraqis call on US to investigate massacre of 1,600 military cadets"
-date: 2017-06-26 17:00:12Z
+date: 2017-06-26 17:30:16Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ It has come to be known simply as the “Speicher massacre,” but three years o
 
 Full story on F3News: [Grieving Iraqis call on US to investigate massacre of 1,600 military cadets](http://www.f3nws.com/n/HcUxAH)
 
-> Posted on: Monday, June 26, 2017 10:00:12 PM
+> Posted on: Monday, June 26, 2017 10:30:16 PM
