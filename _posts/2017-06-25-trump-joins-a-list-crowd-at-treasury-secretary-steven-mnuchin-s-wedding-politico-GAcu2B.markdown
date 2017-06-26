@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump joins A-list crowd at Treasury Secretary Steven Mnuchin's wedding - Politico](http://static.politico.com/ae/f8/0f91b80541929e34d49d5973fb65/170624-steven-mnuchin-louise-linton-gettyimages-632209880.jpg)
 
-Politico Trump joins A-list crowd at Treasury Secretary Steven Mnuchin's wedding Politico President Donald Trump has gained a reputation as a wedding crasher, but on Saturday he scored an invitation with other high-profile guests to celebrate the nuptials of one of his Cabinet members. The president and first lady Melania Trump were part of ... Trump's day in tweets: Saturday, June 24 Los Angeles Times Mike Pence officiates the wedding of Steve Mnuchin and Louise Linton Washington Post Who Is Steve Mnuchin's Bride? Louise Linton's 'White Savior' Complex Newsweek PEOPLE.com - New York Daily News - USA TODAY - Vanity Fair all 90 news articles »
+Politico Trump joins A-list crowd at Treasury Secretary Steven Mnuchin's wedding Politico President Donald Trump has gained a reputation as a wedding crasher, but on Saturday he scored an invitation with other high-profile guests to celebrate the nuptials of one of his Cabinet members. The president and first lady Melania Trump were part of ... Trump's day in tweets: Saturday, June 24 Los Angeles Times Mike Pence officiates the wedding of Steve Mnuchin and Louise Linton Washington Post Who Is Steve Mnuchin's Bride? Louise Linton's 'White Savior' Complex Newsweek PEOPLE.com - New York Daily News - USA TODAY - Bustle all 90 news articles »
 
 
 Full story on F3News: [Trump joins A-list crowd at Treasury Secretary Steven Mnuchin's wedding - Politico](http://www.f3nws.com/n/GAcu2B)
