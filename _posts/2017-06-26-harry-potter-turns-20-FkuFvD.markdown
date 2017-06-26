@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Harry Potter' turns 20"
-date: 2017-06-26 07:18:29Z
+date: 2017-06-26 10:57:59Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Believe it or not, the world almost missed out on Harry Potter.
 
 Full story on F3News: ['Harry Potter' turns 20](http://www.f3nws.com/n/FkuFvD)
 
-> Posted on: Monday, June 26, 2017 12:18:29 PM
+> Posted on: Monday, June 26, 2017 3:57:59 PM
