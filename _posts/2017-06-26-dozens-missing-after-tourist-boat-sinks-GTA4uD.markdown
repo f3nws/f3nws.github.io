@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dozens missing after tourist boat sinks"
-date: 2017-06-26 11:13:59Z
+date: 2017-06-26 22:22:04Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Rescuers are combing the waters of a reservoir in northwest Colombia after a tou
 
 Full story on F3News: [Dozens missing after tourist boat sinks](http://www.f3nws.com/n/GTA4uD)
 
-> Posted on: Monday, June 26, 2017 4:13:59 PM
+> Posted on: Tuesday, June 27, 2017 3:22:04 AM

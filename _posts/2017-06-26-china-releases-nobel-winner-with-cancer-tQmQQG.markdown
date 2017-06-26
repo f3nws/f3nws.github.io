@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China releases Nobel winner with cancer"
-date: 2017-06-26 14:12:41Z
+date: 2017-06-26 21:54:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jailed Chinese dissident and Nobel peace laureate Liu Xiaobo has been diagnosed 
 
 Full story on F3News: [China releases Nobel winner with cancer](http://www.f3nws.com/n/tQmQQG)
 
-> Posted on: Monday, June 26, 2017 7:12:41 PM
+> Posted on: Tuesday, June 27, 2017 2:54:28 AM
