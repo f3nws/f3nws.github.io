@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump-Modi meeting may not be easy"
-date: 2017-06-26 19:13:22Z
+date: 2017-06-26 21:16:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will look to boost military cooperation between the Unite
 
 Full story on F3News: [Trump-Modi meeting may not be easy](http://www.f3nws.com/n/sPqMpF)
 
-> Posted on: Tuesday, June 27, 2017 12:13:22 AM
+> Posted on: Tuesday, June 27, 2017 2:16:15 AM
