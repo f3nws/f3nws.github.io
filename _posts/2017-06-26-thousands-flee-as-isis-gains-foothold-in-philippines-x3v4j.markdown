@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thousands flee as ISIS gains foothold in Philippines"
-date: 2017-06-26 10:24:40Z
+date: 2017-06-26 22:40:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ During the rainy season on the southern Philippines island of Mindanao, storms a
 
 Full story on F3News: [Thousands flee as ISIS gains foothold in Philippines](http://www.f3nws.com/n/x3v4j)
 
-> Posted on: Monday, June 26, 2017 3:24:40 PM
+> Posted on: Tuesday, June 27, 2017 3:40:41 AM

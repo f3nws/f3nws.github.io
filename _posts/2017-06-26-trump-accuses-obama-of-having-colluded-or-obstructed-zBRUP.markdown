@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump accuses Obama of having 'colluded or obstructed'"
-date: 2017-06-26 20:47:15Z
+date: 2017-06-26 22:36:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump continued to criticize former President Barack Obama on M
 
 Full story on F3News: [Trump accuses Obama of having 'colluded or obstructed'](http://www.f3nws.com/n/zBRUP)
 
-> Posted on: Tuesday, June 27, 2017 1:47:15 AM
+> Posted on: Tuesday, June 27, 2017 3:36:01 AM
