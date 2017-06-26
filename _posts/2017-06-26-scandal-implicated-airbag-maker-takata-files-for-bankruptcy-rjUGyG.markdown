@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scandal-implicated airbag maker Takata files for bankruptcy"
-date: 2017-06-26 04:48:18Z
+date: 2017-06-26 15:23:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Scandal-implicated airbag maker Takata files for bankruptcy](http://www.f3nws.com/n/rjUGyG)
 
-> Posted on: Monday, June 26, 2017 9:48:18 AM
+> Posted on: Monday, June 26, 2017 8:23:22 PM
