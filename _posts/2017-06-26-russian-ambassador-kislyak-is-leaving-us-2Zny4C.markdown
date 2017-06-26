@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian ambassador Kislyak is leaving US"
-date: 2017-06-26 16:42:05Z
+date: 2017-06-26 20:20:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Russian Ambassador to the US at the center of a political firestorm over his
 
 Full story on F3News: [Russian ambassador Kislyak is leaving US](http://www.f3nws.com/n/2Zny4C)
 
-> Posted on: Monday, June 26, 2017 9:42:05 PM
+> Posted on: Tuesday, June 27, 2017 1:20:51 AM

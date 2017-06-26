@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Nintendo curated the perfect selection of games for the SNES Classic - The Verge](https://cdn.vox-cdn.com/thumbor/wQ1jQEKzveg_IUAg-hb6HlGL96o=/0x90:1024x666/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55450793/SNES_Classic_box.0.jpg)
 
-The Verge Nintendo curated the perfect selection of games for the SNES Classic The Verge When Nintendo released the NES Classic last year, it came bundled with a surprisingly robust collection of 30 games. They ran the gamut from classics like the original Super Mario Bros. trilogy to more obscure titles like StarTropics, striking a nice ... Nintendo making 'significantly more' SNES Classic units than NES Classic Polygon This Is The Most Exciting Thing About The Mini SNES Classic Edition Forbes Nintendo just announced another classic edition of its old video games, and the gaming world is going crazy CNBC Complex - Engadget - Washington Post - Syracuse.com all 265 news articles »
+The Verge Nintendo curated the perfect selection of games for the SNES Classic The Verge When Nintendo released the NES Classic last year, it came bundled with a surprisingly robust collection of 30 games. They ran the gamut from classics like the original Super Mario Bros. trilogy to more obscure titles like StarTropics, striking a nice ... Nintendo making 'significantly more' SNES Classic units than NES Classic Polygon This Is The Most Exciting Thing About The Mini SNES Classic Edition Forbes Nintendo to bring back SNES console with classic games; see the list NOLA.com GameSpot - CNBC - Washington Post - Engadget all 286 news articles »
 
 
 Full story on F3News: [Nintendo curated the perfect selection of games for the SNES Classic - The Verge](http://www.f3nws.com/n/SEQXY)
