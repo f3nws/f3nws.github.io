@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK plan for EU citizens 'too little, too late'"
-date: 2017-06-26 18:24:36Z
+date: 2017-06-26 19:14:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May has told EU citizens living in the UK that fa
 
 Full story on F3News: [UK plan for EU citizens 'too little, too late'](http://www.f3nws.com/n/SCTVg)
 
-> Posted on: Monday, June 26, 2017 11:24:36 PM
+> Posted on: Tuesday, June 27, 2017 12:14:07 AM
