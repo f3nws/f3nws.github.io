@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Northern Ireland party agrees to prop up May's UK government"
-date: 2017-06-26 11:42:03Z
+date: 2017-06-26 11:59:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's embattled Prime Minister Theresa May has finally secured a governing m
 
 Full story on F3News: [Northern Ireland party agrees to prop up May's UK government](http://www.f3nws.com/n/zXkkGH)
 
-> Posted on: Monday, June 26, 2017 4:42:03 PM
+> Posted on: Monday, June 26, 2017 4:59:24 PM
