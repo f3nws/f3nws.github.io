@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nobel-winning Chinese dissident on medical parole"
-date: 2017-06-26 09:13:45Z
+date: 2017-06-26 09:30:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jailed Chinese dissident and Nobel peace laureate Liu Xiaobo has been diagnosed 
 
 Full story on F3News: [Nobel-winning Chinese dissident on medical parole](http://www.f3nws.com/n/tQmQQG)
 
-> Posted on: Monday, June 26, 2017 2:13:45 PM
+> Posted on: Monday, June 26, 2017 2:30:48 PM

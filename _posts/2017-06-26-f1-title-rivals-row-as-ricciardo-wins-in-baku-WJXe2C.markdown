@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "F1 title rivals row as Ricciardo wins in Baku"
-date: 2017-06-26 09:21:00Z
+date: 2017-06-26 09:35:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Daniel Ricciardo won a chaotic Azerbaijan Grand Prix Sunday as Sebastian Vettel 
 
 Full story on F3News: [F1 title rivals row as Ricciardo wins in Baku](http://www.f3nws.com/n/WJXe2C)
 
-> Posted on: Monday, June 26, 2017 2:21:00 PM
+> Posted on: Monday, June 26, 2017 2:35:35 PM
