@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Syria Will 'Pay a Heavy Price' for Another Chemical Attack, White House Says - New York Times](https://static01.nyt.com/images/2017/06/27/us/27DC-CHEMICALS-file/27DC-CHEMICALS-file-facebookJumbo.jpg)
 
-New York Times Syria Will 'Pay a Heavy Price' for Another Chemical Attack, White House Says New York Times A man was helped to a hospital after a suspected toxic gas attack in northern Syria in April. The White House warned Monday that President Bashar al-Assad appeared to be preparing another such attack. Credit Mohamed Al-Bakour/Agence France-Presse ... Syria could be planning chemical attack, White House says Fox News Syria Will Pay 'Heavy Price' if it Goes Ahead With 'Planned' Chemical Weapons Attack Newsweek White House warns Syria's Assad against chemical attack Washington Post NPR - The Atlantic - ABC News - BuzzFeed News all 191 news articles »
+New York Times Syria Will 'Pay a Heavy Price' for Another Chemical Attack, White House Says New York Times A man was helped to a hospital after a suspected toxic gas attack in northern Syria in April. The White House warned Monday that President Bashar al-Assad appeared to be preparing another such attack. Credit Mohamed Al-Bakour/Agence France-Presse ... US threatens Syria, says Assad is planning chemical weapons attack Reuters Syria could be planning chemical attack, White House says Fox News Russia calls US warning of possible chemical attack a "provocation" CBS News Washington Times - NPR - The Atlantic - WHIO all 199 news articles »
 
 
 Full story on F3News: [Syria Will 'Pay a Heavy Price' for Another Chemical Attack, White House Says - New York Times](http://www.f3nws.com/n/bsCcpD)
