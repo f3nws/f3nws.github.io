@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US health care vote delayed"
-date: 2017-06-27 21:22:57Z
+date: 2017-06-27 22:09:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senate Majority Leader Mitch McConnell will delay the vote on the Republican lea
 
 Full story on F3News: [US health care vote delayed](http://www.f3nws.com/n/cUVejF)
 
-> Posted on: Wednesday, June 28, 2017 2:22:57 AM
+> Posted on: Wednesday, June 28, 2017 3:09:25 AM
