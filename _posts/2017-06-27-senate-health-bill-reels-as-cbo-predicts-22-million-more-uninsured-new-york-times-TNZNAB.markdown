@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured - New York Times](https://static01.nyt.com/images/2017/06/27/us/27dc-health/27dc-health-facebookJumbo.jpg)
 
-New York Times Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured New York Times Senator Mitch McConnell of Kentucky, the majority leader, last week after a closed-door meeting among Republicans about the Senate health care bill. Credit Doug Mills/The New York Times. WASHINGTON — The Senate bill to repeal the Affordable Care Act ... The Trump administration says CBO can't be trusted because its Obamacare predictions were wrong. Are they right? Washington Post Four GOP senators will vote against taking up healthcare bill without changes The Hill Senate Obamacare repeal on brink of defeat Politico CNN - Los Angeles Times - HuffPost - U.S. News & World Report all 9,738 news articles »
+New York Times Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured New York Times Senator Mitch McConnell of Kentucky, the majority leader, last week after a closed-door meeting among Republicans about the Senate health care bill. Credit Doug Mills/The New York Times. WASHINGTON — The Senate bill to repeal the Affordable Care Act ... The Trump administration says CBO can't be trusted because its Obamacare predictions were wrong. Are they right? Washington Post Four GOP senators will vote against taking up healthcare bill without changes The Hill Senate Obamacare repeal on brink of defeat Politico Los Angeles Times - NBCNews.com - Slate Magazine - NPR all 9,826 news articles »
 
 
 Full story on F3News: [Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured - New York Times](http://www.f3nws.com/n/TNZNAB)
