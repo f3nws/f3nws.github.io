@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Europe, Ukraine targeted in massive hack attack"
-date: 2017-06-27 18:24:00Z
+date: 2017-06-27 19:50:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Europe, Ukraine targeted in massive hack attack](http://www.f3nws.com/n/3vEHCH)
 
-> Posted on: Tuesday, June 27, 2017 11:24:00 PM
+> Posted on: Wednesday, June 28, 2017 12:50:06 AM

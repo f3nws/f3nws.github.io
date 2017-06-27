@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Petya ransomware slams Windows PCs shut in massive attack     - CNET"
-date: 2017-06-27 18:43:49Z
+date: 2017-06-27 19:04:34Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The cyberattack is moving quickly, locking down systems at an alarming rate.
 
 Full story on F3News: [Petya ransomware slams Windows PCs shut in massive attack     - CNET](http://www.f3nws.com/n/uBHpjG)
 
-> Posted on: Tuesday, June 27, 2017 11:43:49 PM
+> Posted on: Wednesday, June 28, 2017 12:04:34 AM
