@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured - New York Times](https://static01.nyt.com/images/2017/06/27/us/27dc-health/27dc-health-facebookJumbo.jpg)
 
-New York Times Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured New York Times WASHINGTON — The Senate bill to repeal the Affordable Care Act was edging toward collapse on Monday after the nonpartisan Congressional Budget Office said it would increase the number of people without health insurance by 22 million by 2026. Senate leaders try to bolster GOP health-care bill with incentive for consumers to stay insured Washington Post Senate Obamacare repeal on brink of defeat Politico Four GOP senators will vote against taking up healthcare bill without changes The Hill CNN - Los Angeles Times - NBCNews.com - HuffPost all 10,022 news articles »
+New York Times Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured New York Times WASHINGTON — The Senate bill to repeal the Affordable Care Act was edging toward collapse on Monday after the nonpartisan Congressional Budget Office said it would increase the number of people without health insurance by 22 million by 2026. Senate leaders try to bolster GOP health-care bill with incentive for consumers to stay insured Washington Post Senate Obamacare repeal on brink of defeat Politico Four GOP senators will vote against taking up healthcare bill without changes The Hill CNN - Los Angeles Times - NBCNews.com - HuffPost all 10,176 news articles »
 
 
 Full story on F3News: [Senate Health Bill Reels as CBO Predicts 22 Million More Uninsured - New York Times](http://www.f3nws.com/n/TNZNAB)
