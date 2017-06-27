@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alec Baldwin will return to 'SNL' as Donald Trump"
-date: 2017-06-27 03:24:02Z
+date: 2017-06-27 13:22:28Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Alec Baldwin is about to make your television great again.
 
 Full story on F3News: [Alec Baldwin will return to 'SNL' as Donald Trump](http://www.f3nws.com/n/aHgD4D)
 
-> Posted on: Tuesday, June 27, 2017 8:24:02 AM
+> Posted on: Tuesday, June 27, 2017 6:22:28 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Refugees: We thought America valued diversity"
-date: 2017-06-27 11:32:55Z
+date: 2017-06-27 12:59:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They fled terror, tyranny and persecution in search of a better life for themsel
 
 Full story on F3News: [Refugees: We thought America valued diversity](http://www.f3nws.com/n/vKzqMH)
 
-> Posted on: Tuesday, June 27, 2017 4:32:55 PM
+> Posted on: Tuesday, June 27, 2017 5:59:27 PM
