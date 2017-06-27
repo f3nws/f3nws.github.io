@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Army installation in Alabama locked down over 'possible active shooter'"
-date: 2017-06-27 16:09:00Z
+date: 2017-06-27 16:37:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A possible active shooter was reported at a U.S. Army installation in Alabama on
 
 Full story on F3News: [Army installation in Alabama locked down over 'possible active shooter'](http://www.f3nws.com/n/mMbcAE)
 
-> Posted on: Tuesday, June 27, 2017 9:09:00 PM
+> Posted on: Tuesday, June 27, 2017 9:37:00 PM
