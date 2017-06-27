@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House: Syria could be preparing another chemical attack"
-date: 2017-06-27 04:53:34Z
+date: 2017-06-27 07:04:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House said that there are "potential preparations for another chemical
 
 Full story on F3News: [White House: Syria could be preparing another chemical attack](http://www.f3nws.com/n/sYufYF)
 
-> Posted on: Tuesday, June 27, 2017 9:53:34 AM
+> Posted on: Tuesday, June 27, 2017 12:04:15 PM
