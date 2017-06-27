@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Census results show Australians are losing their religion](http://www.abc.net.au/news/image/8518296-1x1-700x700.jpg)
 
-Australia is older, more ethnically diverse and less religious than ever before, according to the 2016 Census results released today. Here's a snapshot of Australia in 2016.
+Australia is older, more ethnically diverse and less religious than ever before, according to the 2016 census results released today. Here's a snapshot of Australia in 2016.
 
 
 Full story on F3News: [Census results show Australians are losing their religion](http://www.f3nws.com/n/SWErEH)
