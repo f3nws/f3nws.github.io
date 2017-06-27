@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Navy member deployed on border patrol operation dies, Defence says - ABC Online"
-date: 2017-06-27 07:35:52Z
+date: 2017-06-27 08:32:24Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Navy member deployed on border patrol operation dies, Defence says AB
 
 Full story on F3News: [Navy member deployed on border patrol operation dies, Defence says - ABC Online](http://www.f3nws.com/n/zCGStC)
 
-> Posted on: Tuesday, June 27, 2017 12:35:52 PM
+> Posted on: Tuesday, June 27, 2017 1:32:24 PM
