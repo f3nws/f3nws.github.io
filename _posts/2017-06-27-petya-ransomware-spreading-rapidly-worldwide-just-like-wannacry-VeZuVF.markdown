@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Petya Ransomware Spreading Rapidly Worldwide, Just Like WannaCry"
-date: 2017-06-27 16:58:02Z
+date: 2017-06-27 17:43:43Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Watch out, readers! It is ransomware, another WannaCry, another wide-spread atta
 
 Full story on F3News: [Petya Ransomware Spreading Rapidly Worldwide, Just Like WannaCry](http://www.f3nws.com/n/VeZuVF)
 
-> Posted on: Tuesday, June 27, 2017 9:58:02 PM
+> Posted on: Tuesday, June 27, 2017 10:43:43 PM

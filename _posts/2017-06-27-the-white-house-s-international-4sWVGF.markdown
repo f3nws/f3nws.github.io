@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The White House's international..."
-date: 2017-06-27 14:03:07Z
+date: 2017-06-27 14:03:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ During Obama's presidency, Republicans said the White House had "lost the trust 
 
 Full story on F3News: [The White House's international...](http://www.f3nws.com/n/4sWVGF)
 
-> Posted on: Tuesday, June 27, 2017 7:03:07 PM
+> Posted on: Tuesday, June 27, 2017 7:03:00 PM
