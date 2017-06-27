@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![As Trump's Tactics Fall Short, Pence Takes Lead on Health Bill - New York Times](https://static01.nyt.com/images/2017/06/28/us/28dc-Trump/28dc-Trump-facebookJumbo.jpg)
 
-New York Times As Trump's Tactics Fall Short, Pence Takes Lead on Health Bill New York Times President Trump in the Oval Office on Tuesday. Credit Doug Mills/The New York Times. WASHINGTON — President Trump personally lobbied House Republicans to pass health care legislation this year, but the Trump team's heavy-handed tactics have been ... House Republicans watch and wait as Senate struggles with health-care bill Washington Post McConnell delays vote on health care bill until after July 4 recess CNN GOP Delays Health Care Vote Amid Defections, Disagreement NBCNews.com The Hill - NPR - Los Angeles Times - U.S. News & World Report all 11,716 news articles »
+New York Times As Trump's Tactics Fall Short, Pence Takes Lead on Health Bill New York Times President Trump in the Oval Office on Tuesday. Credit Doug Mills/The New York Times. WASHINGTON — President Trump personally lobbied House Republicans to pass health care legislation this year, but the Trump team's heavy-handed tactics have been ... Facing GOP opposition, Senate leaders postpone vote to overhaul Obamacare Washington Post McConnell delays vote on health care bill until after July 4 recess CNN Senate GOP delays ObamaCare repeal vote past recess The Hill Politico - NBCNews.com - TIME - ABC News all 11,911 news articles »
 
 
 Full story on F3News: [As Trump's Tactics Fall Short, Pence Takes Lead on Health Bill - New York Times](http://www.f3nws.com/n/CgZnH)

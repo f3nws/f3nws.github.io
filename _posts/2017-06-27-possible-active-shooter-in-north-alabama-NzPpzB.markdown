@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Possible active shooter' in north Alabama"
-date: 2017-06-27 19:14:53Z
+date: 2017-06-27 21:52:35Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Part of the US Army's Redstone Arsenal post in northern Alabama was on lockdown 
 
 Full story on F3News: ['Possible active shooter' in north Alabama](http://www.f3nws.com/n/NzPpzB)
 
-> Posted on: Wednesday, June 28, 2017 12:14:53 AM
+> Posted on: Wednesday, June 28, 2017 2:52:35 AM
