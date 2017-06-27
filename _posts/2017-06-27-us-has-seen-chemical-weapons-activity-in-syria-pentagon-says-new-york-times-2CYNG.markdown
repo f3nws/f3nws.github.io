@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US Has Seen Chemical Weapons Activity in Syria, Pentagon Says - New York Times](https://static01.nyt.com/images/2017/06/28/world/28Syria/28Syria-facebookJumbo.jpg)
 
-New York Times US Has Seen Chemical Weapons Activity in Syria, Pentagon Says New York Times A child receiving treatment at a hospital in Khan Sheikhoun, Syria, after a nerve agent was used in an attack in April. The White House has accused the Syrian government of preparing a new chemical attack. Credit Omar Haj Kadour/Agence France-Presse ... Trump administration warns of Syrian chemical attack, but with damaged credibility Los Angeles Times The Latest: Syria rebels say new chemical attack possible Washington Post Chemical Weapons in Syria: What We Know After White House Statement NBCNews.com The Atlantic - Newsweek - TIME - The Hill all 725 news articles »
+New York Times US Has Seen Chemical Weapons Activity in Syria, Pentagon Says New York Times A child receiving treatment at a hospital in Khan Sheikhoun, Syria, after a nerve agent was used in an attack in April. The White House has accused the Syrian government of preparing a new chemical attack. Credit Omar Haj Kadour/Agence France-Presse ... The Latest: Syria rebels say new chemical attack possible Washington Post Chemical Weapons in Syria: What We Know After White House Statement NBCNews.com Trump administration warns of Syrian chemical attack, but with damaged credibility Los Angeles Times The Atlantic - Newsweek - Reuters - The Hill all 740 news articles »
 
 
 Full story on F3News: [US Has Seen Chemical Weapons Activity in Syria, Pentagon Says - New York Times](http://www.f3nws.com/n/2CYNG)
