@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Few Overseas Have Faith in Trump's Leadership, Survey Finds - New York Times](https://static01.nyt.com/images/2017/06/27/us/27dc-presidency/27dc-presidency-facebookJumbo.jpg)
 
-New York Times Few Overseas Have Faith in Trump's Leadership, Survey Finds New York Times President Trump, left, gathered with other foreign leaders at the NATO summit meeting in Brussels in May. Mr. Trump will make his second overseas trip next week. Credit Stephen Crowley/The New York Times. WASHINGTON — Faith in American leadership ... Poll shows US tumbling in world's regard under Trump Washington Post Majority Of Global Poll Respondents Find Trump Arrogant, Dangerous NPR Trump causes 'major' shift in global view of US: Pew BBC News CNBC - The Hill (blog) - Slate Magazine (blog) - The Week Magazine all 43 news articles »
+New York Times Few Overseas Have Faith in Trump's Leadership, Survey Finds New York Times President Trump, left, gathered with other foreign leaders at the NATO summit meeting in Brussels in May. Mr. Trump will make his second overseas trip next week. Credit Stephen Crowley/The New York Times. WASHINGTON — Faith in American leadership ... Europe's once positive world view of US slips under Trump ABC News Trump causes 'major' shift in global view of US: Pew BBC News Image of the United States Has Plunged Under Trump, Survey Shows U.S. News & World Report The Hill (blog) - New York Daily News - Pew Research Center - The Week Magazine all 54 news articles »
 
 
 Full story on F3News: [Few Overseas Have Faith in Trump's Leadership, Survey Finds - New York Times](http://www.f3nws.com/n/4ZKPDF)
