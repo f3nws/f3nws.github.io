@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Supreme Court to take case on baker who refused to sell wedding cake to gay couple - Washington Post"
-date: 2017-06-26 13:47:16Z
+date: 2017-06-26 23:38:02Z
 categories: google-news-top-stories
 ---
 
 ![Supreme Court to take case on baker who refused to sell wedding cake to gay couple - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/26/National-Politics/Images/Supreme_Court_73327-40d9c.jpg)
 
-Washington Post Supreme Court to take case on baker who refused to sell wedding cake to gay couple Washington Post The Supreme Court on Monday said it will consider next term whether a Denver baker unlawfully discriminated against a gay couple by refusing to sell them a wedding cake. Lower courts had ruled that Jack Phillips, the owner of Masterpiece Cakeshop, had ... Supreme Court Turns Down Case on Carrying Guns in Public New York Times Supreme Court rejects 2nd Amendment challenge to California limits on carrying guns in public Los Angeles Times Supreme Court To Hear Constitutional Challenge to LGBTQ Nondiscrimination Laws Slate Magazine (blog) BuzzFeed News - NOLA.com - Fox News - USA TODAY all 143 news articles »
+Washington Post Supreme Court to take case on baker who refused to sell wedding cake to gay couple Washington Post The Supreme Court announced Monday that it will consider whether a Denver baker acted lawfully in refusing to sell a wedding cake to a gay couple, setting up a major test next term weighing religious freedom against discrimination based on sexual ... A baker refused to make a cake for a gay couple due to religious beliefs. Supreme Court will rule on the case in fall Los Angeles Times Why a Colorado case over "religious refusals" could matter to Texas Texas Tribune Supreme Court to hear case of Christian baker who refused to make cake for same-sex wedding Washington Times National Review - Patheos (blog) - U.S. News & World Report - New York Times all 194 news articles »
 
 
 Full story on F3News: [Supreme Court to take case on baker who refused to sell wedding cake to gay couple - Washington Post](http://www.f3nws.com/n/BRvFRF)
 
-> Posted on: Monday, June 26, 2017 6:47:16 PM
+> Posted on: Tuesday, June 27, 2017 4:38:02 AM

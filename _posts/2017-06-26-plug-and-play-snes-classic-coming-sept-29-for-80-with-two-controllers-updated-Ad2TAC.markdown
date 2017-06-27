@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Plug-and-play SNES Classic coming Sept. 29 for $80 with two controllers [Updated]](https://cdn.arstechnica.net/wp-content/uploads/2017/06/snesclassic-760x380.jpg)
 
-Unreleased Star Fox 2 among the 21 16-bit classics included.
+Unreleased Star Fox 2 among 21 16-bit classics included; Japanese version now confirmed.
 
 
 Full story on F3News: [Plug-and-play SNES Classic coming Sept. 29 for $80 with two controllers [Updated]](http://www.f3nws.com/n/Ad2TAC)
