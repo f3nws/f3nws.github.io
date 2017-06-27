@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: US, India will agree on everything"
-date: 2017-06-27 01:12:49Z
+date: 2017-06-27 02:42:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will look to boost military cooperation between the Unite
 
 Full story on F3News: [Trump: US, India will agree on everything](http://www.f3nws.com/n/sPqMpF)
 
-> Posted on: Tuesday, June 27, 2017 6:12:49 AM
+> Posted on: Tuesday, June 27, 2017 7:42:24 AM
