@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU slaps Google with record $2.7B fine for search manipulation"
-date: 2017-06-27 10:04:52Z
+date: 2017-06-27 10:54:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [EU slaps Google with record $2.7B fine for search manipulation](http://www.f3nws.com/n/3jBmB)
 
-> Posted on: Tuesday, June 27, 2017 3:04:52 PM
+> Posted on: Tuesday, June 27, 2017 3:54:36 PM
