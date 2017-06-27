@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says Obama 'colluded' over Russia"
-date: 2017-06-27 12:42:19Z
+date: 2017-06-27 14:05:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump continued to criticize former President Barack Obama on M
 
 Full story on F3News: [Trump says Obama 'colluded' over Russia](http://www.f3nws.com/n/zBRUP)
 
-> Posted on: Tuesday, June 27, 2017 5:42:19 PM
+> Posted on: Tuesday, June 27, 2017 7:05:29 PM

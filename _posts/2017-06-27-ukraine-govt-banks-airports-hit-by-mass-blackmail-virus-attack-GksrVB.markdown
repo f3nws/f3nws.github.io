@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Ukraine govt, banks & airports hit by mass blackmail virus attack](https://img.rt.com/files/static.en/article/breaking.jpg)
 
-Ukraine has been affected by massive cyberattacks targeting the country's government, a number of banks and companies, as well as the Ukrainian capital's airports. Read Full Article at RT.com
+Ukraine has been affected by massive cyberattacks targeting the country's government, banks and companies, as well as the capital's airports. Cybersecurity specialists say the attack was the same virus that hit Russian oil company Rosneft. Read Full Article at RT.com
 
 
 Full story on F3News: [Ukraine govt, banks & airports hit by mass blackmail virus attack](http://www.f3nws.com/n/GksrVB)
