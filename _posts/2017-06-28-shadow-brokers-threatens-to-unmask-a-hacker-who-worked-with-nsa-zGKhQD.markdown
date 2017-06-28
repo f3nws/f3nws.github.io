@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Shadow Brokers' Threatens to Unmask A Hacker Who Worked With NSA"
-date: 2017-06-28 08:24:49Z
+date: 2017-06-28 14:05:39Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The Shadow Brokers, a notorious hacking group that leaked US cyberweapons — wh
 
 Full story on F3News: ['Shadow Brokers' Threatens to Unmask A Hacker Who Worked With NSA](http://www.f3nws.com/n/zGKhQD)
 
-> Posted on: Wednesday, June 28, 2017 1:24:49 PM
+> Posted on: Wednesday, June 28, 2017 7:05:39 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michael Bond, Paddington Bear creator, dies at 91"
-date: 2017-06-28 12:31:07Z
+date: 2017-06-28 14:32:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Michael Bond, the creator of the hugely popular children's character Paddington 
 
 Full story on F3News: [Michael Bond, Paddington Bear creator, dies at 91](http://www.f3nws.com/n/YmbxyB)
 
-> Posted on: Wednesday, June 28, 2017 5:31:07 PM
+> Posted on: Wednesday, June 28, 2017 7:32:55 PM
