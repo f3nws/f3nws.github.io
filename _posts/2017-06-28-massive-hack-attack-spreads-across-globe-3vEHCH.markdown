@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive hack attack spreads across globe"
-date: 2017-06-28 02:44:08Z
+date: 2017-06-28 04:41:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Massive hack attack spreads across globe](http://www.f3nws.com/n/3vEHCH)
 
-> Posted on: Wednesday, June 28, 2017 7:44:08 AM
+> Posted on: Wednesday, June 28, 2017 9:41:08 AM
