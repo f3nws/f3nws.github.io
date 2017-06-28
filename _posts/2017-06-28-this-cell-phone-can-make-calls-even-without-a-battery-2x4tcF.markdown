@@ -5,6 +5,8 @@ date: 2017-06-28 18:11:04Z
 categories: wired-top-stories
 ---
 
+![This Cell Phone Can Make Calls Even Without a Battery](https://media.wired.com/photos/5953efeabe605811a2fdcaef/191:100/pass/NewCellphone.jpg)
+
 University of Washington researchers have made a phone that draws what little power it needs from thin air.
 
 
