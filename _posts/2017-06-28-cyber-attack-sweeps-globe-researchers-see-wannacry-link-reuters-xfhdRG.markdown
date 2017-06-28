@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Cyber attack sweeps globe, researchers see 'WannaCry' link - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20170627&t=2&i=1190702219&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED5Q0ZZ)
 
-Reuters Cyber attack sweeps globe, researchers see 'WannaCry' link Reuters MOSCOW/KIEV/WASHINGTON A major global cyber attack disrupted computers at Russia's biggest oil company, Ukrainian banks and multinational firms with a virus similar to the ransomware that infected more than 300,000 computers last month . Cyberattack Hits Ukraine Then Spreads Internationally New York Times Massive cyberattack hits Europe with widespread ransom demands Washington Post Cyberattack Reaches Asia as New Targets Hit by Ransomware Bloomberg NPR - The Verge - Chicago Tribune - CBS News all 593 news articles »
+Reuters Cyber attack sweeps globe, researchers see 'WannaCry' link Reuters MOSCOW/KIEV/WASHINGTON A major global cyber attack disrupted computers at Russia's biggest oil company, Ukrainian banks and multinational firms with a virus similar to the ransomware that infected more than 300,000 computers last month . Cyberattack Hits Ukraine Then Spreads Internationally New York Times Massive cyberattack hits Europe with widespread ransom demands Washington Post Massive Ransomware Attack Hits Ukraine; Experts Say It's Spreading Globally NPR The Verge - Bloomberg - Business Insider - CBS News all 590 news articles »
 
 
 Full story on F3News: [Cyber attack sweeps globe, researchers see 'WannaCry' link - Reuters](http://www.f3nws.com/n/xfhdRG)
