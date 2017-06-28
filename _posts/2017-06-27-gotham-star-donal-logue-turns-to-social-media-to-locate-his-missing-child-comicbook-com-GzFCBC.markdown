@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Gotham' Star Donal Logue Turns To Social Media To Locate His Missing Child - Comicbook.com"
-date: 2017-06-27 20:08:00Z
+date: 2017-06-27 20:08:33Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ Comicbook.com 'Gotham' Star Donal Logue Turns To Social Media To Locate His Miss
 
 Full story on F3News: ['Gotham' Star Donal Logue Turns To Social Media To Locate His Missing Child - Comicbook.com](http://www.f3nws.com/n/GzFCBC)
 
-> Posted on: Wednesday, June 28, 2017 1:08:00 AM
+> Posted on: Wednesday, June 28, 2017 1:08:33 AM
