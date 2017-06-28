@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Helicopter drops grenades on Venezuela court"
-date: 2017-06-28 20:45:27Z
+date: 2017-06-28 21:55:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Venezuelan President Nicolas Maduro has condemned what he called an "armed terro
 
 Full story on F3News: [Helicopter drops grenades on Venezuela court](http://www.f3nws.com/n/Ca3yq)
 
-> Posted on: Thursday, June 29, 2017 1:45:27 AM
+> Posted on: Thursday, June 29, 2017 2:55:10 AM
