@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Johnny Galecki loses ranch in sprawling California fire"
-date: 2017-06-28 08:38:25Z
+date: 2017-06-28 09:28:33Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A large California fire that has been raging since Monday afternoon has claimed 
 
 Full story on F3News: [Johnny Galecki loses ranch in sprawling California fire](http://www.f3nws.com/n/FEZ3fD)
 
-> Posted on: Wednesday, June 28, 2017 1:38:25 PM
+> Posted on: Wednesday, June 28, 2017 2:28:33 PM
