@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman delays flight with 'lucky' coin-throw into engine"
-date: 2017-06-28 11:21:17Z
+date: 2017-06-28 20:22:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Bad weather, crowded skies and military drills...and now add coin-tossing to the
 
 Full story on F3News: [Woman delays flight with 'lucky' coin-throw into engine](http://www.f3nws.com/n/gTQPYG)
 
-> Posted on: Wednesday, June 28, 2017 4:21:17 PM
+> Posted on: Thursday, June 29, 2017 1:22:27 AM
