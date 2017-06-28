@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Cyberattack Hits Ukraine Then Spreads Internationally - New York Times](https://static01.nyt.com/images/2017/06/28/business/28hack1/28hack1-facebookJumbo.jpg)
 
-New York Times Cyberattack Hits Ukraine Then Spreads Internationally New York Times Several companies have been affected by the Petya cyberattack, including, from left, Rosneft, the Russian energy giant; Merck, a pharmaceutical company; and Maersk, a shipping company. Credit Left, Sergei Karpukhin/Reuters; center, Matt ... New cyberattack wallops Europe; spreads more slowly in US Washington Post Today's global ransomware attack weaponized software updates The Verge Massive Ransomware Attack Hits Ukraine; Experts Say It's Spreading Globally NPR WIRED - Bloomberg - BuzzFeed News - Fortune all 509 news articles »
+New York Times Cyberattack Hits Ukraine Then Spreads Internationally New York Times Several companies have been affected by the Petya cyberattack, including, from left, Rosneft, the Russian energy giant; Merck, a pharmaceutical company; and Maersk, a shipping company. Credit Left, Sergei Karpukhin/Reuters; center, Matt ... Massive cyberattack hits Europe with widespread ransom demands Washington Post Massive Ransomware Attack Hits Ukraine; Experts Say It's Spreading Globally NPR Widespread Cyberattack, More Sophisticated Than WannaCry, Hits Major European Companies NBCNews.com Business Insider - BuzzFeed News - Miami Herald - WIRED all 521 news articles »
 
 
 Full story on F3News: [Cyberattack Hits Ukraine Then Spreads Internationally - New York Times](http://www.f3nws.com/n/HDrSZF)

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Costly Retraction for CNN and an Opening for Trump - New York Times](https://static01.nyt.com/images/2017/06/28/business/28CNN-jp/28CNN-jp-facebookJumbo-v2.jpg)
 
-New York Times A Costly Retraction for CNN and an Opening for Trump New York Times Anthony Scaramucci, a close ally of President Trump, disputed a CNN story about himself. Credit Sam Hodgson for The New York Times. In CNN's newsroom, it is called the Triad: a three-pronged internal system designed to ensure that sensitive reporting ... White House spokeswoman unloads on media over CNN retraction Washington Post CNN finds itself in Trump's 'fake news' crosshairs Los Angeles Times CNN Resignations A Sign Of The High Stakes In Covering Trump's Administration NPR ABC News - Mediaite - Variety - USA TODAY all 495 news articles »
+New York Times A Costly Retraction for CNN and an Opening for Trump New York Times Anthony Scaramucci, a close ally of President Trump, disputed a CNN story about himself. Credit Sam Hodgson for The New York Times. In CNN's newsroom, it is called the Triad: a three-pronged internal system designed to ensure that sensitive reporting ... White House spokeswoman unloads on media over CNN retraction Washington Post CNN finds itself in Trump's 'fake news' crosshairs Los Angeles Times White House press feud erupts over 'fake news' Washington Times NPR - ABC News - Mediaite - USA TODAY all 509 news articles »
 
 
 Full story on F3News: [A Costly Retraction for CNN and an Opening for Trump - New York Times](http://www.f3nws.com/n/mmbBxF)
