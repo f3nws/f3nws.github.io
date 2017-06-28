@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Facebook now has 2 billion monthly users… and responsibility - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2017/06/facebook-users-snapchat-twitter-youtube-whatsapp-instagram-wechat-qq.png?w=764&h=400&crop=1)
 
-TechCrunch Facebook now has 2 billion monthly users… and responsibility TechCrunch “We're getting to a size where it's worth really taking a careful look at what are all the things that we can do to make social media the most positive force for good possible,” Facebook Chief Product Officer Chris Cox told TechCrunch about the company ... Mark Zuckerberg: 2 Billion Users Means Facebook's 'Responsibility Is Expanding' Forbes Facebook, Inc. Hits 2 Billion Users -- But It Won't Stop There Motley Fool Zuckerberg: Facebook can build communities, like churches have MarketWatch PR Newswire (press release) - CNBC - The Verge - Hollywood Reporter all 202 news articles »
+TechCrunch Facebook now has 2 billion monthly users… and responsibility TechCrunch “We're getting to a size where it's worth really taking a careful look at what are all the things that we can do to make social media the most positive force for good possible,” Facebook Chief Product Officer Chris Cox told TechCrunch about the company ... Mark Zuckerberg: 2 Billion Users Means Facebook's 'Responsibility Is Expanding' Forbes Status update: Facebook has 2 billion users. Can it reach 3 billion? USA TODAY Here's how Facebook is saying "Thank You" to a community of 2 billion people. PR Newswire (press release) CNBC - Hollywood Reporter - Ubergizmo - The Verge all 135 news articles »
 
 
 Full story on F3News: [Facebook now has 2 billion monthly users… and responsibility - TechCrunch](http://www.f3nws.com/n/ptFAzD)
