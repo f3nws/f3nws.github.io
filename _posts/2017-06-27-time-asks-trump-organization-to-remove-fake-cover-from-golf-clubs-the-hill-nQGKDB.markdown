@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Time asks Trump Organization to remove fake cover from golf clubs - The Hill](http://thehill.com/sites/default/files/faketimecover.png)
 
-The Hill Time asks Trump Organization to remove fake cover from golf clubs The Hill Time magazine has asked the Trump Organization to remove copies of a fake cover of President Trump that were on display at the company's golf clubs, The Washington Post reported Tuesday afternoon. The request came after the newspaper reported that at ... This Fake Time Magazine Cover Was Found Hanging Inside Trump's Golf Resorts BuzzFeed News Fake Trump 'Time' Magazine Covers Hang in His Golf Clubs Newsweek Trump takes another swipe at CNN following resignations The Boston Globe Washington Post - USA TODAY - NJ.com - A.V. Club all 75 news articles »
+The Hill Time asks Trump Organization to remove fake cover from golf clubs The Hill Time magazine has asked the Trump Organization to remove copies of a fake cover of President Trump that were on display at the company's golf clubs, The Washington Post reported Tuesday afternoon. The request came after the newspaper reported that at ... This Fake Time Magazine Cover Was Found Hanging Inside Trump's Golf Resorts BuzzFeed News Fake Trump 'Time' Magazine Covers Hang in His Golf Clubs Newsweek Trump takes another swipe at CNN following resignations The Boston Globe Washington Post - USA TODAY - NJ.com - A.V. Club all 78 news articles »
 
 
 Full story on F3News: [Time asks Trump Organization to remove fake cover from golf clubs - The Hill](http://www.f3nws.com/n/nQGKDB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Helicopter attacks Venezuela's Supreme Court"
-date: 2017-06-28 04:43:54Z
+date: 2017-06-28 04:57:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A helicopter has attacked Venezuela's Supreme Court in Caracas, President Nicola
 
 Full story on F3News: [Helicopter attacks Venezuela's Supreme Court](http://www.f3nws.com/n/Ca3yq)
 
-> Posted on: Wednesday, June 28, 2017 9:43:54 AM
+> Posted on: Wednesday, June 28, 2017 9:57:56 AM
