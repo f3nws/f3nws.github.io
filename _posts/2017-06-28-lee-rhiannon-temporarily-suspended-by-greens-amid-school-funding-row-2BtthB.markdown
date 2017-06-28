@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Lee Rhiannon temporarily suspended by Greens amid school funding row](http://www.abc.net.au/news/image/5081848-1x1-700x700.jpg)
 
-The Greens temporarily suspend New South Wales senator Lee Rhiannon from their party room, pending negotiations with the state branch of the party.
+New South Wales Greens senator Lee Rhiannon is temporarily excluded from party room discussions and decisions on contentious legislation, amid a bitter internal spat over the Government's Gonski 2.0 schools funding proposal.
 
 
 Full story on F3News: [Lee Rhiannon temporarily suspended by Greens amid school funding row](http://www.f3nws.com/n/2BtthB)
