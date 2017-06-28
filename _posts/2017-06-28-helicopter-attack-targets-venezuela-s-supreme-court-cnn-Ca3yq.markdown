@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Helicopter attack targets Venezuela's Supreme Court - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170628094405-venezuela-supreme-court-super-tease.jpg)
 
-Los Angeles Times Helicopter attack targets Venezuela's Supreme Court CNN (CNN) A police helicopter launched a daring attack on the Venezuelan Supreme Court Tuesday, in a dramatic escalation of the months-long crisis engulfing the regime of President Nicolas Maduro. The helicopter was apparently stolen and piloted by an ... Venezuelan Police Helicopter Fires On Supreme Court, Interior Ministry NPR Venezuela crisis: Helicopter launches attack on Supreme Court BBC News Venezuela: Helicopter strafes court in 'terrorist attack' Washington Post New York Times - NBCNews.com - The Atlantic - Business Insider all 129 news articles »
+NBCNews.com Helicopter attack targets Venezuela's Supreme Court CNN (CNN) A police helicopter launched a daring attack on the Venezuelan Supreme Court Tuesday, in a dramatic escalation of the months-long crisis engulfing the regime of President Nicolas Maduro. The helicopter was apparently stolen and piloted by an ... Venezuelan Police Helicopter Fires On Supreme Court, Interior Ministry NPR Venezuela crisis: Helicopter launches attack on Supreme Court BBC News Venezuela: Helicopter strafes court in 'terrorist attack' Washington Post New York Times - NBCNews.com - The Atlantic - Business Insider all 132 news articles »
 
 
 Full story on F3News: [Helicopter attack targets Venezuela's Supreme Court - CNN](http://www.f3nws.com/n/Ca3yq)
