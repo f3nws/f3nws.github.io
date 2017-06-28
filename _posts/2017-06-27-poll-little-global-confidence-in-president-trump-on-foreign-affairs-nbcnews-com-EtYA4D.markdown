@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Poll: Little Global Confidence in President Trump on Foreign Affairs - NBCNews.com](https://media3.s-nbcnews.com/j/newscms/2017_26/2053396/170627-trump-rose-garden-white-house-njs-937a_3f7b5eba5da10f7101b26c3acc443fe6.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Poll: Little Global Confidence in President Trump on Foreign Affairs NBCNews.com WASHINGTON — The reviews from around the globe are in and they show scant confidence outside the United States in President Donald Trump's ability to do the right thing on international affairs, with fewer than 3 in 10 respondents expressing ... Global view of US worsens under Trump, Pew says CNN Europe's once-positive worldview of US slips under Trump Los Angeles Times Poll: US favorability in world falls under Trump The Hill Reuters - USA TODAY - TIME - Minnesota Public Radio News all 117 news articles »
+NBCNews.com Poll: Little Global Confidence in President Trump on Foreign Affairs NBCNews.com WASHINGTON — The reviews from around the globe are in and they show scant confidence outside the United States in President Donald Trump's ability to do the right thing on international affairs, with fewer than 3 in 10 respondents expressing ... Why isn't Obama hitting back at Trump? CNN How about the Russia investigation focus on Russia? There's a thought Fox News World dislikes Donald Trump even more than Americans: survey Raw Story Mediaite - TIME - Washington Post - Washington Examiner all 189 news articles »
 
 
 Full story on F3News: [Poll: Little Global Confidence in President Trump on Foreign Affairs - NBCNews.com](http://www.f3nws.com/n/EtYA4D)
