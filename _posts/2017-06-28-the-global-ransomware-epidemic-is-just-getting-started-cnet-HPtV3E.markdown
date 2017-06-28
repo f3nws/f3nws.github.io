@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The global ransomware epidemic is just getting started     - CNET"
-date: 2017-06-28 17:09:06Z
+date: 2017-06-28 17:37:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ WannaCry should have been a major warning to the world about ransomware. Then th
 
 Full story on F3News: [The global ransomware epidemic is just getting started     - CNET](http://www.f3nws.com/n/HPtV3E)
 
-> Posted on: Wednesday, June 28, 2017 10:09:06 PM
+> Posted on: Wednesday, June 28, 2017 10:37:27 PM
