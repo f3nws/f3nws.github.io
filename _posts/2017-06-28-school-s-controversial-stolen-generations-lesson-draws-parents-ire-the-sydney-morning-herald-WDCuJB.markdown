@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![School's controversial Stolen Generations lesson draws parents' ire - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/0/q/h/t/image.related.articleLeadwide.620x349.gx0lml.png/1498687222604.jpg)
 
-The Sydney Morning Herald School's controversial Stolen Generations lesson draws parents' ire The Sydney Morning Herald Kynan Wykes, 10, and his year 4 class thought they were starting a normal school day when a nun walked into the classroom at 9.30am on Tuesday, holding a letter that she said came from the Prime Minister's office. NSW Stolen Generations lesson to continue The Australian NSW school told kids they would be separated from their parents 9news.com.au Outrageous Stolen Generation lesson labelled emotional abuse Ten Eyewitness News all 5 news articles »
+The Sydney Morning Herald School's controversial Stolen Generations lesson draws parents' ire The Sydney Morning Herald Kynan Wykes, 10, and his year 4 class thought they were starting a normal school day when a nun walked into the classroom at 9.30am on Tuesday, holding a letter that she said came from the Prime Minister's office. Stolen generation member slams controversial lesson NEWS.com.au NSW Stolen Generations lesson to continue The Australian Outrage over 'emotionally abusive' Stolen Generation history lesson Yahoo7 News SBS - 9news.com.au - Ten Eyewitness News - Starts at 60 all 10 news articles »
 
 
 Full story on F3News: [School's controversial Stolen Generations lesson draws parents' ire - The Sydney Morning Herald](http://www.f3nws.com/n/WDCuJB)
