@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Rockets acquire Chris Paul in blockbuster trade with Clippers - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0628%2Fr225303_1296x729_16%2D9.jpg)
 
-ESPN Rockets acquire Chris Paul in blockbuster trade with Clippers ESPN Chris Paul is heading to Houston to join James Harden, and the Rockets will have two All-Stars in the backcourt to lead their chase for a championship after a blockbuster trade with the LA Clippers on Wednesday. "Any day you can acquire a Hall of ... For CP3 Deal to Pay Off, Paul, Harden and D'Antoni Need to Show They Can Change Bleacher Report LA Clippers trade Chris Paul to Houston Rockets NBA.com The Rockets have James Harden, got Chris Paul and you can bet Daryl Morey wants more Washington Post Los Angeles Times - CBSSports.com - SB Nation - FOXSports.com all 541 news articles »
+ESPN Rockets acquire Chris Paul in blockbuster trade with Clippers ESPN Chris Paul is heading to Houston to join James Harden, and the Rockets will have two All-Stars in the backcourt to lead their chase for a championship after a blockbuster trade with the LA Clippers on Wednesday. "Any day you can acquire a Hall of ... For CP3 Deal to Pay Off, Paul, Harden and D'Antoni Need to Show They Can Change Bleacher Report Fantasy Basketball: Impact of Chris Paul being traded to the Rockets New York Daily News The Rockets have James Harden, got Chris Paul and you can bet Daryl Morey wants more Washington Post NBA.com - CBSSports.com - Los Angeles Times - SB Nation all 547 news articles »
 
 
 Full story on F3News: [Rockets acquire Chris Paul in blockbuster trade with Clippers - ESPN](http://www.f3nws.com/n/ePhyzF)
