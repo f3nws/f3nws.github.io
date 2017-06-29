@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![John Mayer on Katy Perry, Learning From the Dead, Embracing Pot - RollingStone.com](http://img.wennermedia.com/social/rs-john-mayer-8764aea4-9a74-44ed-ac5e-8c6ad3d97205.jpg)
 
-RollingStone.com John Mayer on Katy Perry, Learning From the Dead, Embracing Pot RollingStone.com "I'm sort of the acoustic DJ," Mayer says about his collaboration with Dave Chappelle. Credit: Frank Ockenfells. By Patrick Doyle. 7 hours ago. More News. Kendrick Lamar, John Mayer and 6 More New Albums You Can Hear Right Now Watch John Mayer ... Here's John Mayer's Response to Katy Perry Calling Him Her Favorite Sexual Partner E! Online John Mayer responds to Katy Perry ranking him best lover EW.com (blog) John Mayer Responds to Katy Perry Calling Him the 'Best Lover' She's Ever Had Entertainment Tonight USA TODAY - Jezebel - Slate Magazine (blog) - Billboard all 65 news articles »
+RollingStone.com John Mayer on Katy Perry, Learning From the Dead, Embracing Pot RollingStone.com "I'm sort of the acoustic DJ," Mayer says about his collaboration with Dave Chappelle. Credit: Frank Ockenfells. By Patrick Doyle. 7 hours ago. More News. Kendrick Lamar, John Mayer and 6 More New Albums You Can Hear Right Now Watch John Mayer ... Here's John Mayer's Response to Katy Perry Calling Him Her Favorite Sexual Partner E! Online John Mayer responds to Katy Perry ranking him best lover EW.com (blog) John Mayer throws back Katy Perry's 'best' ex-lover compliment USA TODAY Entertainment Tonight - Jezebel - Slate Magazine (blog) - Billboard all 66 news articles »
 
 
 Full story on F3News: [John Mayer on Katy Perry, Learning From the Dead, Embracing Pot - RollingStone.com](http://www.f3nws.com/n/WKEvU)

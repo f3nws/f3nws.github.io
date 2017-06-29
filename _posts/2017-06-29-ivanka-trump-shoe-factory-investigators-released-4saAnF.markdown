@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump shoe factory investigators released"
-date: 2017-06-29 01:10:27Z
+date: 2017-06-29 02:47:05Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The Chinese government has freed three activists who were detained while investi
 
 Full story on F3News: [Ivanka Trump shoe factory investigators released](http://www.f3nws.com/n/4saAnF)
 
-> Posted on: Thursday, June 29, 2017 6:10:27 AM
+> Posted on: Thursday, June 29, 2017 7:47:05 AM
