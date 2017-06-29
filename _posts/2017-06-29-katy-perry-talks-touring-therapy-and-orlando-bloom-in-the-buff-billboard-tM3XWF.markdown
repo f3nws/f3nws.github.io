@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Katy Perry Talks Touring, Therapy and Orlando Bloom in the Buff - Billboard](http://www.billboard.com/files/media/katy-perry-smile-performs-witness-june-2017-billboard-1548.jpg)
 
-Billboard Katy Perry Talks Touring, Therapy and Orlando Bloom in the Buff Billboard Katy Perry hasn't been shy of going way off-piste in the promotion of her new album, Witness. That's pretty much where the conversation went when she chatted with "shock jocks" Kyle and Jackie O for their daily show on Australia's KIIS 1065. Talking ... John Mayer throws back Katy Perry's 'best' ex-lover compliment USA TODAY John Mayer Has Nothing To Say About Katy Perry Calling Him Her 'Best Lover' International Business Times John Mayer on Katy Perry, Learning From the Dead, Embracing Pot RollingStone.com Refinery29 - E! Online - EW.com (blog) - Belfast Telegraph all 111 news articles »
+Billboard Katy Perry Talks Touring, Therapy and Orlando Bloom in the Buff Billboard Katy Perry hasn't been shy of going way off-piste in the promotion of her new album, Witness. That's pretty much where the conversation went when she chatted with "shock jocks" Kyle and Jackie O for their daily show on Australia's KIIS 1065. Talking ... John Mayer Has Nothing To Say About Katy Perry Calling Him Her 'Best Lover' International Business Times John Mayer throws back Katy Perry's 'best' ex-lover compliment USA TODAY John Mayer on Katy Perry, Learning From the Dead, Embracing Pot RollingStone.com Refinery29 - E! Online - EW.com (blog) - PEOPLE.com all 113 news articles »
 
 
 Full story on F3News: [Katy Perry Talks Touring, Therapy and Orlando Bloom in the Buff - Billboard](http://www.f3nws.com/n/tM3XWF)
