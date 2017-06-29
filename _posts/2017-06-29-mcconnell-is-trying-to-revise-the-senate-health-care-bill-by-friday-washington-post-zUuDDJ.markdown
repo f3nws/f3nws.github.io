@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McConnell is trying to revise the Senate health-care bill by Friday - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/28/National-Politics/Images/Botsford170627Trump17574.JPG?t=20170517)
 
-Washington Post McConnell is trying to revise the Senate health-care bill by Friday Washington Post Senate Majority Leader Mitch McConnell is aiming to send a revised version of his health-care bill to the Congressional Budget Office as soon as Friday as he continues to push for a vote before Congress's August recess. The effort reflects the tight ... In McConnell's Own State, Fear and Confusion Over Health Care Bill New York Times Healthcare wish lists: What moderates, conservatives want The Hill Trump to warring GOP senators: I'm on your side Politico CNN - Los Angeles Times - Washington Times - Daily Beast all 3,201 news articles »
+Washington Post McConnell is trying to revise the Senate health-care bill by Friday Washington Post Senate Majority Leader Mitch McConnell is aiming to send a revised version of his health-care bill to the Congressional Budget Office as soon as Friday as he continues to push for a vote before Congress's August recess. The effort reflects the tight ... GOP infighting erupts over healthcare bill The Hill Trump to warring GOP senators: I'm on your side Politico Life Under Trumpcare 'Would Be Terrifying': Stories From The Front Lines Of Health Care HuffPost New York Times - CNN - Los Angeles Times - Washington Times all 3,752 news articles »
 
 
 Full story on F3News: [McConnell is trying to revise the Senate health-care bill by Friday - Washington Post](http://www.f3nws.com/n/zUuDDJ)

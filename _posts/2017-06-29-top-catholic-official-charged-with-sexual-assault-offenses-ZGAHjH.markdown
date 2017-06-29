@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top Catholic official charged with sexual assault offenses"
-date: 2017-06-29 02:52:53Z
+date: 2017-06-29 03:28:13Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Cardinal George Pell, one of the most senior officials in the Catholic Church, h
 
 Full story on F3News: [Top Catholic official charged with sexual assault offenses](http://www.f3nws.com/n/ZGAHjH)
 
-> Posted on: Thursday, June 29, 2017 7:52:53 AM
+> Posted on: Thursday, June 29, 2017 8:28:13 AM
