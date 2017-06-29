@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Arkansas' Ten Commandments Monument Lasted Less Than 24 Hours - NPR](https://media.npr.org/assets/img/2017/06/28/ap_17179450385454_wide-986553f432b85338b30bf8b2cd3bbe7c7c03e79e.jpg?s=1400)
 
-NPR Arkansas' Ten Commandments Monument Lasted Less Than 24 Hours NPR Less than a day after a monument of the Ten Commandments was installed outside the Arkansas State Capitol in Little Rock, it was destroyed when a man smashed a car into the stone. Ten Commandments Installed At Arkansas State Capitol; ACLU Plans ... Why one man keeps ramming his car into Ten Commandments statues on government property Washington Post Man destroys new Ten Commandments statue at Arkansas Capitol Chicago Tribune Arkansas Ten Commandments memorial rammed 24 hours after installation. Here's another commandment Fox News AL.com - NBCNews.com - U.S. News & World Report - BBC News all 150 news articles »
+NPR Arkansas' Ten Commandments Monument Lasted Less Than 24 Hours NPR Updated at 4:15 p.m. ET. Ten Commandments Installed At Arkansas State Capitol; ACLU Plans Lawsuit · The Two-Way · Ten Commandments Installed At Arkansas State Capitol; ACLU Plans Lawsuit. Less than a day after a monument of the Ten ... Why one man keeps ramming his car into Ten Commandments statues on government property Washington Post The Latest: ACLU condemns destruction of Arkansas monument Miami Herald Man destroys Ten Commandments monument outside Arkansas state capitol New York Daily News Fox News - wtkr.com - NBCNews.com - NewsOK.com all 221 news articles »
 
 
 Full story on F3News: [Arkansas' Ten Commandments Monument Lasted Less Than 24 Hours - NPR](http://www.f3nws.com/n/feBZaH)
