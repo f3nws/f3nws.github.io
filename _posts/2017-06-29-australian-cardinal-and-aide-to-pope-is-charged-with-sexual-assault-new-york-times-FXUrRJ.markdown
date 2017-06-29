@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Australian Cardinal and Aide to Pope Is Charged With Sexual Assault - New York Times](https://static01.nyt.com/images/2017/06/02/world/02PELL-01/02PELL-01-facebookJumbo.jpg)
 
-New York Times Australian Cardinal and Aide to Pope Is Charged With Sexual Assault New York Times Cardinal George Pell at an Easter vigil mass in St. Peter's Basilica at the Vatican in April. Credit Max Rossi/Reuters. SYDNEY, Australia — Australia's senior Roman Catholic prelate, and one of Pope Francis' top advisers, has been charged with sexual ... Australian police charge Vatican cardinal with sex offenses Washington Post Cardinal George Pell, Top Vatican Official, Charged With Sexual Assault HuffPost Cardinal Pell: Vatican treasurer charged with sex offences BBC News U.S. News & World Report - Catholic News Agency - NPR - CNN all 143 news articles »
+New York Times Australian Cardinal and Aide to Pope Is Charged With Sexual Assault New York Times Cardinal George Pell at an Easter vigil mass in St. Peter's Basilica at the Vatican in April. Credit Max Rossi/Reuters. SYDNEY, Australia — Australia's senior Roman Catholic prelate, and one of Pope Francis' top advisers, has been charged with sexual ... Australian police charge Vatican cardinal with sex offenses Washington Post Cardinal George Pell, Top Vatican Official, Charged With Sexual Assault HuffPost Top Papal Adviser Charged With Sexual Assault in Blow to Vatican U.S. News & World Report BBC News - Catholic News Agency - NPR - Local 10 all 152 news articles »
 
 
 Full story on F3News: [Australian Cardinal and Aide to Pope Is Charged With Sexual Assault - New York Times](http://www.f3nws.com/n/FXUrRJ)
