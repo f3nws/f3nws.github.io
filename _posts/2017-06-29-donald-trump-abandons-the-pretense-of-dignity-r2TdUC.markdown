@@ -5,7 +5,7 @@ date: 2017-06-29 16:55:52Z
 categories: msnbc
 ---
 
-![Donald Trump abandons the pretense of dignity](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/afp_ny82z.jpg?itok=eBI8Qhr_)
+![Donald Trump abandons the pretense of dignity](https://media-public.fcbarcelona.com/20157/0/document_thumbnail/20197/163/163/14590883/1.0-1/14590883.png?t=1476749073000)
 
 "I think my strongest asset, maybe by far, is my temperament," Donald Trump boasted last year. There's fresh evidence that his claim was a ridiculous.
 
