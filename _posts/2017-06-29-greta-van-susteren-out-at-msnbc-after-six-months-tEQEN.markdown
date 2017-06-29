@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Greta Van Susteren out at MSNBC after six months"
-date: 2017-06-29 20:23:58Z
+date: 2017-06-29 22:13:31Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Greta Van Susteren out at MSNBC after six months](http://www.f3nws.com/n/tEQEN)
 
-> Posted on: Friday, June 30, 2017 1:23:58 AM
+> Posted on: Friday, June 30, 2017 3:13:31 AM

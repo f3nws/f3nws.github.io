@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![The Internet Reacts To Marvel's Inhumans Trailer - Comicbook.com](https://media-public.fcbarcelona.com/20157/0/document_thumbnail/20197/163/163/14590883/1.0-1/14590883.png?t=1476749073000)
 
-Comicbook.com The Internet Reacts To Marvel's Inhumans Trailer Comicbook.com Marvel has finally revealed the first trailer for their anticipated Inhumans series, and the reactions have been...well...mixed. Actually, mixed is being kind, but there are voices out there that enjoyed the first footage, and most of that centered on ... 'Marvel's Inhumans' Trailer: “Nothing Can Keep Us From Being Free” Deadline Marvel's 'Inhumans' First Trailer Brings War to Earth's Doorstep (Watch) Variety Marvel's Inhumans - Official Trailer 1 YouTube YouTube all 122 news articles »
+Comicbook.com The Internet Reacts To Marvel's Inhumans Trailer Comicbook.com Marvel has finally revealed the first trailer for their anticipated Inhumans series, and the reactions have been...well...mixed. Actually, mixed is being kind, but there are voices out there that enjoyed the first footage, and most of that centered on ... The 5 Biggest And Best Moments From Marvel's Inhumans' First Trailer Cinema Blend Marvel's Inhumans - Official Trailer 1 YouTube Marvel's Inhumans – Official Trailer YouTube all 128 news articles »
 
 
 Full story on F3News: [The Internet Reacts To Marvel's Inhumans Trailer - Comicbook.com](http://www.f3nws.com/n/XCfPkB)
