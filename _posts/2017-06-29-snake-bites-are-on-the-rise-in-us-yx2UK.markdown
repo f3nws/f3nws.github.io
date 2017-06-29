@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snake bites are on the rise in US"
-date: 2017-06-29 10:12:28Z
+date: 2017-06-29 19:41:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Meg Trammell, age 11, had just eaten supper after her first day of school at Adv
 
 Full story on F3News: [Snake bites are on the rise in US](http://www.f3nws.com/n/yx2UK)
 
-> Posted on: Thursday, June 29, 2017 3:12:28 PM
+> Posted on: Friday, June 30, 2017 12:41:33 AM
