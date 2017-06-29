@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US travel ban 2.0 set to begin"
-date: 2017-06-29 10:54:53Z
+date: 2017-06-29 17:12:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ After months of winding through the courts, the so-called "watered down," revise
 
 Full story on F3News: [US travel ban 2.0 set to begin](http://www.f3nws.com/n/tPVaPG)
 
-> Posted on: Thursday, June 29, 2017 3:54:53 PM
+> Posted on: Thursday, June 29, 2017 10:12:04 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New food capital of the world?"
-date: 2017-06-29 15:55:37Z
+date: 2017-06-29 17:00:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Paris perhaps? Or maybe New York, Rome or Tokyo? Naming the world's greatest gou
 
 Full story on F3News: [New food capital of the world?](http://www.f3nws.com/n/4vvbdE)
 
-> Posted on: Thursday, June 29, 2017 8:55:37 PM
+> Posted on: Thursday, June 29, 2017 10:00:42 PM
