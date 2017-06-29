@@ -5,7 +5,7 @@ date: 2017-06-29 19:01:00Z
 categories: rt-news
 ---
 
-![Man arrested after trying to ram car into crowd near French mosque – police](https://img.rt.com/files/static.en/article/breaking.jpg)
+![Man arrested after trying to ram car into crowd near French mosque – police](https://img.rt.com/files/2017.06/article/59555641fc7e9313078b4568.jpg)
 
 A man was arrested after attempting to drive a car into people in front of a mosque in the Paris suburb of Creteil, police said in a statement. No one was injured in the incident, and the suspect was detained. Read Full Article at RT.com
 
