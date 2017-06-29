@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7 ways the iPhone has made life worse"
-date: 2017-06-29 13:08:01Z
+date: 2017-06-29 14:09:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ This week marks the tenth anniversary of the iPhone. For hundreds of millions of
 
 Full story on F3News: [7 ways the iPhone has made life worse](http://www.f3nws.com/n/RuKKxB)
 
-> Posted on: Thursday, June 29, 2017 6:08:01 PM
+> Posted on: Thursday, June 29, 2017 7:09:53 PM

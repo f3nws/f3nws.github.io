@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hobbyhorsing: Inside the world of Finland's equestrian craze"
-date: 2017-06-29 13:28:10Z
+date: 2017-06-29 14:07:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On an uncharacteristically warm and clear weekend in May, more than 5,000 people
 
 Full story on F3News: [Hobbyhorsing: Inside the world of Finland's equestrian craze](http://www.f3nws.com/n/krNNuD)
 
-> Posted on: Thursday, June 29, 2017 6:28:10 PM
+> Posted on: Thursday, June 29, 2017 7:07:23 PM
