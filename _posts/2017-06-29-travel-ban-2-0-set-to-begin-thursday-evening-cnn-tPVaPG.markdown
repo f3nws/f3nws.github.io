@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Travel ban 2.0 set to begin Thursday evening - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170306172511-travel-ban-flags-02-super-tease.jpg)
 
-CNN Travel ban 2.0 set to begin Thursday evening CNN (CNN) After months of winding through the courts, the so-called "watered down," revised version of President Donald Trump's fiercely litigated travel ban will finally go into effect at 8 p.m. ET Thursday. Here's what to expect for version 2.0: ... DHS officials announce enhanced security measures for all flights to US but won't expand laptop ban Washington Post Homeland Security tightens screening for all flights from abroad — but won't ban laptops Los Angeles Times DHS announces updated security protocols for international flights to US ABC News USA TODAY - Reuters - CBS News - Bloomberg all 245 news articles »
+CNN Travel ban 2.0 set to begin Thursday evening CNN (CNN) After months of winding through the courts, the so-called "watered down," revised version of President Donald Trump's fiercely litigated travel ban will finally go into effect at 8 p.m. ET Thursday. Here's what to expect for version 2.0: ... DHS officials announce enhanced security measures for all flights to US but won't expand laptop ban Washington Post Homeland Security will tighten airport security - but won't ban laptops Los Angeles Times Europe's airports expect big costs from new US security measures Reuters USA TODAY - CBS News - BBC News - Homeland Security all 292 news articles »
 
 
 Full story on F3News: [Travel ban 2.0 set to begin Thursday evening - CNN](http://www.f3nws.com/n/tPVaPG)

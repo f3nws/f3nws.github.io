@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump-Obama relationship has reached historic low"
-date: 2017-06-29 08:45:50Z
+date: 2017-06-29 16:10:09Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a long-distance feud, transmitted over the airwaves and on social media, th
 
 Full story on F3News: [Trump-Obama relationship has reached historic low](http://www.f3nws.com/n/ahMBFD)
 
-> Posted on: Thursday, June 29, 2017 1:45:50 PM
+> Posted on: Thursday, June 29, 2017 9:10:09 PM
