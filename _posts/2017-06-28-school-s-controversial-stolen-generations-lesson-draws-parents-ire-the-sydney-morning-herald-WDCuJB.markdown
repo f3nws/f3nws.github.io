@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "School's controversial Stolen Generations lesson draws parents' ire - The Sydney Morning Herald"
-date: 2017-06-28 19:00:24Z
+date: 2017-06-28 23:34:54Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald School's controversial Stolen Generations lesson draws
 
 Full story on F3News: [School's controversial Stolen Generations lesson draws parents' ire - The Sydney Morning Herald](http://www.f3nws.com/n/WDCuJB)
 
-> Posted on: Thursday, June 29, 2017 12:00:24 AM
+> Posted on: Thursday, June 29, 2017 4:34:54 AM
