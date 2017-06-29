@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump gets new options on North Korea"
-date: 2017-06-29 12:19:26Z
+date: 2017-06-29 13:48:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US military options for North Korea have recently been updated and are ready to 
 
 Full story on F3News: [Trump gets new options on North Korea](http://www.f3nws.com/n/nxfykB)
 
-> Posted on: Thursday, June 29, 2017 5:19:26 PM
+> Posted on: Thursday, June 29, 2017 6:48:27 PM
