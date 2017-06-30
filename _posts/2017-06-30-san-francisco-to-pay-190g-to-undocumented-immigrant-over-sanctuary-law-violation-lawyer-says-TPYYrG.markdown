@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "San Francisco to Pay $190G to Undocumented Immigrant Over Sanctuary Law Violation, Lawyer Says"
-date: 2017-06-30 09:23:40Z
+date: 2017-06-30 14:00:30Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [San Francisco to Pay $190G to Undocumented Immigrant Over Sanctuary Law Violation, Lawyer Says](http://www.f3nws.com/n/TPYYrG)
 
-> Posted on: Friday, June 30, 2017 2:23:40 PM
+> Posted on: Friday, June 30, 2017 7:00:30 PM

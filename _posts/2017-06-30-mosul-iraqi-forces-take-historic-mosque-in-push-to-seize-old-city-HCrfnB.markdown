@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mosul: Iraqi forces take historic mosque in push to seize Old City"
-date: 2017-06-30 12:37:40Z
+date: 2017-06-30 13:48:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraq's military has seized the remains of the Great Mosque of al-Nuri -- where A
 
 Full story on F3News: [Mosul: Iraqi forces take historic mosque in push to seize Old City](http://www.f3nws.com/n/HCrfnB)
 
-> Posted on: Friday, June 30, 2017 5:37:40 PM
+> Posted on: Friday, June 30, 2017 6:48:09 PM

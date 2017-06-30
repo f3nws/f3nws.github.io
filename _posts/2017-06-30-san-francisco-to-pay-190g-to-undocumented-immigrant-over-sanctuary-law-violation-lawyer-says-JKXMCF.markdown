@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "San Francisco to pay $190G to undocumented immigrant over sanctuary law violation, lawyer says"
-date: 2017-06-30 13:30:09Z
+date: 2017-06-30 14:00:29Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A man from El Salvador in the U.S. illegally who sued San Francisco after police
 
 Full story on F3News: [San Francisco to pay $190G to undocumented immigrant over sanctuary law violation, lawyer says](http://www.f3nws.com/n/JKXMCF)
 
-> Posted on: Friday, June 30, 2017 6:30:09 PM
+> Posted on: Friday, June 30, 2017 7:00:29 PM

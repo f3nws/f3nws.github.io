@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: Venus Williams at fault in car crash that led to fatality"
-date: 2017-06-30 01:51:20Z
+date: 2017-06-30 13:27:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A police report says that Venus Williams is responsible for a car accident earli
 
 Full story on F3News: [Police: Venus Williams at fault in car crash that led to fatality](http://www.f3nws.com/n/QGJHFJ)
 
-> Posted on: Friday, June 30, 2017 6:51:20 AM
+> Posted on: Friday, June 30, 2017 6:27:39 PM
