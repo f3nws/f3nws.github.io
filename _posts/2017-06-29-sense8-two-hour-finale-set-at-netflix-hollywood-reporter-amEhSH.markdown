@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Sense8' Two-Hour Finale Set at Netflix - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/05/sense8_s02e08_still.jpg)
 
-Hollywood Reporter 'Sense8' Two-Hour Finale Set at Netflix Hollywood Reporter The sci-fi series, from the Wachowskis and J. Michael Straczynski, was abruptly canceled earlier this month. Sense8 has a gift for its fans: A two-hour finale episode is in the works for the canceled Netflix series, the show announced on Twitter Thursday. Sense8 lives! Netflix to air 2-hour finale special to wrap up canceled drama EW.com When Will The 'Sense8' Special Air? Fans Won't Have To Wait Too Long To See What Happens To Their Favorite Cluster Bustle Sense8 Shocker! Netflix to Say Goodbye to Canceled Series With 2-Hour Series Finale E! Online Variety - Slate Magazine (blog) - Deadline - Vanity Fair all 94 news articles »
+Hollywood Reporter 'Sense8' Two-Hour Finale Set at Netflix Hollywood Reporter The sci-fi series, from the Wachowskis and J. Michael Straczynski, was abruptly canceled earlier this month. Sense8 has a gift for its fans: A two-hour finale episode is in the works for the canceled Netflix series, the show announced on Twitter Thursday. Sense8 lives! Netflix to air 2-hour finale special to wrap up canceled drama EW.com Sense8 Shocker! Netflix to Say Goodbye to Canceled Series With 2-Hour Series Finale E! Online 'Sense8' to Receive 2-Hour Finale Special on Netflix Variety Bustle - Slate Magazine (blog) - Deadline - The Verge all 98 news articles »
 
 
 Full story on F3News: ['Sense8' Two-Hour Finale Set at Netflix - Hollywood Reporter](http://www.f3nws.com/n/amEhSH)

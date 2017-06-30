@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Greta Van Susteren Exiting MSNBC - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2016/09/greta_van_susteren_-__h_-_2016.jpg)
 
-Hollywood Reporter Greta Van Susteren Exiting MSNBC Hollywood Reporter Across all of cable news in the recently wrapped quarter, 'For the Record' ranked a lackluster 39 among all shows. A shocker: Greta Van Susteren is leaving MSNBC. The former Fox News host, who was hired in January, said in a post on Twitter Thursday ... Regardless of her future, Greta Van Susteren leaves an impressive legacy The Hill (blog) Greta Van Susteren out at MSNBC after six months Politico (blog) Greta Van Susteren out at MSNBC after 6 months CBS News Los Angeles Times - Fox News - Variety - Deadline all 88 news articles »
+Hollywood Reporter Greta Van Susteren Exiting MSNBC Hollywood Reporter Across all of cable news in the recently wrapped quarter, 'For the Record' ranked a lackluster No. 39 among all shows. A shocker: Greta Van Susteren is leaving MSNBC. The former Fox News host, who was hired in January, said Thursday afternoon in a post ... Regardless of her future, Greta Van Susteren leaves an impressive legacy The Hill (blog) Greta Van Susteren out at MSNBC after 6 months CBS News MSNBC Will Replace Greta Van Susteren with Ari Melber Variety New York Times - Deadline - Los Angeles Times - Politico (blog) all 86 news articles »
 
 
 Full story on F3News: [Greta Van Susteren Exiting MSNBC - Hollywood Reporter](http://www.f3nws.com/n/kmpkTH)
