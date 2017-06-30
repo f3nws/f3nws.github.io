@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Then/Now: Former child stars"
-date: 2017-06-30 03:30:07Z
+date: 2017-06-30 10:00:12Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Some careers are over by the time a kid turns 18, while others keep going and go
 
 Full story on F3News: [Then/Now: Former child stars](http://www.f3nws.com/n/yjcbhD)
 
-> Posted on: Friday, June 30, 2017 8:30:07 AM
+> Posted on: Friday, June 30, 2017 3:00:12 PM

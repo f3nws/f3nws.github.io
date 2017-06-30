@@ -5,7 +5,7 @@ date: 2017-06-30 07:04:07Z
 categories: abc-top-stories
 ---
 
-![Australia's cricketers to be unemployed as pay deal talks collapse](http://www.abc.net.au/news/image/8293040-1x1-700x700.jpg)
+![Australia's cricketers to be unemployed as pay deal talks collapse](http://www.abc.net.au/news/image/6010300-1x1-700x700.jpg)
 
 Australia's elite cricketers will be officially unemployed tomorrow after a breakdown in talks to secure a new pay deal, with Cricket Australia panning the players' association for a lack of flexibility.
 

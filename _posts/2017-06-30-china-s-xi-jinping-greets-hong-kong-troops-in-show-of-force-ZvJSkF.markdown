@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's Xi Jinping greets Hong Kong troops in show of force"
-date: 2017-06-30 04:02:47Z
+date: 2017-06-30 09:48:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hong Kong protest leader Joshua Wong and other pro-democracy activists were rele
 
 Full story on F3News: [China's Xi Jinping greets Hong Kong troops in show of force](http://www.f3nws.com/n/ZvJSkF)
 
-> Posted on: Friday, June 30, 2017 9:02:47 AM
+> Posted on: Friday, June 30, 2017 2:48:28 PM

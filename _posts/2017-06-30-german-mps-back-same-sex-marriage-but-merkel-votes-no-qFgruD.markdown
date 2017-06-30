@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German MPs back same-sex marriage -- but Merkel votes 'No'"
-date: 2017-06-30 09:10:15Z
+date: 2017-06-30 09:51:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ German lawmakers will decide whether to legalize same-sex marriage Friday, just 
 
 Full story on F3News: [German MPs back same-sex marriage -- but Merkel votes 'No'](http://www.f3nws.com/n/qFgruD)
 
-> Posted on: Friday, June 30, 2017 2:10:15 PM
+> Posted on: Friday, June 30, 2017 2:51:20 PM
