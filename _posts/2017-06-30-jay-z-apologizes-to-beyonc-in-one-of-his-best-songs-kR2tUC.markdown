@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jay-Z apologizes to Beyoncé in one of his 'best songs'"
-date: 2017-06-30 16:34:02Z
+date: 2017-06-30 17:31:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jay-Z dropped his new album "4:44" at midnight on Friday and sent the Internet i
 
 Full story on F3News: [Jay-Z apologizes to Beyoncé in one of his 'best songs'](http://www.f3nws.com/n/kR2tUC)
 
-> Posted on: Friday, June 30, 2017 9:34:02 PM
+> Posted on: Friday, June 30, 2017 10:31:18 PM
