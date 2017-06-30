@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: US patience with North Korean regime 'is over'"
-date: 2017-06-30 17:31:59Z
+date: 2017-06-30 22:31:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, speaking alongside South Korean President Moon Jae-in, d
 
 Full story on F3News: [Trump: US patience with North Korean regime 'is over'](http://www.f3nws.com/n/cyU3PH)
 
-> Posted on: Friday, June 30, 2017 10:31:59 PM
+> Posted on: Saturday, July 1, 2017 3:31:03 AM
