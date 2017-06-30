@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Donald Trump is not well': Brzezinski and Scarborough respond"
-date: 2017-06-30 13:57:22Z
+date: 2017-06-30 14:44:02Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ One day after being attacked by President Trump, Mika Brzezinski and Joe Scarbor
 
 Full story on F3News: ['Donald Trump is not well': Brzezinski and Scarborough respond](http://www.f3nws.com/n/btrdz)
 
-> Posted on: Friday, June 30, 2017 6:57:22 PM
+> Posted on: Friday, June 30, 2017 7:44:02 PM

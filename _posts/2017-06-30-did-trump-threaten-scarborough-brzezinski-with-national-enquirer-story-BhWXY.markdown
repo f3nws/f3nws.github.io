@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Trump threaten Scarborough, Brzezinski with National Enquirer story?"
-date: 2017-06-30 13:09:45Z
+date: 2017-06-30 14:55:22Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Is the White House using the National Enquirer to threaten and blackmail journal
 
 Full story on F3News: [Did Trump threaten Scarborough, Brzezinski with National Enquirer story?](http://www.f3nws.com/n/BhWXY)
 
-> Posted on: Friday, June 30, 2017 6:09:45 PM
+> Posted on: Friday, June 30, 2017 7:55:22 PM

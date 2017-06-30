@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Responding to the president's tweets, Joe Scarborough and Mika Brzezinski say Trump 'is not well' - Los Angeles Times](http://www.trbimg.com/img-59564827/turbine/la-fi-ct-brzezinski-trump-tweet-20170629)
 
-Los Angeles Times Responding to the president's tweets, Joe Scarborough and Mika Brzezinski say Trump 'is not well' Los Angeles Times MSNBC co-hosts Joe Scarborough and Mika Brzezinski denied the statements made by President Trump in his harsh tweets aimed at them and expressed concern over his emotional and mental state. “Donald Trump is not well,” is the headline of a ... Mika Brzezinski and Joe Scarborough respond to Trump: 'He fears women' EW.com Colbert: Trump isn't the 'symptom,' he's the 'disease' The Hill (blog) Colbert Avenges Mika Brzezinski by Furiously Insulting Trump on Late Show Vanity Fair Fortune - New York Post - WJLA - The Mercury News all 1,206 news articles »
+Los Angeles Times Responding to the president's tweets, Joe Scarborough and Mika Brzezinski say Trump 'is not well' Los Angeles Times MSNBC co-hosts Joe Scarborough and Mika Brzezinski on Friday denied the statements made by President Trump in his harsh tweets aimed at them and expressed concern over his emotional and mental state. “Donald Trump is not well,” is the headline of a ... Mika and the Manbaby HuffPost Colbert throws fire at Trump for Brzezinski tweets: “He is the disease” Salon The Latest: Trump tweets back at 'Morning Joe' Miami Herald RollingStone.com - EW.com - Washington Post - The Hill (blog) all 1,438 news articles »
 
 
 Full story on F3News: [Responding to the president's tweets, Joe Scarborough and Mika Brzezinski say Trump 'is not well' - Los Angeles Times](http://www.f3nws.com/n/dDDhkC)
