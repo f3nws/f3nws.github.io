@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Federal judge blocks new California high-capacity magazine ban, but fight looms"
-date: 2017-06-30 09:00:14Z
+date: 2017-06-30 09:30:16Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A federal judge in California on Thursday blocked a state law that would have ba
 
 Full story on F3News: [Federal judge blocks new California high-capacity magazine ban, but fight looms](http://www.f3nws.com/n/UQMRAD)
 
-> Posted on: Friday, June 30, 2017 2:00:14 PM
+> Posted on: Friday, June 30, 2017 2:30:16 PM

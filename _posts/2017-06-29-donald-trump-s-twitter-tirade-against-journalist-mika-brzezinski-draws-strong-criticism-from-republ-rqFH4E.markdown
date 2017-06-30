@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Donald Trump's Twitter tirade against journalist Mika Brzezinski draws strong criticism from Republicans - ABC Online](http://www.abc.net.au/news/image/8665592-1x1-700x700.jpg)
 
-ABC Online Donald Trump's Twitter tirade against journalist Mika Brzezinski draws strong criticism from Republicans ABC Online US President Donald Trump launched a crude Twitter attack on the brains, looks and temperament of a female TV personality on Thursday, drawing strong criticism including from senior Republicans. Mr Trump's tweets, aimed at co-host of MSNBC's Morning ... Why I'm grateful every time President Trump insults a woman The Sydney Morning Herald Trump's Twitter trash-talk draws outrage The Australian Donald Trump's long history of attacking women's looks 9news.com.au Gympie Times - The New Daily - CNN - Washington Post all 1,062 news articles »
+ABC Online Donald Trump's Twitter tirade against journalist Mika Brzezinski draws strong criticism from Republicans ABC Online US President Donald Trump launched a crude Twitter attack on the brains, looks and temperament of a female TV personality on Thursday, drawing strong criticism including from senior Republicans. Mr Trump's tweets, aimed at co-host of MSNBC's Morning ... Why I'm grateful every time President Trump insults a woman The Sydney Morning Herald Trump's Twitter trash-talk draws outrage The Australian Donald Trump's long history of attacking women's looks 9news.com.au Clarence Valley Daily Examiner - The New Daily - Washington Post - The Independent all 1,009 news articles »
 
 
 Full story on F3News: [Donald Trump's Twitter tirade against journalist Mika Brzezinski draws strong criticism from Republicans - ABC Online](http://www.f3nws.com/n/rqFH4E)
