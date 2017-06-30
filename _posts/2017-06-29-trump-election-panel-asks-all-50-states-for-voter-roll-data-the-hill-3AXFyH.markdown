@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump election panel asks all 50 states for voter roll data - The Hill](http://thehill.com/sites/default/files/article_images/kobachkris_trumpdonald_112016getty.jpg)
 
-The Hill Trump election panel asks all 50 states for voter roll data The Hill The vice chairman of President Trump's commission on election integrity sent a letter to all 50 states Wednesday requesting information on their voter rolls. Kansas Secretary of State Kris Kobach is seeking several pieces of information about voters ... Trump's voter fraud commission is 'laying the groundwork for voter suppression' ThinkProgress Trump and Pence 'laying the groundwork for voter suppression' with new election integrity commission: report Raw Story The Limits of Lying and Cheating The American Prospect all 27 news articles »
+TIME Trump election panel asks all 50 states for voter roll data The Hill The vice chairman of President Trump's commission on election integrity sent a letter to all 50 states Wednesday requesting information on their voter rolls. Kansas Secretary of State Kris Kobach is seeking several pieces of information about voters ... White House Panel Asks States For Their Voter Rolls NPR Trump's Voter Fraud Probe Requests Voters' Personal Information HuffPost Multiple states reject request from Trump's voter fraud commission to provide voter roll data Washington Examiner TIME - Chicago Tribune - MarketWatch - Hartford Courant all 61 news articles »
 
 
 Full story on F3News: [Trump election panel asks all 50 states for voter roll data - The Hill](http://www.f3nws.com/n/3AXFyH)

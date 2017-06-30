@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US to sell $1.4B in weapons to Taiwan"
-date: 2017-06-30 02:16:21Z
+date: 2017-06-30 02:30:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a move likely to irk China, the Trump Administration notified Congress Thursd
 
 Full story on F3News: [US to sell $1.4B in weapons to Taiwan](http://www.f3nws.com/n/NBuANJ)
 
-> Posted on: Friday, June 30, 2017 7:16:21 AM
+> Posted on: Friday, June 30, 2017 7:30:16 AM
