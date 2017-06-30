@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Damning effects of Trump's tweets"
-date: 2017-06-30 12:08:25Z
+date: 2017-06-30 16:06:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It marked a rare presidential moment on a most un-presidential day -- Donald Tru
 
 Full story on F3News: [Analysis: Damning effects of Trump's tweets](http://www.f3nws.com/n/TFEEKD)
 
-> Posted on: Friday, June 30, 2017 5:08:25 PM
+> Posted on: Friday, June 30, 2017 9:06:18 PM
