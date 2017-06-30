@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Joe Scarborough, Mika Brzezinski respond to Trump tweets"
-date: 2017-06-30 12:03:00Z
+date: 2017-06-30 13:06:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ categories: fox-news
 
 Full story on F3News: [Joe Scarborough, Mika Brzezinski respond to Trump tweets](http://www.f3nws.com/n/k2ArnH)
 
-> Posted on: Friday, June 30, 2017 5:03:00 PM
+> Posted on: Friday, June 30, 2017 6:06:00 PM
