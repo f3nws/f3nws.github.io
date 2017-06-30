@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jay-Z's Mother Comes Out on '4:44' Song 'Smile' - RollingStone.com](http://img.wennermedia.com/social/rs-jay-z-gloria-carter-7312d276-9d36-4861-821b-a453bbc649d2.jpg)
 
-RollingStone.com Jay-Z's Mother Comes Out on '4:44' Song 'Smile' RollingStone.com Jay-Z's mother Gloria Carter revealed for the first time that she is a lesbian on "Smile," with the rapper also opening up about his mom's sexuality. Credit: Jamie McCarthy/WireImage/Getty. By Daniel Kreps. 2 hours ago ... Jay-Z Reveals His Mom Is a Lesbian on 4:44 Song "Smile" E! Online GLAAD Hails JAY-Z's Mom for Coming Out As a Lesbian Billboard JAY-Z's Mom Comes Out As A Lesbian On His Touching Track Smile PerezHilton.com Vibe - Jezebel - Entertainment Tonight - EW.com all 53 news articles »
+RollingStone.com Jay-Z's Mother Comes Out on '4:44' Song 'Smile' RollingStone.com Jay-Z's mother Gloria Carter revealed for the first time that she is a lesbian on "Smile," with the rapper also opening up about his mom's sexuality. Credit: Jamie McCarthy/WireImage/Getty. By Daniel Kreps. 2 hours ago ... JAY-Z's Mom Comes Out As A Lesbian On His Touching Track Smile PerezHilton.com Jay-Z Reveals His Mom Is a Lesbian on 4:44 Song "Smile" E! Online JAY-Z's Mom, Gloria Carter, Comes Out as Lesbian in New Duet on Rapper's Latest Album Entertainment Tonight Billboard - Business Insider - Heavy.com - Jezebel all 52 news articles »
 
 
 Full story on F3News: [Jay-Z's Mother Comes Out on '4:44' Song 'Smile' - RollingStone.com](http://www.f3nws.com/n/QxFGy)
