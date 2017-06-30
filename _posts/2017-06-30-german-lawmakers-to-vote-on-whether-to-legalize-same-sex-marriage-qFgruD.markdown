@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German lawmakers to vote on whether to legalize same-sex marriage"
-date: 2017-06-30 04:09:29Z
+date: 2017-06-30 07:40:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ German lawmakers will decide whether to legalize same-sex marriage Friday, just 
 
 Full story on F3News: [German lawmakers to vote on whether to legalize same-sex marriage](http://www.f3nws.com/n/qFgruD)
 
-> Posted on: Friday, June 30, 2017 9:09:29 AM
+> Posted on: Friday, June 30, 2017 12:40:11 PM

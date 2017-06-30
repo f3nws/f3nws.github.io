@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Travel ban 2.0 in effect, court challenges begin - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170306172511-travel-ban-flags-02-super-tease.jpg)
 
-CNN Travel ban 2.0 in effect, court challenges begin CNN Washington (CNN) After months of winding through the courts, the so-called "watered-down," revised version of President Donald Trump's fiercely litigated travel ban finally went into effect at 8 p.m. ET Thursday. Less than an hour before the ban was ... Travel ban takes effect as State Department defines 'close family' Washington Post Hawaii challenges Trump stance on Supreme Court travel ban ruling Politico Trump travel ban comes into effect for six countries BBC News New York Times - NBCNews.com - Daily Beast - ABC News all 919 news articles »
+CNN Travel ban 2.0 in effect, court challenges begin CNN Washington (CNN) After months of winding through the courts, the so-called "watered-down," revised version of President Donald Trump's fiercely litigated travel ban finally went into effect at 8 p.m. ET Thursday. Less than an hour before the ban was ... Travel ban takes effect as State Department defines 'close family' Washington Post Hawaii challenges Trump stance on Supreme Court travel ban ruling Politico Administration Moves to Carry Out Partial Travel Ban New York Times BBC News - Daily Beast - NBCNews.com - ABC News all 933 news articles »
 
 
 Full story on F3News: [Travel ban 2.0 in effect, court challenges begin - CNN](http://www.f3nws.com/n/tPVaPG)
