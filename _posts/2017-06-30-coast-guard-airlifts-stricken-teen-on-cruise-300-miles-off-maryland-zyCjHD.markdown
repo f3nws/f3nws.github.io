@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Coast Guard airlifts stricken teen on cruise 300 miles off Maryland"
-date: 2017-06-30 02:00:14Z
+date: 2017-06-30 03:22:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Coast Guard helicopter crew made a daring rescue on Tuesday when responding to
 
 Full story on F3News: [Coast Guard airlifts stricken teen on cruise 300 miles off Maryland](http://www.f3nws.com/n/zyCjHD)
 
-> Posted on: Friday, June 30, 2017 7:00:14 AM
+> Posted on: Friday, June 30, 2017 8:22:00 AM
