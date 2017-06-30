@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![MSNBC pair strike back at Trump's tweets - 9news.com.au](http://9network-vod-progressive.akamaized.net/media2/664969388001/2017/06/664969388001_5488849424001_5488847746001-vs.jpg?pubId=664969388001)
 
-9news.com.au MSNBC pair strike back at Trump's tweets 9news.com.au The co-hosts of MSNBC's Morning Joe program have struck back against crude tweets sent out by President Donald Trump. In an op-ed in Friday's Washington Post co-signed by anchors Mika Brzezinski and Joe Scarborough, the cable television talk show ... 'Flat out gross and disgusting': Cable TV erupts at Trump's Mika Brzezinski tweets Washington Post The Logic of Trump's Sexist Attacks The Atlantic 'Please just stop': Republicans turn on Donald Trump after 'inappropriate' tirade The New Daily The Independent - Fox News - New York Times - U.S. News & World Report all 1,075 news articles »
+9news.com.au MSNBC pair strike back at Trump's tweets 9news.com.au The co-hosts of MSNBC's Morning Joe program have struck back against crude tweets sent out by President Donald Trump. In an op-ed in Friday's Washington Post co-signed by anchors Mika Brzezinski and Joe Scarborough, the cable television talk show ... 'Flat out gross and disgusting': Cable TV erupts at Trump's Mika Brzezinski tweets Washington Post Mika Brzezinski Says Trump's Tweets Reveal a 'Childlike Ego' New York Times The Note: Trump's mean tweets shrink presidency ABC News The Atlantic - U.S. News & World Report - Hollywood Reporter - New York Daily News all 1,105 news articles »
 
 
 Full story on F3News: [MSNBC pair strike back at Trump's tweets - 9news.com.au](http://www.f3nws.com/n/hgBxVG)
