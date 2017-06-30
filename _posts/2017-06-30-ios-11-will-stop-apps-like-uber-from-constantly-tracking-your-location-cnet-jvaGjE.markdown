@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iOS 11 will stop apps like Uber from constantly tracking your location     - CNET"
-date: 2017-06-30 17:00:03Z
+date: 2017-06-30 17:49:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Take that, Uber. Your shady app doesn't need constant location data anyway.
 
 Full story on F3News: [iOS 11 will stop apps like Uber from constantly tracking your location     - CNET](http://www.f3nws.com/n/jvaGjE)
 
-> Posted on: Friday, June 30, 2017 10:00:03 PM
+> Posted on: Friday, June 30, 2017 10:49:00 PM

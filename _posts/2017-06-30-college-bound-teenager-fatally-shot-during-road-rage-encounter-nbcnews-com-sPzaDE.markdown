@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![College-Bound Teenager Fatally Shot During Road Rage Encounter - NBCNews.com](https://media4.s-nbcnews.com/j/newscms/2017_26/2057261/170630-bianca-nikol-roberson-945a-rs_0682751f6a4ab7fa7be8665191ea789b.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com College-Bound Teenager Fatally Shot During Road Rage Encounter NBCNews.com Police officers in three states are searching for a man who fatally shot a Pennsylvania high school graduate in the head following a road rage incident. Bianca Nikol Roberson, 18, was driving home after a shopping trip Wednesday, her father Rodney ... Pennsylvania teenager shot in road rage incident BBC News Teen shot in head during deadly Pennsylvania road rage incident KABC-TV Man Killed High School Graduate in Road Rage Shooting : Police NBC 10 Philadelphia Philly.com - ABC News - New York Daily News - New York Post all 69 news articles »
+NBCNews.com College-Bound Teenager Fatally Shot During Road Rage Encounter NBCNews.com Police officers in three states are searching for a man who fatally shot a Pennsylvania high school graduate in the head following a road rage incident. Bianca Nikol Roberson, 18, was driving home after a shopping trip Wednesday, her father Rodney ... Pennsylvania teenager shot in road rage incident BBC News Manhunt for Suspect Who Fatally Shot High School Grad in Road Rage Incident: 'A Young Woman Has Died Senselessly' PEOPLE.com Manhunt underway after Pennsylvania teen shot dead in suspected road rage incident ABC News New York Daily News - Philly.com - TIME - New York Post all 77 news articles »
 
 
 Full story on F3News: [College-Bound Teenager Fatally Shot During Road Rage Encounter - NBCNews.com](http://www.f3nws.com/n/sPzaDE)
