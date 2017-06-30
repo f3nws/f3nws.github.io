@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Windows 10 to Get Built-in Protection Against Most Ransomware Attacks"
-date: 2017-06-30 09:39:03Z
+date: 2017-06-30 10:38:12Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Ransomware Ransomware Everywhere Not a Single Place to Hide! But, Microsoft has 
 
 Full story on F3News: [Windows 10 to Get Built-in Protection Against Most Ransomware Attacks](http://www.f3nws.com/n/YsNrZC)
 
-> Posted on: Friday, June 30, 2017 2:39:03 PM
+> Posted on: Friday, June 30, 2017 3:38:12 PM

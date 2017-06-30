@@ -5,7 +5,7 @@ date: 2017-06-30 07:29:36Z
 categories: abc-top-stories
 ---
 
-![Germany legalises same-sex marriage](http://www.abc.net.au/news/image/8668868-1x1-700x700.jpg)
+![Germany legalises same-sex marriage](http://www.abc.net.au/news/image/7837472-1x1-700x700.jpg)
 
 Germany's Parliament votes to legalise gay marriage after Chancellor Angela Merkel did an about-face that freed members of the Conservative Party to vote with their "conscience" rather than follow party lines.
 
