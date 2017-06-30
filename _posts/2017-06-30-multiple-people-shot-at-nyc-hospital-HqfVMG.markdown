@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Multiple people shot at NYC hospital"
-date: 2017-06-30 19:57:28Z
+date: 2017-06-30 21:19:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Multiple people were shot on Friday at Bronx-Lebanon Hospital in New York City, 
 
 Full story on F3News: [Multiple people shot at NYC hospital](http://www.f3nws.com/n/HqfVMG)
 
-> Posted on: Saturday, July 1, 2017 12:57:28 AM
+> Posted on: Saturday, July 1, 2017 2:19:04 AM
