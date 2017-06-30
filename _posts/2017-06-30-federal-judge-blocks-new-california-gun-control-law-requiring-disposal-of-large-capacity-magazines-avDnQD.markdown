@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Federal judge blocks new California gun control law requiring disposal of large-capacity magazines - Los Angeles Times](http://www.trbimg.com/img-5955bfb3/turbine/la-pol-ca-large-capacity-magazines-gun-law-blocked-20170629)
 
-Los Angeles Times Federal judge blocks new California gun control law requiring disposal of large-capacity magazines Los Angeles Times Many California firearm owners were given a reprieve Thursday from making a tough decision after a federal judge temporarily blocked a key provision of the state's gun control laws approved last year in the wake of the San Bernardino terrorist attack. Judge blocks California's high-capacity magazine ban San Francisco Chronicle all 17 news articles »
+Los Angeles Times Federal judge blocks new California gun control law requiring disposal of large-capacity magazines Los Angeles Times Many California firearm owners were given a reprieve Thursday from making a tough decision after a federal judge temporarily blocked a key provision of the state's gun control laws approved last year in the wake of the San Bernardino terrorist attack. Judge blocks California's high-capacity magazine ban ABC News Federal judge blocks California ban on "large-capacity" gun magazines New York Daily News California gun law blocked 2 days before it was to take effect SFGate Breitbart News - The San Diego Union-Tribune - Redding Record Searchlight - KERO 23ABC News all 17 news articles »
 
 
 Full story on F3News: [Federal judge blocks new California gun control law requiring disposal of large-capacity magazines - Los Angeles Times](http://www.f3nws.com/n/avDnQD)
