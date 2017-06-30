@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best business productivity gadgets"
-date: 2017-06-30 08:59:24Z
+date: 2017-06-30 16:18:24Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Working from a laptop doesn't have to be a struggle when you're on the move.
 
 Full story on F3News: [The best business productivity gadgets](http://www.f3nws.com/n/NTnrzE)
 
-> Posted on: Friday, June 30, 2017 1:59:24 PM
+> Posted on: Friday, June 30, 2017 9:18:24 PM

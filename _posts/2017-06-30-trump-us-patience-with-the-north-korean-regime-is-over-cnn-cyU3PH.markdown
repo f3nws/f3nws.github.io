@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Trump: US patience with the North Korean regime 'is over' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170630141844-trimp-moon-jae-in-white-house-meeting-super-tease.jpg)
 
-CNN Trump: US patience with the North Korean regime 'is over' CNN Washington (CNN) President Donald Trump, speaking alongside South Korean President Moon Jae-in, declared Friday the US' patience with the North Korean regime "is over." "The era of strategic patience with the North Korean regime has failed," Trump ... Trump, SKorea's leader returning to talks on trade, NKorea ABC News Trump: We have 'many options' on North Korea Politico Trump: North Korean aggression requires 'determined response' Washington Examiner Foreign Policy (blog) - CNBC - Washington Times - Voice of America all 1,205 news articles »
+CNN Trump: US patience with the North Korean regime 'is over' CNN Washington (CNN) President Donald Trump, speaking alongside South Korean President Moon Jae-in, declared Friday US patience with the North Korean regime "is over." "The era of strategic patience with the North Korean regime has failed," Trump said in ... With South Korean president, Trump denounces 'reckless and brutal' regime in North Korea Washington Post Trump: 'Patience is over' with North Korea The Hill Trump: 'Era of Strategic Patience' With North Korea Has 'Failed' NBCNews.com Reuters - Politico - Bloomberg - ABC News all 1,240 news articles »
 
 
 Full story on F3News: [Trump: US patience with the North Korean regime 'is over' - CNN](http://www.f3nws.com/n/cyU3PH)
