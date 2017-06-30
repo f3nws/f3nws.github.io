@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "J.K. Rowling quotes Abraham Lincoln in response to Trump"
-date: 2017-06-30 00:52:19Z
+date: 2017-06-30 01:24:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Well-known author J.K. Rowling trolled President Donald Trump on Thursday with j
 
 Full story on F3News: [J.K. Rowling quotes Abraham Lincoln in response to Trump](http://www.f3nws.com/n/UJyRjB)
 
-> Posted on: Friday, June 30, 2017 5:52:19 AM
+> Posted on: Friday, June 30, 2017 6:24:39 AM
