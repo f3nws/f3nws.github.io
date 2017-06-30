@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 10 best laptops for students in 2017: top laptops for college and high school"
-date: 2017-06-30 17:46:00Z
+date: 2017-06-30 20:20:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The Samsung Notebook 9 Pro joins our list of the best laptops for students.
 
 Full story on F3News: [The 10 best laptops for students in 2017: top laptops for college and high school](http://www.f3nws.com/n/MjemWD)
 
-> Posted on: Friday, June 30, 2017 10:46:00 PM
+> Posted on: Saturday, July 1, 2017 1:20:00 AM

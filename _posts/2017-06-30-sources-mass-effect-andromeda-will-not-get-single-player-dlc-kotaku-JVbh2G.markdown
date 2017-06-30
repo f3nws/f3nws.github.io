@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Sources: Mass Effect: Andromeda Will Not Get Single-Player DLC - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--T6L7sFPi--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/oo2ew4qzkki4vyjt6trr.png)
 
-Kotaku Sources: Mass Effect: Andromeda Will Not Get Single-Player DLC Kotaku Yesterday, a widely shared Facebook post claimed that BioWare had canceled Mass Effect: Andromeda's downloadable content. The good news: that Facebook post was a hoax. The bad news: they guessed correctly. Mass Effect: Andromeda will indeed not ... Mass Effect: Andromeda Not Getting Single-Player DLC - Report [UPDATE] GameSpot Rumor: Insider sources support Mass Effect: Andromeda's alleged single-player DLC cancellation rumor GameZone Mass Effect: Andromeda will reportedly not get any single-player add-ons Destructoid PCGamesN - SegmentNext - MCV - Express.co.uk all 47 news articles »
+Kotaku Sources: Mass Effect: Andromeda Will Not Get Single-Player DLC Kotaku Yesterday, a widely shared Facebook post claimed that BioWare had canceled Mass Effect: Andromeda's downloadable content. The good news: that Facebook post was a hoax. The bad news: they guessed correctly. Mass Effect: Andromeda will indeed not ... Mass Effect: Andromeda Not Getting Single-Player DLC - Report [UPDATE] GameSpot BioWare Shoots Down Mass Effect: Andromeda DLC Cancellation Rumors, But No Single-Player DLC Reportedly ... IGN Report: Mass Effect: Andromeda Won't Get Single-Player DLC PlayStation LifeStyle Geek - GameZone - PCGamesN - Mammoth Gamers all 50 news articles »
 
 
 Full story on F3News: [Sources: Mass Effect: Andromeda Will Not Get Single-Player DLC - Kotaku](http://www.f3nws.com/n/JVbh2G)

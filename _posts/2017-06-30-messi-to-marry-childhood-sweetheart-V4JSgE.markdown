@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Messi to marry childhood sweetheart"
-date: 2017-06-30 19:02:04Z
+date: 2017-06-30 20:24:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The name Lucas Scaglia may not mean much to most people but without him, Lionel 
 
 Full story on F3News: [Messi to marry childhood sweetheart](http://www.f3nws.com/n/V4JSgE)
 
-> Posted on: Saturday, July 1, 2017 12:02:04 AM
+> Posted on: Saturday, July 1, 2017 1:24:23 AM
