@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese President issues stern warning as Hong Kong marks 20 years under China"
-date: 2017-07-01 03:08:26Z
+date: 2017-07-01 03:39:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The red and yellow standard of the People's Republic of China rose over Hong Kon
 
 Full story on F3News: [Chinese President issues stern warning as Hong Kong marks 20 years under China](http://www.f3nws.com/n/4qvm3F)
 
-> Posted on: Saturday, July 1, 2017 8:08:26 AM
+> Posted on: Saturday, July 1, 2017 8:39:57 AM
