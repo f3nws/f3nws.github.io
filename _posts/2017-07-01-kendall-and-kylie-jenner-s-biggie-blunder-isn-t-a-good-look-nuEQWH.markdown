@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kendall and Kylie Jenner's 'Biggie' blunder isn't a good look"
-date: 2017-07-01 05:34:13Z
+date: 2017-07-01 07:09:01Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Another day, another member of the Kardashian Kamp high-heel-deep in controversy
 
 Full story on F3News: [Kendall and Kylie Jenner's 'Biggie' blunder isn't a good look](http://www.f3nws.com/n/nuEQWH)
 
-> Posted on: Saturday, July 1, 2017 10:34:13 AM
+> Posted on: Saturday, July 1, 2017 12:09:01 PM
