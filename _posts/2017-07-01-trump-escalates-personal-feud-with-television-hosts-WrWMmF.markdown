@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump escalates personal feud with television hosts"
-date: 2017-07-01 20:14:47Z
+date: 2017-07-01 20:56:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BRIDGEWATER, N.J. (AP) — President Donald Trump escalated an intensely persona
 
 Full story on F3News: [Trump escalates personal feud with television hosts](http://www.f3nws.com/n/WrWMmF)
 
-> Posted on: Sunday, July 2, 2017 1:14:47 AM
+> Posted on: Sunday, July 2, 2017 1:56:44 AM

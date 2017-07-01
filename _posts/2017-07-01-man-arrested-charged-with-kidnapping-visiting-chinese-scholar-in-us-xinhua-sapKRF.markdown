@@ -5,6 +5,8 @@ date: 2017-07-01 16:30:28Z
 categories: google-news-top-stories
 ---
 
+![Man arrested, charged with kidnapping visiting Chinese scholar in US - Xinhua](http://news.xinhuanet.com/english/2017-07/02/CnybnyE005002_20170701_NYMFN0A001_11n.jpg)
+
 Xinhua Man arrested, charged with kidnapping visiting Chinese scholar in US Xinhua CHICAGO, July 1 (Xinhua) -- Local police arrested a man Friday evening for kidnapping Zhang Yingying, a visiting Chinese scholar at the University of Illinois at Urbana-Champaign (UIUC) in the U.S. Midwest. Brendt Christensen, a resident of Champaign ... NOW: 'None of them saw this coming' Champaign/Urbana News-Gazette The Latest: Professor saw no signs of trouble with suspect Washington Post all 98 news articles »
 
 
