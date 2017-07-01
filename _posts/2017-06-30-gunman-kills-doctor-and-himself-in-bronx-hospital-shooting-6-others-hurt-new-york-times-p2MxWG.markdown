@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Gunman Kills Doctor and Himself in Bronx Hospital Shooting; 6 Others Hurt - New York Times](https://static01.nyt.com/images/2017/07/01/nyregion/01HOSPITAL/01HOSPITAL-facebookJumbo.jpg)
 
-New York Times Gunman Kills Doctor and Himself in Bronx Hospital Shooting; 6 Others Hurt New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an assault rifle and wearing a lab coat went on a rampage in the Bronx hospital where he had worked ... AP News in Brief at 9:04 pm EDT Washington Post Doctor fatally shoots 1, wounds 6 at NYC hospital before killing himself CNN Bronx-Lebanon Hospital shooting: Doctor killed, multiple people injured, police say Fox News ABC News - The Boston Globe - NBC New York - New York Daily News all 499 news articles »
+New York Times Gunman Kills Doctor and Himself in Bronx Hospital Shooting; 6 Others Hurt New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an assault rifle and wearing a lab coat went on a rampage on Friday in the Bronx hospital where he ... Doctor fatally shoots 1, wounds 6 at NYC hospital before killing himself CNN Doctor accused of sex harassment kills 1 at NYC hospital Washington Post Bronx-Lebanon Hospital shooting: Doctor killed, multiple people injured, police say Fox News Daily Beast - The Boston Globe - NBC New York - New York Daily News all 535 news articles »
 
 
 Full story on F3News: [Gunman Kills Doctor and Himself in Bronx Hospital Shooting; 6 Others Hurt - New York Times](http://www.f3nws.com/n/p2MxWG)

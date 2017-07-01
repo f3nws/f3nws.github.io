@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's Xi swears in Hong Kong leader as city marks 20 years of Chinese rule"
-date: 2017-07-01 01:52:35Z
+date: 2017-07-01 02:39:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The red and yellow standard of the People's Republic of China rose over Hong Kon
 
 Full story on F3News: [China's Xi swears in Hong Kong leader as city marks 20 years of Chinese rule](http://www.f3nws.com/n/4qvm3F)
 
-> Posted on: Saturday, July 1, 2017 6:52:35 AM
+> Posted on: Saturday, July 1, 2017 7:39:55 AM
