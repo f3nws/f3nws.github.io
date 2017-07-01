@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Fyre Festival Founder Arrested, Charged With Wire Fraud - HuffPost](https://img.huffingtonpost.com/asset/59570f291500006303bfbb2e.jpeg?cache=x5rkumlxnz&ops=1910_1000)
 
-HuffPost Fyre Festival Founder Arrested, Charged With Wire Fraud HuffPost Billy McFarland, shown here at a New York benefit in July 2016. Federal prosecutors accuse him of using fake documents to lure investors into backing his exclusive music festival on a private island. Founder of failed Fyre Festival faces federal fraud charges CNN Fyre Festival Organizer Charged With Wire Fraud New York Times Fyre Festival founder Billy McFarland arrested for fraud CBS News Bloomberg - RollingStone.com - Washington Post - PEOPLE.com all 58 news articles »
+HuffPost Fyre Festival Founder Arrested, Charged With Wire Fraud HuffPost Billy McFarland, shown here at a New York benefit in July 2016. Federal prosecutors accuse him of using fake documents to lure investors into backing his exclusive music festival on a private island. Organizer of dreadful Fyre Festival arrested, charged with wire fraud — could face 20 years in prison New York Daily News Founder of failed Fyre Festival faces federal fraud charges CNN Fyre Festival Organizer Charged With Wire Fraud New York Times CBS News - Bloomberg - RollingStone.com - Washington Post all 64 news articles »
 
 
 Full story on F3News: [Fyre Festival Founder Arrested, Charged With Wire Fraud - HuffPost](http://www.f3nws.com/n/MUAEfF)
