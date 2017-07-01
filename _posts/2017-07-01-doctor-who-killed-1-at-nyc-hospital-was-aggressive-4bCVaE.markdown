@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doctor who killed 1 at NYC hospital was 'aggressive'"
-date: 2017-07-01 11:17:02Z
+date: 2017-07-01 11:49:33Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — Dr. Henry Bello proved a man of his word.
 
 Full story on F3News: [Doctor who killed 1 at NYC hospital was 'aggressive'](http://www.f3nws.com/n/4bCVaE)
 
-> Posted on: Saturday, July 1, 2017 4:17:02 PM
+> Posted on: Saturday, July 1, 2017 4:49:33 PM
