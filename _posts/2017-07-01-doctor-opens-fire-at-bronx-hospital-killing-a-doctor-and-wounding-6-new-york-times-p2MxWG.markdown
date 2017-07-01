@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Doctor Opens Fire at Bronx Hospital, Killing a Doctor and Wounding 6 - New York Times](https://static01.nyt.com/images/2017/07/01/nyregion/01HOSPITAL/01HOSPITAL-facebookJumbo.jpg)
 
-New York Times Doctor Opens Fire at Bronx Hospital, Killing a Doctor and Wounding 6 New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an AR-15 rifle and wearing a lab coat went on a rampage on Friday in the Bronx hospital where he ... 5 of 6 wounded in New York hospital now in stable condition WRAL.com Condition of Bronx hospital shooting victims improving, officials say Newsday Slain Bronx-Lebanon Hospital doctor was covering a shift for a colleague New York Daily News Daily Beast - New York Post - NBC New York - The Daily Caller all 557 news articles »
+New York Times Doctor Opens Fire at Bronx Hospital, Killing a Doctor and Wounding 6 New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an AR-15 rifle and wearing a lab coat went on a rampage on Friday in the Bronx hospital where he ... 5 of 6 Wounded in New York Hospital Now in Stable Condition U.S. News & World Report NYC hospital shooter was looking for ex-colleague, sources say CNN 2 victims remain in critical condition after deadly Bronx hospital shooting ABC News Washington Post - BBC News - New York Post - WDBJ7 all 574 news articles »
 
 
 Full story on F3News: [Doctor Opens Fire at Bronx Hospital, Killing a Doctor and Wounding 6 - New York Times](http://www.f3nws.com/n/p2MxWG)
