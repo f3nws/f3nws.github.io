@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing Chinese student: FBI arrests man"
-date: 2017-07-01 03:48:48Z
+date: 2017-07-01 14:37:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man has been arrested in connection with the disappearance of a visiting Chine
 
 Full story on F3News: [Missing Chinese student: FBI arrests man](http://www.f3nws.com/n/kcYzqB)
 
-> Posted on: Saturday, July 1, 2017 8:48:48 AM
+> Posted on: Saturday, July 1, 2017 7:37:19 PM
