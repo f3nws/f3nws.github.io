@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In final stages of Mosul fight, US plays larger role"
-date: 2017-07-01 20:56:44Z
+date: 2017-07-01 21:21:02Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — The day after Iraq's prime minister declared an end to the 
 
 Full story on F3News: [In final stages of Mosul fight, US plays larger role](http://www.f3nws.com/n/kjzeyH)
 
-> Posted on: Sunday, July 2, 2017 1:56:44 AM
+> Posted on: Sunday, July 2, 2017 2:21:02 AM

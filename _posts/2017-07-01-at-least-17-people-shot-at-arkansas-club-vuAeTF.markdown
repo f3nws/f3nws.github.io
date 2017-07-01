@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 17 people shot at Arkansas club"
-date: 2017-07-01 18:44:54Z
+date: 2017-07-01 21:22:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 17 people were shot at a concert in Arkansas early Saturday morning and
 
 Full story on F3News: [At least 17 people shot at Arkansas club](http://www.f3nws.com/n/vuAeTF)
 
-> Posted on: Saturday, July 1, 2017 11:44:54 PM
+> Posted on: Sunday, July 2, 2017 2:22:56 AM
