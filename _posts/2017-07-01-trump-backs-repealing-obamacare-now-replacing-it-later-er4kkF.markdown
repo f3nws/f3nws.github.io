@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump backs repealing 'Obamacare' now, replacing it later"
-date: 2017-07-01 09:17:05Z
+date: 2017-07-01 10:21:11Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump barged into Senate Republicans' delic
 
 Full story on F3News: [Trump backs repealing 'Obamacare' now, replacing it later](http://www.f3nws.com/n/er4kkF)
 
-> Posted on: Saturday, July 1, 2017 2:17:05 PM
+> Posted on: Saturday, July 1, 2017 3:21:11 PM
