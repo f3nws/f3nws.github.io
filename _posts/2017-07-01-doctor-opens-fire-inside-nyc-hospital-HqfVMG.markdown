@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doctor opens fire inside NYC hospital"
-date: 2017-07-01 03:28:55Z
+date: 2017-07-01 14:41:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Multiple people were shot on Friday at Bronx-Lebanon Hospital in New York City, 
 
 Full story on F3News: [Doctor opens fire inside NYC hospital](http://www.f3nws.com/n/HqfVMG)
 
-> Posted on: Saturday, July 1, 2017 8:28:55 AM
+> Posted on: Saturday, July 1, 2017 7:41:17 PM
