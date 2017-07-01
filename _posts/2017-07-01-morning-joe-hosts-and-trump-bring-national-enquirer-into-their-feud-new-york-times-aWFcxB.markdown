@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['Morning Joe' Hosts and Trump Bring National Enquirer Into Their Feud - New York Times](https://static01.nyt.com/images/2017/07/01/world/01xp-morningjoe/01xp-morningjoe-facebookJumbo.jpg)
 
-New York Times 'Morning Joe' Hosts and Trump Bring National Enquirer Into Their Feud New York Times President Trump mocked Mika Brzezinski, a co-host of MSNBC's “Morning Joe,” on Thursday. Joe Scarborough responded on Friday. Credit Al Drago/The New York Times. President Trump remained embroiled in a rumpus with two cable talk-show hosts on ... Why some inside the White House see Trump's media feud as 'winning' Washington Post Brzezinski: I introduced Trump to key adviser The Hill The Trump-"Morning Joe" Feud Has Twitter Talking, But Were Any Laws Broken? BuzzFeed News Los Angeles Times - NBCNews.com - HuffPost - Fox News all 1,878 news articles »
+New York Times 'Morning Joe' Hosts and Trump Bring National Enquirer Into Their Feud New York Times President Trump mocked Mika Brzezinski, a co-host of MSNBC's “Morning Joe,” on Thursday. Joe Scarborough responded on Friday. Credit Al Drago/The New York Times. President Trump remained embroiled in a rumpus with two cable talk-show hosts on ... Why some inside the White House see Trump's media feud as 'winning' Washington Post Brzezinski: I introduced Trump to key adviser The Hill White House threatened Joe Scarborough and Mika Brzezinski with a National Enquirer story, the two allege Los Angeles Times HuffPost - NBCNews.com - BuzzFeed News - Fox News all 1,857 news articles »
 
 
 Full story on F3News: ['Morning Joe' Hosts and Trump Bring National Enquirer Into Their Feud - New York Times](http://www.f3nws.com/n/aWFcxB)
