@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nevada launches sales of legal recreational marijuana"
-date: 2017-07-01 13:33:11Z
+date: 2017-07-01 13:47:50Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LAS VEGAS (AP) — Nevada became the fifth state in the U.S. with stores selling
 
 Full story on F3News: [Nevada launches sales of legal recreational marijuana](http://www.f3nws.com/n/Cp4yuB)
 
-> Posted on: Saturday, July 1, 2017 6:33:11 PM
+> Posted on: Saturday, July 1, 2017 6:47:50 PM
