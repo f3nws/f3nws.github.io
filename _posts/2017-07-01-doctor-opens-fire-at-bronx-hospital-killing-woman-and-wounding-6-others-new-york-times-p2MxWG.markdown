@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Doctor Opens Fire at Bronx Hospital, Killing Woman and Wounding 6 Others - New York Times](https://static01.nyt.com/images/2017/07/01/nyregion/01HOSPITAL/01HOSPITAL-facebookJumbo.jpg)
 
-New York Times Doctor Opens Fire at Bronx Hospital, Killing Woman and Wounding 6 Others New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an AR-15 rifle and wearing a lab coat went on a rampage on Friday in the Bronx hospital where he ... Doctor fatally shoots 1, wounds 6 at NYC hospital before killing himself CNN The Latest: Ex-colleague says hospital gunman was a problem Washington Post Hospital gunman 'promised to come back' and shoot former co-worker New York Post NBC New York - ABC News - Daily Beast - Reuters all 597 news articles »
+New York Times Doctor Opens Fire at Bronx Hospital, Killing Woman and Wounding 6 Others New York Times The police gathered outside Bronx-Lebanon Hospital Center in New York on Friday. Credit Uli Seit for The New York Times. A disgruntled doctor armed with an AR-15 rifle and wearing a lab coat went on a rampage on Friday in the Bronx hospital where he ... Doctor who killed 1 at NYC hospital was 'aggressive' ABC News Doctor fatally shoots 1, wounds 6 at NYC hospital before killing himself CNN The Latest: Ex-colleague says hospital gunman was a problem Washington Post NBC 5 Dallas-Fort Worth - The Boston Globe - Fox News - Daily Beast all 603 news articles »
 
 
 Full story on F3News: [Doctor Opens Fire at Bronx Hospital, Killing Woman and Wounding 6 Others - New York Times](http://www.f3nws.com/n/p2MxWG)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese President issues stern warning as Hong Kong marks 20 years under China"
-date: 2017-07-01 04:30:38Z
+date: 2017-07-01 06:51:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South China Morning Post Xi Jinping warns of 'red line' as Hong Kong marks 20 ye
 
 Full story on F3News: [Chinese President issues stern warning as Hong Kong marks 20 years under China](http://www.f3nws.com/n/4qvm3F)
 
-> Posted on: Saturday, July 1, 2017 9:30:38 AM
+> Posted on: Saturday, July 1, 2017 11:51:41 AM
