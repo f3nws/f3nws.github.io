@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's President issues 'red line' warning"
-date: 2017-07-01 10:46:00Z
+date: 2017-07-01 12:54:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ China's President Xi Jinping has warned that efforts "to challenge the power of 
 
 Full story on F3News: [China's President issues 'red line' warning](http://www.f3nws.com/n/4qvm3F)
 
-> Posted on: Saturday, July 1, 2017 3:46:00 PM
+> Posted on: Saturday, July 1, 2017 5:54:38 PM
