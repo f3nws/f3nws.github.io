@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![JAY-Z and Beyonce Name Twins Rumi and Sir: Report - Billboard](http://www.billboard.com/files/media/Beyonce-Jay-Z-grammys-05-2017-billboard-1548.jpg)
 
-Billboard JAY-Z and Beyonce Name Twins Rumi and Sir: Report Billboard It appears the newest members of the Carter family might be named Rumi and Sir. JAY-Z and Beyonce's company -- which owns the trademarks to their names -- filed with the United States Patent and Trademark Office earlier this week to secure rights to ... Is Beyoncé and JAY-Z's Baby Named After a Famous Poet? Fans React to Names Rumi and Sir PEOPLE.com Twin Names Rumi and Sir Carter TMZ.com Beyoncé And Jay-Z's Twins' Names Reportedly Revealed HuffPost Hollywood Life - Refinery29 - International Business Times - WJLA all 246 news articles »
+Billboard JAY-Z and Beyonce Name Twins Rumi and Sir: Report Billboard It appears the newest members of the Carter family might be named Rumi and Sir. JAY-Z and Beyonce's company -- which owns the trademarks to their names -- filed with the United States Patent and Trademark Office earlier this week to secure rights to ... Is Beyoncé and JAY-Z's Baby Named After a Famous Poet? Fans React to Names Rumi and Sir PEOPLE.com Twin Names Rumi and Sir Carter TMZ.com Beyonce: She Thinks Jay-Z Is A Genius ForDropping Album After Birth Of Twins Rumi& Sir Hollywood Life HuffPost - Refinery29 - International Business Times - WJLA all 243 news articles »
 
 
 Full story on F3News: [JAY-Z and Beyonce Name Twins Rumi and Sir: Report - Billboard](http://www.f3nws.com/n/nTmXdB)
