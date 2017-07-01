@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bronx-Lebanon Hospital shooting: Doctor killed, multiple people injured, police say"
-date: 2017-06-30 21:45:00Z
+date: 2017-06-30 23:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A doctor was killed and multiple people injured after a gunman opened fire insid
 
 Full story on F3News: [Bronx-Lebanon Hospital shooting: Doctor killed, multiple people injured, police say](http://www.f3nws.com/n/hc2qDE)
 
-> Posted on: Saturday, July 1, 2017 2:45:00 AM
+> Posted on: Saturday, July 1, 2017 4:00:00 AM
