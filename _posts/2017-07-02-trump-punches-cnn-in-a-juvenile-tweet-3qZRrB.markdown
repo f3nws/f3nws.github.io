@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump punches CNN in a juvenile tweet"
-date: 2017-07-02 17:42:17Z
+date: 2017-07-02 18:04:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump punches CNN in a juvenile tweet](http://www.f3nws.com/n/3qZRrB)
 
-> Posted on: Sunday, July 2, 2017 10:42:17 PM
+> Posted on: Sunday, July 2, 2017 11:04:27 PM

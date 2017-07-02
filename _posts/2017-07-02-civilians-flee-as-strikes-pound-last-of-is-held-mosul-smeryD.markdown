@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Civilians flee as strikes pound last of IS-held Mosul"
-date: 2017-07-02 17:54:54Z
+date: 2017-07-02 18:25:13Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — As airstrikes pound the last pockets of territory held by t
 
 Full story on F3News: [Civilians flee as strikes pound last of IS-held Mosul](http://www.f3nws.com/n/smeryD)
 
-> Posted on: Sunday, July 2, 2017 10:54:54 PM
+> Posted on: Sunday, July 2, 2017 11:25:13 PM
