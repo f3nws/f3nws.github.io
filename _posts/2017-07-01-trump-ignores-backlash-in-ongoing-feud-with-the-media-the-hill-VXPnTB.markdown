@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump ignores backlash in ongoing feud with the media - The Hill](http://thehill.com/sites/default/files/article_images/trumpdonald_060917getty.jpg)
 
-The Hill Trump ignores backlash in ongoing feud with the media The Hill President Trump continued his blitz against major U.S. media outlets on Saturday, despite the wave of backlash that followed his particularly personal attack on a female MSNBC host this week. Trump's very public duel with MSNBC's "Morning Joe," taking ... Trump defends social media use after controversial tweets CNN Trump kicks off Fourth of July weekend by bashing "dumb as a rock Mika" Brzezinski CBS News 10 years go, Mika Brzezinski railed against reality TV culture — this week, it ate her alive An error occurred. Salon Fox News - BBC News - Politico - HuffPost all 2,670 news articles »
+The Hill Trump ignores backlash in ongoing feud with the media The Hill President Trump continued his blitz against major U.S. media outlets on Saturday, despite the wave of backlash that followed his particularly personal attack on a female MSNBC host this week. Trump's very public duel with MSNBC's "Morning Joe," taking ... Trump defends social media use after controversial tweets CNN Trump kicks off Fourth of July weekend by bashing "dumb as a rock Mika" Brzezinski CBS News 10 years go, Mika Brzezinski railed against reality TV culture — this week, it ate her alive An error occurred. Salon Fox News - BBC News - Politico - HuffPost all 2,694 news articles »
 
 
 Full story on F3News: [Trump ignores backlash in ongoing feud with the media - The Hill](http://www.f3nws.com/n/VXPnTB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel's ex-PM Olmert released from prison"
-date: 2017-07-02 08:15:21Z
+date: 2017-07-02 08:47:57Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ JERUSALEM (AP) — Former Israeli Prime Minister Ehud Olmert was released from p
 
 Full story on F3News: [Israel's ex-PM Olmert released from prison](http://www.f3nws.com/n/bzYCEG)
 
-> Posted on: Sunday, July 2, 2017 1:15:21 PM
+> Posted on: Sunday, July 2, 2017 1:47:57 PM
