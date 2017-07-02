@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prices rise, partitions fall under new Utah liquor law"
-date: 2017-07-01 23:20:13Z
+date: 2017-07-01 23:48:06Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ SALT LAKE CITY (AP) — A trendy downtown Salt Lake City seafood restaurant star
 
 Full story on F3News: [Prices rise, partitions fall under new Utah liquor law](http://www.f3nws.com/n/SbWQHD)
 
-> Posted on: Sunday, July 2, 2017 4:20:13 AM
+> Posted on: Sunday, July 2, 2017 4:48:06 AM
