@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pentagon delays enlistment of transgender recruits"
-date: 2017-07-02 22:30:14Z
+date: 2017-07-02 23:00:14Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Pentagon has delayed enlistment of transgender people into the armed service
 
 Full story on F3News: [Pentagon delays enlistment of transgender recruits](http://www.f3nws.com/n/FTZGHG)
 
-> Posted on: Monday, July 3, 2017 3:30:14 AM
+> Posted on: Monday, July 3, 2017 4:00:14 AM
