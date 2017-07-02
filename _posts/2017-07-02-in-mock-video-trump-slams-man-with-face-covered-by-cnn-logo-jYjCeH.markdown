@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In mock video, Trump slams man with face covered by CNN logo"
-date: 2017-07-02 16:55:15Z
+date: 2017-07-02 17:25:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BRIDGEWATER, N.J. (AP) — President Donald Trump has tweeted a mock video that 
 
 Full story on F3News: [In mock video, Trump slams man with face covered by CNN logo](http://www.f3nws.com/n/jYjCeH)
 
-> Posted on: Sunday, July 2, 2017 9:55:15 PM
+> Posted on: Sunday, July 2, 2017 10:25:44 PM

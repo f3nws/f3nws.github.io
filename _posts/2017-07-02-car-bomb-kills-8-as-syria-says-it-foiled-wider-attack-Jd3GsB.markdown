@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car bomb kills 8 as Syria says it foiled wider attack"
-date: 2017-07-02 16:55:15Z
+date: 2017-07-02 17:25:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ DAMASCUS, Syria (AP) — A suicide car bomb killed at least eight people in a ra
 
 Full story on F3News: [Car bomb kills 8 as Syria says it foiled wider attack](http://www.f3nws.com/n/Jd3GsB)
 
-> Posted on: Sunday, July 2, 2017 9:55:15 PM
+> Posted on: Sunday, July 2, 2017 10:25:44 PM

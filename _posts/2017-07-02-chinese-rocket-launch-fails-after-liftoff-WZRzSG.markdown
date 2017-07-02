@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese rocket launch fails after liftoff"
-date: 2017-07-02 16:30:53Z
+date: 2017-07-02 17:15:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The second launch of China's new-generation Long March-5 carrier rocket failed S
 
 Full story on F3News: [Chinese rocket launch fails after liftoff](http://www.f3nws.com/n/WZRzSG)
 
-> Posted on: Sunday, July 2, 2017 9:30:53 PM
+> Posted on: Sunday, July 2, 2017 10:15:10 PM
