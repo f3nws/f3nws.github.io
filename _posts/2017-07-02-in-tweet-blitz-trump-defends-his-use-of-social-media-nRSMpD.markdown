@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In tweet blitz, Trump defends his use of social media"
-date: 2017-07-02 02:48:29Z
+date: 2017-07-02 03:17:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BRIDGEWATER, N.J. (AP) — President Donald Trump escalated an intensely persona
 
 Full story on F3News: [In tweet blitz, Trump defends his use of social media](http://www.f3nws.com/n/nRSMpD)
 
-> Posted on: Sunday, July 2, 2017 7:48:29 AM
+> Posted on: Sunday, July 2, 2017 8:17:17 AM
