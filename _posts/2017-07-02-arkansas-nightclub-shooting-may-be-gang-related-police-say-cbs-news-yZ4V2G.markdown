@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Arkansas nightclub shooting may be gang related, police say - CBS News"
+date: 2017-07-02 03:59:00Z
+categories: google-news-top-stories
+---
+
+![Arkansas nightclub shooting may be gang related, police say - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/02/fc72ca4c-c5c1-42a2-853e-7efb0d6f3690/little-rock-nightclub-shooting-2017-7-1.jpg)
+
+CBS News Arkansas nightclub shooting may be gang related, police say CBS News LITTLE ROCK, Ark. -- Clubgoers screamed and scrambled for cover as dozens of gunshots rang out during a rap concert in downtown Little Rock early Saturday, leaving 28 people injured from an 11-second melee that police said may be gang-related. The Latest: Landlord evicts Little Rock club after shooting Washington Post 28 People Were Wounded After A Mass Shooting In An Arkansas Nightclub BuzzFeed News Faith Leaders Pray for Victims, Call for Change After Little Rock Club Shooting NBCNews.com CNN - New York Times - U.S. News & World Report - Fox News all 315 news articles »
+
+
+Full story on F3News: [Arkansas nightclub shooting may be gang related, police say - CBS News](http://www.f3nws.com/n/yZ4V2G)
+
+> Posted on: Sunday, July 2, 2017 8:59:00 AM

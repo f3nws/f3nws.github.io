@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man released from jail after 23 years for crime he didn't commit finds freedom surreal"
-date: 2017-07-02 01:30:17Z
+date: 2017-07-02 05:30:16Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ DeMarlo Antwin Berry no longer can recognize Las Vegas.
 
 Full story on F3News: [Man released from jail after 23 years for crime he didn't commit finds freedom surreal](http://www.f3nws.com/n/CtTFgB)
 
-> Posted on: Sunday, July 2, 2017 6:30:17 AM
+> Posted on: Sunday, July 2, 2017 10:30:16 AM

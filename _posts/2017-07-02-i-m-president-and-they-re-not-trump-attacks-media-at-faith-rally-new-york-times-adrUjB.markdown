@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['I'm President and They're Not': Trump Attacks Media at Faith Rally - New York Times](https://static01.nyt.com/images/2017/07/02/us/02DCTRUMP-sub/02DCTRUMP-sub-facebookJumbo-v2.jpg)
 
-New York Times 'I'm President and They're Not': Trump Attacks Media at Faith Rally New York Times President Trump spoke Saturday at the John F. Kennedy Center for the Performing Arts in Washington. Credit Al Drago for The New York Times. WASHINGTON — President Trump began his holiday weekend getaway with another denunciation of the news ... AP News in Brief at 12:04 am EDT Washington Post Trump defends social media use after controversial tweets CNN Trump ignores backlash in ongoing feud with the media The Hill Fox News - BBC News - CBS News - Politico all 2,524 news articles »
+New York Times 'I'm President and They're Not': Trump Attacks Media at Faith Rally New York Times President Trump spoke Saturday at the John F. Kennedy Center for the Performing Arts in Washington. Credit Al Drago for The New York Times. WASHINGTON — President Trump began his holiday weekend getaway with another denunciation of the news ... AP News in Brief at 12:04 am EDT Washington Post Trump defends tweets as 'modern day presidential' in renewed attack on media Los Angeles Times Trump ignores backlash in ongoing feud with the media The Hill CNN - Fox News - BBC News - CBS News all 2,535 news articles »
 
 
 Full story on F3News: ['I'm President and They're Not': Trump Attacks Media at Faith Rally - New York Times](http://www.f3nws.com/n/adrUjB)
