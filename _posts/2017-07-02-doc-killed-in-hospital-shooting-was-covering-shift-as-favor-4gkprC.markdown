@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doc killed in hospital shooting was covering shift as favor"
-date: 2017-07-02 16:23:27Z
+date: 2017-07-02 16:55:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — A doctor disguised as one who would save lives came to the New
 
 Full story on F3News: [Doc killed in hospital shooting was covering shift as favor](http://www.f3nws.com/n/4gkprC)
 
-> Posted on: Sunday, July 2, 2017 9:23:27 PM
+> Posted on: Sunday, July 2, 2017 9:55:15 PM
