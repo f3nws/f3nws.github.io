@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EXCLUSIVE: Pentagon sails destroyer near disputed island in South China Sea, officials say"
-date: 2017-07-02 07:48:00Z
+date: 2017-07-02 11:48:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ For the second time since President Trump took office, the Pentagon dispatched a
 
 Full story on F3News: [EXCLUSIVE: Pentagon sails destroyer near disputed island in South China Sea, officials say](http://www.f3nws.com/n/cCFzbH)
 
-> Posted on: Sunday, July 2, 2017 12:48:00 PM
+> Posted on: Sunday, July 2, 2017 4:48:00 PM

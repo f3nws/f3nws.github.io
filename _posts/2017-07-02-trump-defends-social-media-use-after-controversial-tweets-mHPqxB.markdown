@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump defends social media use after controversial tweets"
-date: 2017-07-02 05:31:08Z
+date: 2017-07-02 12:58:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump defended his use of Twitter on Saturday after several day
 
 Full story on F3News: [Trump defends social media use after controversial tweets](http://www.f3nws.com/n/mHPqxB)
 
-> Posted on: Sunday, July 2, 2017 10:31:08 AM
+> Posted on: Sunday, July 2, 2017 5:58:58 PM

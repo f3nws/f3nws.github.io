@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Body of missing 5-year-old boy Aramazd Andressian Jr. found in California - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/01/db9cc333-05ce-4198-b0bf-f8bc0866fd4e/aramazd.jpg)
 
-CBS News Body of missing 5-year-old boy Aramazd Andressian Jr. found in California CBS News LOS ANGELES -- The body of a 5-year-old boy missing since April has been found. The Los Angeles County Sheriff's Department confirmed to CBS Los Angeles Saturday that the body of Aramazd Andressian Jr. was found after homicide detectives returned ... Body of missing California boy found, father remains in jail CNN Body of missing 5-year-old boy found in California ABC News Body of Missing San Gabriel Valley Boy Found in Santa Barbara County on Same Day as Father's Extradition KTLA NBC Southern California - New York Daily News - KABC-TV - PEOPLE.com all 80 news articles »
+CBS News Body of missing 5-year-old boy Aramazd Andressian Jr. found in California CBS News LOS ANGELES -- The body of a 5-year-old boy missing since April has been found. The Los Angeles County Sheriff's Department confirmed to CBS Los Angeles Saturday that the body of Aramazd Andressian Jr. was found after homicide detectives returned ... Microsoft, Trump administration clash over email searches Washington Post Body of missing 5-year-old boy found in California ABC News Body of missing California boy found, father remains in jail CNN NBC New York - Press-Enterprise - U.S. News & World Report - fox5sandiego.com all 84 news articles »
 
 
 Full story on F3News: [Body of missing 5-year-old boy Aramazd Andressian Jr. found in California - CBS News](http://www.f3nws.com/n/DDemQ)
