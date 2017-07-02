@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Virginia law will give drug addicts clean needles"
-date: 2017-07-02 21:00:18Z
+date: 2017-07-02 22:30:14Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A new law in Virginia will permit health departments to provide clean needles to
 
 Full story on F3News: [Virginia law will give drug addicts clean needles](http://www.f3nws.com/n/J4VVN)
 
-> Posted on: Monday, July 3, 2017 2:00:18 AM
+> Posted on: Monday, July 3, 2017 3:30:14 AM
