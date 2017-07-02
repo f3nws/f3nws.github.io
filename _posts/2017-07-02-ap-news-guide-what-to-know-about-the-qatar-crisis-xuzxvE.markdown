@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP News Guide: What to know about the Qatar crisis"
-date: 2017-07-02 13:49:20Z
+date: 2017-07-02 14:17:20Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ DUBAI, United Arab Emirates (AP) — Qatar likely faces a deadline this weekend 
 
 Full story on F3News: [AP News Guide: What to know about the Qatar crisis](http://www.f3nws.com/n/xuzxvE)
 
-> Posted on: Sunday, July 2, 2017 6:49:20 PM
+> Posted on: Sunday, July 2, 2017 7:17:20 PM

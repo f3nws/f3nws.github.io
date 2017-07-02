@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suicide attacker kills, wounds several people in Damascus"
-date: 2017-07-02 09:36:36Z
+date: 2017-07-02 14:16:11Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A suicide bomber blew himself up in central Damascus on Sunday, killing and woun
 
 Full story on F3News: [Suicide attacker kills, wounds several people in Damascus](http://www.f3nws.com/n/uEmzQH)
 
-> Posted on: Sunday, July 2, 2017 2:36:36 PM
+> Posted on: Sunday, July 2, 2017 7:16:11 PM

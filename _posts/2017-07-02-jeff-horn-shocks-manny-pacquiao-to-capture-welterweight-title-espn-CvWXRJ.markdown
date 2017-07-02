@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Jeff Horn shocks Manny Pacquiao to capture welterweight title - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0701%2Fr226569_1296x729_16%2D9.jpg)
 
-ESPN Jeff Horn shocks Manny Pacquiao to capture welterweight title ESPN Manny Pacquiao was the heavy favorite to retain his welterweight world title against unknown Jeff Horn in what most viewed as an easy fight, and Pacquiao sure looked like he had done just that when the final bell rang to end the action-packed brawl. Pacquiao loses contentious WBO title fight to Jeff Horn Yahoo Sports Bradley: Pacquiao Showed His Age, But Horn Didn't Win the Fight BoxingScene.com Jeff Horn targets next foes after 'climbing the Pacquiao mountain' Sporting News Miami Herald - Bad Left Hook - fox2now.com - Bleacher Report all 494 news articles »
+ESPN Jeff Horn shocks Manny Pacquiao to capture welterweight title ESPN Manny Pacquiao was the heavy favorite to retain his welterweight world title against unknown Jeff Horn in what most viewed as an easy fight, and Pacquiao sure looked like he had done just that when the final bell rang to end the action-packed brawl. More generous than 'corrupt,' Horn's upset of Pacquiao exposes an important truth CBSSports.com Manny Pacquiao Next Fight: Examining Likelihood of Pac-Man Fights Bleacher Report Pacquiao loses contentious WBO title fight to Jeff Horn Yahoo Sports BoxingScene.com - Sporting News - Bad Left Hook - Miami Herald all 504 news articles »
 
 
 Full story on F3News: [Jeff Horn shocks Manny Pacquiao to capture welterweight title - ESPN](http://www.f3nws.com/n/CvWXRJ)
