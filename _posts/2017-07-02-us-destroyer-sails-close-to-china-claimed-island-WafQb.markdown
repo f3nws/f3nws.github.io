@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US destroyer sails close to China-claimed island"
-date: 2017-07-02 11:26:55Z
+date: 2017-07-02 15:40:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US destroyer sails close to China-claimed island](http://www.f3nws.com/n/WafQb)
 
-> Posted on: Sunday, July 2, 2017 4:26:55 PM
+> Posted on: Sunday, July 2, 2017 8:40:07 PM
