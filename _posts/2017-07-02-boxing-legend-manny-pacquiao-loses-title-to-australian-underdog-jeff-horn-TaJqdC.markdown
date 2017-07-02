@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boxing legend Manny Pacquiao loses title to Australian underdog Jeff Horn"
-date: 2017-07-02 07:11:56Z
+date: 2017-07-02 08:18:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Manny Pacquiao has lost his WBO Welterweight title to a relative unknown in a sh
 
 Full story on F3News: [Boxing legend Manny Pacquiao loses title to Australian underdog Jeff Horn](http://www.f3nws.com/n/TaJqdC)
 
-> Posted on: Sunday, July 2, 2017 12:11:56 PM
+> Posted on: Sunday, July 2, 2017 1:18:57 PM
