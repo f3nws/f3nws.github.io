@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen musicians to take soulful Memphis Sound anew to Europe"
-date: 2017-07-02 09:18:12Z
+date: 2017-07-02 10:19:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MEMPHIS, Tenn. (AP) — The roster of American musicians was impressive: Otis Re
 
 Full story on F3News: [Teen musicians to take soulful Memphis Sound anew to Europe](http://www.f3nws.com/n/4kKrFE)
 
-> Posted on: Sunday, July 2, 2017 2:18:12 PM
+> Posted on: Sunday, July 2, 2017 3:19:22 PM
