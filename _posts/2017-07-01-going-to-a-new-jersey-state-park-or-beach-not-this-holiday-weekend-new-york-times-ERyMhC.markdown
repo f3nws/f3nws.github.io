@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Going to a New Jersey State Park or Beach? Not This Holiday Weekend - New York Times](https://static01.nyt.com/images/2017/07/02/nyregion/02SHUTDOWN1-1498935620662-7/02SHUTDOWN1-1498935620662-facebookJumbo.jpg)
 
-New York Times Going to a New Jersey State Park or Beach? Not This Holiday Weekend New York Times Park rangers patrolled the New Jersey coastline along the Island Beach State Park border on Saturday. State parks and beaches were closed because a budget impasse led to a government shutdown. Credit Tom Brenner for The New York Times. ISLAND ... New Jersey, Maine shut down amid spending disputes The Hill New Jersey government shuts down in budget standoff CNN States Miss Budget Deadline, Go Into Full Or Partial Shutdown Mode NPR CBS News - NJ.com - Philly.com - NorthJersey.com all 168 news articles »
+New York Times Going to a New Jersey State Park or Beach? Not This Holiday Weekend New York Times Park rangers patrolled the New Jersey coastline along the Island Beach State Park border on Saturday. State parks and beaches were closed because a budget impasse led to a government shutdown. Credit Tom Brenner for The New York Times. ISLAND ... New Jersey, Maine shut down amid spending disputes The Hill The Latest: Christie orders Legislature back amid impasse Washington Post New Jersey government shuts down in budget standoff CNN Fox News - CBS News - New York Post - NJ.com all 179 news articles »
 
 
 Full story on F3News: [Going to a New Jersey State Park or Beach? Not This Holiday Weekend - New York Times](http://www.f3nws.com/n/ERyMhC)
