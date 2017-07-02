@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doctor: No idea why he would be hospital shooter's target"
-date: 2017-07-02 17:56:07Z
+date: 2017-07-02 19:46:20Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A doctor disguised as one who would save lives came to the New York hospital tha
 
 Full story on F3News: [Doctor: No idea why he would be hospital shooter's target](http://www.f3nws.com/n/CasYMG)
 
-> Posted on: Sunday, July 2, 2017 10:56:07 PM
+> Posted on: Monday, July 3, 2017 12:46:20 AM

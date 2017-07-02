@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rapper held on unrelated charges after Little Rock shooting"
-date: 2017-07-02 20:26:27Z
+date: 2017-07-02 20:57:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LITTLE ROCK, Ark. (AP) — A rapper whose concert in Little Rock was the site of
 
 Full story on F3News: [Rapper held on unrelated charges after Little Rock shooting](http://www.f3nws.com/n/DJfcvC)
 
-> Posted on: Monday, July 3, 2017 1:26:27 AM
+> Posted on: Monday, July 3, 2017 1:57:27 AM
