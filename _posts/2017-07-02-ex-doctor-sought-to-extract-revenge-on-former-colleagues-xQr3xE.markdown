@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-doctor sought to extract revenge on former colleagues"
-date: 2017-07-02 10:49:21Z
+date: 2017-07-02 11:19:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — A doctor disguised as one who would save lives came to the New
 
 Full story on F3News: [Ex-doctor sought to extract revenge on former colleagues](http://www.f3nws.com/n/xQr3xE)
 
-> Posted on: Sunday, July 2, 2017 3:49:21 PM
+> Posted on: Sunday, July 2, 2017 4:19:22 PM
