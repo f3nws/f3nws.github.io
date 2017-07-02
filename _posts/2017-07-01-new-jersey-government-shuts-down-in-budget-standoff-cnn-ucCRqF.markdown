@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![New Jersey government shuts down in budget standoff - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/161109152857-chris-christie-super-tease.jpg)
 
-CNN New Jersey government shuts down in budget standoff CNN (CNN) New Jersey legislators went home Saturday afternoon without passing a budget, leaving the state government shut down, the spokesman for Gov. Chris Christie told CNN. Christie has called for the legislature to reconvene at 2 p.m. Sunday in an ... At root of the state shutdown: Testosterone poisoning | Moran NJ.com Gov. Christie on Government Shutdown: 'This Is Embarrassing' NBC 10 Philadelphia all 167 news articles »
+CNN New Jersey government shuts down in budget standoff CNN (CNN) New Jersey legislators went home Saturday afternoon without passing a budget, leaving the state government shut down, the spokesman for Gov. Chris Christie told CNN. Christie has called for the legislature to reconvene at 2 p.m. Sunday in an ... At root of the state shutdown: Testosterone poisoning | Moran NJ.com Here's why Chris Christie shut down state government Raw Story Gov. Christie on Government Shutdown: 'This Is Embarrassing' NBC 10 Philadelphia AOL - LancasterOnline all 170 news articles »
 
 
 Full story on F3News: [New Jersey government shuts down in budget standoff - CNN](http://www.f3nws.com/n/ucCRqF)

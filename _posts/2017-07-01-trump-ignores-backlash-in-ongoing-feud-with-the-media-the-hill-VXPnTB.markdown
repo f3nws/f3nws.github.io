@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump ignores backlash in ongoing feud with the media - The Hill](http://thehill.com/sites/default/files/article_images/trumpdonald_060917getty.jpg)
 
-The Hill Trump ignores backlash in ongoing feud with the media The Hill President Trump continued his blitz against major U.S. media outlets on Saturday, despite the wave of backlash that followed his particularly personal attack on a female MSNBC host this week. Trump's very public duel with MSNBC's "Morning Joe," taking ... Cruella de Trump New York Times AP News in Brief at 6:04 pm EDT Washington Post Ivanka Trump has kept quiet while President Trump bashes 'low IQ' Mika Brzezinski in tweets Business Insider Washington Examiner - Salon - HuffPost - Slate Magazine (blog) all 2,442 news articles »
+The Hill Trump ignores backlash in ongoing feud with the media The Hill President Trump continued his blitz against major U.S. media outlets on Saturday, despite the wave of backlash that followed his particularly personal attack on a female MSNBC host this week. Trump's very public duel with MSNBC's "Morning Joe," taking ... AP News in Brief at 9:04 pm EDT Washington Post Trump kicks off Fourth of July weekend by bashing "dumb as a rock Mika" Brzezinski CBS News In tweet blitz, Trump defends his use of social media ABC News Politico - Business Insider - New York Times - Salon all 2,478 news articles »
 
 
 Full story on F3News: [Trump ignores backlash in ongoing feud with the media - The Hill](http://www.f3nws.com/n/VXPnTB)

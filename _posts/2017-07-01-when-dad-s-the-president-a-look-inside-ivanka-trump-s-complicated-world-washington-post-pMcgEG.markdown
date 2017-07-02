@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![When Dad's the president — a look inside Ivanka Trump's complicated world - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/14/National-Politics/Images/Botsford170613Trump16650.JPG?t=20170517)
 
-Washington Post When Dad's the president — a look inside Ivanka Trump's complicated world Washington Post Ivanka Trump's office: clean, white, quiet. A zone of punctual start times and promptly-offered water bottles, and a conference table at which she conducts meetings. A short, winding walk away from her father's Oval Office downstairs. She does not ... The week in politics CNN White House says Spanish-version website still coming The Hill Fox News Is Defending Donald Trump With Mystery Writers and Anonymous Sources Newsweek Fox News - HuffPost - CBS News - New York Daily News all 180 news articles »
+Washington Post When Dad's the president — a look inside Ivanka Trump's complicated world Washington Post Ivanka Trump's office: clean, white, quiet. A zone of punctual start times and promptly-offered water bottles, and a conference table at which she conducts meetings. A short, winding walk away from her father's Oval Office downstairs. She does not ... The week in politics CNN White House says Spanish-version website still coming The Hill Trump Wants To Rewrite Obama's Overtime Reforms HuffPost Newsweek - CBS News - New York Daily News - Washington Examiner all 182 news articles »
 
 
 Full story on F3News: [When Dad's the president — a look inside Ivanka Trump's complicated world - Washington Post](http://www.f3nws.com/n/pMcgEG)
