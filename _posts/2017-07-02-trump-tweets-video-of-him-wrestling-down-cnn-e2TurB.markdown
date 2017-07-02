@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets video of him wrestling down CNN"
-date: 2017-07-02 14:17:00Z
+date: 2017-07-02 16:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump on Sunday took his Twitter attack on CNN to a new level -- posti
 
 Full story on F3News: [Trump tweets video of him wrestling down CNN](http://www.f3nws.com/n/e2TurB)
 
-> Posted on: Sunday, July 2, 2017 7:17:00 PM
+> Posted on: Sunday, July 2, 2017 9:00:00 PM
