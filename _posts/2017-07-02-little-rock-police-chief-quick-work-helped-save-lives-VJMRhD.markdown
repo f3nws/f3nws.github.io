@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Little Rock police chief: Quick work helped save lives"
-date: 2017-07-02 09:47:21Z
+date: 2017-07-02 10:49:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LITTLE ROCK, Ark. (AP) — The landlord that owns the Little Rock nightclub wher
 
 Full story on F3News: [Little Rock police chief: Quick work helped save lives](http://www.f3nws.com/n/VJMRhD)
 
-> Posted on: Sunday, July 2, 2017 2:47:21 PM
+> Posted on: Sunday, July 2, 2017 3:49:21 PM
