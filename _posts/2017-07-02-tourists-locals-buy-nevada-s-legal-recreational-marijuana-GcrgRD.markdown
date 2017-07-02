@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tourists, locals buy Nevada's legal recreational marijuana"
-date: 2017-07-02 05:50:11Z
+date: 2017-07-02 06:22:53Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LAS VEGAS (AP) — Cheers and long lines of tourists and locals alike greeted th
 
 Full story on F3News: [Tourists, locals buy Nevada's legal recreational marijuana](http://www.f3nws.com/n/GcrgRD)
 
-> Posted on: Sunday, July 2, 2017 10:50:11 AM
+> Posted on: Sunday, July 2, 2017 11:22:53 AM

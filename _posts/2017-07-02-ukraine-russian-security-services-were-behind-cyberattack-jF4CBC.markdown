@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ukraine: Russian security services were behind cyberattack"
-date: 2017-07-02 05:50:11Z
+date: 2017-07-02 06:22:53Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSCOW (AP) — Ukraine accused the Russian security services Saturday of planni
 
 Full story on F3News: [Ukraine: Russian security services were behind cyberattack](http://www.f3nws.com/n/jF4CBC)
 
-> Posted on: Sunday, July 2, 2017 10:50:11 AM
+> Posted on: Sunday, July 2, 2017 11:22:53 AM
