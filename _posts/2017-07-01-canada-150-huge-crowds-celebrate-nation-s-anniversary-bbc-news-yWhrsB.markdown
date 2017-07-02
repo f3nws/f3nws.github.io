@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Canada 150: Huge crowds celebrate nation's anniversary - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p057hw1x.jpg)
 
-BBC News Canada 150: Huge crowds celebrate nation's anniversary BBC News Revellers, police and some protesters have converged on Canada's national capital on Saturday for a party that has been years in the planning. Canada is marking its 150th anniversary as a country in towns, cities and at backyard barbecues nationwide. Donald Trump's very affectionate tweet about Justin Trudeau, explained Washington Post Canadian Twittersphere erupts after Trudeau forgets Alberta in speech CNN 150 Things to Know on Canada's 150th Birthday HuffPost Business Insider - Newsweek - The Hill (blog) - Toronto Star all 80 news articles »
+BBC News Canada 150: Huge crowds celebrate nation's anniversary BBC News Revellers, police and some protesters converged on Canada's national capital on Saturday for a party that has been years in the planning. Canada marked its 150th anniversary as a country in towns, cities and at backyard barbecues nationwide. But the ... On rainy 150th birthday, nation celebrates the meaning of Canada Reuters Canada turns 150 today — and it's enjoying a new global role Washington Post Canadian Twittersphere erupts after Trudeau forgets Alberta in speech CNN HuffPost all 88 news articles »
 
 
 Full story on F3News: [Canada 150: Huge crowds celebrate nation's anniversary - BBC News](http://www.f3nws.com/n/yWhrsB)
