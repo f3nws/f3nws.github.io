@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disgraced doctor threatened former colleagues before rampage"
-date: 2017-07-02 02:19:17Z
+date: 2017-07-02 02:48:29Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — A doctor angry that his career was derailed at a New York City
 
 Full story on F3News: [Disgraced doctor threatened former colleagues before rampage](http://www.f3nws.com/n/zhZvBJ)
 
-> Posted on: Sunday, July 2, 2017 7:19:17 AM
+> Posted on: Sunday, July 2, 2017 7:48:29 AM
