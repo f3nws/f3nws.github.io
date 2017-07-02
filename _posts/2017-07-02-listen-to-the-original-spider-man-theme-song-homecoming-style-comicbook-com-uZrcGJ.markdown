@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Listen to the Original Spider-Man Theme Song Homecoming Style - Comicbook.com](http://media.comicbook.com/2017/07/listen-to-the-original-spider-man-theme-song-homecoming-style-1005696-640x320.jpg)
 
-Comicbook.com Listen to the Original Spider-Man Theme Song Homecoming Style Comicbook.com Spider-Man's first solo movie in the Marvel Cinematic Universe will feature an amazing score from composer Michael Giacchino, the man behind the amazing music of the TV series Lost. And though Giacchino has creating a lot of original music to back ... Marvel Movies Masters: Ranking All 12 MCU Directors ComingSoon.net New Homecoming Images Include Spider-Man Vs. Shocker Screen Rant Captain Comics: Comics may predict 'Spider-Man: Homecoming' developments Times Record Variety - Bam! Smack! Pow! - EW.com (blog) - Hollywood Reporter all 1,094 news articles »
+Comicbook.com Listen to the Original Spider-Man Theme Song Homecoming Style Comicbook.com Spider-Man's first solo movie in the Marvel Cinematic Universe will feature an amazing score from composer Michael Giacchino, the man behind the amazing music of the TV series Lost. And though Giacchino has creating a lot of original music to back ... Marvel Movies Masters: Ranking All 12 MCU Directors ComingSoon.net New Homecoming Images Include Spider-Man Vs. Shocker Screen Rant Captain Comics: Comics may predict 'Spider-Man: Homecoming' developments Times Record Variety - Bam! Smack! Pow! - Hollywood Reporter - EW.com (blog) all 1,096 news articles »
 
 
 Full story on F3News: [Listen to the Original Spider-Man Theme Song Homecoming Style - Comicbook.com](http://www.f3nws.com/n/uZrcGJ)
