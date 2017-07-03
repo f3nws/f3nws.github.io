@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets mock video of him beating CNN, sparks criticism"
-date: 2017-07-03 10:55:46Z
+date: 2017-07-03 11:27:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BRIDGEWATER, N.J. (AP) — President Donald Trump crowned his weekend rage again
 
 Full story on F3News: [Trump tweets mock video of him beating CNN, sparks criticism](http://www.f3nws.com/n/XduQzF)
 
-> Posted on: Monday, July 3, 2017 3:55:46 PM
+> Posted on: Monday, July 3, 2017 4:27:44 PM
