@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Smackdown! Trump's insult act comes from pro wrestling hype"
-date: 2017-07-03 09:55:38Z
+date: 2017-07-03 13:19:45Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — Making bombastic boasts. Dropping signature catch phrases. Att
 
 Full story on F3News: [Smackdown! Trump's insult act comes from pro wrestling hype](http://www.f3nws.com/n/jKU4QH)
 
-> Posted on: Monday, July 3, 2017 2:55:38 PM
+> Posted on: Monday, July 3, 2017 6:19:45 PM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![With Beaches Empty, Christie Wages One More Fight - New York Times](https://static01.nyt.com/images/2017/07/03/nyregion/03njbudget/03njbudget-facebookJumbo.jpg)
 
-New York Times With Beaches Empty, Christie Wages One More Fight New York Times Gov. Chris Christie, right, and his family at Island Beach State Park on Sunday. The park was closed to the public because of a government shutdown. Credit Andrew Mills/NJ Advance Media. The political standoff that shut down New Jersey state beaches ... Chris Christie's sunbathing pics clinch it: He's stopped caring CNN Christie, lawmakers at impasse as state parks remain closed Washington Post Chris Christie Closed New Jersey's Beaches — And Then Went To The Beach NPR CBS News - Politico - CNBC - Washington Times all 441 news articles »
+New York Times With Beaches Empty, Christie Wages One More Fight New York Times Gov. Chris Christie, right, and his family at Island Beach State Park on Sunday. The park was closed to the public because of a government shutdown. Credit Andrew Mills/NJ Advance Media. The political standoff that shut down New Jersey state beaches ... Chris Christie's sunbathing pics clinch it: He's stopped caring CNN The Latest: Christie defends use of beach closed to public Washington Post Chris Christie Closed New Jersey's Beaches — And Then Went To The Beach NPR CBS News - Politico - CNBC - ABC News all 455 news articles »
 
 
 Full story on F3News: [With Beaches Empty, Christie Wages One More Fight - New York Times](http://www.f3nws.com/n/SstSPC)
