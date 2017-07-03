@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets mock video showing him beating man labeled CNN"
-date: 2017-07-03 06:17:41Z
+date: 2017-07-03 06:47:26Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BRIDGEWATER, N.J. (AP) — In his latest jab at the media, President Donald Trum
 
 Full story on F3News: [Trump tweets mock video showing him beating man labeled CNN](http://www.f3nws.com/n/ArjsZ)
 
-> Posted on: Monday, July 3, 2017 11:17:41 AM
+> Posted on: Monday, July 3, 2017 11:47:26 AM

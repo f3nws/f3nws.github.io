@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatar defiant as demands deadline approaches"
-date: 2017-07-03 03:53:24Z
+date: 2017-07-03 06:38:14Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Qatar said it's prepared to "face whatever consequences" as a deadline nears for
 
 Full story on F3News: [Qatar defiant as demands deadline approaches](http://www.f3nws.com/n/EPYprD)
 
-> Posted on: Monday, July 3, 2017 8:53:24 AM
+> Posted on: Monday, July 3, 2017 11:38:14 AM
