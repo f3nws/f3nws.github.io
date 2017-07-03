@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Avignon shooting: Eight injured near French mosque - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/4855/production/_96771581_franceavignon.png)
 
-BBC News Avignon shooting: Eight injured near French mosque BBC News Eight people have been injured in a shooting outside a mosque in southern France, officials have confirmed. Worshippers leaving the Arrahma mosque in Avignon were approached by two hooded suspects at about 22:30 local time (21:30 GMT) on Sunday. Gunmen open fire at mosque in France leaving at least eight injured New York Daily News Eight wounded in shooting near French mosque: source Reuters Eight People Have Been Injured in a Shooting Outside a Mosque in Southern France TIME Yahoo News - UPI.com - RFI - SFGate all 96 news articles »
+BBC News Avignon shooting: Eight injured near French mosque BBC News Eight people have been injured in a shooting outside a mosque in southern France, officials have confirmed. Worshippers leaving the Arrahma mosque in Avignon were approached by two hooded suspects at about 22:30 local time (21:30 GMT) on Sunday. Eight wounded in shooting near French mosque: source New York Daily News Eight People Have Been Injured in a Shooting Outside a Mosque in Southern France TIME Gunmen attack mosque in France, injuring eight UPI.com Yahoo News - RFI - SFGate - Sky News all 96 news articles »
 
 
 Full story on F3News: [Avignon shooting: Eight injured near French mosque - BBC News](http://www.f3nws.com/n/yGeCUF)

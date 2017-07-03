@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 7 deals in July 2017"
-date: 2017-07-03 08:28:00Z
+date: 2017-07-03 09:28:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ See how to get your hands on Apple's flagship iPhone 7 for only £22.99 a month.
 
 Full story on F3News: [The best iPhone 7 deals in July 2017](http://www.f3nws.com/n/uSCpWG)
 
-> Posted on: Monday, July 3, 2017 1:28:00 PM
+> Posted on: Monday, July 3, 2017 2:28:00 PM
