@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boston: Injuries after vehicle hits pedestrians"
-date: 2017-07-03 20:36:34Z
+date: 2017-07-03 21:10:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A vehicle struck a group of pedestrians in east Boston on Monday afternoon, Mass
 
 Full story on F3News: [Boston: Injuries after vehicle hits pedestrians](http://www.f3nws.com/n/jSvfd)
 
-> Posted on: Tuesday, July 4, 2017 1:36:34 AM
+> Posted on: Tuesday, July 4, 2017 2:10:59 AM

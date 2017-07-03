@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Europe, Trump may discover if 1st impressions stick"
-date: 2017-07-03 21:28:15Z
+date: 2017-07-03 21:52:05Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump will learn this week whether he gets 
 
 Full story on F3News: [In Europe, Trump may discover if 1st impressions stick](http://www.f3nws.com/n/TWFsEH)
 
-> Posted on: Tuesday, July 4, 2017 2:28:15 AM
+> Posted on: Tuesday, July 4, 2017 2:52:05 AM
