@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump makes push on health bill; repeal-only vote an option"
-date: 2017-07-03 04:44:36Z
+date: 2017-07-03 05:27:33Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump is making a weekend push to get a Rep
 
 Full story on F3News: [Trump makes push on health bill; repeal-only vote an option](http://www.f3nws.com/n/UMqgm)
 
-> Posted on: Monday, July 3, 2017 9:44:36 AM
+> Posted on: Monday, July 3, 2017 10:27:33 AM
