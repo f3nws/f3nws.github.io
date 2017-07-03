@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Watch SpaceX launch its third Falcon 9 rocket in less than two weeks"
-date: 2017-07-02 14:00:02Z
+date: 2017-07-02 23:48:48Z
 categories: the-verge
 ---
 
@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Watch SpaceX launch its third Falcon 9 rocket in less than two weeks](http://www.f3nws.com/n/vU3eY)
 
-> Posted on: Sunday, July 2, 2017 7:00:02 PM
+> Posted on: Monday, July 3, 2017 4:48:48 AM
