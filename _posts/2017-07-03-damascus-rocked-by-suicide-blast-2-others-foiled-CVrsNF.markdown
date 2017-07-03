@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Damascus rocked by suicide blast, 2 others foiled"
-date: 2017-07-03 03:28:47Z
+date: 2017-07-03 03:58:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ DAMASCUS, Syria (AP) — Security forces chased three explosive-laden vehicles t
 
 Full story on F3News: [Damascus rocked by suicide blast, 2 others foiled](http://www.f3nws.com/n/CVrsNF)
 
-> Posted on: Monday, July 3, 2017 8:28:47 AM
+> Posted on: Monday, July 3, 2017 8:58:03 AM
