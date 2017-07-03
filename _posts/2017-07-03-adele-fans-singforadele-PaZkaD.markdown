@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Adele fans #SingForAdele"
-date: 2017-07-03 11:51:49Z
+date: 2017-07-03 18:03:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The love for Adele is such that when she can't sing, her fans will step up to su
 
 Full story on F3News: [Adele fans #SingForAdele](http://www.f3nws.com/n/PaZkaD)
 
-> Posted on: Monday, July 3, 2017 4:51:49 PM
+> Posted on: Monday, July 3, 2017 11:03:29 PM

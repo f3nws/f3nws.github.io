@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope, Trump offer support to parents of dying child"
-date: 2017-07-03 17:41:37Z
+date: 2017-07-03 18:19:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The fate of Charlie Gard, a terminally ill infant, has come to the attention of 
 
 Full story on F3News: [Pope, Trump offer support to parents of dying child](http://www.f3nws.com/n/VPrnfB)
 
-> Posted on: Monday, July 3, 2017 10:41:37 PM
+> Posted on: Monday, July 3, 2017 11:19:18 PM
