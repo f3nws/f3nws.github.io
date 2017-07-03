@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Florida's 'stand your ground' law ruled unconstitutional by judge"
-date: 2017-07-03 14:05:00Z
+date: 2017-07-03 20:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A judge in Florida ruled Monday that the state's updated "stand your ground" law
 
 Full story on F3News: [Florida's 'stand your ground' law ruled unconstitutional by judge](http://www.f3nws.com/n/EtVsCC)
 
-> Posted on: Monday, July 3, 2017 7:05:00 PM
+> Posted on: Tuesday, July 4, 2017 1:15:00 AM
