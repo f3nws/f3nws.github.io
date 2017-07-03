@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon Prime Day 2017: it's coming on July 11 but what's it all about?"
-date: 2017-07-03 08:00:00Z
+date: 2017-07-03 16:00:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ On Amazon Prime Day last year, you bought enough Game of Thrones books to outwei
 
 Full story on F3News: [Amazon Prime Day 2017: it's coming on July 11 but what's it all about?](http://www.f3nws.com/n/qeZARG)
 
-> Posted on: Monday, July 3, 2017 1:00:00 PM
+> Posted on: Monday, July 3, 2017 9:00:00 PM

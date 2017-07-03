@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plan to kill French President foiled"
-date: 2017-07-03 16:06:15Z
+date: 2017-07-03 16:41:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man has been charged with plotting to assassinate French President Emmanuel Ma
 
 Full story on F3News: [Plan to kill French President foiled](http://www.f3nws.com/n/YDNV4)
 
-> Posted on: Monday, July 3, 2017 9:06:15 PM
+> Posted on: Monday, July 3, 2017 9:41:51 PM
