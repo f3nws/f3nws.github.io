@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chris Christie's sunbathing pics clinch it: He's stopped caring"
-date: 2017-07-03 13:46:58Z
+date: 2017-07-03 14:56:39Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Friday, New Jersey Gov. Chris Christie ordered beaches across the Garden Stat
 
 Full story on F3News: [Chris Christie's sunbathing pics clinch it: He's stopped caring](http://www.f3nws.com/n/VHBBG)
 
-> Posted on: Monday, July 3, 2017 6:46:58 PM
+> Posted on: Monday, July 3, 2017 7:56:39 PM
