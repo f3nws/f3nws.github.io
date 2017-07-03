@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron wants to cut parliament by a third"
-date: 2017-07-03 14:53:43Z
+date: 2017-07-03 17:06:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ French President Emmanuel Macron has proposed cutting the size of the country's 
 
 Full story on F3News: [Macron wants to cut parliament by a third](http://www.f3nws.com/n/gaQMBF)
 
-> Posted on: Monday, July 3, 2017 7:53:43 PM
+> Posted on: Monday, July 3, 2017 10:06:35 PM
