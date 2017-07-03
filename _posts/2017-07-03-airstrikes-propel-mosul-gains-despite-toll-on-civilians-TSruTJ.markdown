@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Airstrikes propel Mosul gains, despite toll on civilians"
-date: 2017-07-03 04:16:40Z
+date: 2017-07-03 04:44:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — Iraqi forces say their recent territorial gains against the
 
 Full story on F3News: [Airstrikes propel Mosul gains, despite toll on civilians](http://www.f3nws.com/n/TSruTJ)
 
-> Posted on: Monday, July 3, 2017 9:16:40 AM
+> Posted on: Monday, July 3, 2017 9:44:36 AM
