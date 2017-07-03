@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "That Is One Fancy Zelda-Themed Switch - Kotaku"
-date: 2017-07-03 16:18:48Z
+date: 2017-07-03 16:16:30Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Kotaku That Is One Fancy Zelda-Themed Switch Kotaku The people over at MakoMod h
 
 Full story on F3News: [That Is One Fancy Zelda-Themed Switch - Kotaku](http://www.f3nws.com/n/FDWEkC)
 
-> Posted on: Monday, July 3, 2017 9:18:48 PM
+> Posted on: Monday, July 3, 2017 9:16:30 PM

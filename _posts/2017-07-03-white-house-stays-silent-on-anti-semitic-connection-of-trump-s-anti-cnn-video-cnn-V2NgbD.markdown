@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House stays silent on anti-Semitic connection of Trump's anti-CNN video - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170702154445-donald-trump-0701-super-tease.jpg)
 
-Newsweek White House stays silent on anti-Semitic connection of Trump's anti-CNN video CNN (CNN) President Donald Trump's top aides are staying silent about the possible anti-Semitic, racist and anti-Muslim origins of a video the President tweeted Sunday, declining to answer a series of CNN questions about the video and its self-proclaimed ... AP News in Brief at 6:04 pm EDT Washington Post Trump's Twitter Battle With Press May Come With a Price U.S. News & World Report CNN, Chris Christie, Tesla: Your Monday Briefing New York Times The Atlantic - NPR - Washington Examiner - The Hill (blog) all 930 news articles »
+CNN White House stays silent on anti-Semitic connection of Trump's anti-CNN video CNN (CNN) President Donald Trump's top aides are staying silent about the possible anti-Semitic, racist and anti-Muslim origins of a video the President tweeted Sunday, declining to answer a series of CNN questions about the video and its self-proclaimed ... AP News in Brief at 6:04 pm EDT Washington Post CNN, Chris Christie, Tesla: Your Monday Briefing New York Times Why the Media's Defense Against Trump Has Proven So Ineffective The Atlantic U.S. News & World Report - NPR - The Hill (blog) - ABC News all 941 news articles »
 
 
 Full story on F3News: [White House stays silent on anti-Semitic connection of Trump's anti-CNN video - CNN](http://www.f3nws.com/n/V2NgbD)
