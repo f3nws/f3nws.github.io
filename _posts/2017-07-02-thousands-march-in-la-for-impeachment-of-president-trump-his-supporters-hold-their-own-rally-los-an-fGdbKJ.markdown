@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Thousands march in LA for impeachment of President Trump; his supporters hold their own rally - Los Angeles Times](http://www.trbimg.com/img-59596179/turbine/la-me-ln-impeachment-march-20170702)
 
-Los Angeles Times Thousands march in LA for impeachment of President Trump; his supporters hold their own rally Los Angeles Times Thousands of protesters marched down 5th Street and Broadway in downtown Los Angeles on Sunday, chanting, “Down, down, down with Trump — up, up, up with the people” as they urged Congress to impeach the president. John Meranda, 56 of Long ... House Democrat speaks at Trump impeachment march in Los Angeles The Hill California marchers call for impeachment of President Trump Washington Post Fists fly after pro-Trump/impeachment rallies; some detained Philly.com SFGate - Breitbart News - KABC-TV - CBS 8 San Diego all 34 news articles »
+Los Angeles Times Thousands march in LA for impeachment of President Trump; his supporters hold their own rally Los Angeles Times Thousands of protesters marched down 5th Street and Broadway in downtown Los Angeles on Sunday, chanting, “Down, down, down with Trump — up, up, up with the people” as they urged Congress to impeach the president. John Meranda, 56 of Long ... House Democrat speaks at Trump impeachment march in Los Angeles The Hill California marchers call for impeachment of President Trump Washington Post Protesters Rally in Dozens of Cities to Call for Trump's Impeachment NBCNews.com CBS News - Philly.com - Detroit Free Press - HuffPost all 45 news articles »
 
 
 Full story on F3News: [Thousands march in LA for impeachment of President Trump; his supporters hold their own rally - Los Angeles Times](http://www.f3nws.com/n/fGdbKJ)
