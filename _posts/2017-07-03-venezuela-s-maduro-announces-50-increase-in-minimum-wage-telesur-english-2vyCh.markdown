@@ -5,6 +5,8 @@ date: 2017-07-03 02:44:50Z
 categories: google-news-top-stories
 ---
 
+![Venezuela's Maduro Announces 50% Increase in Minimum Wage - teleSUR English](http://www.telesurtv.net/__export/1499042557747/sites/telesur/img/news/2017/07/02/download_x1x.jpg_1810791533.jpg)
+
 teleSUR English Venezuela's Maduro Announces 50% Increase in Minimum Wage teleSUR English The salary increase will include public workers, teachers, doctors, firefighters, police officers and military personnel, among others. Venezuelan President Nicolas Maduro announced a 50 percent increase in the minimum wage Sunday, effective from July ... Maduro boosts Venezuela's minimum wage for 3rd time this year Yahoo Singapore News all 32 news articles »
 
 
