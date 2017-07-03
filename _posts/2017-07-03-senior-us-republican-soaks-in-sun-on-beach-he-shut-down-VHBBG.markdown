@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senior US Republican soaks in sun on beach he shut down"
-date: 2017-07-03 14:56:39Z
+date: 2017-07-03 19:25:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Friday, New Jersey Gov. Chris Christie ordered beaches across the Garden Stat
 
 Full story on F3News: [Senior US Republican soaks in sun on beach he shut down](http://www.f3nws.com/n/VHBBG)
 
-> Posted on: Monday, July 3, 2017 7:56:39 PM
+> Posted on: Tuesday, July 4, 2017 12:25:06 AM
