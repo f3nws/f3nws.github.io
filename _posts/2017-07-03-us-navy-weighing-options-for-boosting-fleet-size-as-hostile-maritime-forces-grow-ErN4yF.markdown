@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy weighing options for boosting fleet size, as hostile maritime forces grow"
-date: 2017-07-03 15:00:15Z
+date: 2017-07-03 16:00:17Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ U.S. Navy officials are weighing options for boosting the size of their fleet, w
 
 Full story on F3News: [US Navy weighing options for boosting fleet size, as hostile maritime forces grow](http://www.f3nws.com/n/ErN4yF)
 
-> Posted on: Monday, July 3, 2017 8:00:15 PM
+> Posted on: Monday, July 3, 2017 9:00:17 PM
