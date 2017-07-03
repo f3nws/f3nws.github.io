@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maria Menounos recovering from brain tumor surgery"
-date: 2017-07-03 16:21:09Z
+date: 2017-07-03 19:32:51Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Maria Menounos is stepping down as co-anchor of E! News in the wake of surgery t
 
 Full story on F3News: [Maria Menounos recovering from brain tumor surgery](http://www.f3nws.com/n/WVMQMH)
 
-> Posted on: Monday, July 3, 2017 9:21:09 PM
+> Posted on: Tuesday, July 4, 2017 12:32:51 AM

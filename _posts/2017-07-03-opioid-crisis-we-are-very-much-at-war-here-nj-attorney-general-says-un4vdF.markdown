@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opioid crisis: 'We are very much at war here,' NJ attorney general  says"
-date: 2017-07-03 17:00:26Z
+date: 2017-07-03 19:16:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ At a lab in New Jersey, the pressure is on to identify those substances and find
 
 Full story on F3News: [Opioid crisis: 'We are very much at war here,' NJ attorney general  says](http://www.f3nws.com/n/un4vdF)
 
-> Posted on: Monday, July 3, 2017 10:00:26 PM
+> Posted on: Tuesday, July 4, 2017 12:16:00 AM
