@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Forty-one states have refused Kobach's request for voter information - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170511181029-kris-kobach-super-tease.jpg)
 
-U.S. News & World Report Forty-one states have refused Kobach's request for voter information CNN Washington, DC (CNN) Forty-one states have defied the Trump administration's request for private voter information, according to a CNN inquiry to all 50 states. State leaders and voting boards across the country have responded to the letter with ... Arizona won't hand over voter information to Trump commission USA TODAY More States Tell Trump To Stop 'Playing Politics' With Voter Data HuffPost Maine official refuses to comply with Trump administration's voter info request The Hill Chicago Tribune - Breitbart News - New York Daily News - Washington Examiner all 224 news articles »
+U.S. News & World Report Forty-one states have refused Kobach's request for voter information CNN Washington, DC (CNN) Forty-one states have defied the Trump administration's request for private voter information, according to a CNN inquiry to all 50 states. State leaders and voting boards across the country have responded to the letter with ... Arizona won't hand over voter information to Trump commission USA TODAY More States Tell Trump To Stop 'Playing Politics' With Voter Data HuffPost Maryland joins states that won't give data to Trump's election commission Chicago Tribune Breitbart News - Business Insider - Washington Examiner - New York Daily News all 231 news articles »
 
 
 Full story on F3News: [Forty-one states have refused Kobach's request for voter information - CNN](http://www.f3nws.com/n/Ub3cgD)
