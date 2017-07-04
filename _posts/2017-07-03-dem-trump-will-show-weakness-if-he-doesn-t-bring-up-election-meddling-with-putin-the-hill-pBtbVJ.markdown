@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Dem: Trump will show 'weakness' if he doesn't bring up election meddling with Putin - The Hill](http://thehill.com/sites/default/files/blogs/lieuted_11314gn_lead_0_0.jpg)
 
-The Hill Dem: Trump will show 'weakness' if he doesn't bring up election meddling with Putin The Hill President Trump would show “weakness” if he fails to broach the subject of Russian interference in the 2016 elections during a meeting with Russian President Vladimir Putin this week, a House Democrat said Monday. “President Trump absolutely needs to ... Who is the 'Bigger' Man? Trump and Putin Handshake Will Bring 'An Olympian Level of Macho Posturing' Newsweek Russia says it's patience with US is running thin in returning Russian embassy assets CBS News Russia and China Hold Hands Ahead of G-20 Summit Foreign Policy Bloomberg - Business Insider - New York Magazine - Newsmax all 210 news articles »
+The Hill Dem: Trump will show 'weakness' if he doesn't bring up election meddling with Putin The Hill President Trump would show “weakness” if he fails to broach the subject of Russian interference in the 2016 elections during a meeting with Russian President Vladimir Putin this week, a House Democrat said Monday. “President Trump absolutely needs to ... Who is the 'Bigger' Man? Trump and Putin Handshake Will Bring 'An Olympian Level of Macho Posturing' Newsweek Russia and China Hold Hands Ahead of G-20 Summit Foreign Policy Russia Hopes for Good Atmosphere at Putin-Trump Meeting Bloomberg New York Magazine - Newsmax - Washington Post - Truthdig all 207 news articles »
 
 
 Full story on F3News: [Dem: Trump will show 'weakness' if he doesn't bring up election meddling with Putin - The Hill](http://www.f3nws.com/n/pBtbVJ)
