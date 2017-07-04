@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US weighs options for 'measured response' to N. Korea"
-date: 2017-07-04 18:12:00Z
+date: 2017-07-04 18:32:24Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Trump administration national security, military and diplomatic officials are ho
 
 Full story on F3News: [US weighs options for 'measured response' to N. Korea](http://www.f3nws.com/n/JKQ3n)
 
-> Posted on: Tuesday, July 4, 2017 11:12:00 PM
+> Posted on: Tuesday, July 4, 2017 11:32:24 PM

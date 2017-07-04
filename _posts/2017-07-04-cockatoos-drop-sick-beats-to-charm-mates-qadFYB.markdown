@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cockatoos drop sick beats to charm mates"
-date: 2017-07-04 17:30:44Z
+date: 2017-07-04 19:00:24Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Music agents take note: There's an extraordinary drummer in town with impeccable
 
 Full story on F3News: [Cockatoos drop sick beats to charm mates](http://www.f3nws.com/n/qadFYB)
 
-> Posted on: Tuesday, July 4, 2017 10:30:44 PM
+> Posted on: Wednesday, July 5, 2017 12:00:24 AM
