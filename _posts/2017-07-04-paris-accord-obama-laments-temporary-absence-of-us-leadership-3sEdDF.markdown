@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris accord: Obama laments 'temporary absence of US leadership'"
-date: 2017-07-04 13:19:07Z
+date: 2017-07-04 15:12:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former President Barack Obama championed global leaders' commitment to the Paris
 
 Full story on F3News: [Paris accord: Obama laments 'temporary absence of US leadership'](http://www.f3nws.com/n/3sEdDF)
 
-> Posted on: Tuesday, July 4, 2017 6:19:07 PM
+> Posted on: Tuesday, July 4, 2017 8:12:14 PM
