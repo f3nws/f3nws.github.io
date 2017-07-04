@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea claims it tested first intercontinental missile"
-date: 2017-07-04 18:20:34Z
+date: 2017-07-04 19:20:35Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ SEOUL, South Korea (AP) — North Korea on Tuesday claimed it successfully test-
 
 Full story on F3News: [North Korea claims it tested first intercontinental missile](http://www.f3nws.com/n/rXUnZF)
 
-> Posted on: Tuesday, July 4, 2017 11:20:34 PM
+> Posted on: Wednesday, July 5, 2017 12:20:35 AM

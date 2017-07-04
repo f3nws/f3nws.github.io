@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No 'specific agenda,' but Trump, Putin have lots to discuss"
-date: 2017-07-04 18:48:19Z
+date: 2017-07-04 19:20:35Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump's first face-to-face meeting with Rus
 
 Full story on F3News: [No 'specific agenda,' but Trump, Putin have lots to discuss](http://www.f3nws.com/n/E2ehVC)
 
-> Posted on: Tuesday, July 4, 2017 11:48:19 PM
+> Posted on: Wednesday, July 5, 2017 12:20:35 AM
