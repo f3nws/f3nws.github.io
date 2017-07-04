@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why the world is looking past Donald Trump"
-date: 2017-07-04 07:59:21Z
+date: 2017-07-04 14:53:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Foreign policy, increasingly, is what is happening around the world while the Un
 
 Full story on F3News: [Why the world is looking past Donald Trump](http://www.f3nws.com/n/hEuTzB)
 
-> Posted on: Tuesday, July 4, 2017 12:59:21 PM
+> Posted on: Tuesday, July 4, 2017 7:53:24 PM

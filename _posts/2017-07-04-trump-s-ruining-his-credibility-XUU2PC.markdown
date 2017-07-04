@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's ruining his credibility"
-date: 2017-07-04 14:03:13Z
+date: 2017-07-04 14:47:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When President Donald Trump enters the annual G20 Summit this week, he will begi
 
 Full story on F3News: [Trump's ruining his credibility](http://www.f3nws.com/n/XUU2PC)
 
-> Posted on: Tuesday, July 4, 2017 7:03:13 PM
+> Posted on: Tuesday, July 4, 2017 7:47:06 PM

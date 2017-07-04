@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I no longer feel secure' in Germany, Syrian refugee says"
-date: 2017-07-04 08:54:42Z
+date: 2017-07-04 14:30:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hands trembling, face panic-stricken, Fares Naem recalls the night he tried to s
 
 Full story on F3News: ['I no longer feel secure' in Germany, Syrian refugee says](http://www.f3nws.com/n/sehghC)
 
-> Posted on: Tuesday, July 4, 2017 1:54:42 PM
+> Posted on: Tuesday, July 4, 2017 7:30:11 PM
