@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea brings missile threat to US: What does Trump do now?"
-date: 2017-07-04 10:12:03Z
+date: 2017-07-04 10:32:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US policy towards North Korea has entered an unpredictable new era, analysts say
 
 Full story on F3News: [N. Korea brings missile threat to US: What does Trump do now?](http://www.f3nws.com/n/tcZ4vB)
 
-> Posted on: Tuesday, July 4, 2017 3:12:03 PM
+> Posted on: Tuesday, July 4, 2017 3:32:31 PM
