@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires missile into waters off Japan"
-date: 2017-07-04 02:52:19Z
+date: 2017-07-04 03:57:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea has fired an unidentified ballistic missile from North Pyong'an Prov
 
 Full story on F3News: [North Korea fires missile into waters off Japan](http://www.f3nws.com/n/tmEmTG)
 
-> Posted on: Tuesday, July 4, 2017 7:52:19 AM
+> Posted on: Tuesday, July 4, 2017 8:57:48 AM
