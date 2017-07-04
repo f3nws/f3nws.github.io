@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea tests missile it claims can reach anywhere"
-date: 2017-07-04 15:24:28Z
+date: 2017-07-04 15:51:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea claims to have conducted its first successful test of a long-range m
 
 Full story on F3News: [North Korea tests missile it claims can reach anywhere](http://www.f3nws.com/n/tmEmTG)
 
-> Posted on: Tuesday, July 4, 2017 8:24:28 PM
+> Posted on: Tuesday, July 4, 2017 8:51:53 PM

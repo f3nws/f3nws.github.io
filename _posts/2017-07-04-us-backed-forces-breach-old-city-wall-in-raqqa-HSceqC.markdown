@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-backed forces breach Old City wall in Raqqa"
-date: 2017-07-04 09:11:50Z
+date: 2017-07-04 13:22:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US-backed Syrian Democratic Forces (SDF) breached a wall surrounding the Old
 
 Full story on F3News: [US-backed forces breach Old City wall in Raqqa](http://www.f3nws.com/n/HSceqC)
 
-> Posted on: Tuesday, July 4, 2017 2:11:50 PM
+> Posted on: Tuesday, July 4, 2017 6:22:08 PM

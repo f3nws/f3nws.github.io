@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At 12,000 feet, humans did the unimaginable"
-date: 2017-07-04 15:00:19Z
+date: 2017-07-04 16:00:20Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Researchers call it one of the "last frontiers of human colonization": very high
 
 Full story on F3News: [At 12,000 feet, humans did the unimaginable](http://www.f3nws.com/n/gPRCbD)
 
-> Posted on: Tuesday, July 4, 2017 8:00:19 PM
+> Posted on: Tuesday, July 4, 2017 9:00:20 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arizona man who fled 1976 rape trial sent back to New York"
-date: 2017-07-04 13:00:27Z
+date: 2017-07-04 16:00:20Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ An Arizona man who fled New York now will face jail time for crimes committed 40
 
 Full story on F3News: [Arizona man who fled 1976 rape trial sent back to New York](http://www.f3nws.com/n/CXNS2G)
 
-> Posted on: Tuesday, July 4, 2017 6:00:27 PM
+> Posted on: Tuesday, July 4, 2017 9:00:20 PM
