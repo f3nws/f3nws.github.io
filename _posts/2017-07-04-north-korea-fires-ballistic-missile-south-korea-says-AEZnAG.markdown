@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires ballistic missile, South Korea says"
-date: 2017-07-04 01:12:00Z
+date: 2017-07-04 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ South Korea says North Korea has test-fired a ballistic missile, the latest in a
 
 Full story on F3News: [North Korea fires ballistic missile, South Korea says](http://www.f3nws.com/n/AEZnAG)
 
-> Posted on: Tuesday, July 4, 2017 6:12:00 AM
+> Posted on: Tuesday, July 4, 2017 7:15:00 AM

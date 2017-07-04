@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Class action begins against maker of vaginal mesh implants](http://www.abc.net.au/news/image/8573756-1x1-700x700.jpg)
 
-More than 700 Australian women who claim their lives have been ruined by a vaginal medical device made by Johnson and Johnson are taking on the pharmaceutical giant in a major class action in the Federal Court.
+Women who say they've been injured by vaginal mesh implants used to treat pelvic-floor problems will claim hundreds of thousands of dollars in damages from makers Johnson and Johnson, the Federal Court in Sydney hears.
 
 
 Full story on F3News: [Class action begins against maker of vaginal mesh implants](http://www.f3nws.com/n/uGCFME)
