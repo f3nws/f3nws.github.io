@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Data glitch sets tech company stock prices at $123.47](https://cdn.vox-cdn.com/thumbor/zJ3W3rrVmKOVQsvBrC_kW_USlYo=/0x0:3000x1688/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55563439/804076472.0.jpg)
 
-The Verge Data glitch sets tech company stock prices at $123.47 The Verge A stock market data error this evening set an undetermined number of companies listed on the Nasdaq exchange to a share price of $123.47, sending some tech companies' stock prices crashing and others' soaring. In a statement obtained by the Financial ... Glitch causes prices of Apple, Google, other stocks to appear off Business Insider Why did Apple, Amazon, Google stocks crash to the same price today? NJ.com Asian markets take Nasdaq price glitch in stride Financial Times Wall Street Journal (subscription) - MarketWatch - The Sydney Morning Herald - Bloomberg all 26 news articles »
+The Verge Data glitch sets tech company stock prices at $123.47 The Verge A stock market data error this evening set an undetermined number of companies listed on the Nasdaq exchange to a share price of $123.47, sending some tech companies' stock prices crashing and others' soaring. In a statement obtained by the Financial ... Apple share prices appear to more than double due to reporting glitch AppleInsider (press release) (blog) Amazon, Apple, Google stock prices go haywire due to data glitch ZDNet Tech stocks appear to go nuts after computer glitch CNNMoney New York Times - Bloomberg - NJ.com - Financial Times all 26 news articles »
 
 
 Full story on F3News: [Data glitch sets tech company stock prices at $123.47](http://www.f3nws.com/n/jUQab)
