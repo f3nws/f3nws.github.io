@@ -7,7 +7,7 @@ categories: cnn-com-entertainment
 
 ![Maria Menounos recovering from brain tumor surgery - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170703124950-01-maria-menounos-file-super-tease.jpg)
 
-CNN Maria Menounos recovering from brain tumor surgery CNN (CNN) Maria Menounos is stepping down as co-anchor of E! News in the wake of surgery to remove a brain tumor, the network said Monday. Celebrities battle cancer. Photos: Celebrities battle cancer. When former "Good Morning America" host ... Maria Menounos Reveals She Was Diagnosed with a Brain Tumor — While Her Mom Is Fighting Stage 4 Brain Cancer PEOPLE.com Maria Menounos on mend after tumor Boston Herald Maria Menounos Leaving 'E! News'; Reveals Brain Tumor Diagnosis & Surgery Deadline Washington Post - Variety - E! Online - HuffPost all 167 news articles »
+CNN Maria Menounos recovering from brain tumor surgery CNN (CNN) Maria Menounos is stepping down as co-anchor of E! News in the wake of surgery to remove a brain tumor, the network said Monday. Celebrities battle cancer. Photos: Celebrities battle cancer. When former "Good Morning America" host ... Maria Menounos Reveals She Was Diagnosed with a Brain Tumor — While Her Mom Is Fighting Stage 4 Brain Cancer PEOPLE.com Maria Menounos on mend after tumor Boston Herald Maria Menounos was helping her mom fight a brain tumor. Then the E! star got one too. Washington Post Deadline - Variety - E! Online - HuffPost all 166 news articles »
 
 
 Full story on F3News: [Maria Menounos recovering from brain tumor surgery - CNN](http://www.f3nws.com/n/WVMQMH)

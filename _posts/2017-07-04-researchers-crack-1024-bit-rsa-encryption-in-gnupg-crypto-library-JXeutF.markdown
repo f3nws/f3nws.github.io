@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Researchers Crack 1024-bit RSA Encryption in GnuPG Crypto Library"
-date: 2017-07-04 07:32:36Z
+date: 2017-07-04 09:27:49Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Security boffins have discovered a critical vulnerability in a GnuPG cryptograph
 
 Full story on F3News: [Researchers Crack 1024-bit RSA Encryption in GnuPG Crypto Library](http://www.f3nws.com/n/JXeutF)
 
-> Posted on: Tuesday, July 4, 2017 12:32:36 PM
+> Posted on: Tuesday, July 4, 2017 2:27:49 PM

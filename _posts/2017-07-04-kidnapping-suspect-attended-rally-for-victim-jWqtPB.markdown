@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kidnapping suspect attended rally for victim"
-date: 2017-07-04 08:22:17Z
+date: 2017-07-04 09:43:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Kidnapping suspect attended rally for victim](http://www.f3nws.com/n/jWqtPB)
 
-> Posted on: Tuesday, July 4, 2017 1:22:17 PM
+> Posted on: Tuesday, July 4, 2017 2:43:10 PM
