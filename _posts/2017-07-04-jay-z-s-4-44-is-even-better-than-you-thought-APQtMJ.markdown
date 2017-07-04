@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jay-Z's '4:44' is even better than you thought"
-date: 2017-07-04 02:14:41Z
+date: 2017-07-04 13:05:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ We can thank Beyoncé for Jay-Z's new album in more ways than one.
 
 Full story on F3News: [Jay-Z's '4:44' is even better than you thought](http://www.f3nws.com/n/APQtMJ)
 
-> Posted on: Tuesday, July 4, 2017 7:14:41 AM
+> Posted on: Tuesday, July 4, 2017 6:05:46 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Raqqa: US-backed forces breach Old City's wall"
-date: 2017-07-04 09:11:50Z
+date: 2017-07-04 13:22:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US-backed rebels have breached a strategic wall surrounding the Old City of Raqq
 
 Full story on F3News: [Raqqa: US-backed forces breach Old City's wall](http://www.f3nws.com/n/HSceqC)
 
-> Posted on: Tuesday, July 4, 2017 2:11:50 PM
+> Posted on: Tuesday, July 4, 2017 6:22:08 PM
