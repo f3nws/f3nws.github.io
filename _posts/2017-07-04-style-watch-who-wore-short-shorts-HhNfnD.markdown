@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Style Watch: Who wore short shorts?"
-date: 2017-07-04 06:00:22Z
+date: 2017-07-04 06:30:15Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Dazy dukes were everywhere this summer.
 
 Full story on F3News: [Style Watch: Who wore short shorts?](http://www.f3nws.com/n/HhNfnD)
 
-> Posted on: Tuesday, July 4, 2017 11:00:22 AM
+> Posted on: Tuesday, July 4, 2017 11:30:15 AM
