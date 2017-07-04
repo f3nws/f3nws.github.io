@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Putin and the meeting that could shape the world"
-date: 2017-07-03 06:23:31Z
+date: 2017-07-03 20:56:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They meet, at last.
 
 Full story on F3News: [Trump, Putin and the meeting that could shape the world](http://www.f3nws.com/n/sdjDg)
 
-> Posted on: Monday, July 3, 2017 11:23:31 AM
+> Posted on: Tuesday, July 4, 2017 1:56:50 AM
