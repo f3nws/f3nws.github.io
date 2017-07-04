@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish Airlines: Laptop ban about to be lifted"
-date: 2017-07-04 16:02:11Z
+date: 2017-07-04 16:59:57Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [Turkish Airlines: Laptop ban about to be lifted](http://www.f3nws.com/n/fBTxZG)
 
-> Posted on: Tuesday, July 4, 2017 9:02:11 PM
+> Posted on: Tuesday, July 4, 2017 9:59:57 PM
