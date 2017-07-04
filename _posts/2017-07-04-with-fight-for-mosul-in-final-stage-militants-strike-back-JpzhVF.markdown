@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "With fight for Mosul in final stage, militants strike back"
-date: 2017-07-04 01:18:49Z
+date: 2017-07-04 01:47:55Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — With the fight for Mosul in its final stage Monday, Islamic
 
 Full story on F3News: [With fight for Mosul in final stage, militants strike back](http://www.f3nws.com/n/JpzhVF)
 
-> Posted on: Tuesday, July 4, 2017 6:18:49 AM
+> Posted on: Tuesday, July 4, 2017 6:47:55 AM

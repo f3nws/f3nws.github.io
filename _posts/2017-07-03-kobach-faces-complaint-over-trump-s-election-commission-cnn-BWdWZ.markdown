@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kobach faces complaint over Trump's election commission - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170515102111-kris-kobach-newday-5-15-super-tease.jpg)
 
-CNN Kobach faces complaint over Trump's election commission CNN Washington (CNN) A legal group filed a complaint Monday against Kansas Secretary of State Kris Kobach, the vice chair of President Donald Trump's election integrity commission, questioning whether he violated federal law by highlighting his role on the ... Trump's Voter Suppression Efforts Have Begun New York Times Maryland official resigns from controversial Trump voter fraud commission: report The Hill (blog) Kobach: Why States Need to Assist the Presidential Commission on Election Integrity Breitbart News Chicago Tribune - Washington Examiner - Business Insider - U.S. News & World Report all 182 news articles »
+CNN Kobach faces complaint over Trump's election commission CNN Washington (CNN) A legal group filed a complaint Monday against Kansas Secretary of State Kris Kobach, the vice chair of President Donald Trump's election integrity commission, questioning whether he violated federal law by highlighting his role on the ... Trump's Voter Suppression Efforts Have Begun New York Times Louisiana rejects voter fraud commission request The Hill Arizona won't hand over voter information to Trump commission USA TODAY Breitbart News - Chicago Tribune - Washington Examiner - Business Insider all 173 news articles »
 
 
 Full story on F3News: [Kobach faces complaint over Trump's election commission - CNN](http://www.f3nws.com/n/BWdWZ)
