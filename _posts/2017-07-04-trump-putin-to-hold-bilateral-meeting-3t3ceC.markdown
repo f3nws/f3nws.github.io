@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Putin to hold bilateral meeting"
-date: 2017-07-04 13:36:09Z
+date: 2017-07-04 14:11:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and Russian President Vladimir Putin will sit down for an
 
 Full story on F3News: [Trump, Putin to hold bilateral meeting](http://www.f3nws.com/n/3t3ceC)
 
-> Posted on: Tuesday, July 4, 2017 6:36:09 PM
+> Posted on: Tuesday, July 4, 2017 7:11:52 PM
