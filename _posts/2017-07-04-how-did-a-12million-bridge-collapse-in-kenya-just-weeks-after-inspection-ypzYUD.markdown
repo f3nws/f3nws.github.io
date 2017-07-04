@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How did a $12million bridge collapse in Kenya just weeks after inspection?"
-date: 2017-07-04 01:57:42Z
+date: 2017-07-04 03:07:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It was an embarrassing collapse for Kenya's ruling party.
 
 Full story on F3News: [How did a $12million bridge collapse in Kenya just weeks after inspection?](http://www.f3nws.com/n/ypzYUD)
 
-> Posted on: Tuesday, July 4, 2017 6:57:42 AM
+> Posted on: Tuesday, July 4, 2017 8:07:07 AM
