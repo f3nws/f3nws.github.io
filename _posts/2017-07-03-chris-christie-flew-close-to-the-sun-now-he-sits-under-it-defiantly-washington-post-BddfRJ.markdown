@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chris Christie flew close to the sun. Now, he sits under it, defiantly. - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/03/National-Politics/Images/APTOPIX_Christie_vs_Insurer_Budget_06754-cfaec.jpg?t=20170517)
 
-Washington Post Chris Christie flew close to the sun. Now, he sits under it, defiantly. Washington Post The legend of New Jersey Gov. Chris Christie in national Republican politics was forged at the Jersey Shore, where he shrewdly spun headlines that were cotton candy for the GOP's base — and for reporters. “Get the hell off the beach!” Christie barked ... 'That's Him': Christie Goes to the Shore, and the Critics Pounce New York Times Hit the beaches! New Jersey budget deadlock broken CNN Christie doubles down — again — with no apologies Politico New York Daily News - Los Angeles Times - U.S. News & World Report - The Boston Globe all 913 news articles »
+Washington Post Chris Christie flew close to the sun. Now, he sits under it, defiantly. Washington Post The legend of New Jersey Gov. Chris Christie in national Republican politics was forged at the Jersey Shore, where he shrewdly spun headlines that were cotton candy for the GOP's base — and for reporters. “Get the hell off the beach!” Christie barked ... Hit the beaches! New Jersey budget deadlock broken CNN Christie doubles down — again — with no apologies Politico New Jersey lawmakers reach deal for state's budget CBS News New York Daily News - Los Angeles Times - New York Times - U.S. News & World Report all 889 news articles »
 
 
 Full story on F3News: [Chris Christie flew close to the sun. Now, he sits under it, defiantly. - Washington Post](http://www.f3nws.com/n/BddfRJ)
