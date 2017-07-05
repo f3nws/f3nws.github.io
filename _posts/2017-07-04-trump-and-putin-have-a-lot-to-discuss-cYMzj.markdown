@@ -12,4 +12,4 @@ We need to talk. On that, both the United States and Russia can agree. And the o
 
 Full story on F3News: [Trump and Putin have a lot to discuss](http://www.f3nws.com/n/cYMzj)
 
-> Posted on: Tuesday, July 4, 2017 9:27:21 PM
+> Posted on: Tuesday, July 4, 2017 4:27:21 PM

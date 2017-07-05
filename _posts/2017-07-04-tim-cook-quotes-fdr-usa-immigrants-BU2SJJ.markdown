@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tim Cook quotes FDR: USA = immigrants](http://www.f3nws.com/n/BU2SJJ)
 
-> Posted on: Tuesday, July 4, 2017 8:19:43 PM
+> Posted on: Tuesday, July 4, 2017 3:19:43 PM

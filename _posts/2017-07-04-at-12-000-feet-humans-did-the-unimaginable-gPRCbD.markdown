@@ -10,4 +10,4 @@ Researchers call it one of the "last frontiers of human colonization": very high
 
 Full story on F3News: [At 12,000 feet, humans did the unimaginable](http://www.f3nws.com/n/gPRCbD)
 
-> Posted on: Wednesday, July 5, 2017 12:00:24 AM
+> Posted on: Tuesday, July 4, 2017 7:00:24 PM

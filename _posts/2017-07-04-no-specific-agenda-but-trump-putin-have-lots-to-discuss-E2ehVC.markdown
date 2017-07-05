@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump's first face-to-face meeting with Rus
 
 Full story on F3News: [No 'specific agenda,' but Trump, Putin have lots to discuss](http://www.f3nws.com/n/E2ehVC)
 
-> Posted on: Wednesday, July 5, 2017 12:20:35 AM
+> Posted on: Tuesday, July 4, 2017 7:20:35 PM

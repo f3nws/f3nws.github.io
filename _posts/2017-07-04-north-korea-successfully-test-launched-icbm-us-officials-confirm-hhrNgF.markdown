@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea successfully test-launched ICBM, US officials confirm"
-date: 2017-07-04 19:43:00Z
+date: 2017-07-04 17:13:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ North Korea successfully test-launched an intercontinental ballistic missile for
 
 Full story on F3News: [North Korea successfully test-launched ICBM, US officials confirm](http://www.f3nws.com/n/hhrNgF)
 
-> Posted on: Tuesday, July 4, 2017 7:43:00 PM
+> Posted on: Tuesday, July 4, 2017 5:13:00 PM

@@ -10,4 +10,4 @@ VATICAN CITY (AP) — The Vatican's children's hospital is releasing its annual 
 
 Full story on F3News: ['Pope's hospital' to release annual report after AP probe](http://www.f3nws.com/n/agBusH)
 
-> Posted on: Tuesday, July 4, 2017 11:00:01 PM
+> Posted on: Tuesday, July 4, 2017 6:00:01 PM
