@@ -7,7 +7,7 @@ categories: msnbc
 
 ![Russia scandal takes an alarming turn for...](http://www.msnbc.com/sites/msnbc/files/styles/ratio--1_91-1--1200x630/public/05893867.jpg?itok=Vq0EcQX3)
 
-What would that collusion between Team Trump and Russia look like? In what form? Through what mechanisms? A possible answer is coming into focus.
+What would collusion between Team Trump and Russia look like? In what form? Through what mechanisms? A possible answer is coming into focus.
 
 
 Full story on F3News: [Russia scandal takes an alarming turn for...](http://www.f3nws.com/n/4zVU2D)
