@@ -12,4 +12,4 @@ Althea Reyes has been declared a "vexatious litigant" by court over her barrage 
 
 Full story on F3News: [Judge tells Ontario woman who has sued dozens she is no longer welcome in court](http://www.f3nws.com/n/sFrWKD)
 
-> Posted on: Tuesday, July 4, 2017 3:00:00 PM
+> Posted on: Tuesday, July 4, 2017 10:00:00 AM

@@ -12,4 +12,4 @@ Los Angeles Times Dead on the Fourth of July. When three presidents died on the 
 
 Full story on F3News: [Dead on the Fourth of July. When three presidents died on the holiday, Americans saw the work of God - Los Angeles Times](http://www.f3nws.com/n/CMhPAH)
 
-> Posted on: Tuesday, July 4, 2017 3:04:34 PM
+> Posted on: Tuesday, July 4, 2017 10:04:34 AM

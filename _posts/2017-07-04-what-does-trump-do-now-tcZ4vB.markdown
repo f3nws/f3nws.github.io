@@ -12,4 +12,4 @@ US policy towards North Korea has entered an unpredictable new era, analysts say
 
 Full story on F3News: [What does Trump do now?](http://www.f3nws.com/n/tcZ4vB)
 
-> Posted on: Tuesday, July 4, 2017 7:25:31 PM
+> Posted on: Tuesday, July 4, 2017 2:25:31 PM

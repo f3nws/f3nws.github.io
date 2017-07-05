@@ -12,4 +12,4 @@ Newsweek Did Trump Just Lose His War With CNN? Poll Finds More People Trust The 
 
 Full story on F3News: [Did Trump Just Lose His War With CNN? Poll Finds More People Trust The Network Than The President - Newsweek](http://www.f3nws.com/n/YKpjNB)
 
-> Posted on: Tuesday, July 4, 2017 9:06:00 PM
+> Posted on: Tuesday, July 4, 2017 4:06:00 PM

@@ -12,4 +12,4 @@ Jayson Newlun, a 26-year-old family friend who was babysitting for friends, was 
 
 Full story on F3News: [26-year-old man charged with raping family friends' one-year-old baby](http://www.f3nws.com/n/DBWSdG)
 
-> Posted on: Tuesday, July 4, 2017 6:10:00 PM
+> Posted on: Tuesday, July 4, 2017 1:10:00 PM

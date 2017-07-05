@@ -12,4 +12,4 @@ Hollywood Reporter SAG-AFTRA and Studios Reach TV/Theatrical Deal at Sunrise Hol
 
 Full story on F3News: [SAG-AFTRA and Studios Reach TV/Theatrical Deal at Sunrise - Hollywood Reporter](http://www.f3nws.com/n/4uPZGC)
 
-> Posted on: Tuesday, July 4, 2017 6:49:06 PM
+> Posted on: Tuesday, July 4, 2017 1:49:06 PM

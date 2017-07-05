@@ -12,4 +12,4 @@ Maria Menounos is stepping down as co-anchor of E! News in the wake of surgery t
 
 Full story on F3News: [Maria Menounos recovering from brain tumor surgery](http://www.f3nws.com/n/WVMQMH)
 
-> Posted on: Tuesday, July 4, 2017 6:02:35 PM
+> Posted on: Tuesday, July 4, 2017 1:02:35 PM

@@ -12,4 +12,4 @@ There may not be a more American way to celebrate Independence Day than with a w
 
 Full story on F3News: [Chris Christie's beach outing becomes cheeky meme](http://www.f3nws.com/n/bsUYbG)
 
-> Posted on: Tuesday, July 4, 2017 10:24:35 PM
+> Posted on: Tuesday, July 4, 2017 5:24:35 PM

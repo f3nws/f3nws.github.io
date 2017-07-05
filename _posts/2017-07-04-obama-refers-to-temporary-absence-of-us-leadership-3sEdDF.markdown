@@ -12,4 +12,4 @@ Former President Barack Obama championed global leaders' commitment to the Paris
 
 Full story on F3News: [Obama refers to 'temporary absence of US leadership'](http://www.f3nws.com/n/3sEdDF)
 
-> Posted on: Tuesday, July 4, 2017 10:22:31 PM
+> Posted on: Tuesday, July 4, 2017 5:22:31 PM

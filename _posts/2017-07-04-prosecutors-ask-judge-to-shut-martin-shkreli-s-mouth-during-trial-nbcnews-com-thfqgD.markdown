@@ -12,4 +12,4 @@ NBCNews.com Prosecutors Ask Judge to Shut Martin Shkreli's Mouth During Trial NB
 
 Full story on F3News: [Prosecutors Ask Judge to Shut Martin Shkreli's Mouth During Trial - NBCNews.com](http://www.f3nws.com/n/thfqgD)
 
-> Posted on: Tuesday, July 4, 2017 8:46:00 PM
+> Posted on: Tuesday, July 4, 2017 3:46:00 PM

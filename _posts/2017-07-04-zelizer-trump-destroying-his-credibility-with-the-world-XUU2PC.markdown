@@ -12,4 +12,4 @@ When President Donald Trump enters the annual G20 Summit this week, he will begi
 
 Full story on F3News: [Zelizer: Trump destroying his credibility with the world](http://www.f3nws.com/n/XUU2PC)
 
-> Posted on: Tuesday, July 4, 2017 7:47:06 PM
+> Posted on: Tuesday, July 4, 2017 2:47:06 PM

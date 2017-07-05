@@ -10,4 +10,4 @@ An injured bald eagle found in Washington, D.C., is on the road to recovery just
 
 Full story on F3News: [Injured bald eagle found, treated in Washington, D.C., in time for July 4th celebrations](http://www.f3nws.com/n/2PYRQ)
 
-> Posted on: Tuesday, July 4, 2017 4:03:00 PM
+> Posted on: Tuesday, July 4, 2017 11:03:00 AM

@@ -12,4 +12,4 @@ Moscow and Beijing have agreed that North Korea should freeze its nuclear and mi
 
 Full story on F3News: [Russia, China: N. Korea must freeze nuclear activities, US halt THAAD deployment](http://www.f3nws.com/n/vvCFFB)
 
-> Posted on: Tuesday, July 4, 2017 6:18:00 PM
+> Posted on: Tuesday, July 4, 2017 1:18:00 PM

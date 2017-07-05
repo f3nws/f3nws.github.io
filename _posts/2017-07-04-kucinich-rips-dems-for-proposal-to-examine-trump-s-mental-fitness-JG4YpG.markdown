@@ -10,4 +10,4 @@ Dennis Kucinich, the former Democratic congressman and presidential candidate, b
 
 Full story on F3News: [Kucinich rips Dems for proposal to examine Trump's mental fitness](http://www.f3nws.com/n/JG4YpG)
 
-> Posted on: Tuesday, July 4, 2017 7:23:00 PM
+> Posted on: Tuesday, July 4, 2017 2:23:00 PM

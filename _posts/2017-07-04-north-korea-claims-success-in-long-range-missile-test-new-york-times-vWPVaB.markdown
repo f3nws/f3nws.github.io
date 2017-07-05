@@ -12,4 +12,4 @@ New York Times North Korea Claims Success in Long-Range Missile Test New York Ti
 
 Full story on F3News: [North Korea Claims Success in Long-Range Missile Test - New York Times](http://www.f3nws.com/n/vWPVaB)
 
-> Posted on: Tuesday, July 4, 2017 10:46:00 PM
+> Posted on: Tuesday, July 4, 2017 5:46:00 PM

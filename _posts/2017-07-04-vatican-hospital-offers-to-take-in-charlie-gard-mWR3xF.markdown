@@ -12,4 +12,4 @@ A Vatican-owned pediatric hospital in Rome offered to take 10-month-old Charlie 
 
 Full story on F3News: [Vatican hospital offers to take in Charlie Gard](http://www.f3nws.com/n/mWR3xF)
 
-> Posted on: Tuesday, July 4, 2017 10:31:07 PM
+> Posted on: Tuesday, July 4, 2017 5:31:07 PM

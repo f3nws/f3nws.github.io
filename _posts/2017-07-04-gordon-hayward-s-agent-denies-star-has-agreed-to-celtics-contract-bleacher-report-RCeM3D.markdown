@@ -12,4 +12,4 @@ Bleacher Report Gordon Hayward's Agent Denies Star Has Agreed to Celtics Contrac
 
 Full story on F3News: [Gordon Hayward's Agent Denies Star Has Agreed to Celtics Contract - Bleacher Report](http://www.f3nws.com/n/RCeM3D)
 
-> Posted on: Tuesday, July 4, 2017 11:40:44 PM
+> Posted on: Tuesday, July 4, 2017 6:40:44 PM

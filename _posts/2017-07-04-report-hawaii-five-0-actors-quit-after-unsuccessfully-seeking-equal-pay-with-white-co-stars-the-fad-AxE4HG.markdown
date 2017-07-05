@@ -12,4 +12,4 @@ The FADER Report: Hawaii Five-0 Actors Quit After Unsuccessfully Seeking Equal P
 
 Full story on F3News: [Report: Hawaii Five-0 Actors Quit After Unsuccessfully Seeking Equal Pay With White Co-Stars - The FADER](http://www.f3nws.com/n/AxE4HG)
 
-> Posted on: Tuesday, July 4, 2017 10:37:30 PM
+> Posted on: Tuesday, July 4, 2017 5:37:30 PM

@@ -12,4 +12,4 @@ NBCNews.com Trump Faces 'Uncomfortable Conversations' With World Leaders at G20 
 
 Full story on F3News: [Trump Faces 'Uncomfortable Conversations' With World Leaders at G20 Summit - NBCNews.com](http://www.f3nws.com/n/Hy2MqH)
 
-> Posted on: Tuesday, July 4, 2017 8:26:00 PM
+> Posted on: Tuesday, July 4, 2017 3:26:00 PM

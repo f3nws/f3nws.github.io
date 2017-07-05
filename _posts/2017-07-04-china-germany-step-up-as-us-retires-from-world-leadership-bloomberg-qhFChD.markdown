@@ -12,4 +12,4 @@ Bloomberg China, Germany Step Up as US Retires From World Leadership Bloomberg T
 
 Full story on F3News: [China, Germany Step Up as US Retires From World Leadership - Bloomberg](http://www.f3nws.com/n/qhFChD)
 
-> Posted on: Tuesday, July 4, 2017 3:10:37 PM
+> Posted on: Tuesday, July 4, 2017 10:10:37 AM

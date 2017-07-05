@@ -12,4 +12,4 @@ Variety SAG-AFTRA, Production Companies Reach Three-Year Deal Variety SAG-AFTRA 
 
 Full story on F3News: [SAG-AFTRA, Production Companies Reach Three-Year Deal - Variety](http://www.f3nws.com/n/kPNpmD)
 
-> Posted on: Tuesday, July 4, 2017 8:07:31 PM
+> Posted on: Tuesday, July 4, 2017 3:07:31 PM

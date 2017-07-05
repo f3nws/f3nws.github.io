@@ -12,4 +12,4 @@ Want Apple's iPhone 6 for the cheapest possible price? We've found the best deal
 
 Full story on F3News: [The best iPhone 6 deals in July 2017](http://www.f3nws.com/n/fPrrRE)
 
-> Posted on: Tuesday, July 4, 2017 7:32:31 PM
+> Posted on: Tuesday, July 4, 2017 2:32:31 PM

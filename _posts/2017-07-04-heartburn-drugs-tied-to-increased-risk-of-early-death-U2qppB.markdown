@@ -12,4 +12,4 @@ At prescription strength, proton-pump inhibitors are associated with a potential
 
 Full story on F3News: [Heartburn drugs tied to increased risk of early death](http://www.f3nws.com/n/U2qppB)
 
-> Posted on: Tuesday, July 4, 2017 11:59:36 PM
+> Posted on: Tuesday, July 4, 2017 6:59:36 PM

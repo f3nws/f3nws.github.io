@@ -12,4 +12,4 @@ We can thank Beyoncé for Jay-Z's new album in more ways than one.
 
 Full story on F3News: [Jay-Z's '4:44' is even better than you thought](http://www.f3nws.com/n/APQtMJ)
 
-> Posted on: Tuesday, July 4, 2017 8:02:16 PM
+> Posted on: Tuesday, July 4, 2017 3:02:16 PM

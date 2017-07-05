@@ -12,4 +12,4 @@ Trump administration national security, military and diplomatic officials are ho
 
 Full story on F3News: [US weighs options for 'measured response' to N. Korea](http://www.f3nws.com/n/JKQ3n)
 
-> Posted on: Tuesday, July 4, 2017 11:32:24 PM
+> Posted on: Tuesday, July 4, 2017 6:32:24 PM

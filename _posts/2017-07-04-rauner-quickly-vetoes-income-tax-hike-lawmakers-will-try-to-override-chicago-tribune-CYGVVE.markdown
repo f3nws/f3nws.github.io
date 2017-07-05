@@ -12,4 +12,4 @@ Chicago Tribune Rauner quickly vetoes income tax hike, lawmakers will try to ove
 
 Full story on F3News: [Rauner quickly vetoes income tax hike, lawmakers will try to override - Chicago Tribune](http://www.f3nws.com/n/CYGVVE)
 
-> Posted on: Tuesday, July 4, 2017 11:46:00 PM
+> Posted on: Tuesday, July 4, 2017 6:46:00 PM

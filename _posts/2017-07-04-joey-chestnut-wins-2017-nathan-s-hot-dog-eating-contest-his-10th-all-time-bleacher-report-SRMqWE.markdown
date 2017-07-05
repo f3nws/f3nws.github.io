@@ -12,4 +12,4 @@ NBCNews.com Joey Chestnut Wins 2017 Nathan's Hot Dog Eating Contest, His 10th Al
 
 Full story on F3News: [Joey Chestnut Wins 2017 Nathan's Hot Dog Eating Contest, His 10th All-Time - Bleacher Report](http://www.f3nws.com/n/SRMqWE)
 
-> Posted on: Tuesday, July 4, 2017 10:11:44 PM
+> Posted on: Tuesday, July 4, 2017 5:11:44 PM

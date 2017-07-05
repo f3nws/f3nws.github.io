@@ -12,4 +12,4 @@ PC Gamer Evil Genius 2 announced for PC PC Gamer Rebellion: "We'd like to make t
 
 Full story on F3News: [Evil Genius 2 announced for PC - PC Gamer](http://www.f3nws.com/n/pXqykG)
 
-> Posted on: Tuesday, July 4, 2017 7:01:47 PM
+> Posted on: Tuesday, July 4, 2017 2:01:47 PM

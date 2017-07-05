@@ -12,4 +12,4 @@ One of the top predators of the Jurassic period wasn't a dinosaur but a bone-cru
 
 Full story on F3News: [Jurassic-era crocodiles had T. rex teeth](http://www.f3nws.com/n/H2PzFB)
 
-> Posted on: Tuesday, July 4, 2017 5:21:11 PM
+> Posted on: Tuesday, July 4, 2017 12:21:11 PM

@@ -12,4 +12,4 @@ Washington Post North Korea: Missile soared 1741 miles high, marking successful 
 
 Full story on F3News: [North Korea: Missile soared 1741 miles high, marking successful test of ICBM - Washington Post](http://www.f3nws.com/n/qKnFuF)
 
-> Posted on: Tuesday, July 4, 2017 7:08:33 PM
+> Posted on: Tuesday, July 4, 2017 2:08:33 PM

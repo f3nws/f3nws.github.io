@@ -10,4 +10,4 @@ The ballistic missile launched by North Korea on Tuesday flew longer than any mi
 
 Full story on F3News: [North Korean missile flies higher, farther than any previous test](http://www.f3nws.com/n/eKpCRH)
 
-> Posted on: Tuesday, July 4, 2017 7:29:00 PM
+> Posted on: Tuesday, July 4, 2017 2:29:00 PM

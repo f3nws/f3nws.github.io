@@ -12,4 +12,4 @@ HuffPost Here's Which States Are Pushing Back Against Trump's Voter Fraud Commis
 
 Full story on F3News: [Here's Which States Are Pushing Back Against Trump's Voter Fraud Commission - HuffPost](http://www.f3nws.com/n/VCGfHE)
 
-> Posted on: Tuesday, July 4, 2017 9:15:17 PM
+> Posted on: Tuesday, July 4, 2017 4:15:17 PM

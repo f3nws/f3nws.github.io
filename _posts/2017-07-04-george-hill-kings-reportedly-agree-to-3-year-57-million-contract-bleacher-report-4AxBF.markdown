@@ -12,4 +12,4 @@ Bleacher Report George Hill, Kings Reportedly Agree to 3-Year, $57 Million Contr
 
 Full story on F3News: [George Hill, Kings Reportedly Agree to 3-Year, $57 Million Contract - Bleacher Report](http://www.f3nws.com/n/4AxBF)
 
-> Posted on: Tuesday, July 4, 2017 10:22:45 PM
+> Posted on: Tuesday, July 4, 2017 5:22:45 PM

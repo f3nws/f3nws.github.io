@@ -12,4 +12,4 @@ North Korea claims to have conducted its first successful test of a long-range m
 
 Full story on F3News: [North Korea tests missile it claims can reach anywhere](http://www.f3nws.com/n/tmEmTG)
 
-> Posted on: Tuesday, July 4, 2017 11:04:44 PM
+> Posted on: Tuesday, July 4, 2017 6:04:44 PM
