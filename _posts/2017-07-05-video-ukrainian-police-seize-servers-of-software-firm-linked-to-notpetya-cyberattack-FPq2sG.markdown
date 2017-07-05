@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "[Video] Ukrainian Police Seize Servers of Software Firm Linked to NotPetya Cyberattack"
-date: 2017-07-05 19:29:02Z
+date: 2017-07-05 19:40:17Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Ukrainian National Police has released a video showing officers raiding company 
 
 Full story on F3News: [[Video] Ukrainian Police Seize Servers of Software Firm Linked to NotPetya Cyberattack](http://www.f3nws.com/n/FPq2sG)
 
-> Posted on: Wednesday, July 5, 2017 7:29:02 PM
+> Posted on: Wednesday, July 5, 2017 7:40:17 PM
