@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Daniel Dae Kim breaks silence on leaving 'Hawaii Five-0'"
-date: 2017-07-05 18:01:10Z
+date: 2017-07-05 21:23:51Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Daniel Dae Kim has broken his silence on his exit from "Hawaii Five-0."
 
 Full story on F3News: [Daniel Dae Kim breaks silence on leaving 'Hawaii Five-0'](http://www.f3nws.com/n/XZWCnB)
 
-> Posted on: Wednesday, July 5, 2017 6:01:10 PM
+> Posted on: Wednesday, July 5, 2017 9:23:51 PM
