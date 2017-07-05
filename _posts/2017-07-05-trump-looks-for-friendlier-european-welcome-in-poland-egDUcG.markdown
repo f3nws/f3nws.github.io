@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump looks for friendlier European welcome in Poland"
-date: 2017-07-05 17:21:33Z
+date: 2017-07-05 17:48:45Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump is headed back to Europe hoping to re
 
 Full story on F3News: [Trump looks for friendlier European welcome in Poland](http://www.f3nws.com/n/egDUcG)
 
-> Posted on: Wednesday, July 5, 2017 5:21:33 PM
+> Posted on: Wednesday, July 5, 2017 5:48:45 PM

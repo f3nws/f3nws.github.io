@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How CNN found the Reddit user behind the Trump wrestling GIF"
-date: 2017-07-05 09:27:34Z
+date: 2017-07-05 17:34:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The Reddit user who initially claimed credit for President Donald Trump's tweet 
 
 Full story on F3News: [How CNN found the Reddit user behind the Trump wrestling GIF](http://www.f3nws.com/n/WYK4pD)
 
-> Posted on: Wednesday, July 5, 2017 9:27:34 AM
+> Posted on: Wednesday, July 5, 2017 5:34:35 PM

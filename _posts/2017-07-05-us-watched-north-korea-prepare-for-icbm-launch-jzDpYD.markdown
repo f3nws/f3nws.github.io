@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US watched North Korea prepare for ICBM launch"
-date: 2017-07-05 16:33:00Z
+date: 2017-07-05 17:43:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ U.S. officials watched the fueling of North Korea's intercontinental ballistic m
 
 Full story on F3News: [US watched North Korea prepare for ICBM launch](http://www.f3nws.com/n/jzDpYD)
 
-> Posted on: Wednesday, July 5, 2017 4:33:00 PM
+> Posted on: Wednesday, July 5, 2017 5:43:00 PM

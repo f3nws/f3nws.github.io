@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All in One Toolchain for Article Writing with Visual Studio Code"
-date: 2017-07-05 17:23:00Z
+date: 2017-07-05 17:42:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ Visual Studio Code extension augments existing Markdown extensions to form all i
 
 Full story on F3News: [All in One Toolchain for Article Writing with Visual Studio Code](http://www.f3nws.com/n/gGqtMF)
 
-> Posted on: Wednesday, July 5, 2017 5:23:00 PM
+> Posted on: Wednesday, July 5, 2017 5:42:00 PM

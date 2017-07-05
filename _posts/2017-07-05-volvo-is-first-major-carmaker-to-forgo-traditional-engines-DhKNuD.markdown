@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Volvo is first major carmaker to forgo traditional engines"
-date: 2017-07-05 16:27:17Z
+date: 2017-07-05 17:21:33Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ HELSINKI (AP) — Volvo will begin producing electric motors on all its cars fro
 
 Full story on F3News: [Volvo is first major carmaker to forgo traditional engines](http://www.f3nws.com/n/DhKNuD)
 
-> Posted on: Wednesday, July 5, 2017 4:27:17 PM
+> Posted on: Wednesday, July 5, 2017 5:21:33 PM
