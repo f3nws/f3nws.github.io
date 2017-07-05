@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi commander says 300 IS fighters holed up in Mosul"
-date: 2017-07-05 18:24:46Z
+date: 2017-07-05 19:24:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — Some 300 Islamic State fighters remain in the small patch o
 
 Full story on F3News: [Iraqi commander says 300 IS fighters holed up in Mosul](http://www.f3nws.com/n/hPpFjH)
 
-> Posted on: Wednesday, July 5, 2017 6:24:46 PM
+> Posted on: Wednesday, July 5, 2017 7:24:21 PM

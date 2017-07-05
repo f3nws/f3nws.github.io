@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Kathy Griffin Reportedly Questioned by Secret Service For An Hour - HuffPost](http://img.huffingtonpost.com/asset/1910_1000/595cdc871500002000bfc1c0.jpeg?cache=mj7ltpyb8o)
 
-HuffPost Kathy Griffin Reportedly Questioned by Secret Service For An Hour HuffPost The controversy over Kathy Griffin's gory photo showing the fake, severed head of President Donald Trump will apparently never end. More than a month after the photo was released, the comedian is reportedly still under investigation. Griffin “has been ... Report: Kathy Griffin questioned by Secret Service over controversial Trump photo AOL The Secret Service interviewed Kathy Griffin for over an hour A.V. Club Kathy Griffin Interviewed By Secret Service Following Controversial Trump Photo PerezHilton.com Washington Examiner - Vulture - Globalnews.ca - Western Journalism all 35 news articles »
+HuffPost Kathy Griffin Reportedly Questioned by Secret Service For An Hour HuffPost The controversy over Kathy Griffin's gory photo showing the fake, severed head of President Donald Trump will apparently never end. More than a month after the photo was released, the comedian is reportedly still under investigation. Griffin “has been ... Yashar Ali on Twitter: "News: Kathy Griffin has been interviewed by the Secret Service, in-person, for over an hour ... Twitter all 40 news articles »
 
 
 Full story on F3News: [Kathy Griffin Reportedly Questioned by Secret Service For An Hour - HuffPost](http://www.f3nws.com/n/CJC2BE)
