@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "#CNNBlackmail: Outrage after network appears to threaten Reddit user"
-date: 2017-07-05 12:11:00Z
+date: 2017-07-05 16:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ CNN was facing almost universal backlash on Wednesday after running an article o
 
 Full story on F3News: [#CNNBlackmail: Outrage after network appears to threaten Reddit user](http://www.f3nws.com/n/vGPYCE)
 
-> Posted on: Wednesday, July 5, 2017 12:11:00 PM
+> Posted on: Wednesday, July 5, 2017 4:00:00 PM
