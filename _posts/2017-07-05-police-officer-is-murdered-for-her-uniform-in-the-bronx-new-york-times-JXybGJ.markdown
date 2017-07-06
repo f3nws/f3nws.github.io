@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police Officer Is 'Murdered for Her Uniform' in the Bronx - New York Times](https://static01.nyt.com/images/2017/07/05/nyregion/05nypdshot/05nypdshot-facebookJumbo.jpg)
 
-New York Times Police Officer Is 'Murdered for Her Uniform' in the Bronx New York Times Police officers held hands with members of the community outside the 46th Precinct station in the Bronx on Wednesday, hours after Miosotis Familia, a police officer, was shot and killed. Credit Bryan Anselm for The New York Times. On a corner in the ... New York police officer fatally shot in 'unprovoked attack' CNN Parolee's anger at police may have led to shooting Washington Post The Latest: Governor directs flags to be flown at half-staff ABC News New York Daily News - The Boston Globe - The Denver Post - New York Post all 338 news articles »
+New York Times Police Officer Is 'Murdered for Her Uniform' in the Bronx New York Times Police officers held hands with members of the community outside the 46th Precinct station in the Bronx on Wednesday, hours after Miosotis Familia, a police officer, was shot and killed. Credit Bryan Anselm for The New York Times. On a corner in the ... New York police officer fatally shot in 'unprovoked attack' CNN Police look for motive in deadly ambush of New York officer Washington Post The Latest: Governor directs flags to be flown at half-staff ABC News New York Daily News - New York Post - The Denver Post - Fox News all 343 news articles »
 
 
 Full story on F3News: [Police Officer Is 'Murdered for Her Uniform' in the Bronx - New York Times](http://www.f3nws.com/n/JXybGJ)
