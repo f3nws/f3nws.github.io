@@ -5,7 +5,7 @@ date: 2017-07-06 19:00:05Z
 categories: cnet
 ---
 
-![How to watch every Marvel property in the perfect order     - CNET](https://cnet4.cbsistatic.com/img/Is7vQM9xlX3xavIOJKAW2C5xCk0=/670x503/2016/08/08/e9c160ae-edd4-4317-918d-233ee4519f1c/luke-cage-1.jpg)
+![How to watch every Marvel property in the perfect order     - CNET](https://cnet3.cbsistatic.com/img/xja4BQwUYzCA2ITszjApEXE_cKg=/2017/06/14/e5813e5e-a117-45e1-8f91-5e9352af2adf/spider-man-homecoming-tom-holland-iron-man.jpg)
 
 Every Marvel movie and TV show currently airing or announced -- and the absolute ideal order for watching them -- so you can check out the latest Marvel movie super-prepared.
 
