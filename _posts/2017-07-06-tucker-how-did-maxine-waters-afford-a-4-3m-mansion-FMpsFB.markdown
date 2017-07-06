@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tucker: How Did Maxine Waters Afford a $4.3M Mansion?"
-date: 2017-07-06 13:00:01Z
+date: 2017-07-06 13:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Tucker: How Did Maxine Waters Afford a $4.3M Mansion?](http://www.f3nws.com/n/FMpsFB)
 
-> Posted on: Thursday, July 6, 2017 1:00:01 PM
+> Posted on: Thursday, July 6, 2017 1:30:02 PM
