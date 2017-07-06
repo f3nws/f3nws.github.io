@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gorsuch already making conservative mark on Supreme Court, amid Kennedy rumors"
-date: 2017-07-06 14:33:00Z
+date: 2017-07-06 17:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The newest member of the Supreme Court already is making his mark after just thr
 
 Full story on F3News: [Gorsuch already making conservative mark on Supreme Court, amid Kennedy rumors](http://www.f3nws.com/n/y4CTZE)
 
-> Posted on: Thursday, July 6, 2017 2:33:00 PM
+> Posted on: Thursday, July 6, 2017 5:00:00 PM
