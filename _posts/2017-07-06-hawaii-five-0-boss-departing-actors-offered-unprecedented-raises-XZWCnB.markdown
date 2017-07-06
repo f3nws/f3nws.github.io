@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Hawaii Five-0' boss: Departing actors offered 'unprecedented raises'"
-date: 2017-07-06 21:53:13Z
+date: 2017-07-06 21:54:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['Hawaii Five-0' boss: Departing actors offered 'unprecedented raises'](http://www.f3nws.com/n/XZWCnB)
 
-> Posted on: Thursday, July 6, 2017 9:53:13 PM
+> Posted on: Thursday, July 6, 2017 9:54:21 PM
