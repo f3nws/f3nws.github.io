@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![What the federal government can get from your voter file - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/121007125621-voter-registration-c1-super-tease.jpg)
 
-CNN What the federal government can get from your voter file CNN Washington (CNN) President Donald Trump's election integrity commission won't have access to all of the information it would like because of state laws that map out what is and what is not publicly available -- triggering a national conversation on the ... Numerous states refuse voter fraud commission's request for voter data CBS News Kris Kobach, states disagree on Trump's voting fraud panel. Here's where 47 states stand. USA TODAY Trump's voter data request poses an unnoticed danger — to national security Washington Post Los Angeles Times - Chicago Tribune - Washington Examiner - Politico all 211 news articles »
+CNN What the federal government can get from your voter file CNN Washington (CNN) President Donald Trump's election integrity commission won't have access to all of the information it would like because of state laws that map out what is and what is not publicly available -- triggering a national conversation on the ... Numerous states refuse voter fraud commission's request for voter data CBS News Kris Kobach, states disagree on Trump's voting fraud panel. Here's where 47 states stand. USA TODAY Trump's voter data request poses an unnoticed danger — to national security Washington Post Los Angeles Times - Chicago Tribune - Washington Examiner - Forbes all 208 news articles »
 
 
 Full story on F3News: [What the federal government can get from your voter file - CNN](http://www.f3nws.com/n/scAeAD)
