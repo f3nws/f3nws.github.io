@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Malta's Parliament set to legalize gay marriage"
-date: 2017-07-06 08:16:36Z
+date: 2017-07-06 09:52:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Malta is set to pass a law legalizing same-sex marriage when its Parliament vote
 
 Full story on F3News: [Malta's Parliament set to legalize gay marriage](http://www.f3nws.com/n/hcUMEH)
 
-> Posted on: Thursday, July 6, 2017 8:16:36 AM
+> Posted on: Thursday, July 6, 2017 9:52:55 AM
