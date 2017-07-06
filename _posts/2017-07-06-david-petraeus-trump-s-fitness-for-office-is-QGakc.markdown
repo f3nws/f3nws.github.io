@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "David Petraeus: Trump's fitness for office is"
-date: 2017-07-06 14:11:09Z
+date: 2017-07-06 14:11:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ David Petraeus was asked, in reference to Donald Trump, "Do you think the presid
 
 Full story on F3News: [David Petraeus: Trump's fitness for office is](http://www.f3nws.com/n/QGakc)
 
-> Posted on: Thursday, July 6, 2017 2:11:09 PM
+> Posted on: Thursday, July 6, 2017 2:11:00 PM
