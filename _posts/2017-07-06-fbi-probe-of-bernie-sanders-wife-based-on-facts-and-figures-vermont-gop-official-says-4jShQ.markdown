@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI probe of Bernie Sanders' wife based on 'facts and figures,' Vermont GOP official says"
-date: 2017-07-06 07:30:02Z
+date: 2017-07-06 08:00:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The vice chairman of the Vermont Republican Party told Fox News Wednesday night 
 
 Full story on F3News: [FBI probe of Bernie Sanders' wife based on 'facts and figures,' Vermont GOP official says](http://www.f3nws.com/n/4jShQ)
 
-> Posted on: Thursday, July 6, 2017 7:30:02 AM
+> Posted on: Thursday, July 6, 2017 8:00:01 AM
