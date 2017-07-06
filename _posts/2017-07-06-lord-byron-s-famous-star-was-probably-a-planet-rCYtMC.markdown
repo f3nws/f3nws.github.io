@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lord Byron's famous 'star' was probably a planet"
-date: 2017-07-06 15:00:03Z
+date: 2017-07-06 15:30:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Romantic poet Lord Byron found inspiration for one of his greatest works in 
 
 Full story on F3News: [Lord Byron's famous 'star' was probably a planet](http://www.f3nws.com/n/rCYtMC)
 
-> Posted on: Thursday, July 6, 2017 3:00:03 PM
+> Posted on: Thursday, July 6, 2017 3:30:01 PM
