@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Federal ethics chief who clashed with White House announces he will step down - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/06/National-Politics/Images/c.JPG?t=20170517)
 
-Washington Post Federal ethics chief who clashed with White House announces he will step down Washington Post The director of the independent Office of Government Ethics, who has been the federal government's most persistent critic of the Trump administration's approach to ethics, announced Thursday that he is resigning nearly six months before his term is ... US Government Ethics Chief Will Resign, Casting Uncertainty Over Agency New York Times Ethics director who clashed with Trump resigns The Hill US ethics chief who pressured Trump resigns Politico NPR - The Atlantic - HuffPost - NBCNews.com all 115 news articles »
+Washington Post Federal ethics chief who clashed with White House announces he will step down Washington Post The director of the independent Office of Government Ethics, who has been the federal government's most persistent critic of the Trump administration's approach to ethics, announced Thursday that he is resigning nearly six months before his term is ... US Government Ethics Chief Will Resign, Casting Uncertainty Over Agency New York Times Ethics director who clashed with Trump resigns The Hill US ethics chief who pressured Trump resigns Politico NPR - The Atlantic - HuffPost - NBCNews.com all 124 news articles »
 
 
 Full story on F3News: [Federal ethics chief who clashed with White House announces he will step down - Washington Post](http://www.f3nws.com/n/qYEgBF)
