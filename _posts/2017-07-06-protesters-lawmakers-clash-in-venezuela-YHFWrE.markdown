@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters, lawmakers clash in Venezuela"
-date: 2017-07-06 00:17:17Z
+date: 2017-07-06 03:53:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Supporters of embattled Venezuelan President Nicolas Maduro stormed the oppositi
 
 Full story on F3News: [Protesters, lawmakers clash in Venezuela](http://www.f3nws.com/n/YHFWrE)
 
-> Posted on: Thursday, July 6, 2017 12:17:17 AM
+> Posted on: Thursday, July 6, 2017 3:53:21 AM
