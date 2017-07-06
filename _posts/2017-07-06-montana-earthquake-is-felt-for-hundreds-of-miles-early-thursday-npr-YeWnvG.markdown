@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Montana Earthquake Is Felt For Hundreds Of Miles Early Thursday - NPR](https://media.npr.org/assets/img/2017/07/06/usgs_wide-59667c842c7efa78cb96cf7306d14c41cdfaf8d9.jpg?s=1400)
 
-NPR Montana Earthquake Is Felt For Hundreds Of Miles Early Thursday NPR An earthquake with a magnitude of 5.8 startled many people out of their sleep in western Montana early Thursday. The shallow quake was felt for hundreds of miles from its epicenter southeast of Lincoln, including in parts of neighboring states and in ... Rare 5.8 earthquake strikes western Montana, the area's strongest temblor in at least 20 years Los Angeles Times Magnitude 5.8 earthquake rouses slumbering Montana residents KATU Montana earthquake: 5.8 magnitude quake strongest in 20 years Fox News CNBC - Syracuse.com - CBS News - NBCNews.com all 68 news articles »
+NPR Montana Earthquake Is Felt For Hundreds Of Miles Early Thursday NPR An earthquake with a magnitude of 5.8 startled many people out of their sleep in western Montana early Thursday. The shallow quake was felt for hundreds of miles from its epicenter southeast of Lincoln, including in parts of neighboring states and in ... Rare 5.8 earthquake strikes western Montana, the area's strongest temblor in at least 20 years Los Angeles Times Magnitude 5.8 earthquake rouses slumbering Montana residents KATU Montana earthquake: 5.8 magnitude quake strongest in 20 years Fox News Billboard - CNBC - Syracuse.com - CBS News all 73 news articles »
 
 
 Full story on F3News: [Montana Earthquake Is Felt For Hundreds Of Miles Early Thursday - NPR](http://www.f3nws.com/n/YeWnvG)
