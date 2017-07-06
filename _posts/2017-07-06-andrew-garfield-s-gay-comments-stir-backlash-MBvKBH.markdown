@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Andrew Garfield's gay comments stir backlash"
-date: 2017-07-06 17:07:12Z
+date: 2017-07-06 20:51:34Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Andrew Garfield's reported remarks about how he prepared to play a gay man aren'
 
 Full story on F3News: [Andrew Garfield's gay comments stir backlash](http://www.f3nws.com/n/MBvKBH)
 
-> Posted on: Thursday, July 6, 2017 5:07:12 PM
+> Posted on: Thursday, July 6, 2017 8:51:34 PM
