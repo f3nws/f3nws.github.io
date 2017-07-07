@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS defeated, but not destroyed, as terror group still holds strategic swaths of Iraq"
-date: 2017-07-07 17:00:01Z
+date: 2017-07-07 18:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Iraqi Prime Minister Haider al-Abadi this week praised his soldiers for their â€
 
 Full story on F3News: [ISIS defeated, but not destroyed, as terror group still holds strategic swaths of Iraq](http://www.f3nws.com/n/XWxPrD)
 
-> Posted on: Friday, July 7, 2017 5:00:01 PM
+> Posted on: Friday, July 7, 2017 6:00:02 PM
