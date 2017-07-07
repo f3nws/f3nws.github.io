@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McConnell signals doubts about ObamaCare vote - The Hill](http://thehill.com/sites/default/files/mcconnellmitch_062917gn_lead.jpg)
 
-Politico McConnell signals doubts about ObamaCare vote The Hill Acknowledging that Senate Republicans may not be able to pass their ObamaCare repeal legislation, Senate Majority Leader Mitch McConnell · Mitch McConnellMcConnell signals doubts about ObamaCare vote GOP senator: Media has a job to do Senate ... The reason Republican health-care plans are doomed to fail Washington Post Dems still not ready to get serious Fox News Republicans are starting to admit they may have to work with Democrats on healthcare Business Insider Lexington Herald Leader - USA TODAY - New York Post - The Columbus Dispatch all 205 news articles »
+The Hill McConnell signals doubts about ObamaCare vote The Hill Acknowledging that Senate Republicans may not be able to pass their ObamaCare repeal legislation, Senate Majority Leader Mitch McConnell · Mitch McConnellCruz faces ObamaCare repeal pushback during veterans event McConnell signals doubts about ... McConnell says GOP must shore up ACA insurance markets if Senate bill dies Washington Post How the Senate health bill became 'Obamacare lite' Politico How Trump's Obamacare tweets and arm-twisting actually hurt his cause for repeal Raw Story Washington Examiner - CNBC - Washington Times - Business Insider all 162 news articles »
 
 
 Full story on F3News: [McConnell signals doubts about ObamaCare vote - The Hill](http://www.f3nws.com/n/UAYRM)
