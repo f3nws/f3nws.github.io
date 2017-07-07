@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best wireless headphones available today"
-date: 2017-07-07 11:28:00Z
+date: 2017-07-07 12:51:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Want the best wireless headphones? Here are the best headphones, sans cables.
 
 Full story on F3News: [The best wireless headphones available today](http://www.f3nws.com/n/4NqcBG)
 
-> Posted on: Friday, July 7, 2017 11:28:00 AM
+> Posted on: Friday, July 7, 2017 12:51:00 PM
