@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What is Tesla's SA battery and how will it be used?"
-date: 2017-07-07 07:54:21Z
+date: 2017-07-07 21:36:33Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ Tesla's Elon Musk is promising big battery storage will be in place by summer to
 
 Full story on F3News: [What is Tesla's SA battery and how will it be used?](http://www.f3nws.com/n/YhFRKG)
 
-> Posted on: Friday, July 7, 2017 7:54:21 AM
+> Posted on: Friday, July 7, 2017 9:36:33 PM
