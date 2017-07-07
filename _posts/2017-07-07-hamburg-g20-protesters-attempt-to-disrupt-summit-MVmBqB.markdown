@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamburg: G20 protesters attempt to disrupt summit"
-date: 2017-07-07 17:13:54Z
+date: 2017-07-07 20:58:08Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ German police are trying to prevent small groups of mostly anti-capitalist prote
 
 Full story on F3News: [Hamburg: G20 protesters attempt to disrupt summit](http://www.f3nws.com/n/MVmBqB)
 
-> Posted on: Friday, July 7, 2017 5:13:54 PM
+> Posted on: Friday, July 7, 2017 8:58:08 PM

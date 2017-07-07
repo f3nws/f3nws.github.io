@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US bombers fly over South China Sea ahead of Trump, Xi meet"
-date: 2017-07-07 20:06:22Z
+date: 2017-07-07 20:52:56Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Two US B-1 bombers flew over disputed waters in the East and South China Seas on
 
 Full story on F3News: [US bombers fly over South China Sea ahead of Trump, Xi meet](http://www.f3nws.com/n/yhuQaD)
 
-> Posted on: Friday, July 7, 2017 8:06:22 PM
+> Posted on: Friday, July 7, 2017 8:52:56 PM
