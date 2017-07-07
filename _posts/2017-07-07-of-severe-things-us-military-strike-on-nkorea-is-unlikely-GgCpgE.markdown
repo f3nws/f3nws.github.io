@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Of 'severe things,' US military strike on NKorea is unlikely"
-date: 2017-07-07 07:56:56Z
+date: 2017-07-07 08:23:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — A pre-emptive military strike may be among the "pretty sever
 
 Full story on F3News: [Of 'severe things,' US military strike on NKorea is unlikely](http://www.f3nws.com/n/GgCpgE)
 
-> Posted on: Friday, July 7, 2017 7:56:56 AM
+> Posted on: Friday, July 7, 2017 8:23:16 AM
