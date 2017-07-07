@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Jawbone is going out of business](https://cdn.vox-cdn.com/thumbor/Ml2kgpljkItKIqIpi9d1bNzqbs8=/0x104:1000x667/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55601073/Jawbone-fitbit-1000-DSC_1755-Verge.0.jpg)
 
-The Verge Jawbone is going out of business The Verge Jawbone as we knew it is no more. The tech company that produced Bluetooth earpieces and wireless speakers before betting everything on fitness tracking has entered into liquidation proceedings, according to a new report from The Information. The Verge ... Jawbone reportedly shuttering business amidst financial turmoil, new health startup to rise from ashes AppleInsider (press release) (blog) Report: Jawbone shutting down & liquidating its assets after continued struggles 9to5Mac Jawbone may be going out of business CNET Financial Times - Android Headlines - Engadget - Liliputing all 26 news articles »
+The Verge Jawbone is going out of business The Verge Jawbone as we knew it is no more. The tech company that produced Bluetooth earpieces and wireless speakers before betting everything on fitness tracking has entered into liquidation proceedings, according to a new report from The Information. The Verge ... Jawbone may be going out of business CNET Jawbone Will Reportedly Be Shutting Down Soon Android Headlines Jawbone is reportedly dead (again) Engadget Liliputing - Gizmodo Australia - SiliconBeat - Android Authority (blog) all 27 news articles »
 
 
 Full story on F3News: [Jawbone is going out of business](http://www.f3nws.com/n/fdX3JC)
