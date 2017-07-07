@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate report: 'Avalanche' of media leaks hurting national security"
-date: 2017-07-06 16:22:00Z
+date: 2017-07-06 16:40:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Trump administration is facing an "alarming" and "unprecedented" cascade of 
 
 Full story on F3News: [Senate report: 'Avalanche' of media leaks hurting national security](http://www.f3nws.com/n/C2p3WD)
 
-> Posted on: Thursday, July 6, 2017 4:22:00 PM
+> Posted on: Thursday, July 6, 2017 4:40:00 PM
