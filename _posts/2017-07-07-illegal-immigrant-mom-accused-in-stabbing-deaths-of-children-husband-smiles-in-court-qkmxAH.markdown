@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Illegal immigrant mom accused in stabbing deaths of children, husband smiles in court"
-date: 2017-07-07 16:34:00Z
+date: 2017-07-07 21:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The illegal immigrant accused of stabbing to death her four children and husband
 
 Full story on F3News: [Illegal immigrant mom accused in stabbing deaths of children, husband smiles in court](http://www.f3nws.com/n/qkmxAH)
 
-> Posted on: Friday, July 7, 2017 4:34:00 PM
+> Posted on: Friday, July 7, 2017 9:00:00 PM
