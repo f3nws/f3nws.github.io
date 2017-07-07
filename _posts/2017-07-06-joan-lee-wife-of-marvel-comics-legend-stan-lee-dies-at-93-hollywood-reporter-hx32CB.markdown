@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Joan Lee, Wife of Marvel Comics Legend Stan Lee, Dies at 93 - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/07/stan_and_joan_lee.jpg)
 
-Hollywood Reporter Joan Lee, Wife of Marvel Comics Legend Stan Lee, Dies at 93 Hollywood Reporter The pair, who met when the Marvel boss was supposed to take her friend on a date, were married for 69 years. Joan Lee, the wife of Marvel Comics legend Stan Lee, died Thursday in Los Angeles. She was 93. "I can confirm the sad news that Joan Lee ... Internet Reacts To Passing of Joan Lee Comicbook.com RIP Joan Lee, Wife of Stan Lee, Dead at 93 ComingSoon.net Joan Lee, wife of comics icon Stan Lee, dies at 93 EW.com Deadline - New York Daily News - Bleeding Cool News - Cinema Blend all 60 news articles »
+Hollywood Reporter Joan Lee, Wife of Marvel Comics Legend Stan Lee, Dies at 93 Hollywood Reporter The pair, who met when the Marvel boss was supposed to take her friend on a date, were married for 69 years. Joan Lee, the wife of Marvel Comics legend Stan Lee, died Thursday in Los Angeles. She was 93. "I can confirm the sad news that Joan Lee ... Internet Reacts To Passing of Joan Lee Comicbook.com RIP Joan Lee, Wife of Stan Lee, Dead at 93 ComingSoon.net Joan Lee, wife of comics icon Stan Lee, dies at 93 EW.com Deadline - New York Daily News - Bleeding Cool News - Cinema Blend all 62 news articles »
 
 
 Full story on F3News: [Joan Lee, Wife of Marvel Comics Legend Stan Lee, Dies at 93 - Hollywood Reporter](http://www.f3nws.com/n/hx32CB)
