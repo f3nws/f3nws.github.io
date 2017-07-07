@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![The Internet Reacts To Doomfist, Overwatch's New Character - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--WSGQ4zFD--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/yuqagmvqx5kwhmg7e1tk.png)
 
-Kotaku The Internet Reacts To Doomfist, Overwatch's New Character Kotaku Doomfist has only been out on the PTR for half a day, but Overwatch fans are already debating who to ship him with and wondering why he's yet another character with his titty out. Doomfist is a new offensive character for Overwatch, and one that has ... Doomfist abilities list: here's everything Overwatch's new melee hero can do PC Gamer You have this studio to thank for Overwatch's best origin video ever Polygon Overwatch PTR Update Patch Notes Include Doomfist, Loot Box Improvements, And More GameSpot PlayStation LifeStyle - VentureBeat - GameZone - The Verge all 249 news articles »
+Kotaku The Internet Reacts To Doomfist, Overwatch's New Character Kotaku Doomfist has only been out on the PTR for half a day, but Overwatch fans are already debating who to ship him with and wondering why he's yet another character with his titty out. Doomfist is a new offensive character for Overwatch, and one that has ... Doomfist abilities list: here's everything Overwatch's new melee hero can do PC Gamer Overwatch PTR Update Patch Notes Include Doomfist, Loot Box Improvements, And More GameSpot You have this studio to thank for Overwatch's best origin video ever Polygon PlayStation LifeStyle - VentureBeat - GameZone - The Verge all 253 news articles »
 
 
 Full story on F3News: [The Internet Reacts To Doomfist, Overwatch's New Character - Kotaku](http://www.f3nws.com/n/AvKhVJ)
