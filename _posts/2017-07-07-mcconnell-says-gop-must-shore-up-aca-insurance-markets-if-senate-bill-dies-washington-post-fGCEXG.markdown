@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McConnell says GOP must shore up ACA insurance markets if Senate bill dies - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/06/National-Politics/Images/Kentucky_McConnell_62279-b0895.jpg?t=20170517)
 
-Washington Post McConnell says GOP must shore up ACA insurance markets if Senate bill dies Washington Post Senate Majority Leader Mitch McConnell (R-Ky.) said Thursday that if his party fails to muster 50 votes for its plan to rewrite the Affordable Care Act, it will have no choice but to draft a more modest bill with Democrats to support the law's existing ... Conservatives revolt over talk of keeping ObamaCare tax The Hill Rand and Donald's wild health care ride Politico Republicans are in charge. So why can't they deliver on healthcare? Los Angeles Times Salon - Vox - U.S. News & World Report - MSNBC all 303 news articles »
+Washington Post McConnell says GOP must shore up ACA insurance markets if Senate bill dies Washington Post Senate Majority Leader Mitch McConnell (R-Ky.) said Thursday that if his party fails to muster 50 votes for its plan to rewrite the Affordable Care Act, it will have no choice but to draft a more modest bill with Democrats to support the law's existing ... Rand and Donald's wild health care ride Politico In Woodrow Wilson fashion, here are 14 points for ObamaCare repeal The Hill (blog) Republicans are in charge. So why can't they deliver on healthcare? Los Angeles Times Vox - Hot Air - MSNBC - Washington Times all 300 news articles »
 
 
 Full story on F3News: [McConnell says GOP must shore up ACA insurance markets if Senate bill dies - Washington Post](http://www.f3nws.com/n/fGCEXG)
