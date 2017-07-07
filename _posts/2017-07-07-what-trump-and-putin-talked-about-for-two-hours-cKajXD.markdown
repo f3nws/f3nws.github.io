@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What Trump and Putin talked about for two hours"
-date: 2017-07-07 18:36:52Z
+date: 2017-07-07 20:05:07Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and Russian President Vladimir Putin met for over two hou
 
 Full story on F3News: [What Trump and Putin talked about for two hours](http://www.f3nws.com/n/cKajXD)
 
-> Posted on: Friday, July 7, 2017 6:36:52 PM
+> Posted on: Friday, July 7, 2017 8:05:07 PM
