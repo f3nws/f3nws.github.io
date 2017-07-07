@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Delta flight security incident leaves 3 injured - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/150820111300-delta-plane-file-super-tease.jpg)
 
-CNN Delta flight security incident leaves 3 injured CNN (CNN) A Delta Air Lines flight turned back after takeoff from Seattle to Beijing on Thursday night following a "security incident" in the first class cabin. Initial information indicated an unruly passenger attempted to enter the jet's cockpit ... 'It's a woman!' Finder of potential Amelia Earhart pics on his discovery New York Post Delta flight returns to Seattle after passenger assaults flight attendant, injuring 2 ABC News China-bound flight returns to Seattle after passenger assaults crew member Reuters Fox News - New York Daily News - Washington Post - CBS News all 66 news articles »
+CNN Delta flight security incident leaves 3 injured CNN (CNN) A Delta Air Lines flight turned back after takeoff from Seattle to Beijing on Thursday night following a "security incident" in the first class cabin. Initial information indicated an unruly passenger attempted to enter the jet's cockpit ... Delta Airlines Flight Attendant Assaulted by First Class Passenger NBCNews.com 'It's a woman!' Finder of potential Amelia Earhart pics on his discovery New York Post China-bound flight returns to Seattle after passenger assaults crew member Reuters New York Daily News - USA TODAY - Washington Post - CBS News all 69 news articles »
 
 
 Full story on F3News: [Delta flight security incident leaves 3 injured - CNN](http://www.f3nws.com/n/gADekH)
