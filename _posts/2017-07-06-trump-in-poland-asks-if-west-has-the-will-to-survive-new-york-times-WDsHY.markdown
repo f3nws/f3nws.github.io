@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump, in Poland, Asks if West Has the 'Will to Survive' - New York Times](https://static01.nyt.com/images/2017/07/06/world/06trumppoland2/06trumppoland2-facebookJumbo.jpg)
 
-New York Times Trump, in Poland, Asks if West Has the 'Will to Survive' New York Times In Warsaw, President Trump reaffirmed the need to keep Europe and the world safe, described Russia's behavior as “destabilizing” and had harsh words for North Korea. By REUTERS. Photo by Stephen Crowley/The New York Times. Watch in Times Video ». Trump's nationalist warning contrasts with European leaders' optimism at G-20 Washington Post Trump joins battle for the soul of the West -- to a point CNN Top 9 Highlights from Emerging Trump Doctrine: West Will 'Never, Ever Be Broken' Breitbart News BuzzFeed News - Washington Examiner - The Atlantic - Business Insider all 1,318 news articles »
+New York Times Trump, in Poland, Asks if West Has the 'Will to Survive' New York Times In Warsaw, President Trump reaffirmed the need to keep Europe and the world safe, described Russia's behavior as “destabilizing” and had harsh words for North Korea. By REUTERS. Photo by Stephen Crowley/The New York Times. Watch in Times Video ». South Korea's president seeks talks with North's Kim Jong Un Washington Post The US is not interested in making any deals with North Korea right now. Here's why CNBC Trump pledges to act 'very strongly' on North Korea missile threat Reuters HuffPost - Miami Herald - The Weekly Standard - USA TODAY all 5,412 news articles »
 
 
 Full story on F3News: [Trump, in Poland, Asks if West Has the 'Will to Survive' - New York Times](http://www.f3nws.com/n/WDsHY)
