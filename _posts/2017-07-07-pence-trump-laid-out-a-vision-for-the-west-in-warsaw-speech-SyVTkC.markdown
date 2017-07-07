@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence: Trump laid out a 'vision for the West' in Warsaw speech"
-date: 2017-07-07 04:00:02Z
+date: 2017-07-07 04:01:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Vice President Mike Pence praised President Trump's speech in Poland Thursday, t
 
 Full story on F3News: [Pence: Trump laid out a 'vision for the West' in Warsaw speech](http://www.f3nws.com/n/SyVTkC)
 
-> Posted on: Friday, July 7, 2017 4:00:02 AM
+> Posted on: Friday, July 7, 2017 4:01:00 AM
