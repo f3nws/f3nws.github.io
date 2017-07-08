@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Delta flight security incident leaves 3 injured"
-date: 2017-07-08 01:22:47Z
+date: 2017-07-08 01:51:15Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Delta Air Lines flight turned back after takeoff from Seattle to Beijing on Th
 
 Full story on F3News: [Delta flight security incident leaves 3 injured](http://www.f3nws.com/n/gADekH)
 
-> Posted on: Saturday, July 8, 2017 1:22:47 AM
+> Posted on: Saturday, July 8, 2017 1:51:15 AM
