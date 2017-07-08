@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP Support of Senate Health Repeal Erodes During Break - New York Times](https://static01.nyt.com/images/2017/07/08/us/08dc-health1/08dc-health1-facebookJumbo.jpg)
 
-New York Times GOP Support of Senate Health Repeal Erodes During Break New York Times Protesters defended Medicaid outside a radio station where Senator Ted Cruz was being interviewed in San Antonio on Thursday. Credit Eric Gay/Associated Press. WASHINGTON — A week that Senate Republicans had hoped would mobilize conservatives ... Senate Health Bill Could Both Boost And Undercut Mental Health Funding NPR Booker: 'We've Got to Try to Garner More Public Outrage' Over Senate GOP Healthcare Bill Breitbart News Why the Republican health care message is floundering CNN International New York Magazine - Newsmax - HuffPost - Fox News all 1,058 news articles »
+New York Times GOP Support of Senate Health Repeal Erodes During Break New York Times Protesters defended Medicaid outside a radio station where Senator Ted Cruz was being interviewed in San Antonio on Thursday. Credit Eric Gay/Associated Press. WASHINGTON — A week that Senate Republicans had hoped would mobilize conservatives ... Senate Health Bill Could Both Boost And Undercut Mental Health Funding NPR A measure to rein in Medicaid's 'mission gallop' Washington Post Why the Republican health care message is floundering CNN International New York Magazine - Breitbart News - Motley Fool - HuffPost all 1,074 news articles »
 
 
 Full story on F3News: [GOP Support of Senate Health Repeal Erodes During Break - New York Times](http://www.f3nws.com/n/s3kW3F)
