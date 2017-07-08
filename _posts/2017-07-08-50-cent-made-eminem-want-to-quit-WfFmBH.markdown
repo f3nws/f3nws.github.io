@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "50 Cent made Eminem want to quit"
-date: 2017-07-08 13:37:01Z
+date: 2017-07-08 14:17:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Game recognizes game, and Eminem digs 50 Cent's.
 
 Full story on F3News: [50 Cent made Eminem want to quit](http://www.f3nws.com/n/WfFmBH)
 
-> Posted on: Saturday, July 8, 2017 1:37:01 PM
+> Posted on: Saturday, July 8, 2017 2:17:16 PM

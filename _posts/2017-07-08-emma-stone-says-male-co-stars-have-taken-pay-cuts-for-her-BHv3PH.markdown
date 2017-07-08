@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emma Stone says male co-stars have taken pay cuts for her"
-date: 2017-07-08 01:53:50Z
+date: 2017-07-08 14:12:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Emma Stone may be playing tennis legend Billie Jean King 40 years after King's m
 
 Full story on F3News: [Emma Stone says male co-stars have taken pay cuts for her](http://www.f3nws.com/n/BHv3PH)
 
-> Posted on: Saturday, July 8, 2017 1:53:50 AM
+> Posted on: Saturday, July 8, 2017 2:12:20 PM
