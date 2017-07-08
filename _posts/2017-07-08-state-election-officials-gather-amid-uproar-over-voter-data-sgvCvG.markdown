@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "State election officials gather amid uproar over voter data"
-date: 2017-07-08 20:55:31Z
+date: 2017-07-08 21:21:57Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ INDIANAPOLIS (AP) — State election officials gathering this weekend amid an up
 
 Full story on F3News: [State election officials gather amid uproar over voter data](http://www.f3nws.com/n/sgvCvG)
 
-> Posted on: Saturday, July 8, 2017 8:55:31 PM
+> Posted on: Saturday, July 8, 2017 9:21:57 PM
