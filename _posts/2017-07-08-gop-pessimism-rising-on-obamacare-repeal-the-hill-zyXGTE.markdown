@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP pessimism rising on ObamaCare repeal - The Hill](http://thehill.com/sites/default/files/mcconnellmitch_gopleadership_062717getty_0.jpg)
 
-The Hill GOP pessimism rising on ObamaCare repeal The Hill Senate Republicans are returning to Washington increasingly pessimistic about their plan to repeal and replace ObamaCare. They've had to put off plans for a vote next week, and they've seen loyal members either double down on their opposition to the ... Senate GOP and White House plan final, urgent blitz to pass health-care law Washington Post Senate Health Bill Could Both Boost And Undercut Mental Health Funding NPR GOP Support of Senate Health Repeal Erodes During Break New York Times USA TODAY - HuffPost - Madison.com - Fox News all 1,175 news articles »
+The Hill GOP pessimism rising on ObamaCare repeal The Hill Senate Republicans are returning to Washington increasingly pessimistic about their plan to repeal and replace ObamaCare. They've had to put off plans for a vote next week, and they've seen loyal members either double down on their opposition to the ... GOP Support of Senate Health Repeal Erodes During Break New York Times Senate Health Bill Could Both Boost And Undercut Mental Health Funding NPR Senate GOP and White House plan final, urgent blitz to pass health-care law Washington Post CNN - HuffPost - Madison.com - The Tennessean all 1,105 news articles »
 
 
 Full story on F3News: [GOP pessimism rising on ObamaCare repeal - The Hill](http://www.f3nws.com/n/zyXGTE)
