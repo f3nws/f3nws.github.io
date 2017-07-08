@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Questions Putin on Election Meddling at Eagerly Awaited Encounter - New York Times](https://static01.nyt.com/images/2017/07/08/world/08prexy/08prexy-facebookJumbo.jpg)
 
-New York Times Trump Questions Putin on Election Meddling at Eagerly Awaited Encounter New York Times President Donald Trump met with Russian President Vladimir V. Putin at the G20 summit in Hamburg, Germany, on Friday. Credit Stephen Crowley/The New York Times. HAMBURG, Germany — President Trump questioned President Vladimir V. Putin of ... AP News in Brief at 12:04 am EDT Washington Post Putin set a trap and Trump fell into it CNN Trump Handed Putin a Stunning Victory Politico Los Angeles Times - The Hill - ABC News - Washington Examiner all 2,660 news articles »
+New York Times Trump Questions Putin on Election Meddling at Eagerly Awaited Encounter New York Times President Donald Trump met with Russian President Vladimir V. Putin at the G20 summit in Hamburg, Germany, on Friday. Credit Stephen Crowley/The New York Times. HAMBURG, Germany — President Trump questioned President Vladimir V. Putin of ... Putin set a trap and Trump fell into it CNN Trump Handed Putin a Stunning Victory Politico AP News in Brief at 12:04 am EDT Washington Post The Hill - ABC News - Daily Beast - Washington Examiner all 2,866 news articles »
 
 
 Full story on F3News: [Trump Questions Putin on Election Meddling at Eagerly Awaited Encounter - New York Times](http://www.f3nws.com/n/fmZgJH)
