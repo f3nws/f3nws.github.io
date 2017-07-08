@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Pence on that viral NASA photo: Rubio dared me - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170707172131-pence-nasa-touching-photo-super-tease.jpg)
 
-CNN Pence on that viral NASA photo: Rubio dared me CNN (CNN) Mike Pence set social media abuzz Thursday with a photo of him touching a piece of NASA space equipment clearly marked "do not touch." On Friday, the vice president jokingly blamed Florida Sen. Marco Rubio for it. "Sorry @NASA...@MarcoRubio ... Pence mocks his own NASA 'do not touch' blunder Politico NASA gives Pence a pass on touching the space equipment: 'We were going to clean it anyway' The Boston Globe NASA Says Pence Was OK to Touch Hardware Despite Sign NBCNews.com Orlando Sentinel - The Verge - Washington Times - CNET all 226 news articles »
+CNN Pence on that viral NASA photo: Rubio dared me CNN (CNN) Mike Pence set social media abuzz Thursday with a photo of him touching a piece of NASA space equipment clearly marked "do not touch." On Friday, the vice president jokingly blamed Florida Sen. Marco Rubio for it. "Sorry @NASA...@MarcoRubio ... Internet explodes after Pence touches flight hardware labeled 'DO NOT TOUCH' Washington Post NASA gives Pence a pass on touching the space equipment: 'We were going to clean it anyway' The Boston Globe Mike Pence's Space Flight Equipment Gaffe Is a Touchy Subject Newsmax The Verge - Washington Times - CNET - MSNBC all 229 news articles »
 
 
 Full story on F3News: [Pence on that viral NASA photo: Rubio dared me - CNN](http://www.f3nws.com/n/tjnANH)

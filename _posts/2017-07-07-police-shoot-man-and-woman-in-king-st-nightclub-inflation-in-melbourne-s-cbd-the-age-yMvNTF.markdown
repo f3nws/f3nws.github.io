@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Police shoot man and woman in King St nightclub Inflation in Melbourne's CBD - The Age](http://www.theage.com.au/content/dam/images/g/x/7/8/1/2/image.related.socialLead.620x349.gx77yv.png/1499464484450.jpg)
 
-The Age Police shoot man and woman in King St nightclub Inflation in Melbourne's CBD The Age A woman and man have been shot by police at a swingers party at King Street nightclub Inflation in Melbourne's CBD. Police said the shooting happened after a 35-year-old man pulled a handgun on police just after 3am. SHARE; Share on Facebook SHARE ... Police shoot two people at Melbourne nightclub NEWS.com.au Man shot in chest by police after 'pulling out gun' at costume party in Melbourne nightclub ABC Online Police shoot man, woman at Melbourne nightclub SBS 9news.com.au - Huffington Post Australia - Yahoo7 News - Mirage News all 13 news articles »
+The Age Police shoot man and woman in King St nightclub Inflation in Melbourne's CBD The Age A woman and man have been shot by police at a swingers party at King Street nightclub Inflation in Melbourne's CBD. Police said the shooting happened after a 35-year-old man pulled a handgun on police just after 3am. SHARE; Share on Facebook SHARE ... Man shot in chest by police after 'pulling out gun' at costume party in Melbourne nightclub ABC Online Police shoot two people at Melbourne nightclub Herald Sun Two injured after police open fire at Melbourne club 9news.com.au SBS - Huffington Post Australia - Yahoo7 News - Mirage News all 13 news articles »
 
 
 Full story on F3News: [Police shoot man and woman in King St nightclub Inflation in Melbourne's CBD - The Age](http://www.f3nws.com/n/yMvNTF)

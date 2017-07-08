@@ -5,6 +5,8 @@ date: 2017-07-07 18:30:00Z
 categories: wired-top-stories
 ---
 
+![These Days It Makes More Sense for Batman to Be a Villain](https://media.wired.com/photos/595f90d6fd4c067111b11bdd/191:100/pass/Batman_DC-Entertainment.jpg)
+
 'Batman: White Knight' flips the roles of the Joker and the Caped Crusader—and offers up a comics series primed for the 21st century.
 
 
