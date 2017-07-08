@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, Russia announce Syria cease-fire after Trump-Putin talks"
-date: 2017-07-08 05:25:20Z
+date: 2017-07-08 05:52:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ HAMBURG, Germany (AP) — The United States and Russia struck an agreement Frida
 
 Full story on F3News: [US, Russia announce Syria cease-fire after Trump-Putin talks](http://www.f3nws.com/n/TtyedG)
 
-> Posted on: Saturday, July 8, 2017 5:25:20 AM
+> Posted on: Saturday, July 8, 2017 5:52:32 AM

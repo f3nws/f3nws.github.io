@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Smiles and thumbs up from woman charged with killing family"
-date: 2017-07-08 05:25:20Z
+date: 2017-07-08 05:52:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ LAWRENCEVILLE, Ga. (AP) — A woman charged with killing four of her young child
 
 Full story on F3News: [Smiles and thumbs up from woman charged with killing family](http://www.f3nws.com/n/ukcZJG)
 
-> Posted on: Saturday, July 8, 2017 5:25:20 AM
+> Posted on: Saturday, July 8, 2017 5:52:32 AM
