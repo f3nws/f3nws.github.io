@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "KKK and Black Lives Matter hold opposing rallies in Charlottesville"
-date: 2017-07-08 17:51:57Z
+date: 2017-07-08 17:51:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Officials have called for calm ahead of Ku Klux Klan and Black Lives Matter prot
 
 Full story on F3News: [KKK and Black Lives Matter hold opposing rallies in Charlottesville](http://www.f3nws.com/n/S3TdEC)
 
-> Posted on: Saturday, July 8, 2017 5:51:57 PM
+> Posted on: Saturday, July 8, 2017 5:51:00 PM
