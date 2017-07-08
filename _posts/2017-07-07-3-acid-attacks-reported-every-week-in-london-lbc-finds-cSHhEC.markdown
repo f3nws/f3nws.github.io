@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 acid attacks reported every week in London, LBC finds"
-date: 2017-07-07 16:11:29Z
+date: 2017-07-07 16:11:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ London witnesses up to three acid attacks every week, LBC has found, saying the 
 
 Full story on F3News: [3 acid attacks reported every week in London, LBC finds](http://www.f3nws.com/n/cSHhEC)
 
-> Posted on: Friday, July 7, 2017 4:11:29 PM
+> Posted on: Friday, July 7, 2017 4:11:00 PM

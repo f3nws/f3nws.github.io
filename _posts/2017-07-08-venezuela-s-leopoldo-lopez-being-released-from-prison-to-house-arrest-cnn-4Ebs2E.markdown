@@ -7,7 +7,7 @@ categories: cnn-com-world
 
 ![Venezuela's Leopoldo Lopez being released from prison to house arrest - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/140219124741-01-leopoldo-lopez-0219-super-tease.jpg)
 
-CNN Venezuela's Leopoldo Lopez being released from prison to house arrest CNN (CNN) Venezuelan opposition leader Leopoldo Lopez, whose imprisonment has been a rallying cry for anti-regime demonstrators, has been ordered released to house arrest because of health concerns, the nation's Supreme Court said Saturday morning. Jailed Venezuela opposition leader Lopez given house arrest Washington Post Venezuelan Court Lets Opposition Leader Leave Prison Under House Arrest NPR Leopoldo Lopez, jailed Venezuela opposition leader, transferred to house arrest CBS News BBC News - Miami Herald - Bloomberg - Wall Street Journal (subscription) all 31 news articles »
+CNN Venezuela's Leopoldo Lopez being released from prison to house arrest CNN (CNN) Venezuelan opposition leader Leopoldo Lopez, whose imprisonment has been a rallying cry for anti-regime demonstrators, has been ordered released to house arrest because of health concerns, the nation's Supreme Court said Saturday morning. Venezuela Crisis: Opposition Leader Leopoldo Lopez Released From Jail, Given House Arrest NBCNews.com Venezuelan Court Lets Opposition Leader Leave Prison Under House Arrest NPR Venezuela opposition leader Lopez freed and under house arrest BBC News Miami Herald - Bloomberg - Newsmax - Voice of America all 32 news articles »
 
 
 Full story on F3News: [Venezuela's Leopoldo Lopez being released from prison to house arrest - CNN](http://www.f3nws.com/n/4Ebs2E)

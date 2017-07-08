@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Acrobat Dies Before Green Day's Set at Music Festival in Spain - RollingStone.com](http://img.wennermedia.com/social/gettyimages-696896662-9a253a95-0f64-4578-8999-40f9a92670f3.jpg)
 
-RollingStone.com Acrobat Dies Before Green Day's Set at Music Festival in Spain RollingStone.com "We just got off stage at Mad Cool Festival to disturbing news. A very brave artist named Pedro lost his life tonight in a tragic accident," band says. An acrobat died after plunging over 100 feet while performing a feat prior to Green Day's Friday ... Acrobat plummets to death in rock music festival in Madrid Washington Post Acrobat Falls to Death Prior to Green Day's Performance at Spanish Festival Diffuser.fm Pedro Aunion Monroy left a heartbreaking final message to his boyfriend before he fell to his death NEWS.com.au Independent.ie - Daily Star - RTE.ie - AOL UK all 40 news articles »
+RollingStone.com Acrobat Dies Before Green Day's Set at Music Festival in Spain RollingStone.com "We just got off stage at Mad Cool Festival to disturbing news. A very brave artist named Pedro lost his life tonight in a tragic accident," band says. An acrobat died after plunging over 100 feet while performing a feat prior to Green Day's Friday ... Acrobat death fall at Mad Cool festival in Madrid BBC News Acrobat Falls to Death Prior to Green Day's Performance at Spanish Festival Diffuser.fm Acrobat Plummets to Death in Rock Music Festival in Madrid NBC 5 Dallas-Fort Worth Express.co.uk - Independent.ie - JOE - NEWS.com.au all 46 news articles »
 
 
 Full story on F3News: [Acrobat Dies Before Green Day's Set at Music Festival in Spain - RollingStone.com](http://www.f3nws.com/n/x3XffF)
