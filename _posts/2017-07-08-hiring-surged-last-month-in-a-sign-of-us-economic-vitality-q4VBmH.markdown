@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hiring surged last month in a sign of US economic vitality"
-date: 2017-07-08 10:54:08Z
+date: 2017-07-08 11:21:28Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — Hiring surged in June in a surprising show of U.S. economic 
 
 Full story on F3News: [Hiring surged last month in a sign of US economic vitality](http://www.f3nws.com/n/q4VBmH)
 
-> Posted on: Saturday, July 8, 2017 10:54:08 AM
+> Posted on: Saturday, July 8, 2017 11:21:28 AM
