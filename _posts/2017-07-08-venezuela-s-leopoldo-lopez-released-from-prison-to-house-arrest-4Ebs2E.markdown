@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's Leopoldo Lopez released from prison to house arrest"
-date: 2017-07-08 17:16:10Z
+date: 2017-07-08 18:58:25Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Venezuelan opposition leader Leopoldo Lopez, whose imprisonment has been a rally
 
 Full story on F3News: [Venezuela's Leopoldo Lopez released from prison to house arrest](http://www.f3nws.com/n/4Ebs2E)
 
-> Posted on: Saturday, July 8, 2017 5:16:10 PM
+> Posted on: Saturday, July 8, 2017 6:58:25 PM
