@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Donald Trump puts US in a club of one - CNN"
+date: 2017-07-08 21:16:53Z
+categories: google-news-top-stories
+---
+
+![Donald Trump puts US in a club of one - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170707182821-09-week-in-politics-0708-super-tease.jpg)
+
+CNN Donald Trump puts US in a club of one CNN (CNN) It wasn't quite the G19 summit, but President Donald Trump's approach to foreign affairs is severely straining global cohesion on key issues like climate change and free trade, exchanging an aggressive, traditional American leadership role for ... AP News in Brief at 6:04 pm EDT Washington Post Russians Call Putin's Trump Meeting Win, but Doubt Concrete Gains New York Times 5 takeaways from Trump's dramatic weekend with world leaders The Hill ABC News - HuffPost - The Boston Globe - Miami Herald all 3,714 news articles »
+
+
+Full story on F3News: [Donald Trump puts US in a club of one - CNN](http://www.f3nws.com/n/XadKgG)
+
+> Posted on: Saturday, July 8, 2017 9:16:53 PM
