@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The KKK rally in Charlottesville was outnumbered by counterprotesters - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170708155309-charlottesville-anti-kkk-protest-irpt-super-tease.jpg)
 
-CNN The KKK rally in Charlottesville was outnumbered by counterprotesters CNN (CNN) A Ku Klux Klan rally in Charlottesville, Virginia, drew about 50 Klan members and supporters Saturday -- and several hundred counterprotesters, authorities said. Members of the North Carolina-based Loyal White Knights of the Ku Klux Klan -- some ... The Ku Klux Klan was dead. The first Hollywood blockbuster revived it. Washington Post 23 Arrested and Tear Gas Deployed After a KKK Rally in Virginia New York Times KKK rally in Charlottesville met with throng of protesters USA TODAY NPR - Daily Beast - CBS News - HuffPost all 168 news articles »
+CBS News The KKK rally in Charlottesville was outnumbered by counterprotesters CNN (CNN) A Ku Klux Klan rally in Charlottesville, Virginia, drew about 50 Klan members and supporters Saturday -- and several hundred counterprotesters, authorities said. Members of the North Carolina-based Loyal White Knights of the Ku Klux Klan -- some ... The Ku Klux Klan was dead. The first Hollywood blockbuster revived it. Washington Post Small KKK rally draws large counterprotest in Virginia AL.com 23 Arrested and Tear Gas Deployed After a KKK Rally in Virginia New York Times USA TODAY - NPR - Daily Beast - CBS News all 168 news articles »
 
 
 Full story on F3News: [The KKK rally in Charlottesville was outnumbered by counterprotesters - CNN](http://www.f3nws.com/n/2zRxYC)
