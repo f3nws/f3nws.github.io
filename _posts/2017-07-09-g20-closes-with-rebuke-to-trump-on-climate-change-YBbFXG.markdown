@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "G20 closes with rebuke to Trump on climate change"
-date: 2017-07-09 11:15:46Z
+date: 2017-07-09 12:23:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ German Chancellor Angela Merkel closed the G20 summit in Hamburg with a rebuke t
 
 Full story on F3News: [G20 closes with rebuke to Trump on climate change](http://www.f3nws.com/n/YBbFXG)
 
-> Posted on: Sunday, July 9, 2017 11:15:46 AM
+> Posted on: Sunday, July 9, 2017 12:23:55 PM
