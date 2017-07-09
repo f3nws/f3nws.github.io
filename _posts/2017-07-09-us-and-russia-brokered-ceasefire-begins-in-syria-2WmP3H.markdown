@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US and Russia brokered ceasefire begins in Syria"
-date: 2017-07-09 11:42:14Z
+date: 2017-07-09 13:23:37Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A ceasefire brokered by the US, Russia and Jordan went into effect Sunday in sou
 
 Full story on F3News: [US and Russia brokered ceasefire begins in Syria](http://www.f3nws.com/n/2WmP3H)
 
-> Posted on: Sunday, July 9, 2017 11:42:14 AM
+> Posted on: Sunday, July 9, 2017 1:23:37 PM
