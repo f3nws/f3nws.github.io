@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['The time is now': Liberal senator confirms same-sex marriage push - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/r/e/w/e/f/image.related.articleLeadwide.620x349.gx7ij7.png/1499561398009.jpg)
 
-The Sydney Morning Herald 'The time is now': Liberal senator confirms same-sex marriage push The Sydney Morning Herald A Liberal senator has publicly confirmed he is drafting a bill to legalise same-sex marriage, declaring the "time is now" for the historic reform. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Senator Dean Smith has spoken for the first ... Liberal MP Dean Smith The Australian Marriage equality: Liberal senator drafts private member's bill in defiance of party The Guardian Dean Smith Will Take A Same-Sex Marriage Bill To The Liberal Party Room BuzzFeed News Perth Now all 8 news articles »
+The Sydney Morning Herald 'The time is now': Liberal senator confirms same-sex marriage push The Sydney Morning Herald A Liberal senator has publicly confirmed he is drafting a bill to legalise same-sex marriage, declaring the "time is now" for the historic reform. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Senator Dean Smith has spoken for the first ... WA senator seeking parliament gay vote SBS Liberal MP Dean Smith The Australian Marriage equality: Liberal senator drafts private member's bill in defiance of party The Guardian BuzzFeed News - Perth Now all 8 news articles »
 
 
 Full story on F3News: ['The time is now': Liberal senator confirms same-sex marriage push - The Sydney Morning Herald](http://www.f3nws.com/n/EtUFmB)
