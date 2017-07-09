@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin hails meeting, thinks Trump accepted election denials"
-date: 2017-07-09 00:21:06Z
+date: 2017-07-09 00:50:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ HAMBURG, Germany (AP) — Russian President Vladimir Putin hailed his first face
 
 Full story on F3News: [Putin hails meeting, thinks Trump accepted election denials](http://www.f3nws.com/n/TJYZt)
 
-> Posted on: Sunday, July 9, 2017 12:21:06 AM
+> Posted on: Sunday, July 9, 2017 12:50:00 AM
