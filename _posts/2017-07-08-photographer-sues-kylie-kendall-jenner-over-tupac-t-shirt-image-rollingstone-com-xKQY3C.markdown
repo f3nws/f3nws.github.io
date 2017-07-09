@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Photographer Sues Kylie, Kendall Jenner Over Tupac T-Shirt Image - RollingStone.com](http://img.wennermedia.com/social/gettyimages-631394596-26c35913-62ca-48ca-a7ba-07c742cf480d.jpg)
 
-RollingStone.com Photographer Sues Kylie, Kendall Jenner Over Tupac T-Shirt Image RollingStone.com The photographer who shot the Tupac Shakur portraits that Kendall and Kylie Jenner used for their controversial T-shirt line has sued the sisters. By Daniel Kreps. 8 hours ago. More News. Arcade Fire Satirize Kendall, Kylie Jenner T-Shirt Controversy ... Sued By Photographer TMZ.com Photographer Sues Kylie & Kendall Jenner Over T-Shirts Using His Tupac Photos Billboard Did Kendall and Kylie steal Tupac pics for their T-shirt fiasco? USA TODAY Los Angeles Times - PerezHilton.com - Page Six - ABC News all 41 news articles »
+RollingStone.com Photographer Sues Kylie, Kendall Jenner Over Tupac T-Shirt Image RollingStone.com The photographer who shot the Tupac Shakur portraits that Kendall and Kylie Jenner used for their controversial T-shirt line has sued the sisters. By Daniel Kreps. 16 hours ago. More News. Arcade Fire Satirize Kendall, Kylie Jenner T-Shirt Controversy ... Kylie Jenner Sizzles In Sexy Getup WhileCheering On Travis Scott At Concert WithBella & Kendall Hollywood Life Did Kendall and Kylie steal Tupac pics for their T-shirt fiasco? USA TODAY Kendall Jenner, Kylie Jenner reflect on Kendall + Kylie line's evolution Los Angeles Times The BoomBox - TMZ.com - Billboard - PerezHilton.com all 72 news articles »
 
 
 Full story on F3News: [Photographer Sues Kylie, Kendall Jenner Over Tupac T-Shirt Image - RollingStone.com](http://www.f3nws.com/n/xKQY3C)

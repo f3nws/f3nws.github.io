@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Donal Logue's Missing Daughter Jade Found Safe, Returned Home - Comicbook.com](http://media.comicbook.com/2017/07/donal-logue-1005788-640x320.png)
 
-Comicbook.com Donal Logue's Missing Daughter Jade Found Safe, Returned Home Comicbook.com Donal Logue's daughter Jade is now back home safe after first being reported missing nearly two weeks ago. The Gotham star's rep confirmed the news on Saturday, stating she is “now safely back home with her family.” Jade first went missing on June 26 ... Donal Logue's Daughter Jade Is No Longer Missing and Is ''Safely Back Home'' E! Online Donal Logue's Daughter Jade, 16, Found &Is 'Safely Back Home' Hollywood Life 'Gotham' Star Donal Logue's Missing Daughter Jade Has Been Found UPROXX New York Daily News - ABC News - Washington Post - TMZ.com all 53 news articles »
+Comicbook.com Donal Logue's Missing Daughter Jade Found Safe, Returned Home Comicbook.com Donal Logue's daughter Jade is now back home safe after first being reported missing nearly two weeks ago. The Gotham star's rep confirmed the news on Saturday, stating she is “now safely back home with her family.” Jade first went missing on June 26 ... Donal Logue's Daughter Jade Is No Longer Missing and Is ''Safely Back Home'' E! Online Donal Logue's Missing Teen Daughter Returned Home Safely Hollywood Reporter Donal Logue's Missing Daughter Has Been Found Safe and Sound Variety Hollywood Life - PEOPLE.com - PerezHilton.com - Vulture all 57 news articles »
 
 
 Full story on F3News: [Donal Logue's Missing Daughter Jade Found Safe, Returned Home - Comicbook.com](http://www.f3nws.com/n/gFkhjC)
