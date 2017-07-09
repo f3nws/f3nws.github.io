@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017: deals are coming from 6pm tomorrow"
-date: 2017-07-09 10:25:00Z
+date: 2017-07-09 14:18:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ On Amazon Prime Day last year, you bought enough Game of Thrones books to outwei
 
 Full story on F3News: [The best Amazon Prime Day deals 2017: deals are coming from 6pm tomorrow](http://www.f3nws.com/n/qeZARG)
 
-> Posted on: Sunday, July 9, 2017 10:25:00 AM
+> Posted on: Sunday, July 9, 2017 2:18:00 PM

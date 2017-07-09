@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Actor Shia LaBeouf arrested on public drunkenness charge"
-date: 2017-07-09 05:03:58Z
+date: 2017-07-09 14:56:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Shia LaBeouf was arrested Saturday in Savannah, Georgia, and charged with 
 
 Full story on F3News: [Actor Shia LaBeouf arrested on public drunkenness charge](http://www.f3nws.com/n/WqRGkC)
 
-> Posted on: Sunday, July 9, 2017 5:03:58 AM
+> Posted on: Sunday, July 9, 2017 2:56:20 PM
