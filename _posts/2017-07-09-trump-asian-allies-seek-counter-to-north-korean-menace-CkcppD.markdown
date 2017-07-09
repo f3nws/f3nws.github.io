@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Asian allies seek counter to North Korean 'menace'"
-date: 2017-07-09 01:58:11Z
+date: 2017-07-09 02:25:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ HAMBURG, Germany (AP) — Wrapping up his second European tour, President Donald
 
 Full story on F3News: [Trump, Asian allies seek counter to North Korean 'menace'](http://www.f3nws.com/n/CkcppD)
 
-> Posted on: Sunday, July 9, 2017 1:58:11 AM
+> Posted on: Sunday, July 9, 2017 2:25:16 AM
