@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Asian allies seek counter to North Korean 'menace'"
-date: 2017-07-09 02:33:14Z
+date: 2017-07-09 07:10:14Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will meet with a long list of world leaders Saturday as h
 
 Full story on F3News: [Trump, Asian allies seek counter to North Korean 'menace'](http://www.f3nws.com/n/EeSFjG)
 
-> Posted on: Sunday, July 9, 2017 2:33:14 AM
+> Posted on: Sunday, July 9, 2017 7:10:14 AM
