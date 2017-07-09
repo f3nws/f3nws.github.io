@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First Tesla Model 3 rolls off production line, goes to Musk     - Roadshow"
-date: 2017-07-09 15:12:38Z
+date: 2017-07-09 15:45:42Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Elon Musk has shared pictures of the first lower-cost Tesla to leave the factory
 
 Full story on F3News: [First Tesla Model 3 rolls off production line, goes to Musk     - Roadshow](http://www.f3nws.com/n/zusjFG)
 
-> Posted on: Sunday, July 9, 2017 3:12:38 PM
+> Posted on: Sunday, July 9, 2017 3:45:42 PM
