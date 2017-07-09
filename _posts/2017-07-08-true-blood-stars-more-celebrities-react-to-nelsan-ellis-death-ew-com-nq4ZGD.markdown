@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![True Blood stars, more celebrities react to Nelsan Ellis' death - EW.com](http://i2.wp.com/ewedit.files.wordpress.com/2017/07/nelsan-ellis-true-blood-cast.jpg?crop=0px%2C0px%2C1800px%2C945px&resize=1200%2C630&ssl=1)
 
-EW.com True Blood stars, more celebrities react to Nelsan Ellis' death EW.com Nelsan Ellis' True Blood family is particularly shaken by news of the actor's death. Stephen Moyer, Deborah Ann Woll, Joe Manganiello, Michael McMillian, Kristin Bauer van Straten, and more shared their reactions on social media after Ellis died from ... Nelsan Ellis Dies: 'True Blood' Star Was 39 Deadline How Nelsan Ellis' Beloved 'True Blood' Character, Lafayette, Left His Mark On The TV Landscape Bustle Nelsan Ellis, Lafayette on 'True Blood,' Dead at 39 RollingStone.com USA TODAY - ABC News - E! Online - Hollywood Life all 82 news articles »
+EW.com True Blood stars, more celebrities react to Nelsan Ellis' death EW.com Nelsan Ellis' True Blood family is particularly shaken by news of the actor's death. Stephen Moyer, Anna Paquin, Deborah Ann Woll, Joe Manganiello, Kristin Bauer van Straten, and more shared their reactions on social media after Ellis died from heart ... Nelsan Ellis, who played Lafayette Reynolds on 'True Blood,' is dead at 39 Los Angeles Times 'True Blood' Star Nelsan Ellis Dies at 39 Hollywood Reporter True Blood' Actor Nelsan Ellis Dies at 39 NBCNews.com BBC News - New York Times - Deadline - E! Online all 169 news articles »
 
 
 Full story on F3News: [True Blood stars, more celebrities react to Nelsan Ellis' death - EW.com](http://www.f3nws.com/n/nq4ZGD)
