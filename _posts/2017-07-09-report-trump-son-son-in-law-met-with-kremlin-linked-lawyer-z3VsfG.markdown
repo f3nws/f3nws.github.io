@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Trump son, son-in-law met with Kremlin-linked lawyer"
-date: 2017-07-09 08:49:11Z
+date: 2017-07-09 09:16:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — Donald Trump's eldest son, son-in-law and then-campaign chai
 
 Full story on F3News: [Report: Trump son, son-in-law met with Kremlin-linked lawyer](http://www.f3nws.com/n/z3VsfG)
 
-> Posted on: Sunday, July 9, 2017 8:49:11 AM
+> Posted on: Sunday, July 9, 2017 9:16:44 AM
