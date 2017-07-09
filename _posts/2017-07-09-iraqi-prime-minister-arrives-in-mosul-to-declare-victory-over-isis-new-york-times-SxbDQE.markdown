@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Iraqi Prime Minister Arrives in Mosul to Declare Victory Over ISIS - New York Times](https://static01.nyt.com/images/2017/07/10/world/10MOSUL1/10MOSUL1-facebookJumbo.jpg)
 
-New York Times Iraqi Prime Minister Arrives in Mosul to Declare Victory Over ISIS New York Times Mosul's Old City on Sunday. Iraqi forces have been battling for months to wrest control of the city from ISIS militants. Credit Ahmad Al-Rubaye/Agence France-Presse — Getty Images. MOSUL, Iraq — Dressed in a military uniform, Prime Minister Haider ... Iraqi forces declare victory over Islamic State in Mosul, but fighting continues Washington Post Mosul Has Been Liberated From ISIS Control, Iraq's Prime Minister Says NPR Iraqi PM congratulates troops in Mosul, declares victory over ISIS CBS News Reuters - The Hill - New York Daily News - The Atlantic all 442 news articles »
+New York Times Iraqi Prime Minister Arrives in Mosul to Declare Victory Over ISIS New York Times Mosul's Old City on Sunday. Iraqi forces have been battling for months to wrest control of the city from ISIS militants. Credit Ahmad Al-Rubaye/Agence France-Presse — Getty Images. MOSUL, Iraq — Dressed in a military uniform, Prime Minister Haider ... Iraqi forces declare victory over Islamic State in Mosul, but fighting continues Washington Post Mosul battle: Haunted faces of families freed from IS BBC News Mosul Has Been Liberated From ISIS Control, Iraq's Prime Minister Says NPR CBS News - Reuters - The Hill - The Atlantic all 452 news articles »
 
 
 Full story on F3News: [Iraqi Prime Minister Arrives in Mosul to Declare Victory Over ISIS - New York Times](http://www.f3nws.com/n/SxbDQE)
