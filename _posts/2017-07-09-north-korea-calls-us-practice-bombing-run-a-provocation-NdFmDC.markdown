@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea calls US practice bombing run a provocation"
-date: 2017-07-09 11:20:35Z
+date: 2017-07-09 11:47:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ SEOUL, South Korea (AP) — North Korean state media have sharply criticized a r
 
 Full story on F3News: [North Korea calls US practice bombing run a provocation](http://www.f3nws.com/n/NdFmDC)
 
-> Posted on: Sunday, July 9, 2017 11:20:35 AM
+> Posted on: Sunday, July 9, 2017 11:47:48 AM
