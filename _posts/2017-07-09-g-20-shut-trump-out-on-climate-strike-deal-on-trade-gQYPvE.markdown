@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "G-20 shut Trump out on climate, strike deal on trade"
-date: 2017-07-09 05:50:57Z
+date: 2017-07-09 06:18:26Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ HAMBURG, Germany (AP) — World powers lined up against U.S. President Donald Tr
 
 Full story on F3News: [G-20 shut Trump out on climate, strike deal on trade](http://www.f3nws.com/n/gQYPvE)
 
-> Posted on: Sunday, July 9, 2017 5:50:57 AM
+> Posted on: Sunday, July 9, 2017 6:18:26 AM
