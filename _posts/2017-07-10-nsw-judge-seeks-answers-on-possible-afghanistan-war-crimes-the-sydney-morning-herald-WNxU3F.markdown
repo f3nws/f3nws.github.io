@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![NSW judge seeks answers on possible Afghanistan war crimes - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/7/z/o/u/image.related.articleLeadwide.620x349.gx7wna.png/1499652361647.jpg)
 
-The Sydney Morning Herald NSW judge seeks answers on possible Afghanistan war crimes The Sydney Morning Herald Afghanistan, 2008. A crude rocket fired by insurgents explodes in a cloud of dust and rock near a platoon of Australian commandos. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. A photo of what ABC News report is possibly an Army ... Aussie troops investigated over alleged war crimes against children 9news.com.au Investigation into alleged killing by special forces in Afghanistan SBS all 6 news articles »
+The Sydney Morning Herald NSW judge seeks answers on possible Afghanistan war crimes The Sydney Morning Herald Afghanistan, 2008. A crude rocket fired by insurgents explodes in a cloud of dust and rock near a platoon of Australian commandos. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. A photo of what ABC News report is possibly an Army ... Aussie troops investigated over alleged war crimes against children 9news.com.au Investigation into alleged killing by special forces in Afghanistan SBS Australian special forces 'shot a 14-year-old Afghan boy dead, left his body in a ditch and tried to cover up the ... Daily Mail all 6 news articles »
 
 
 Full story on F3News: [NSW judge seeks answers on possible Afghanistan war crimes - The Sydney Morning Herald](http://www.f3nws.com/n/WNxU3F)
