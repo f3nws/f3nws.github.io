@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mosul completely freed from ISIS: What's next for the city left in ruins? - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170710153317-iraq-forces-isis-flag-mosul-super-tease.jpg)
 
-CNN Mosul completely freed from ISIS: What's next for the city left in ruins? CNN (CNN) Flanked by Iraqi forces of all stripes, Prime Minister Haider al-Abadi declared Mosul has been recaptured from ISIS. "From here, from the heart of the liberated and free Mosul, by the sacrifices of the Iraqis from all the provinces, we declare ... Iraq's Moment of Celebration Is One of Deeper Risk, Too New York Times Mosul defeat a blow to IS, but not the end BBC News 'Mosul Is Completely Destroyed' The Atlantic Reuters - The Hill - ABC News - Washington Post all 1,030 news articles »
+CNN Mosul completely freed from ISIS: What's next for the city left in ruins? CNN (CNN) Flanked by Iraqi forces of all stripes, Prime Minister Haider al-Abadi declared Mosul has been recaptured from ISIS. "From here, from the heart of the liberated and free Mosul, by the sacrifices of the Iraqis from all the provinces, we declare ... Iraq's Moment of Celebration Is One of Deeper Risk, Too New York Times US and Iraq Declare Victory Over ISIS in Mosul NBCNews.com 'Mosul Is Completely Destroyed' The Atlantic BBC News - The Hill - Washington Post - Fox News all 1,046 news articles »
 
 
 Full story on F3News: [Mosul completely freed from ISIS: What's next for the city left in ruins? - CNN](http://www.f3nws.com/n/SCVB3B)
