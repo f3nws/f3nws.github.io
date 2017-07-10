@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reliance Jio Customers' Data Allegedly Hacked – Company Denies Breach"
-date: 2017-07-10 08:56:53Z
+date: 2017-07-10 09:38:32Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Personal details of some 120 Million customers have been allegedly exposed on th
 
 Full story on F3News: [Reliance Jio Customers' Data Allegedly Hacked – Company Denies Breach](http://www.f3nws.com/n/sDxrbH)
 
-> Posted on: Monday, July 10, 2017 8:56:53 AM
+> Posted on: Monday, July 10, 2017 9:38:32 AM
