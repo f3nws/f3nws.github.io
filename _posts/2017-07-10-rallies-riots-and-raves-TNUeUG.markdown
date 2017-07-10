@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rallies, riots and raves"
-date: 2017-07-10 13:52:11Z
+date: 2017-07-10 15:31:03Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Julia Reusing stood teary eyed under a strip of halogen lights in Hamburg's red 
 
 Full story on F3News: [Rallies, riots and raves](http://www.f3nws.com/n/TNUeUG)
 
-> Posted on: Monday, July 10, 2017 1:52:11 PM
+> Posted on: Monday, July 10, 2017 3:31:03 PM
