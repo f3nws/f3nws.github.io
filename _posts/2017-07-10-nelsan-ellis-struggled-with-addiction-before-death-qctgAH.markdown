@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nelsan Ellis struggled with addiction before death"
-date: 2017-07-10 19:07:02Z
+date: 2017-07-10 21:11:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The family of late "True Blood" actor Nelsan Ellis says the actor was attempting
 
 Full story on F3News: [Nelsan Ellis struggled with addiction before death](http://www.f3nws.com/n/qctgAH)
 
-> Posted on: Monday, July 10, 2017 7:07:02 PM
+> Posted on: Monday, July 10, 2017 9:11:21 PM
