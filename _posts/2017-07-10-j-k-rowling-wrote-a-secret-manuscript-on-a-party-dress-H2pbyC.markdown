@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "J.K. Rowling wrote a secret manuscript on a party dress"
-date: 2017-07-10 07:30:45Z
+date: 2017-07-10 11:42:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Two decades ago, J.K. Rowling conjured up Harry Potter, an orphaned young wizard
 
 Full story on F3News: [J.K. Rowling wrote a secret manuscript on a party dress](http://www.f3nws.com/n/H2pbyC)
 
-> Posted on: Monday, July 10, 2017 7:30:45 AM
+> Posted on: Monday, July 10, 2017 11:42:17 AM

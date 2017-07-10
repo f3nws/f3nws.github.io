@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best Kindle: which ereader should you buy?"
-date: 2017-07-10 11:08:00Z
+date: 2017-07-10 11:15:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Screw the printed word - it's all digital now. These are the best Amazon Kindles
 
 Full story on F3News: [Best Kindle: which ereader should you buy?](http://www.f3nws.com/n/xUvsnF)
 
-> Posted on: Monday, July 10, 2017 11:08:00 AM
+> Posted on: Monday, July 10, 2017 11:15:00 AM
