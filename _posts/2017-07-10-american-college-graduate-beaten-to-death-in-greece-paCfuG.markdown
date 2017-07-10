@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American college graduate beaten to death in Greece"
-date: 2017-07-10 08:49:39Z
+date: 2017-07-10 14:18:52Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ An American tourist was beaten to death by a group of 10 men while visiting a Gr
 
 Full story on F3News: [American college graduate beaten to death in Greece](http://www.f3nws.com/n/paCfuG)
 
-> Posted on: Monday, July 10, 2017 8:49:39 AM
+> Posted on: Monday, July 10, 2017 2:18:52 PM
