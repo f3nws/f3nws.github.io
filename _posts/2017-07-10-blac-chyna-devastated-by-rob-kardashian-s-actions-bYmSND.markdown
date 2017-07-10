@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blac Chyna 'devastated' by Rob Kardashian's actions"
-date: 2017-07-10 14:14:20Z
+date: 2017-07-10 14:51:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Blac Chyna wants Rob Kardashian to stay away and stop posting about her on socia
 
 Full story on F3News: [Blac Chyna 'devastated' by Rob Kardashian's actions](http://www.f3nws.com/n/bYmSND)
 
-> Posted on: Monday, July 10, 2017 2:14:20 PM
+> Posted on: Monday, July 10, 2017 2:51:17 PM
