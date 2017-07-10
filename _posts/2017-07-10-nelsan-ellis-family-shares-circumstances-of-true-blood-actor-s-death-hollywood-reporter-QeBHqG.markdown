@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Nelsan Ellis' Family Shares Circumstances of 'True Blood' Actor's Death - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/07/screen_shot_2017-07-08_at_11.jpg)
 
-KMBC Kansas City Nelsan Ellis' Family Shares Circumstances of 'True Blood' Actor's Death Hollywood Reporter The actor died Saturday of heart failure due to alcohol withdrawal complications, the family said. "Nelsan was a gentle, generous and kind soul." Nelsan Ellis, the actor who starred on HBO's True Blood as the fan-favorite Lafayette Reynolds, struggled ... Third Time's a Charm for Spider-Man Vanity Fair Nelsan Ellis, RIP: The Director of 'Little Boxes' Salutes One of the Actor's Final Film Roles IndieWire Nelsan Ellis As Lafayette Challenged Norms Of Black Maleness HuffPost The Mercury News - Bustle - EW.com (blog) - NPR all 110 news articles »
+Hollywood Reporter Nelsan Ellis' Family Shares Circumstances of 'True Blood' Actor's Death Hollywood Reporter The actor died Saturday of heart failure due to alcohol withdrawal complications, the family said. "Nelsan was a gentle, generous and kind soul." Nelsan Ellis, the actor who starred on HBO's True Blood as the fan-favorite Lafayette Reynolds, struggled ... Nelsan Ellis' family says he died from heart failure due to alcohol-withdrawal complications ABC News Third Time's a Charm for Spider-Man Vanity Fair Nelsan Ellis, RIP: The Director of 'Little Boxes' Salutes One of the Actor's Final Film Roles IndieWire NPR - HuffPost - The Mercury News - EW.com (blog) all 112 news articles »
 
 
 Full story on F3News: [Nelsan Ellis' Family Shares Circumstances of 'True Blood' Actor's Death - Hollywood Reporter](http://www.f3nws.com/n/QeBHqG)

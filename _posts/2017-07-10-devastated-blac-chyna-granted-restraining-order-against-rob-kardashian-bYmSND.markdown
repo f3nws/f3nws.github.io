@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Devastated' Blac Chyna granted restraining order against Rob Kardashian"
-date: 2017-07-10 21:08:52Z
+date: 2017-07-10 22:07:22Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Blac Chyna wants Rob Kardashian to stay away and stop posting about her on socia
 
 Full story on F3News: ['Devastated' Blac Chyna granted restraining order against Rob Kardashian](http://www.f3nws.com/n/bYmSND)
 
-> Posted on: Monday, July 10, 2017 9:08:52 PM
+> Posted on: Monday, July 10, 2017 10:07:22 PM
