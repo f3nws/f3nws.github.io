@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi leader congratulates troops in Mosul; fight goes on"
-date: 2017-07-10 00:48:54Z
+date: 2017-07-10 01:16:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ MOSUL, Iraq (AP) — Prime Minister Haider al-Abadi congratulated Iraqi troops S
 
 Full story on F3News: [Iraqi leader congratulates troops in Mosul; fight goes on](http://www.f3nws.com/n/ZMNMRC)
 
-> Posted on: Monday, July 10, 2017 12:48:54 AM
+> Posted on: Monday, July 10, 2017 1:16:03 AM
