@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Cardinal George Pell returns to Australia to face historical sex abuse charges - The Sydney Morning Herald"
-date: 2017-07-09 20:27:00Z
+date: 2017-07-09 20:56:17Z
 categories: google-news-australia
 ---
 
 ![Cardinal George Pell returns to Australia to face historical sex abuse charges - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/7/u/q/7/image.related.articleLeadwide.620x349.gx7usn.png/1499634236179.jpg)
 
-The Sydney Morning Herald Cardinal George Pell returns to Australia to face historical sex abuse charges The Sydney Morning Herald The 76-year-old landed at Sydney Airport at 5.55am on Monday after flying in from the Vatican via Singapore. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Cardinal George Pell landed in Sydney on Monday morning. Photo: Nick Moir. Cardinal George Pell lands in Australia The Australian Cardinal George Pell lands in Sydney ahead of court appearance for alleged historical sexual offences 9news.com.au Report: Cardinal Pell to face abuse charges in Australia Eyewitness News The West Australian - The Independent - Daily Mail all 11 news articles »
+The Sydney Morning Herald Cardinal George Pell returns to Australia to face historical sex abuse charges The Sydney Morning Herald The 76-year-old landed at Sydney Airport at 5.55am on Monday after flying in from the Vatican via Singapore. Play Video. Play. Mute. Current Time 0:00. /. Duration Time 0:00. Loaded: 0%. Progress: 0%. Stream TypeLIVE. Remaining Time -0:00. Playback ... Pell lands in Australia to face charges The Australian Cardinal George Pell arrives in Sydney ahead of court appearance on sex abuse charges ABC Online Fears that George Pell might not get a fair go drive calls for judge-only trials The Age CTV News - 9news.com.au - The Sunshine Coast Daily - Irish Times all 46 news articles »
 
 
 Full story on F3News: [Cardinal George Pell returns to Australia to face historical sex abuse charges - The Sydney Morning Herald](http://www.f3nws.com/n/Ad2E4D)
 
-> Posted on: Sunday, July 9, 2017 8:27:00 PM
+> Posted on: Sunday, July 9, 2017 8:56:17 PM
