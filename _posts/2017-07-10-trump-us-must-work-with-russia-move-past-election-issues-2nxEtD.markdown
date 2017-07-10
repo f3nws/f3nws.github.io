@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: US must work with Russia, move past election issues"
-date: 2017-07-10 00:21:41Z
+date: 2017-07-10 00:48:54Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — President Donald Trump said Sunday that "it is time to move 
 
 Full story on F3News: [Trump: US must work with Russia, move past election issues](http://www.f3nws.com/n/2nxEtD)
 
-> Posted on: Monday, July 10, 2017 12:21:41 AM
+> Posted on: Monday, July 10, 2017 12:48:54 AM

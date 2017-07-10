@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Goal of nation's first opioid court: Keep users alive"
-date: 2017-07-10 00:21:41Z
+date: 2017-07-10 00:48:54Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BUFFALO, N.Y. (AP) — After three defendants fatally overdosed in a single week
 
 Full story on F3News: [Goal of nation's first opioid court: Keep users alive](http://www.f3nws.com/n/YQdS4D)
 
-> Posted on: Monday, July 10, 2017 12:21:41 AM
+> Posted on: Monday, July 10, 2017 12:48:54 AM
