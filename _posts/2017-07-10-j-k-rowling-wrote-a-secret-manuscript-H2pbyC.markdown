@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "J.K. Rowling wrote a secret manuscript"
-date: 2017-07-10 11:42:17Z
+date: 2017-07-10 19:19:34Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Two decades ago, J.K. Rowling conjured up Harry Potter, an orphaned young wizard
 
 Full story on F3News: [J.K. Rowling wrote a secret manuscript](http://www.f3nws.com/n/H2pbyC)
 
-> Posted on: Monday, July 10, 2017 11:42:17 AM
+> Posted on: Monday, July 10, 2017 7:19:34 PM
