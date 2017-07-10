@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump Jr. in legal danger for Russia meeting about Clinton dirt - Politico](http://static.politico.com/01/14/bd7362be4bcaa71fcb6f3cf5a682/170710-donald-trump-jr-ap-1160.jpg)
 
-Politico Donald Trump Jr. in legal danger for Russia meeting about Clinton dirt Politico Donald Trump Jr. is in a legal danger zone following his acknowledgment that he met during the heat of the 2016 presidential campaign with a Russian lawyer with Kremlin ties who offered to deliver damaging information about Hillary Clinton. Democratic ... 5 big questions on that bombshell about Donald Trump Jr. and the Russian lawyer Washington Post Senate Intel Committee Wants to Talk to Donald Trump Jr., Source Says NBCNews.com Trump's Son May Fall Into Russia Investigation Over Meeting Bloomberg CBS News - ThinkProgress - The Hill - ABC News all 722 news articles »
+Politico Donald Trump Jr. in legal danger for Russia meeting about Clinton dirt Politico Donald Trump Jr. is in a legal danger zone following his acknowledgment that he met during the heat of the 2016 presidential campaign with a Russian lawyer with Kremlin ties who offered to deliver damaging information about Hillary Clinton. Democratic ... Trump Jr. hires lawyer while downplaying meeting with Russian attorney ABC News 5 big questions on that bombshell about Donald Trump Jr. and the Russian lawyer Washington Post Senate Intel Committee Wants to Talk to Donald Trump Jr., Source Says NBCNews.com Bloomberg - Business Insider - TIME - ThinkProgress all 751 news articles »
 
 
 Full story on F3News: [Donald Trump Jr. in legal danger for Russia meeting about Clinton dirt - Politico](http://www.f3nws.com/n/jfBUSH)
