@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria ceasefire begins, Trump eyes cooperation with Russia"
-date: 2017-07-09 23:14:51Z
+date: 2017-07-09 23:54:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ BEIRUT (AP) — U.S. President Donald Trump called for expanded cooperation with
 
 Full story on F3News: [Syria ceasefire begins, Trump eyes cooperation with Russia](http://www.f3nws.com/n/unrmDE)
 
-> Posted on: Sunday, July 9, 2017 11:14:51 PM
+> Posted on: Sunday, July 9, 2017 11:54:21 PM

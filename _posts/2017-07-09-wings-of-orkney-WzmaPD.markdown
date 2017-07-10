@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wings of Orkney"
-date: 2017-07-09 23:30:03Z
+date: 2017-07-09 23:37:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Created by Jeppe Nothlev to celebrate the arrival of Highland Park Valkyrie - ro
 
 Full story on F3News: [Wings of Orkney](http://www.f3nws.com/n/WzmaPD)
 
-> Posted on: Sunday, July 9, 2017 11:30:03 PM
+> Posted on: Sunday, July 9, 2017 11:37:00 PM
