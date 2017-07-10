@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At G-20 gathering, Ivanka Trump literally..."
-date: 2017-07-10 13:30:23Z
+date: 2017-07-10 13:30:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Donald Trump believes it was "very standard" to have his daughter take his place
 
 Full story on F3News: [At G-20 gathering, Ivanka Trump literally...](http://www.f3nws.com/n/usk3ZB)
 
-> Posted on: Monday, July 10, 2017 1:30:23 PM
+> Posted on: Monday, July 10, 2017 1:30:00 PM
