@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Trump Jr. was promised damaging info about Clinton"
-date: 2017-07-10 03:50:37Z
+date: 2017-07-10 04:18:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -12,4 +12,4 @@ WASHINGTON (AP) — Donald Trump's eldest son said Sunday he met with a Kremlin-
 
 Full story on F3News: [Report: Trump Jr. was promised damaging info about Clinton](http://www.f3nws.com/n/Rmvv2C)
 
-> Posted on: Monday, July 10, 2017 3:50:37 AM
+> Posted on: Monday, July 10, 2017 4:18:00 AM
