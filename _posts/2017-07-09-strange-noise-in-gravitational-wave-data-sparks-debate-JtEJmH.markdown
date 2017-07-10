@@ -5,6 +5,8 @@ date: 2017-07-09 11:00:00Z
 categories: wired-top-stories
 ---
 
+![Strange Noise in Gravitational-Wave Data Sparks Debate](https://media.wired.com/photos/595e9363795a071b0f8332bf/191:100/pass/LIGO_LH_2880x1620-2880x1620-2.jpg)
+
 The team that discovered gravitational waves put their data online. Now an independent group of researchers claims that they’ve found what might be a serious problem.
 
 

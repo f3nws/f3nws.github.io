@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Iraq PM Abadi Arrives in Mosul to Declare 'Victory' Over ISIS - NBCNews.com](https://media3.s-nbcnews.com/j/newscms/2017_27/2065861/170709-world-iraq-abadi-mosul-830a_606b72d9e44487930c64d5070061eb67.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Iraq PM Abadi Arrives in Mosul to Declare 'Victory' Over ISIS NBCNews.com Iraqi Prime Minister Haider al-Abadi has arrived in Mosul to declare victory over ISIS in the city, his office said. Small pockets of fighting were still ongoing near the Tigris river, but the militants are expected to be defeated, a spokesman told NBC ... The Islamic State Is Not Dead Yet New York Times Iraq's PM arrives in Mosul, says 'the great victory is at hand' CNN Honking Horns Hail the Liberation of Mosul From Islamic State Bloomberg BBC News - Slate Magazine (blog) - Chicago Tribune - Los Angeles Times all 550 news articles »
+NBCNews.com Iraq PM Abadi Arrives in Mosul to Declare 'Victory' Over ISIS NBCNews.com Iraqi Prime Minister Haider al-Abadi has arrived in Mosul to declare victory over ISIS in the city, his office said. Small pockets of fighting were still ongoing near the Tigris river, but the militants are expected to be defeated, a spokesman told NBC ... Iraq's PM arrives in Mosul, says 'the great victory is at hand' CNN Mosul, G-20, Tesla: Your Morning Briefing New York Times The Latest: Iraqi PM celebrates in Mosul, but battle ongoing Washington Post Bloomberg - BBC News - Slate Magazine (blog) - Chicago Tribune all 553 news articles »
 
 
 Full story on F3News: [Iraq PM Abadi Arrives in Mosul to Declare 'Victory' Over ISIS - NBCNews.com](http://www.f3nws.com/n/WefrUH)
