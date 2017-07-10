@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![London firefighters battle blaze at Camden Lock Market (PHOTOS, VIDEOS)](https://img.rt.com/files/2017.07/article/5962bf03dda4c8da248b4567.png)
 
-Dozens of firefighters and at least eight trucks have been deployed to battle a fire that erupted in the Camden Lock area of London. Read Full Article at RT.com
+It took over three hours for dozens of firefighters and at least ten trucks to control the fire that erupted in the Camden Lock area of London at the busy tourist market. Read Full Article at RT.com
 
 
 Full story on F3News: [London firefighters battle blaze at Camden Lock Market (PHOTOS, VIDEOS)](http://www.f3nws.com/n/2ScPAF)

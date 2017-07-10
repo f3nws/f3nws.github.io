@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Camden Lock Market fire: Seventy firefighters at blaze - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p0587l4j.jpg)
 
-BBC News Camden Lock Market fire: Seventy firefighters at blaze BBC News A "significant" blaze has broken out at Camden Lock Market in north London. London Fire Brigade said 70 firefighters and 10 fire engines were sent to the site, which is a popular tourist attraction. One eyewitness said the fire was moving "very fast ... Fire breaks out in London's Camden Market CNN Camden Market fire: 70 firefighters fight massive blaze CBS News Camden Lock Market: firefighters battle large blaze in London The Guardian The Australian - NEWS.com.au - KING5.com - Telegraph.co.uk all 65 news articles »
+BBC News Camden Lock Market fire: Seventy firefighters at blaze BBC News A "significant" blaze has broken out at Camden Lock Market in north London. London Fire Brigade said 70 firefighters and 10 fire engines were sent to the site, which is a popular tourist attraction. One eyewitness said the fire was moving "very fast ... Camden Market fire: 70 firefighters fight massive blaze CBS News Fire breaks out in London's Camden Market CNN Camden Lock Market: firefighters battle large blaze in London The Guardian NEWS.com.au - The Australian - Daily Mail - New York Post all 78 news articles »
 
 
 Full story on F3News: [Camden Lock Market fire: Seventy firefighters at blaze - BBC News](http://www.f3nws.com/n/ezXGGJ)
