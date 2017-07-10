@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey memos reportedly had classified info; Trump says ‘That is so illegal’"
-date: 2017-07-10 12:45:00Z
+date: 2017-07-10 15:20:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump on Monday accused former FBI Director James Comey of having ille
 
 Full story on F3News: [Comey memos reportedly had classified info; Trump says ‘That is so illegal’](http://www.f3nws.com/n/uNdXsE)
 
-> Posted on: Monday, July 10, 2017 12:45:00 PM
+> Posted on: Monday, July 10, 2017 3:20:00 PM
