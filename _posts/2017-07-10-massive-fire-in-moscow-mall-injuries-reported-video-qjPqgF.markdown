@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Massive fire in Moscow mall, injuries reported (VIDEO)](https://img.rt.com/files/2017.07/article/5963adffdda4c8d5038b4567.jpg)
 
-Up to 14 people, including a child, were reportedly injured in a fire which broke out at a shopping mall in the northeast of Moscow on Monday, Emergencies Ministry sources told Russian media. Four people remain trapped in the building. Read Full Article at RT.com
+Up to 14 people, including a child, were reportedly injured in a fire which broke out at a shopping mall in the northeast of Moscow on Monday, Emergencies Ministry sources told Russian media. Read Full Article at RT.com
 
 
 Full story on F3News: [Massive fire in Moscow mall, injuries reported (VIDEO)](http://www.f3nws.com/n/qjPqgF)
