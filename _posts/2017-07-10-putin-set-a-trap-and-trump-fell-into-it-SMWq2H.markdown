@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin set a trap and Trump fell into it"
-date: 2017-07-10 08:00:00Z
+date: 2017-07-10 13:08:10Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Jen Psaki says a lack of preparation and focus by the American side allowed the 
 
 Full story on F3News: [Putin set a trap and Trump fell into it](http://www.f3nws.com/n/SMWq2H)
 
-> Posted on: Monday, July 10, 2017 8:00:00 AM
+> Posted on: Monday, July 10, 2017 1:08:10 PM
