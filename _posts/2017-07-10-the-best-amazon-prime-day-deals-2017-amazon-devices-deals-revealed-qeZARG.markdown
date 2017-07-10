@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017: Amazon devices deals revealed!"
-date: 2017-07-10 07:06:00Z
+date: 2017-07-10 07:15:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ On Amazon Prime Day last year, you bought enough Game of Thrones books to outwei
 
 Full story on F3News: [The best Amazon Prime Day deals 2017: Amazon devices deals revealed!](http://www.f3nws.com/n/qeZARG)
 
-> Posted on: Monday, July 10, 2017 7:06:00 AM
+> Posted on: Monday, July 10, 2017 7:15:00 AM
