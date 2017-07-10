@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Amazon cuts Echo price by 50 percent for Prime Day](https://cdn.vox-cdn.com/thumbor/WCPundxeBl0bXwdxz2YrgW9Cbio=/0x106:2040x1254/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55639213/amazon-echo-verge-9711.0.0.jpg)
 
-The Verge Amazon cuts Echo price by 50 percent for Prime Day The Verge Amazon is offering some big discounts for its Echo and Echo Dot devices today. As part of the company's annual Prime Day, Amazon is cutting the Echo price by 50 percent, and the Echo Dot by 30 percent. Amazon's Echo will be available for just $89.99 ... Tips for a Successful Amazon Prime Day Lifehacker Amazon Prime Day 2017 deals: leaked offers and latest updates Telegraph.co.uk How to Watch Deals on Prime Day Tom's Guide The Independent - AL.com - Nasdaq - NDTV all 212 news articles »
+The Verge Amazon cuts Echo price by 50 percent for Prime Day The Verge Amazon is offering some big discounts for its Echo and Echo Dot devices today. As part of the company's annual Prime Day, Amazon is cutting the Echo price by 50 percent, and the Echo Dot by 30 percent. Amazon's Echo will be available for just $89.99 ... Google takes on Amazon's Prime Day with hot Home deal BGR Ready, set, shop! Amazon Prime Day starts tonight cleveland.com Smart home device calls the police, helps end a violent dispute Mashable Tech Times - Droid Life (press release) (blog) - TechRadar - Tech.Co all 287 news articles »
 
 
 Full story on F3News: [Amazon cuts Echo price by 50 percent for Prime Day](http://www.f3nws.com/n/mhsyNB)
