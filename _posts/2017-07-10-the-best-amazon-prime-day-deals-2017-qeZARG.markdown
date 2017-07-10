@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017"
-date: 2017-07-10 17:29:00Z
+date: 2017-07-10 18:12:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Amazon Prime Day deals are here - the first batch of deals expires at midnight T
 
 Full story on F3News: [The best Amazon Prime Day deals 2017](http://www.f3nws.com/n/qeZARG)
 
-> Posted on: Monday, July 10, 2017 5:29:00 PM
+> Posted on: Monday, July 10, 2017 6:12:00 PM
