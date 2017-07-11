@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017: Everything on sale in the US listed"
-date: 2017-07-11 03:16:14Z
+date: 2017-07-11 03:51:14Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Amazon Prime Day is upon us and so are the massive discounts on everything from 
 
 Full story on F3News: [The best Amazon Prime Day deals 2017: Everything on sale in the US listed](http://www.f3nws.com/n/JSmNUC)
 
-> Posted on: Tuesday, July 11, 2017 3:16:14 AM
+> Posted on: Tuesday, July 11, 2017 3:51:14 AM
