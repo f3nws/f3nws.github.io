@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Totally Transparent': Donald Trump Jr. Releases Entire Potentially Damning Email Exchange with Man Who Set Up Meeting with Russian Lawyer"
-date: 2017-07-11 22:00:04Z
+date: 2017-07-11 22:30:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: ['Totally Transparent': Donald Trump Jr. Releases Entire Potentially Damning Email Exchange with Man Who Set Up Meeting with Russian Lawyer](http://www.f3nws.com/n/va2ARJ)
 
-> Posted on: Tuesday, July 11, 2017 10:00:04 PM
+> Posted on: Tuesday, July 11, 2017 10:30:04 PM
