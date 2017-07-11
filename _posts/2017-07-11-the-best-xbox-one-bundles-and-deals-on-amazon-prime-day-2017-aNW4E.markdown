@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Xbox One bundles and deals on Amazon Prime Day 2017"
-date: 2017-07-11 13:11:00Z
+date: 2017-07-11 15:08:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Don't miss these last minute Xbox One deals
 
 Full story on F3News: [The best Xbox One bundles and deals on Amazon Prime Day 2017](http://www.f3nws.com/n/aNW4E)
 
-> Posted on: Tuesday, July 11, 2017 1:11:00 PM
+> Posted on: Tuesday, July 11, 2017 3:08:00 PM
