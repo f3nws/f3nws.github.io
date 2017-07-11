@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Texas teen electrocuted after apparent cell phone mishap in bathtub - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/11/febb8735-d4ce-491d-baf3-32ba028debad/madison-coe.jpg)
 
-CBS News Texas teen electrocuted after apparent cell phone mishap in bathtub CBS News LUBBOCK, Texas -- Family and friends are mourning the loss of a 14-year-old girl who died after she was electrocuted in a bathtub in Texas. "It is with heavy hearts that Frenship ISD mourns the loss of Madison Coe," school officials told CBS affiliate ... Texas teen electrocuted while holding cellphone in a bathtub New York Daily News This 14-year-old girl was electrocuted while using her cellphone in the bathtub WSB Atlanta Lubbock teen electrocuted while using cell phone in bathtub KPRC Houston WGN-TV - myfox8.com - WSLS - Breitbart News all 60 news articles »
+CBS News Texas teen electrocuted after apparent cell phone mishap in bathtub CBS News LUBBOCK, Texas -- Family and friends are mourning the loss of a 14-year-old girl who died after she was electrocuted in a bathtub in Texas. "It is with heavy hearts that Frenship ISD mourns the loss of Madison Coe," school officials told CBS affiliate ... Family Mourns Texas Teen Electrocuted While Using Phone in Bathtub: 'She Had Such a Huge Heart,' Says Mom PEOPLE.com 14-year-old girl electrocuted by cell phone in bathtub Syracuse.com Texas teen electrocuted while holding cellphone in a bathtub New York Daily News Phone Arena - Dallas News - KTLA - New York's PIX11 / WPIX-TV all 72 news articles »
 
 
 Full story on F3News: [Texas teen electrocuted after apparent cell phone mishap in bathtub - CBS News](http://www.f3nws.com/n/QBWgrE)
