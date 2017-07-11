@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Marvel's 'New Warriors' Sets Its Cast — Including Squirrel Girl (Exclusive) - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/07/derek_theler_and_milana_vayntrub_-_split_-_getty_-_h_2017.jpg)
 
-Hollywood Reporter Marvel's 'New Warriors' Sets Its Cast — Including Squirrel Girl (Exclusive) Hollywood Reporter Milana Vayntrub ('This Is Us') and Derek Theler ('Baby Daddy') lead the ensemble cast of the straight-to-series Freeform comedy. Three months after being picked up straight to series by Freeform, Marvel's New Warriors has found its cast. Milana ... Marvel's New Warriors Reveals Full Cast Including Squirrel Girl Comicbook.com Marvel's New Warriors Cast Revealed IGN Squirrel Girl Actress and More Join New Warriors Cast ComingSoon.net New York Daily News - MTV.com - Cinema Blend - CNET all 70 news articles »
+Hollywood Reporter Marvel's 'New Warriors' Sets Its Cast — Including Squirrel Girl (Exclusive) Hollywood Reporter Milana Vayntrub ('This Is Us') and Derek Theler ('Baby Daddy') lead the ensemble cast of the straight-to-series Freeform comedy. Three months after being picked up straight to series by Freeform, Marvel's New Warriors has found its cast. Milana ... Marvel's New Warriors Reveals Full Cast Including Squirrel Girl Comicbook.com Marvel's New Warriors Cast Revealed IGN Squirrel Girl Actress and More Join New Warriors Cast ComingSoon.net New York Daily News - MTV.com - Cinema Blend - A.V. Club all 70 news articles »
 
 
 Full story on F3News: [Marvel's 'New Warriors' Sets Its Cast — Including Squirrel Girl (Exclusive) - Hollywood Reporter](http://www.f3nws.com/n/DQCgDF)
