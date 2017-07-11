@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Military plane crash in Mississippi leaves at least 16 dead - Los Angeles Times](http://www.trbimg.com/img-596462ed/turbine/la-na-marine-tanker-crash-20170710)
 
-Los Angeles Times Military plane crash in Mississippi leaves at least 16 dead Los Angeles Times A U.S. military plane crashed into a field in rural Mississippi on Monday, killing at least 16 people aboard and spreading debris for miles, officials said. Leflore County Emergency Management Agency Director Frank Randle told reporters at a late ... Marine Corps cargo aircraft crashes in Mississippi, killing at least 16 Washington Post Marine aircraft crash: At least 16 bodies recovered from Mississippi crash site Fox News Military Plane Crash Kills At Least 16 In Mississippi NPR New York Times - CNN - NBCNews.com - New York Daily News all 181 news articles »
+Los Angeles Times Military plane crash in Mississippi leaves at least 16 dead Los Angeles Times A U.S. military plane crashed into a field in rural Mississippi on Monday, killing at least 16 people aboard and spreading debris for miles, officials said. Leflore County Emergency Management Agency Director Frank Randle told reporters at a late ... Marine Corps cargo aircraft crashes in Mississippi, killing at least 16 Washington Post Military Plane Crash Kills At Least 16 In Mississippi NPR Military plane crashes in Mississippi, 16 dead CNN NBCNews.com - Fox News - New York Times - CNBC all 182 news articles »
 
 
 Full story on F3News: [Military plane crash in Mississippi leaves at least 16 dead - Los Angeles Times](http://www.f3nws.com/n/2jzChF)
