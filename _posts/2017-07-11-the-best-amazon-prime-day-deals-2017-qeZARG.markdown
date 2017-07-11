@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017"
-date: 2017-07-11 07:12:00Z
+date: 2017-07-11 07:33:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Today is Amazon Prime Day! See all of the best deals here.
 
 Full story on F3News: [The best Amazon Prime Day deals 2017](http://www.f3nws.com/n/qeZARG)
 
-> Posted on: Tuesday, July 11, 2017 7:12:00 AM
+> Posted on: Tuesday, July 11, 2017 7:33:00 AM
