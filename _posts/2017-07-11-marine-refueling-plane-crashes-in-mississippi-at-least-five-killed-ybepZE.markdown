@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marine refueling plane crashes in Mississippi, at least five killed"
-date: 2017-07-11 01:15:00Z
+date: 2017-07-11 02:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities is Mississippi say at least five people were killed when a U.S. Mari
 
 Full story on F3News: [Marine refueling plane crashes in Mississippi, at least five killed](http://www.f3nws.com/n/ybepZE)
 
-> Posted on: Tuesday, July 11, 2017 1:15:00 AM
+> Posted on: Tuesday, July 11, 2017 2:00:00 AM

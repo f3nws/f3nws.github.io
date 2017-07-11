@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US soldier accused of trying to give ISIS classified documents, drone"
-date: 2017-07-11 00:45:00Z
+date: 2017-07-11 02:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A Hawaii-based U.S. Army soldier was arrested over the weekend after allegedly a
 
 Full story on F3News: [US soldier accused of trying to give ISIS classified documents, drone](http://www.f3nws.com/n/EmkSbE)
 
-> Posted on: Tuesday, July 11, 2017 12:45:00 AM
+> Posted on: Tuesday, July 11, 2017 2:00:00 AM
