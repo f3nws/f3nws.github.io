@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marine aircraft disaster: FBI seeks answers in Mississippi crash that killed at least 16"
-date: 2017-07-11 04:00:00Z
+date: 2017-07-11 10:48:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The FBI has joined local agencies in the investigation into the crash of a U.S. 
 
 Full story on F3News: [Marine aircraft disaster: FBI seeks answers in Mississippi crash that killed at least 16](http://www.f3nws.com/n/cjPsqB)
 
-> Posted on: Tuesday, July 11, 2017 4:00:00 AM
+> Posted on: Tuesday, July 11, 2017 10:48:00 AM
