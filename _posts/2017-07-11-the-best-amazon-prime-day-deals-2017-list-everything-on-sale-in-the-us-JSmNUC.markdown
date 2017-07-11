@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Prime Day deals 2017 list: Everything on sale in the US"
-date: 2017-07-11 11:43:14Z
+date: 2017-07-11 14:00:14Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Amazon Prime Day 2017 expires at midnight, but you can still get massive deals o
 
 Full story on F3News: [The best Amazon Prime Day deals 2017 list: Everything on sale in the US](http://www.f3nws.com/n/JSmNUC)
 
-> Posted on: Tuesday, July 11, 2017 11:43:14 AM
+> Posted on: Tuesday, July 11, 2017 2:00:14 PM
