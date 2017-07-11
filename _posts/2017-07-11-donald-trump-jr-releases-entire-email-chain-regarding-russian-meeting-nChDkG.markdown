@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump Jr. releases 'entire email chain' regarding Russian meeting"
-date: 2017-07-11 17:36:00Z
+date: 2017-07-11 18:34:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Donald Trump Jr. on Tuesday released what he said was the â€œentire email chainâ
 
 Full story on F3News: [Donald Trump Jr. releases 'entire email chain' regarding Russian meeting](http://www.f3nws.com/n/nChDkG)
 
-> Posted on: Tuesday, July 11, 2017 5:36:00 PM
+> Posted on: Tuesday, July 11, 2017 6:34:00 PM
