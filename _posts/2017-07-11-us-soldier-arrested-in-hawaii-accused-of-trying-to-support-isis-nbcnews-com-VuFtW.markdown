@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US Soldier Arrested in Hawaii, Accused of Trying to Support ISIS - NBCNews.com](https://media3.s-nbcnews.com/j/newscms/2017_28/2067776/170710-hawaii-sketch-ac-950p_8dcca87d415210bc61b8d8a6af3d1da6.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com US Soldier Arrested in Hawaii, Accused of Trying to Support ISIS NBCNews.com An Army sergeant has been arrested in Hawaii and charged with seeking to provide classified military documents and training to ISIS, according to court records unsealed Monday. Sgt. Ikaika Erik Kang, 34, an air traffic control operator with the 25th ... The Latest: Lawyer: Army neglected soldier's mental illness Washington Post FBI: SWAT team arrests soldier on terrorism charges in Hawaii CNN Soldier arrested on terror charges in Hawaii, FBI says ABC News New York Times - New York Daily News - AL.com - CBS News all 95 news articles »
+NBCNews.com US Soldier Arrested in Hawaii, Accused of Trying to Support ISIS NBCNews.com An Army sergeant has been arrested in Hawaii and charged with seeking to provide classified military documents and training to ISIS, according to court records unsealed Monday. Sgt. Ikaika Erik Kang, 34, an air traffic control operator with the 25th ... The Latest: Lawyer: Army neglected soldier's mental illness Washington Post FBI: SWAT team arrests soldier on terrorism charges in Hawaii CNN FBI: US Soldier Pledged Allegiance to Islamic State Group New York Times New York Daily News - AL.com - CBS News - Heavy.com all 100 news articles »
 
 
 Full story on F3News: [US Soldier Arrested in Hawaii, Accused of Trying to Support ISIS - NBCNews.com](http://www.f3nws.com/n/VuFtW)
