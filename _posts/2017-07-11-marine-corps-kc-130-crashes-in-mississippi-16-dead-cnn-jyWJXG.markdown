@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Marine Corps KC-130 crashes in Mississippi, 16 dead - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170710233103-plane-crash-mississippi-super-tease.jpg)
 
-CNN Marine Corps KC-130 crashes in Mississippi, 16 dead CNN (CNN) A US Marine Corps transport plane crashed in rural western Mississippi on Monday afternoon, killing all 16 service members who were on board, officials said. The KC-130, an aircraft that the Marines can use to refuel planes in the air as well as ... Marine Corps cargo aircraft crashes in Mississippi, killing at least 16 Washington Post Military Plane Crash Kills 16 In Mississippi NPR 16 service members killed in military plane crash in Mississippi ABC News Miami Herald - CBS News - The Tennessean - New York Post all 341 news articles »
+CNN Marine Corps KC-130 crashes in Mississippi, 16 dead CNN (CNN) [Breaking news update, published at 11 a.m. ET]. Fifteen Marines and one sailor were killed in Monday's crash of a KC-130 in Mississippi, Richard Spencer, the nominee for US Navy secretary, told the Senate Armed Services Committee. [Original ... Military Plane Crash Kills 16 In Mississippi NPR Marine Corps cargo aircraft crashes in Mississippi, killing at least 16 Washington Post Military Plane Crash: KC-130 Aircraft Has History of Use During War NBCNews.com ABC News - Miami Herald - USA TODAY - The Tennessean all 324 news articles »
 
 
 Full story on F3News: [Marine Corps KC-130 crashes in Mississippi, 16 dead - CNN](http://www.f3nws.com/n/jyWJXG)
