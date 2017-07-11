@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Yassmin Abdel-Magied feels 'betrayed' by Australia](http://www.abc.net.au/news/image/8699246-1x1-700x700.png)
 
-Yassmin Abdel-Magied, who has called herself the most "publicly hated Muslim in Australia", says she feels "a little bit betrayed" by her home county and that people in Australia are happy to accept you "as long as you toe the line".
+Yassmin Abdel-Magied, who has called herself the most "publicly hated Muslim in Australia", says she feels "a little bit betrayed" by her home country and that people in Australia are happy to accept you "as long as you toe the line".
 
 
 Full story on F3News: [Yassmin Abdel-Magied feels 'betrayed' by Australia](http://www.f3nws.com/n/YrEWdC)
