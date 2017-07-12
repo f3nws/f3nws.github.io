@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New analysis suggests Guccifer 2.0 files copied locally, not hacked by Russia"
-date: 2017-07-12 00:42:53Z
+date: 2017-07-12 00:42:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Files stolen from the Democratic National Committee (DNC) were likely downloaded
 
 Full story on F3News: [New analysis suggests Guccifer 2.0 files copied locally, not hacked by Russia](http://www.f3nws.com/n/JWWQr)
 
-> Posted on: Wednesday, July 12, 2017 12:42:53 AM
+> Posted on: Wednesday, July 12, 2017 12:42:00 AM
