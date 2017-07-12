@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Amelia Earhart mystery: Photo appears taken 2 years before pilot vanished - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170705173013-amelia-earhart-photo-1-super-tease.jpg)
 
-CNN Amelia Earhart mystery: Photo appears taken 2 years before pilot vanished CNN (CNN) A newly discovered photo that claimed to hold the key to the 80-year-old mystery surrounding Amelia Earhart's disappearance may have been published two years before she vanished, new evidence suggests. The blurry photo, used in a History ... A 'bogus photo,' decades of obsession and the endless debate over Amelia Earhart cleveland.com Was History Channel's Amelia Earhart Doc Debunked Just Two Days After It Aired? Vanity Fair History Investigating Claims About Amelia Earhart Photo Used In Documentary Deadline Hollywood Reporter - USA TODAY - EW.com (blog) - TIME all 110 news articles »
+CNN Amelia Earhart mystery: Photo appears taken 2 years before pilot vanished CNN (CNN) A newly discovered photo that claimed to hold the key to the 80-year-old mystery surrounding Amelia Earhart's disappearance may have been published two years before she vanished, new evidence suggests. The blurry photo, used in a History ... Was History Channel's Amelia Earhart Doc Debunked Just Two Days After It Aired? Vanity Fair History Investigating Claims About Amelia Earhart Photo Used In Documentary Deadline History Channel investigating claims about Amelia Earhart photo and documentary timeline USA TODAY Hollywood Reporter - EW.com (blog) - WatertownDailyTimes.com - TIME all 113 news articles »
 
 
 Full story on F3News: [Amelia Earhart mystery: Photo appears taken 2 years before pilot vanished - CNN](http://www.f3nws.com/n/kzrsHG)
