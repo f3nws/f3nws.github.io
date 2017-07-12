@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![China sends troops to Djibouti, establishes first overseas military base - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170712135106-china-pla-navy-djibouti-parade-super-tease.jpg)
 
-CNN China sends troops to Djibouti, establishes first overseas military base CNN (CNN) China has dispatched troops to Djibouti in advance of formally establishing the country's first overseas military base. Two Chinese Navy warships left the port of Zhanjiang on Tuesday, taking an undisclosed number of military personnel on the ... China's first African military base is seen in new satellite images Fox News China sends troops to open first overseas military base in Djibouti Reuters China's First Overseas Military Base The Atlantic Newsweek - VICE News - Telegraph.co.uk - Aljazeera.com all 90 news articles »
+CNN China sends troops to Djibouti, establishes first overseas military base CNN (CNN) China has dispatched troops to Djibouti in advance of formally establishing the country's first overseas military base. Two Chinese Navy warships left the port of Zhanjiang on Tuesday, taking an undisclosed number of military personnel on the ... China Dispatches Troops To Djibouti To Set Up Its First Overseas Base NPR China sends troops to open first overseas military base in Djibouti CBS News China's first African military base is seen in new satellite images Fox News The Atlantic - The Daily Caller - Newsweek - VICE News all 103 news articles »
 
 
 Full story on F3News: [China sends troops to Djibouti, establishes first overseas military base - CNN](http://www.f3nws.com/n/ZJYMYF)
