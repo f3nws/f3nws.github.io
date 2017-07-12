@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pro-Trump media scrambles to react to bombshell emails"
-date: 2017-07-11 22:47:59Z
+date: 2017-07-11 23:38:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Pro-Trump media scrambles to react to bombshell emails](http://www.f3nws.com/n/pAVTVC)
 
-> Posted on: Tuesday, July 11, 2017 10:47:59 PM
+> Posted on: Tuesday, July 11, 2017 11:38:58 PM

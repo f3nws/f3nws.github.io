@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Windows Phone dies today - The Verge](https://cdn.vox-cdn.com/thumbor/kDNeqMl2dZcW954E_2K664VM-Nk=/0x32:640x392/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55658419/windowsphonestock1_640.0.jpg)
 
-The Verge Windows Phone dies today The Verge Microsoft is killing off Windows Phone 8.1 support today, more than three years after the company first introduced the update. The end of support marks an end to the Windows Phone era, and the millions of devices still running the operating system. Windows Phone 'Died' Today, Windows 10 Mobile Charitably on Life Support ExtremeTech Microsoft Adding Email Marketing App to Office 365 Business Premium eWeek Microsoft Previews New Applications for Office 365 Business Premium Plans Redmondmag.com AppleInsider (press release) (blog) - Business Insider - Engadget - SuperSite for Windows all 206 news articles »
+The Verge Windows Phone dies today The Verge Microsoft is killing off Windows Phone 8.1 support today, more than three years after the company first introduced the update. The end of support marks an end to the Windows Phone era, and the millions of devices still running the operating system. Windows Phone 'Died' Today, Windows 10 Mobile Charitably on Life Support ExtremeTech Microsoft Adding Email Marketing App to Office 365 Business Premium eWeek Microsoft ends support for its ill-fated iPhone competitor, Windows Phone AppleInsider (press release) (blog) Redmondmag.com - Business Insider - Engadget - SuperSite for Windows all 208 news articles »
 
 
 Full story on F3News: [Windows Phone dies today - The Verge](http://www.f3nws.com/n/3yNYcF)
