@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US says missile defense system successfully intercepts projectile during test - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170428142350-us-sanctions-thaad-tease-super-tease.jpg)
 
-CNN US says missile defense system successfully intercepts projectile during test CNN (CNN) A United States-built missile defense system on Tuesday successfully intercepted its target during a test run, the US Missile Defense Agency said. The Terminal High Altitude Area Defense (THAAD) missile defense system successfully shot down a ... US Shoots Down Target in THAAD Anti-Missile Test The Atlantic US successfully tests Thaad anti-missile system in Pacific BBC News The US just successfully tested the THAAD missile-defense system amid tensions with North Korea Business Insider The Hill - Hot Air - UPI.com - Washington Post all 108 news articles »
+CNN US says missile defense system successfully intercepts projectile during test CNN (CNN) A United States-built missile defense system on Tuesday successfully intercepted its target during a test run, the US Missile Defense Agency said. The Terminal High Altitude Area Defense (THAAD) missile defense system successfully shot down a ... US successfully tests missile system amid tensions with North Korea USA TODAY US conducts successful intermediate range missile intercept test ABC News US Shoots Down Target in THAAD Anti-Missile Test The Atlantic BBC News - Business Insider - The Hill - Hot Air all 110 news articles »
 
 
 Full story on F3News: [US says missile defense system successfully intercepts projectile during test - CNN](http://www.f3nws.com/n/SafXJB)

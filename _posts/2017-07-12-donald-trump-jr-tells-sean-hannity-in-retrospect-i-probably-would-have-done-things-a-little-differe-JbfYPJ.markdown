@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump Jr. tells Sean Hannity: 'In retrospect I probably would have done things a little differently'"
-date: 2017-07-12 00:15:00Z
+date: 2017-07-12 02:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Donald Trump Jr. acknowledged in an exclusive interview with Fox News' "Hannity"
 
 Full story on F3News: [Donald Trump Jr. tells Sean Hannity: 'In retrospect I probably would have done things a little differently'](http://www.f3nws.com/n/JbfYPJ)
 
-> Posted on: Wednesday, July 12, 2017 12:15:00 AM
+> Posted on: Wednesday, July 12, 2017 2:45:00 AM
