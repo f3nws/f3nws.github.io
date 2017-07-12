@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The new most watched YouTube video is..."
-date: 2017-07-12 01:55:52Z
+date: 2017-07-12 01:58:31Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Wiz Khalifa's video "See You Again" featuring singer Charlie Puth hit nearly 2.9
 
 Full story on F3News: [The new most watched YouTube video is...](http://www.f3nws.com/n/4mvtWF)
 
-> Posted on: Wednesday, July 12, 2017 1:55:52 AM
+> Posted on: Wednesday, July 12, 2017 1:58:31 AM
