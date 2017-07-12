@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Clint Eastwood Casts Real-Life Heroes in Next Film 'The 15:17 to Paris' (EXCLUSIVE) - Variety"
+date: 2017-07-11 17:19:32Z
+categories: google-news-entertaintment
+---
+
+![Clint Eastwood Casts Real-Life Heroes in Next Film 'The 15:17 to Paris' (EXCLUSIVE) - Variety](https://pmcvariety.files.wordpress.com/2017/06/eastwood.png?w=1000&h=563&crop=1)
+
+Variety Clint Eastwood Casts Real-Life Heroes in Next Film 'The 15:17 to Paris' (EXCLUSIVE) Variety In an unconventional move, Clint Eastwood has tapped Anthony Sadler, Alek Skarlatos, and Spencer Stone to play themselves in his next movie, “The 15:17 to Paris.” The film will tell the story of the three Americans who stopped a terrorist on a train ... Paris Train Attack Heroes Will Play Themselves in New Clint Eastwood Movie PEOPLE.com Three Americans who thwarted 2015 Paris train attack to play selves in Clint Eastwood movie Washington Post Three men who thwarted terror attack to star in Clint Eastwood film USA TODAY Hollywood Reporter - BBC News - Cinema Blend - Syracuse.com all 57 news articles »
+
+
+Full story on F3News: [Clint Eastwood Casts Real-Life Heroes in Next Film 'The 15:17 to Paris' (EXCLUSIVE) - Variety](http://www.f3nws.com/n/DH3TBJ)
+
+> Posted on: Tuesday, July 11, 2017 5:19:32 PM
