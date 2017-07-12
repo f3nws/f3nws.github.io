@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I'd like to apologize to Eric Trump': Late night reacts to Donald Trump Jr.'s emails"
-date: 2017-07-12 07:24:17Z
+date: 2017-07-12 11:51:45Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['I'd like to apologize to Eric Trump': Late night reacts to Donald Trump Jr.'s emails](http://www.f3nws.com/n/bCrVP)
 
-> Posted on: Wednesday, July 12, 2017 7:24:17 AM
+> Posted on: Wednesday, July 12, 2017 11:51:45 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Texas teen electrocuted while holding cellphone in a bathtub - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3317366.1499778315!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/cellphone12n-1-web.jpg)
 
-New York Daily News Texas teen electrocuted while holding cellphone in a bathtub New York Daily News Madison Coe, a north Texas resident, was electrocuted when she either plugged her phone in or grabbed it while it was already charging, her grandmother told local NBC affiliate KCBD. “There was a burn mark on her hand, the hand that would have grabbed ... 14-year-old girl electrocuted in cell phone incident while in bathtub Syracuse.com 14-year-old girl electrocuted when cellphone falls into bathtub New York's PIX11 / WPIX-TV This 14-year-old girl was electrocuted while using her cellphone in the bathtub WSB Atlanta myfox8.com - KRON4.com - KSAT San Antonio - KCBD-TV all 82 news articles »
+New York Daily News Texas teen electrocuted while holding cellphone in a bathtub New York Daily News Madison Coe, a north Texas resident, was electrocuted when she either plugged her phone in or grabbed it while it was already charging, her grandmother told local NBC affiliate KCBD. “There was a burn mark on her hand, the hand that would have grabbed ... Texas teen dies from using cellphone while taking a bath AOL all 143 news articles »
 
 
 Full story on F3News: [Texas teen electrocuted while holding cellphone in a bathtub - New York Daily News](http://www.f3nws.com/n/4uSKXD)
