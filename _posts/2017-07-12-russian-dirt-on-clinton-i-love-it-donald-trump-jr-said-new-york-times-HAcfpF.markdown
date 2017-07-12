@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Russian Dirt on Clinton? 'I Love It,' Donald Trump Jr. Said - New York Times](https://static01.nyt.com/images/2017/07/12/us/12Trumpmail/12Trumpmail-facebookJumbo.jpg)
 
-New York Times Russian Dirt on Clinton? 'I Love It,' Donald Trump Jr. Said New York Times Donald Trump Jr. received an email on June 3, 2016, promising dirt on Hillary Clinton. The information was described as being part of Russia's support for his father's presidential bid. His reply? “I love it.” By Drew Jordan on Publish Date July 11, 2017. The Daily 202: Trump dysfunction follows family from the campaign to the White House Washington Post Trump defends embattled son, calls Russia controversy a 'witch hunt' CNN Report: Investigators turn to Kushner's digital campaign operation The Hill Fox News - Los Angeles Times - Business Insider - Washington Examiner all 4,616 news articles »
+New York Times Russian Dirt on Clinton? 'I Love It,' Donald Trump Jr. Said New York Times Donald Trump Jr. received an email on June 3, 2016, promising dirt on Hillary Clinton. The information was described as being part of Russia's support for his father's presidential bid. His reply? “I love it.” By Drew Jordan on Publish Date July 11, 2017. Assessing how 'open' and 'transparent' Donald Trump Jr. was in his Hannity appearance Washington Post Trump defends embattled son, calls Russia controversy a 'witch hunt' CNN White House Troubled by Russia Sanctions Bill NBCNews.com Fox News - The Hill - Los Angeles Times - Chicago Tribune all 4,950 news articles »
 
 
 Full story on F3News: [Russian Dirt on Clinton? 'I Love It,' Donald Trump Jr. Said - New York Times](http://www.f3nws.com/n/HAcfpF)
