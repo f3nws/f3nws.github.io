@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Giant iceberg splits from Antarctic - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/B8EC/production/_96904374_mediaitem96904370.jpg)
 
-BBC News Giant iceberg splits from Antarctic BBC News One of the biggest icebergs ever recorded has just broken away from Antarctica. The giant block is estimated to cover an area of roughly 6,000 sq km; that's about a quarter the size of Wales. An US satellite observed the berg on Wednesday while passing ... One of the biggest icebergs in recorded history just broke loose from Antarctica Washington Post Giant iceberg breaks off Antarctica Reuters 'Breaking' news — an iceberg the size of Delaware just broke off Antarctica ThinkProgress The Weather Channel - BuzzFeed News - The Verge - The Guardian all 69 news articles »
+BBC News Giant iceberg splits from Antarctic BBC News One of the biggest icebergs ever recorded has just broken away from Antarctica. The giant block is estimated to cover an area of roughly 6,000 sq km; that's about a quarter the size of Wales. An US satellite observed the berg on Wednesday while passing ... One of the biggest icebergs in recorded history just broke loose from Antarctica Washington Post Massive iceberg breaks away from Antarctica CNN An Antarctic iceberg nearly the size of Delaware — one of the largest on record — has broken off USA TODAY ThinkProgress - Reuters - CBS News - The Weather Channel all 86 news articles »
 
 
 Full story on F3News: [Giant iceberg splits from Antarctic - BBC News](http://www.f3nws.com/n/AuqheB)
