@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Joe Scarborough Announces He Is Leaving Republican Party"
-date: 2017-07-12 11:30:02Z
+date: 2017-07-12 12:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Joe Scarborough Announces He Is Leaving Republican Party](http://www.f3nws.com/n/EX2KCB)
 
-> Posted on: Wednesday, July 12, 2017 11:30:02 AM
+> Posted on: Wednesday, July 12, 2017 12:30:02 PM
