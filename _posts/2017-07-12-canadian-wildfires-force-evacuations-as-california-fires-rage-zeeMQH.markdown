@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Canadian wildfires force evacuations as California fires rage"
-date: 2017-07-12 01:43:49Z
+date: 2017-07-12 03:16:37Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ More than 200 wildfires were burning in British Columbia, Canada, Monday evening
 
 Full story on F3News: [Canadian wildfires force evacuations as California fires rage](http://www.f3nws.com/n/zeeMQH)
 
-> Posted on: Wednesday, July 12, 2017 1:43:49 AM
+> Posted on: Wednesday, July 12, 2017 3:16:37 AM
