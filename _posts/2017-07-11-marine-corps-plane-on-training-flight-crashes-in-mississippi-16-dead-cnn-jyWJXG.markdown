@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Marine Corps plane on training flight crashes in Mississippi; 16 dead - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170710233103-plane-crash-mississippi-super-tease.jpg)
 
-CNN Marine Corps plane on training flight crashes in Mississippi; 16 dead CNN (CNN) The transport plane that crashed in the Mississippi Delta, killing fifteen Marines and a Navy corpsman, was moving personnel and equipment from North Carolina to a western base to train before deploying, the Marine Corps said Tuesday ... At Crash Site of Marine Corps Plane, Bodies 'Were Everywhere' New York Times 16 dead in Mississippi in worst Marine crash since 2005 Washington Post US Marine Corps KC-130 crash details released by military CBS News Marine Corps Times - NBCNews.com - Los Angeles Times - ABC News all 468 news articles »
+CNN Marine Corps plane on training flight crashes in Mississippi; 16 dead CNN (CNN) The transport plane that crashed in the Mississippi Delta, killing fifteen Marines and a Navy corpsman, was moving personnel and equipment from North Carolina to a western base to train before deploying, the Marine Corps said Tuesday ... Investigators search Mississippi farmland for clues after crash of military plane kills 16 service members Los Angeles Times US probes cause of Marine Corps plane crash that killed 16 Reuters Marine Corps aircraft crashes in Mississippi, killing at least 16, including Special Operations troops Washington Post CBS News - NBCNews.com - Marine Corps Times - NPR all 474 news articles »
 
 
 Full story on F3News: [Marine Corps plane on training flight crashes in Mississippi; 16 dead - CNN](http://www.f3nws.com/n/jyWJXG)
