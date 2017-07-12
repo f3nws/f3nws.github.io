@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melissa Rauch reveals past miscarriage in pregnancy announcement"
-date: 2017-07-12 05:14:46Z
+date: 2017-07-12 15:17:59Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Melissa Rauch reveals past miscarriage in pregnancy announcement](http://www.f3nws.com/n/4yPQqG)
 
-> Posted on: Wednesday, July 12, 2017 5:14:46 AM
+> Posted on: Wednesday, July 12, 2017 3:17:59 PM
