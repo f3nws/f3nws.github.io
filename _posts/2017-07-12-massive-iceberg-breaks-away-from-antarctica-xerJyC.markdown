@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive iceberg breaks away from Antarctica"
-date: 2017-07-12 15:55:05Z
+date: 2017-07-12 16:17:57Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A massive iceberg weighing more than one trillion tons has broken away from west
 
 Full story on F3News: [Massive iceberg breaks away from Antarctica](http://www.f3nws.com/n/xerJyC)
 
-> Posted on: Wednesday, July 12, 2017 3:55:05 PM
+> Posted on: Wednesday, July 12, 2017 4:17:57 PM

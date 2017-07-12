@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Honda, Toyota models among most stolen cars"
-date: 2017-07-12 15:30:02Z
+date: 2017-07-12 16:30:06Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Car thieves covet 20-year-old Hondas more than any other vehicle in the country.
 
 Full story on F3News: [Honda, Toyota models among most stolen cars](http://www.f3nws.com/n/FhyKEE)
 
-> Posted on: Wednesday, July 12, 2017 3:30:02 PM
+> Posted on: Wednesday, July 12, 2017 4:30:06 PM
