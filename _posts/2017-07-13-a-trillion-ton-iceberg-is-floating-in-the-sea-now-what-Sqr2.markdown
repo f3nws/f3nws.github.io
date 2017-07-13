@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A trillion-ton iceberg is floating in the sea. Now what?"
-date: 2017-07-13 09:48:32Z
+date: 2017-07-13 12:49:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A trillion-ton iceberg, one of the biggest ever recorded, splintered off western
 
 Full story on F3News: [A trillion-ton iceberg is floating in the sea. Now what?](http://www.f3nws.com/n/Sqr2)
 
-> Posted on: Thursday, July 13, 2017 9:48:32 AM
+> Posted on: Thursday, July 13, 2017 12:49:39 PM
