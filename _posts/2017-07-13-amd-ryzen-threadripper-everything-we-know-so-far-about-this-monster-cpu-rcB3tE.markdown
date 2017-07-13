@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AMD Ryzen Threadripper: Everything we know so far about this monster CPU"
-date: 2017-07-13 14:36:00Z
+date: 2017-07-13 21:42:00Z
 categories: pcworld
 ---
 
@@ -12,4 +12,4 @@ Updated July 13: AMD finally dropped the other shoe and announced jaw-droppingly
 
 Full story on F3News: [AMD Ryzen Threadripper: Everything we know so far about this monster CPU](http://www.f3nws.com/n/rcB3tE)
 
-> Posted on: Thursday, July 13, 2017 2:36:00 PM
+> Posted on: Thursday, July 13, 2017 9:42:00 PM
