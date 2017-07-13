@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Theresa May shed a 'little tear' on election night"
-date: 2017-07-13 10:06:03Z
+date: 2017-07-13 13:21:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May has revealed she shed a "little tear" when sh
 
 Full story on F3News: [Theresa May shed a 'little tear' on election night](http://www.f3nws.com/n/jbpBQH)
 
-> Posted on: Thursday, July 13, 2017 10:06:03 AM
+> Posted on: Thursday, July 13, 2017 1:21:48 PM
