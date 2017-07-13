@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese dissident and Nobel laureate Liu Xiaobo dies"
-date: 2017-07-13 17:09:50Z
+date: 2017-07-13 17:31:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Liu Xiaobo, a Nobel Peace Prize-winning Chinese dissident, has died, local autho
 
 Full story on F3News: [Chinese dissident and Nobel laureate Liu Xiaobo dies](http://www.f3nws.com/n/JAd3FE)
 
-> Posted on: Thursday, July 13, 2017 5:09:50 PM
+> Posted on: Thursday, July 13, 2017 5:31:00 PM
