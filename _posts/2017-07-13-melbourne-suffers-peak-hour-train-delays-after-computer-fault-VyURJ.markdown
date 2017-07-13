@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Melbourne suffers peak-hour train delays after computer fault](http://www.abc.net.au/news/image/8706508-1x1-700x700.jpg)
 
-Melbourne commuters experience frustrating delays after Metro Trains' entire network came to a standstill this afternoon due to a computer fault.
+Melbourne commuters experience frustrating delays after Metro Trains' entire network came to a standstill due to a computer fault.
 
 
 Full story on F3News: [Melbourne suffers peak-hour train delays after computer fault](http://www.f3nws.com/n/VyURJ)
