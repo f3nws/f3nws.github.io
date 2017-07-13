@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Military plane crash victims: 'These were the elite'"
-date: 2017-07-13 13:18:18Z
+date: 2017-07-13 18:31:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A painter who loved to fly, a father who married his high school sweetheart, and
 
 Full story on F3News: [Military plane crash victims: 'These were the elite'](http://www.f3nws.com/n/43VyxF)
 
-> Posted on: Thursday, July 13, 2017 1:18:18 PM
+> Posted on: Thursday, July 13, 2017 6:31:37 PM
