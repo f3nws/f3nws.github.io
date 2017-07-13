@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peregrine falcon dies after flying into UC Berkeley window"
-date: 2017-07-13 02:11:23Z
+date: 2017-07-13 04:13:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ University of California, Berkeley officials say one of two baby peregrine falco
 
 Full story on F3News: [Peregrine falcon dies after flying into UC Berkeley window](http://www.f3nws.com/n/DPkPND)
 
-> Posted on: Thursday, July 13, 2017 2:11:23 AM
+> Posted on: Thursday, July 13, 2017 4:13:03 AM

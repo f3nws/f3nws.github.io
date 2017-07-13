@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Latest: Human remains found in search for 4 missing  men"
-date: 2017-07-13 04:50:30Z
+date: 2017-07-13 05:23:55Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ NEW HOPE, Pa. (AP) — The Latest on the search in Pennsylvania for four missing
 
 Full story on F3News: [The Latest: Human remains found in search for 4 missing  men](http://www.f3nws.com/n/qNxPME)
 
-> Posted on: Thursday, July 13, 2017 4:50:30 AM
+> Posted on: Thursday, July 13, 2017 5:23:55 AM
