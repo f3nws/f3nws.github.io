@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![FDA Panel Recommends Approval for Gene-Altering Leukemia Treatment - New York Times](https://static01.nyt.com/images/2017/07/13/science/13FDA/13FDA-facebookJumbo.jpg)
 
-New York Times FDA Panel Recommends Approval for Gene-Altering Leukemia Treatment New York Times Emily Whitehead, 12, and her parents, Tom and Kari Whitehead, appeared at an F.D.A. hearing on Tuesday about a treatment for leukemia that had saved Emily's life. Credit T.J. Kirkpatrick for The New York Times. A Food and Drug Administration panel ... FDA panel backs Novartis' pioneering new cancer gene therapy Reuters 'Living Drug' That Fights Cancer By Harnessing The Immune System Clears Key Hurdle NPR Novel cancer treatment wins endorsement of FDA advisers Washington Post fox2now.com - NBCNews.com - Xconomy - Alaska Dispatch News all 97 news articles »
+New York Times FDA Panel Recommends Approval for Gene-Altering Leukemia Treatment New York Times Emily Whitehead, 12, and her parents, Tom and Kari Whitehead, appeared at an F.D.A. hearing on Tuesday about a treatment for leukemia that had saved Emily's life. Credit T.J. Kirkpatrick for The New York Times. A Food and Drug Administration panel ... 'Living Drug' That Fights Cancer By Harnessing The Immune System Clears Key Hurdle NPR Novel cancer treatment wins endorsement of FDA advisers Washington Post FDA panel backs Novartis' pioneering new cancer gene therapy Reuters NBCNews.com - Bloomberg - fox2now.com - Xconomy all 100 news articles »
 
 
 Full story on F3News: [FDA Panel Recommends Approval for Gene-Altering Leukemia Treatment - New York Times](http://www.f3nws.com/n/eaaAVF)
