@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Indonesian anti-Islamist law slammed"
-date: 2017-07-13 07:12:35Z
+date: 2017-07-13 08:40:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Indonesian government decree that allows the country's president to disband r
 
 Full story on F3News: [New Indonesian anti-Islamist law slammed](http://www.f3nws.com/n/CPvMuC)
 
-> Posted on: Thursday, July 13, 2017 7:12:35 AM
+> Posted on: Thursday, July 13, 2017 8:40:34 AM
