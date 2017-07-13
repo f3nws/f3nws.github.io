@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Hear Selena Gomez's Seductive New Song 'Fetish' With Gucci Mane - RollingStone.com"
-date: 2017-07-13 04:38:12Z
+date: 2017-07-13 04:13:21Z
 categories: google-news-entertaintment
 ---
 
 ![Hear Selena Gomez's Seductive New Song 'Fetish' With Gucci Mane - RollingStone.com](http://img.wennermedia.com/social/selena-gomez-fetish-video-watch-2017-407baf5e-3f08-4deb-a205-53adfde90704.jpg)
 
-RollingStone.com Hear Selena Gomez's Seductive New Song 'Fetish' With Gucci Mane RollingStone.com Selena Gomez has debuted her seductive new single "Fetish" featuring Gucci Mane. The track follows her Talking Heads-sampling "Bad Liar." In addition to unveiling the audio track, she revealed an accompanying video, which is an extended version of a ... Selena Gomez's New Single With Gucci Mane Is Our New Fetish! LISTEN! PerezHilton.com To Selena Gomez: 'Looking At Rings'Says Source Hollywood Life Selena Gomez Teams Up With Gucci Mane For New Single 'Fetish' Forbes Billboard - Pitchfork - Idolator - Consequence of Sound (blog) all 121 news articles »
+RollingStone.com Hear Selena Gomez's Seductive New Song 'Fetish' With Gucci Mane RollingStone.com Selena Gomez has debuted her seductive new single "Fetish" featuring Gucci Mane. The track follows her Talking Heads-sampling "Bad Liar." In addition to unveiling the audio track, she revealed an accompanying video, which is an extended version of a ... To Selena Gomez: 'Looking At Rings'Says Source Hollywood Life Selena Gomez's New Single With Gucci Mane Is Our New Fetish! LISTEN! PerezHilton.com Selena Gomez Teams Up With Gucci Mane For New Single 'Fetish' Forbes Billboard - Pitchfork - Idolator - The FADER all 122 news articles »
 
 
 Full story on F3News: [Hear Selena Gomez's Seductive New Song 'Fetish' With Gucci Mane - RollingStone.com](http://www.f3nws.com/n/BzWTVF)
 
-> Posted on: Thursday, July 13, 2017 4:38:12 AM
+> Posted on: Thursday, July 13, 2017 4:13:21 AM

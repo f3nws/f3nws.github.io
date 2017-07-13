@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Revolutionary architecture for life on the move"
-date: 2017-07-13 04:52:41Z
+date: 2017-07-13 08:16:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In recent decades, architects have designed buildings that are taller, smaller a
 
 Full story on F3News: [Revolutionary architecture for life on the move](http://www.f3nws.com/n/tRrehH)
 
-> Posted on: Thursday, July 13, 2017 4:52:41 AM
+> Posted on: Thursday, July 13, 2017 8:16:13 AM
