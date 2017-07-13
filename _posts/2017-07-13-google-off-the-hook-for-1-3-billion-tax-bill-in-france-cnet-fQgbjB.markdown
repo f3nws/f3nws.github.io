@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google off the hook for $1.3 billion tax bill in France     - CNET"
-date: 2017-07-13 02:48:20Z
+date: 2017-07-13 04:47:53Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Paris court rules the tech titan has no taxable presence in the country, relievi
 
 Full story on F3News: [Google off the hook for $1.3 billion tax bill in France     - CNET](http://www.f3nws.com/n/fQgbjB)
 
-> Posted on: Thursday, July 13, 2017 2:48:20 AM
+> Posted on: Thursday, July 13, 2017 4:47:53 AM
