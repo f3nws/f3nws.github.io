@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Cubs acquire Jose Quintana from White Sox for top prospects - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0303%2Fr186736_1296x729_16%2D9.jpg)
 
-ESPN Cubs acquire Jose Quintana from White Sox for top prospects ESPN CHICAGO -- The Cubs and White Sox pulled off a blockbuster deal with the White Sox sending lefty Jose Quintana to their crosstown rivals for Cubs top hitting prospect Eloy Jimenez as well as top pitching prospect Dylan Cease. The Cubs are also sending ... Breaking: Cubs acquire Jose Quintana from White Sox via trade for top prospects CBSSports.com Cubs acquire Jose Quintana from White Sox for 4 prospects Chicago Tribune With rotation in disarray and season teetering, Cubs trade four prospects for Jose Quintana Washington Post Bleacher Report - Yahoo Sports - SB Nation - Sports Illustrated all 73 news articles »
+ESPN Cubs acquire Jose Quintana from White Sox for top prospects ESPN CHICAGO -- The Cubs and White Sox pulled off a blockbuster deal with the White Sox sending lefty Jose Quintana to their crosstown rivals for Cubs top hitting prospect Eloy Jimenez as well as top pitching prospect Dylan Cease. The Cubs are also sending ... MLB Trades: Cubs acquire Jose Quintana from White Sox via trade for top prospects CBSSports.com With rotation in disarray and season teetering, Cubs trade four prospects for Jose Quintana Washington Post Cubs acquire Jose Quintana from White Sox for 4 prospects Chicago Tribune Bleacher Report - Sporting News - Sports Illustrated - Yahoo Sports all 110 news articles »
 
 
 Full story on F3News: [Cubs acquire Jose Quintana from White Sox for top prospects - ESPN](http://www.f3nws.com/n/NUg3pF)
