@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump arrives in Paris on second Europe trip in a week"
-date: 2017-07-13 06:40:55Z
+date: 2017-07-13 07:06:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has arrived in Europe for the second time in a week, a
 
 Full story on F3News: [Trump arrives in Paris on second Europe trip in a week](http://www.f3nws.com/n/mrndfH)
 
-> Posted on: Thursday, July 13, 2017 6:40:55 AM
+> Posted on: Thursday, July 13, 2017 7:06:04 AM
