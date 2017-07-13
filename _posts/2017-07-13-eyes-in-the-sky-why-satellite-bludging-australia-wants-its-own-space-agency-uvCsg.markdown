@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Eyes in the sky: Why 'satellite-bludging' Australia wants its own space agency](http://www.abc.net.au/news/image/6569184-1x1-700x700.jpg)
 
-Australia is bludging on the rest of the world when it comes to space and needs its own satellite capability for jobs like examining farmland and responding to natural disasters, say proponents of Australia having its own space agency.
+Australia is bludging off the rest of the world when it comes to space and needs its own satellite capability for jobs like examining farmland and responding to natural disasters, say proponents of Australia having its own space agency.
 
 
 Full story on F3News: [Eyes in the sky: Why 'satellite-bludging' Australia wants its own space agency](http://www.f3nws.com/n/uvCsg)
