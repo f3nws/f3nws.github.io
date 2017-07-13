@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![In Japan, Nintendo Announces Production For The Smaller New Nintendo 3DS Has Ended - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--7xUVrpLC--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/iha7s3tlydi7pdlfc11j.png)
 
-Kotaku In Japan, Nintendo Announces Production For The Smaller New Nintendo 3DS Has Ended Kotaku The official Japanese site for the smaller-sized New Nintendo 3DS clearly states that production of the handheld is over. The text in the little box reads 生産終了 (seisan shuuryou) or “production ended.” This does not only pertain to the pictured model. Nintendo DS-Style Download Play Is Possible On One Switch Game, Here's How GameSpot New Nintendo 3DS production ends in Japan Polygon Nintendo Ends New 3DS Production in Japan PCMag Ars Technica - Express.co.uk - Mic - Business Insider all 44 news articles »
+Kotaku In Japan, Nintendo Announces Production For The Smaller New Nintendo 3DS Has Ended Kotaku The official Japanese site for the smaller-sized New Nintendo 3DS clearly states that production of the handheld is over. The text in the little box reads 生産終了 (seisan shuuryou) or “production ended.” This does not only pertain to the pictured model. Nintendo Switch finally has a streaming video app, and it works—kind of Ars Technica New Nintendo 3DS production ends in Japan Polygon Nintendo DS-Style Download Play Is Possible On One Switch Game, Here's How GameSpot PCMag - SYS-CON Media (press release) - IGN - Express.co.uk all 47 news articles »
 
 
 Full story on F3News: [In Japan, Nintendo Announces Production For The Smaller New Nintendo 3DS Has Ended - Kotaku](http://www.f3nws.com/n/Cky2YC)
