@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Republicans, Preparing New Health Bill, Have No Votes to Spare - New York Times](https://static01.nyt.com/images/2017/07/13/us/13dc-health/13dc-health-facebookJumbo.jpg)
 
-New York Times Senate Republicans, Preparing New Health Bill, Have No Votes to Spare New York Times WASHINGTON — The likely defection of two Senate Republicans has left their leaders no margin for error as they move on Thursday to unveil another version of their bill to repeal much of the Affordable Care Act — without an assurance that they have ... Senate moderates sidelined in new Obamacare repeal bill Politico Health care state of play: The votes aren't there yet. But there will (probably) be a vote CNN What Is Mitch McConnell Up To? HuffPost NPR - The Hill (blog) - USA TODAY - Slate Magazine (blog) all 1,701 news articles »
+New York Times Senate Republicans, Preparing New Health Bill, Have No Votes to Spare New York Times WASHINGTON — The likely defection of two Senate Republicans has left their leaders no margin for error as they move on Thursday to unveil another version of their bill to repeal much of the Affordable Care Act — without an assurance that they have ... Senate's Health Bill Would Make Life Easier For Some Small Businesses NPR What Is Mitch McConnell Up To? HuffPost Failing or Doing Fine? How Obamacare's Marketplaces Are Shaping Up for 2018 Bloomberg USA TODAY - NBCNews.com - Slate Magazine (blog) - Business Insider all 1,811 news articles »
 
 
 Full story on F3News: [Senate Republicans, Preparing New Health Bill, Have No Votes to Spare - New York Times](http://www.f3nws.com/n/WnDMdB)
