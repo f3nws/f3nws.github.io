@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Coolaroo recycling plant fire: Homes evacuated as firefighters battle sports field-sized blaze - ABC Online](http://www.abc.net.au/news/image/8707724-1x1-700x700.jpg)
 
-ABC Online Coolaroo recycling plant fire: Homes evacuated as firefighters battle sports field-sized blaze ABC Online More homes are expected to be evacuated in Melbourne's north as a massive fire continues to burn at a recycling plant, producing hazardous smoke. Key points: Evacuation advice issued for 115 households in Dallas; Eight people treated for breathing ... Smoke from Coolaroo fire could cause long-term health problems, expert warns The Age Melbourne tip fire the 'size of a sports field' causes home evacuations SBS Melbourne recycling plant fire: homes evacuated as smoke poses health risk The New Daily Herald Sun - Sky News Australia - Huffington Post Australia - Now To Love all 14 news articles »
+ABC Online Coolaroo recycling plant fire: Homes evacuated as firefighters battle sports field-sized blaze ABC Online More homes are expected to be evacuated in Melbourne's north as a massive fire continues to burn at a recycling plant, producing hazardous smoke. Key points: Evacuation advice issued for 115 households in Dallas; Eight people treated for breathing ... Fire as 'big as a sports field, as high as a factory' - and set to burn for days The Age Large fire takes hold of Coolaroo recycling centre Herald Sun Burning Vic tip had fire inspection due 9news.com.au The New Daily - BBC News - Huffington Post Australia - Deutsche Welle all 23 news articles »
 
 
 Full story on F3News: [Coolaroo recycling plant fire: Homes evacuated as firefighters battle sports field-sized blaze - ABC Online](http://www.f3nws.com/n/MWJcvG)
