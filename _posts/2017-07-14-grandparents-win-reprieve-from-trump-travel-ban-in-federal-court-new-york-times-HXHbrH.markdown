@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Grandparents Win Reprieve From Trump Travel Ban in Federal Court - New York Times](https://static01.nyt.com/images/2017/07/15/world/15immigration-1/15ban-1-facebookJumbo.jpg)
 
-New York Times Grandparents Win Reprieve From Trump Travel Ban in Federal Court New York Times Protesters in New York last month protesting President Trump's travel ban, after the Supreme Court approved a scaled-back version of the order. Credit Joe Penney/Reuters. LOS ALTOS, Calif. — A federal judge in Hawaii ruled late Thursday that the Trump ... Grandparents, other extended relatives exempt from Trump travel ban, federal judge rules Washington Post More People Are Now Exempt From Trump's Travel Ban The Atlantic Trump administration working on improvements for extreme vetting procedures Washington Examiner Bloomberg - ABC News - The Hill - USA TODAY all 165 news articles »
+New York Times Grandparents Win Reprieve From Trump Travel Ban in Federal Court New York Times Protesters in New York last month protesting President Trump's travel ban, after the Supreme Court approved a scaled-back version of the order. Credit Joe Penney/Reuters. LOS ALTOS, Calif. — A federal judge in Hawaii ruled late Thursday that the Trump ... Grandparents, other extended relatives exempt from Trump travel ban, federal judge rules Washington Post More People Are Now Exempt From Trump's Travel Ban The Atlantic Trump's Travel Ban Watered Down by Another Court Setback U.S. News & World Report New York Daily News - Washington Examiner - The Hill - Bloomberg all 176 news articles »
 
 
 Full story on F3News: [Grandparents Win Reprieve From Trump Travel Ban in Federal Court - New York Times](http://www.f3nws.com/n/HXHbrH)

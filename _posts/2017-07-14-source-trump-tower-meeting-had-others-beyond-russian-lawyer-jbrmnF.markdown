@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Source: Trump Tower meeting had others beyond Russian lawyer"
-date: 2017-07-14 16:40:38Z
+date: 2017-07-14 17:46:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The June 2016 meeting at Trump Tower with Donald Trump Jr., Jared Kushner and Pa
 
 Full story on F3News: [Source: Trump Tower meeting had others beyond Russian lawyer](http://www.f3nws.com/n/jbrmnF)
 
-> Posted on: Friday, July 14, 2017 4:40:38 PM
+> Posted on: Friday, July 14, 2017 5:46:14 PM
