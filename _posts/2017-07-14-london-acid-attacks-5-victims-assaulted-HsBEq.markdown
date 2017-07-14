@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London acid attacks: 5 victims assaulted"
-date: 2017-07-14 11:57:14Z
+date: 2017-07-14 12:53:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London police are appealing for witnesses and information after suspects riding 
 
 Full story on F3News: [London acid attacks: 5 victims assaulted](http://www.f3nws.com/n/HsBEq)
 
-> Posted on: Friday, July 14, 2017 11:57:14 AM
+> Posted on: Friday, July 14, 2017 12:53:59 PM
