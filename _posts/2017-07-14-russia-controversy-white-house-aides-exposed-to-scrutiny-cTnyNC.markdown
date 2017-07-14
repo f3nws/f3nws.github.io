@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia controversy: White House aides exposed to scrutiny"
-date: 2017-07-14 04:57:15Z
+date: 2017-07-14 05:01:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A scramble by White House aides to respond to the brewing controversy over Donal
 
 Full story on F3News: [Russia controversy: White House aides exposed to scrutiny](http://www.f3nws.com/n/cTnyNC)
 
-> Posted on: Friday, July 14, 2017 4:57:15 AM
+> Posted on: Friday, July 14, 2017 5:01:36 AM
