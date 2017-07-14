@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British baby Charlie Gard to be evaluated by US doctor"
-date: 2017-07-14 15:33:59Z
+date: 2017-07-14 17:14:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A British judge said Friday that Charlie Gard, the 11-month-old baby with a rare
 
 Full story on F3News: [British baby Charlie Gard to be evaluated by US doctor](http://www.f3nws.com/n/tG2CXG)
 
-> Posted on: Friday, July 14, 2017 3:33:59 PM
+> Posted on: Friday, July 14, 2017 5:14:07 PM
