@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Trump Tower Russia meeting: At least eight people in the room - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170711055507-donald-trump-jr-trump-tower-super-tease.jpg)
 
-CNN Trump Tower Russia meeting: At least eight people in the room CNN CNN Special Report "The First Son: The Life of Donald Trump Jr." airs Friday at 9:30 p.m. ET/PT. Washington (CNN) The June 2016 meeting at Trump Tower with Donald Trump Jr., Jared Kushner and Paul Manafort included at least eight people. Is the most powerful lobbyist in Washington losing its grip? Washington Post Reverence for Putin on the Right Buys Trump Cover New York Times US officials probing Russian lobbyist who met Trump team Politico The Hill - Los Angeles Times - Slate Magazine (blog) - Business Insider all 1,834 news articles »
+CNN Trump Tower Russia meeting: At least eight people in the room CNN CNN Special Report "The First Son: The Life of Donald Trump Jr." airs Friday at 9:30 p.m. ET/PT. Washington (CNN) The June 2016 meeting at Trump Tower with Donald Trump Jr., Jared Kushner and Paul Manafort included at least eight people. Trump Jr.'s Russia meeting sure sounds like a Russian intelligence operation Washington Post Reverence for Putin on the Right Buys Trump Cover New York Times Dems want scrutiny of Ivanka Trump over Kushner's Russian contacts Politico The Hill - Los Angeles Times - The New Yorker - Slate Magazine (blog) all 1,852 news articles »
 
 
 Full story on F3News: [Trump Tower Russia meeting: At least eight people in the room - CNN](http://www.f3nws.com/n/jbrmnF)
