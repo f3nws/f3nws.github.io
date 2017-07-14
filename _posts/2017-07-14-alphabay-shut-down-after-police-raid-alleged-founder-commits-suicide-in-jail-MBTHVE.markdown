@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AlphaBay Shut Down After Police Raid; Alleged Founder Commits Suicide in Jail"
-date: 2017-07-14 09:23:51Z
+date: 2017-07-14 09:39:37Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ AlphaBay Market — one of the largest Dark Web marketplaces for drugs, guns, an
 
 Full story on F3News: [AlphaBay Shut Down After Police Raid; Alleged Founder Commits Suicide in Jail](http://www.f3nws.com/n/MBTHVE)
 
-> Posted on: Friday, July 14, 2017 9:23:51 AM
+> Posted on: Friday, July 14, 2017 9:39:37 AM
