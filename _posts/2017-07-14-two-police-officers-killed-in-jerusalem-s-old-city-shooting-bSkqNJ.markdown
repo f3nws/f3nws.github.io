@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two police officers killed in Jerusalem's Old City shooting"
-date: 2017-07-14 12:57:57Z
+date: 2017-07-14 14:40:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two Israeli police officers were killed in a shooting Friday in Jerusalem's Old 
 
 Full story on F3News: [Two police officers killed in Jerusalem's Old City shooting](http://www.f3nws.com/n/bSkqNJ)
 
-> Posted on: Friday, July 14, 2017 12:57:57 PM
+> Posted on: Friday, July 14, 2017 2:40:27 PM
