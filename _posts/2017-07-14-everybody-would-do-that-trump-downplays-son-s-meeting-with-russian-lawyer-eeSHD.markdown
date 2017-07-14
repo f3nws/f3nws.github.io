@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Everybody would do that': Trump downplays son's meeting with Russian lawyer"
-date: 2017-07-14 00:30:05Z
+date: 2017-07-14 02:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump on Wednesday told Reuters that he was unaware of Donald Trump Jr
 
 Full story on F3News: ['Everybody would do that': Trump downplays son's meeting with Russian lawyer](http://www.f3nws.com/n/eeSHD)
 
-> Posted on: Friday, July 14, 2017 12:30:05 AM
+> Posted on: Friday, July 14, 2017 2:00:02 AM
