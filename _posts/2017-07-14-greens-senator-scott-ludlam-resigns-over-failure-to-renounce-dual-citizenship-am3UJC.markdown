@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Greens senator Scott Ludlam resigns over failure to renounce dual citizenship](http://www.abc.net.au/news/image/8597004-1x1-700x700.jpg)
 
-Veteran WA Greens senator Scott Ludlam resigns after realising he has been ineligible under the Constitution to sit as a senator for the past nine years because he holds dual citizenship.
+Veteran WA Greens senator Scott Ludlam resigns after realising he has been ineligible under the constitution to sit as a senator for the past nine years because he holds dual citizenship.
 
 
 Full story on F3News: [Greens senator Scott Ludlam resigns over failure to renounce dual citizenship](http://www.f3nws.com/n/am3UJC)
