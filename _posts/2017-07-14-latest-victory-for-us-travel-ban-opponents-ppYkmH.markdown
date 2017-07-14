@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest victory for US travel ban opponents"
-date: 2017-07-14 06:46:15Z
+date: 2017-07-14 11:09:48Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a victory for challengers of the Trump administration's travel ban, a federal
 
 Full story on F3News: [Latest victory for US travel ban opponents](http://www.f3nws.com/n/ppYkmH)
 
-> Posted on: Friday, July 14, 2017 6:46:15 AM
+> Posted on: Friday, July 14, 2017 11:09:48 AM
