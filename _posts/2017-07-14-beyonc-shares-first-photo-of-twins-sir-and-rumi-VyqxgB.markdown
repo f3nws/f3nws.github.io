@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beyoncé shares first photo of twins Sir and Rumi"
-date: 2017-07-14 13:53:22Z
+date: 2017-07-14 15:44:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Forgive the Beyhive if they are tired on Friday.
 
 Full story on F3News: [Beyoncé shares first photo of twins Sir and Rumi](http://www.f3nws.com/n/VyqxgB)
 
-> Posted on: Friday, July 14, 2017 1:53:22 PM
+> Posted on: Friday, July 14, 2017 3:44:55 PM
