@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stars without the warpaint"
-date: 2017-07-14 06:00:02Z
+date: 2017-07-14 07:30:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ See what your favorite celebrities look like before they hit the makeup chair...
 
 Full story on F3News: [Stars without the warpaint](http://www.f3nws.com/n/bKZEbB)
 
-> Posted on: Friday, July 14, 2017 6:00:02 AM
+> Posted on: Friday, July 14, 2017 7:30:01 AM
