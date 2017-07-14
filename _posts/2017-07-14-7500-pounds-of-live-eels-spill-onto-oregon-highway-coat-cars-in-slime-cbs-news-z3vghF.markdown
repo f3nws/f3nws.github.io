@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![7500 pounds of live eels spill onto Oregon highway, coat cars in slime - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/14/51076e5e-d7e9-46da-bc74-88a617387c41/screen-shot-2017-07-14-at-10-55-10-am.png)
 
-CBS News 7500 pounds of live eels spill onto Oregon highway, coat cars in slime CBS News Drivers on a Portland highway were caught in a sticky situation on Thursday after a truck filled with live eels overturned and covered passing cars in slime. The 59-year-old driver, Salvatore Tragale, was headed toward a construction zone when he was ... Overturned truck of 'slime eels' transforms Oregon road into highway of nightmares Washington Post Slime Eel Crash Leaves an Oregon Road Covered in Ooze New York Times Thousands Of Slime Eels Spill Onto Oregon Highway In Gross, Gooey Crash HuffPost Gizmodo - CNN - CNET - OregonLive.com all 149 news articles »
+CBS News 7500 pounds of live eels spill onto Oregon highway, coat cars in slime CBS News Last Updated Jul 14, 2017 3:08 PM EDT. Drivers on a Portland highway were caught in a sticky situation on Thursday after a truck filled with live eels overturned and covered passing cars in slime. The 59-year-old driver, Salvatore Tragale, was headed ... Overturned truck of 'slime eels' transforms Oregon road into highway of nightmares Washington Post Slime Eel Crash Leaves an Oregon Road Covered in Ooze New York Times Eels and a whale: 12 bizarre things Oregon had to get rid of OregonLive.com HuffPost - Gizmodo - CNN - CNET all 154 news articles »
 
 
 Full story on F3News: [7500 pounds of live eels spill onto Oregon highway, coat cars in slime - CBS News](http://www.f3nws.com/n/z3vghF)
