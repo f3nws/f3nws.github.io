@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Federer inspires global devotion like no other sportsperson"
-date: 2017-07-14 11:01:47Z
+date: 2017-07-14 11:32:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It is a global traveling troupe like no other in sport. A patchwork of nationali
 
 Full story on F3News: [How Federer inspires global devotion like no other sportsperson](http://www.f3nws.com/n/AvgfnC)
 
-> Posted on: Friday, July 14, 2017 11:01:47 AM
+> Posted on: Friday, July 14, 2017 11:32:46 AM
