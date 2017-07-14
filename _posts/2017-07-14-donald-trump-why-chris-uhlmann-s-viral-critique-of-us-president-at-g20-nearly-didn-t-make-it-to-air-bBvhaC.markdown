@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Donald Trump: Why Chris Uhlmann's viral critique of US President at G20 nearly didn't make it to air - ABC Online](http://www.abc.net.au/cm/rimage/8691840-1x1-large.jpg?v=10)
 
-The Sydney Morning Herald Donald Trump: Why Chris Uhlmann's viral critique of US President at G20 nearly didn't make it to air ABC Online The Insiders piece on Donald Trump at the G20 was lucky to make it to air at all. I'd been asked by host Barrie Cassidy to reflect on the US President's performance and had a couple of conversations with Insiders executive producer Kellie Mayo about it. Uhlmann's anti-Trump rant The Australian Trump presidency's dishonesty exposed The Sydney Morning Herald Chris Uhlmann on being an internet sensation - and what he's got planned next The Canberra Times Forbes Advocate all 7 news articles »
+ABC Online Donald Trump: Why Chris Uhlmann's viral critique of US President at G20 nearly didn't make it to air ABC Online The Insiders piece on Donald Trump at the G20 was lucky to make it to air at all. I'd been asked by host Barrie Cassidy to reflect on the US President's performance and had a couple of conversations with Insiders executive producer Kellie Mayo about it. Uhlmann's anti-Trump rant The Australian Trump presidency's dishonesty exposed The Sydney Morning Herald Chris Uhlmann on being an internet sensation - and what he's got planned next The Canberra Times Forbes Advocate all 7 news articles »
 
 
 Full story on F3News: [Donald Trump: Why Chris Uhlmann's viral critique of US President at G20 nearly didn't make it to air - ABC Online](http://www.f3nws.com/n/bBvhaC)

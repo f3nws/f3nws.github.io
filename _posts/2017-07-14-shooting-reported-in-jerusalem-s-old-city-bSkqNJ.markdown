@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shooting reported in Jerusalem's Old City"
-date: 2017-07-14 07:22:59Z
+date: 2017-07-14 09:27:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two people have been seriously injured after a shooting Friday in Jerusalem's Ol
 
 Full story on F3News: [Shooting reported in Jerusalem's Old City](http://www.f3nws.com/n/bSkqNJ)
 
-> Posted on: Friday, July 14, 2017 7:22:59 AM
+> Posted on: Friday, July 14, 2017 9:27:47 AM

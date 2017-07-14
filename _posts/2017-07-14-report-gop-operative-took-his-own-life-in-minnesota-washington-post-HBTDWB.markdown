@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Report: GOP operative took his own life in Minnesota - Washington Post](https://images.washingtonpost.com/?url=https://img.washingtonpost.com/pb/resources/img/twp-social-share.png&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Report: GOP operative took his own life in Minnesota Washington Post CHICAGO — A former private equity adviser and Republican operative who died soon after telling The Wall Street Journal he tried during the 2016 presidential election campaign to obtain Hillary Clinton's missing emails from Russian hackers killed ... ChiTrib: GOP Operative Seeking Hillary Emails Killed Himself Newsmax Peter W. Smith, GOP operative who sought Clinton's emails from Russian hackers, committed suicide, records show Chicago Tribune GOP Operative Sought Clinton Emails From Hackers, Implied a Connection to Flynn Wall Street Journal Wall Street Journal all 36 news articles »
+Washington Post Report: GOP operative took his own life in Minnesota Washington Post CHICAGO — A former private equity adviser and Republican operative who died soon after telling The Wall Street Journal he tried during the 2016 presidential election campaign to obtain Hillary Clinton's missing emails from Russian hackers killed ... ChiTrib: GOP Operative Seeking Hillary Emails Killed Himself Newsmax Peter W. Smith, GOP operative who sought Clinton's emails from Russian hackers, committed suicide, records show Chicago Tribune GOP Activist Who Sought Clinton Emails Cited Trump Campaign Officials Wall Street Journal Wall Street Journal all 36 news articles »
 
 
 Full story on F3News: [Report: GOP operative took his own life in Minnesota - Washington Post](http://www.f3nws.com/n/HBTDWB)
