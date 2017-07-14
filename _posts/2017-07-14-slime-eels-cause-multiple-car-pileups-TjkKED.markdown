@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Slime eels cause multiple car pileups"
-date: 2017-07-14 06:19:44Z
+date: 2017-07-14 10:07:12Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rush hour traffic can slow down a commute -- but slime eels, also known as "hagf
 
 Full story on F3News: [Slime eels cause multiple car pileups](http://www.f3nws.com/n/TjkKED)
 
-> Posted on: Friday, July 14, 2017 6:19:44 AM
+> Posted on: Friday, July 14, 2017 10:07:12 AM
