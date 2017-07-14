@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmy nominations: The complete list"
-date: 2017-07-14 02:52:54Z
+date: 2017-07-14 03:03:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Winter won't be coming this year to the Emmys.
 
 Full story on F3News: [Emmy nominations: The complete list](http://www.f3nws.com/n/dhyCPH)
 
-> Posted on: Friday, July 14, 2017 2:52:54 AM
+> Posted on: Friday, July 14, 2017 3:03:41 AM

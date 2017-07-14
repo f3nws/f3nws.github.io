@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Woolworths to phase out plastic bags around the country](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Supermarket giant Woolworths announces plans to phase out single-use plastic bags over the next 12 months.
+Supermarket giant Woolworths announces plans to phase out single-use plastic bags over the next 12 months, introducing more durable alternatives at a cost of 15 cents.
 
 
 Full story on F3News: [Woolworths to phase out plastic bags around the country](http://www.f3nws.com/n/ZSYWtF)
