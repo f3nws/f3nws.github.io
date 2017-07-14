@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Deer head found in rubbish bin outside Mount Gambier car wash - ABC Online](http://www.abc.net.au/news/image/8708724-1x1-700x700.jpg)
 
-ABC Online Deer head found in rubbish bin outside Mount Gambier car wash ABC Online A deer head has been found in a rubbish bin outside a car wash at Mount Gambier in the south-east of South Australia. The owner of the premises said a local deer hunter, who is a regular at the car wash, returned from a shooting trip and tossed the ... Deer head found in rubbish bin outside Mt Gambier car wash The Advertiser Horse head found in the Mount Triple M all 3 news articles »
+ABC Online Deer head found in rubbish bin outside Mount Gambier car wash ABC Online A deer head has been found in a rubbish bin outside a car wash at Mount Gambier in the south-east of South Australia. The owner of the premises said a local deer hunter, who is a regular at the car wash, returned from a shooting trip and tossed the ... Deer head found in rubbish bin outside Mt Gambier car wash The Advertiser Gruesome photograph shows a decomposed deer's head found stuffed in a bin outside a car wash Daily Mail all 4 news articles »
 
 
 Full story on F3News: [Deer head found in rubbish bin outside Mount Gambier car wash - ABC Online](http://www.f3nws.com/n/jUmDEG)
