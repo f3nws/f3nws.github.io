@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London hit with five acid attacks in one night"
-date: 2017-07-14 14:19:49Z
+date: 2017-07-14 21:02:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London police are appealing for witnesses and information after suspects riding 
 
 Full story on F3News: [London hit with five acid attacks in one night](http://www.f3nws.com/n/HsBEq)
 
-> Posted on: Friday, July 14, 2017 2:19:49 PM
+> Posted on: Friday, July 14, 2017 9:02:55 PM
