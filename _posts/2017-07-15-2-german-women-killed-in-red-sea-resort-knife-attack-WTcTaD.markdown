@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 German women killed in Red Sea resort knife attack"
-date: 2017-07-15 07:40:26Z
+date: 2017-07-15 10:28:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two female tourists killed in a knife attack in the Egyptian Red Sea town of Hur
 
 Full story on F3News: [2 German women killed in Red Sea resort knife attack](http://www.f3nws.com/n/WTcTaD)
 
-> Posted on: Saturday, July 15, 2017 7:40:26 AM
+> Posted on: Saturday, July 15, 2017 10:28:10 AM

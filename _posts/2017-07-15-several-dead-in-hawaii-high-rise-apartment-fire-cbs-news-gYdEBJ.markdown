@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Several dead in Hawaii high-rise apartment fire - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/15/209dcf46-a37e-4210-811f-717b9f1c5938/honolulu-apartment-fire-2017-7-14.jpg)
 
-CBS News Several dead in Hawaii high-rise apartment fire CBS News HONOLULU -- At least three people died in a fire that broke out on the 26th floor of a Honolulu high-rise Friday and hundreds fled as smoke billowed from the upper floors of the giant apartment complex. The blaze at the Marco Polo apartments started on ... Honolulu high-rise fire that left 3 dead like 'horror movie' ABC News 3 dead in fire at Honolulu high-rise with no sprinklers Los Angeles Times Three Dead in Fire at Honolulu High-Rise NBCNews.com HuffPost - Reuters - BBC News - CNN all 115 news articles »
+CBS News Several dead in Hawaii high-rise apartment fire CBS News HONOLULU -- At least three people died in a fire that broke out on the 26th floor of a Honolulu high-rise Friday and hundreds fled as smoke billowed from the upper floors of the giant apartment complex. The blaze at the Marco Polo apartments started on ... AP News in Brief at 6:04 am EDT Washington Post 3 dead in fire at Honolulu high-rise with no sprinklers Los Angeles Times Three Dead in Fire at Honolulu High-Rise NBCNews.com ABC News - HuffPost - BBC News - Newsweek all 120 news articles »
 
 
 Full story on F3News: [Several dead in Hawaii high-rise apartment fire - CBS News](http://www.f3nws.com/n/gYdEBJ)
