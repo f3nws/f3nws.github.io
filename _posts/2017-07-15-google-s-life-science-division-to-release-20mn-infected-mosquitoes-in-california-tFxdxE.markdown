@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google’s life science division to release 20mn infected mosquitoes in California"
-date: 2017-07-15 01:23:42Z
+date: 2017-07-15 01:23:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Verily, formerly Google Life Sciences, is releasing millions of infected mosquit
 
 Full story on F3News: [Google’s life science division to release 20mn infected mosquitoes in California](http://www.f3nws.com/n/tFxdxE)
 
-> Posted on: Saturday, July 15, 2017 1:23:42 AM
+> Posted on: Saturday, July 15, 2017 1:23:00 AM
