@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Growing sinkhole swallows 2 houses, 1 boat in Florida - Los Angeles Times](http://www.trbimg.com/img-5969c7e8/turbine/la-na-sinkhole-florida-20170715)
 
-Los Angeles Times Growing sinkhole swallows 2 houses, 1 boat in Florida Los Angeles Times A sinkhole that started out the size of a small swimming pool and continued to grow in Florida swallowed a boat, destroyed two homes and prompted officials to evacuate residents from about a dozen homes Friday. Dramatic video showed the home in Land ... Sinkhole swallows homes in Florida CNN Florida Sinkhole Swallows Two Homes, Threatens Others U.S. News & World Report Officials don't know when Florida sinkhole will stop growing USA TODAY Washington Post - WTVM - ABC Action News - WFTV Orlando all 167 news articles »
+Los Angeles Times Growing sinkhole swallows 2 houses, 1 boat in Florida Los Angeles Times A sinkhole that started out the size of a small swimming pool and continued to grow in Florida swallowed a boat, destroyed two homes and prompted officials to evacuate residents from about a dozen homes Friday. Dramatic video showed the home in Land ... Officials don't know when Florida sinkhole will stop growing USA TODAY Video shows 'active sinkhole' that's swallowing homes in Florida Washington Post Sinkhole swallows homes in Florida CNN ABC News - WFLA - WTSP 10 News - WGRZ-TV all 188 news articles »
 
 
 Full story on F3News: [Growing sinkhole swallows 2 houses, 1 boat in Florida - Los Angeles Times](http://www.f3nws.com/n/PYQxH)
