@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Every Disney Princess Ever Is Coming Back for Wreck-It Ralph 2 - Vulture](https://pixel.nymag.com/imgs/daily/vulture/2017/07/14/14-Wreck-It-Ralph-Sequel.w1200.h630.jpg)
 
-Vulture Every Disney Princess Ever Is Coming Back for Wreck-It Ralph 2 Vulture The first Wreck-It Ralph had its fair share of cameos from video-game icons like Q*bert and Bowser, but to populate the world of its sequel, Wreck-It Ralph 2: Ralph Breaks the Internet, Disney didn't have to look far from home. As revealed today at D23 ... Wreck-It Ralph sequel will unite the Disney princesses — and Star Wars! EW.com (blog) 'Wreck-It Ralph 2' Is Reuniting Your Favorite Disney Princesses Hollywood Reporter Disney fans get look at 'Incredibles 2,' 'Wreck-It Ralph 2' Washington Post USA TODAY - Cinema Blend - MTV.com - Deadline all 65 news articles »
+Vulture Every Disney Princess Ever Is Coming Back for Wreck-It Ralph 2 Vulture The first Wreck-It Ralph had its fair share of cameos from video-game icons like Q*bert and Bowser, but to populate the world of its sequel, Wreck-It Ralph 2: Ralph Breaks the Internet, Disney didn't have to look far from home. As revealed today at D23 ... Wreck-It Ralph sequel will unite the Disney princesses — and Star Wars! EW.com (blog) 'Wreck-It Ralph 2' Is Reuniting Your Favorite Disney Princesses Hollywood Reporter Disney fans get look at 'Incredibles 2,' 'Wreck-It Ralph 2' Washington Post USA TODAY - Cinema Blend - MTV.com - ComingSoon.net all 67 news articles »
 
 
 Full story on F3News: [Every Disney Princess Ever Is Coming Back for Wreck-It Ralph 2 - Vulture](http://www.f3nws.com/n/aQQNXJ)
