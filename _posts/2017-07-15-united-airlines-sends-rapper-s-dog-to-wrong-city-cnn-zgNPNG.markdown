@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![United Airlines sends rapper's dog to wrong city - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170715031941-schoolboy-q-dog-super-tease.jpg)
 
-CNN United Airlines sends rapper's dog to wrong city CNN (CNN) Rapper ScHoolboy Q once said, "Only thing I got is my girl and my dogs." Friday night, however, United Airlines put that statement to the test after they accidentally flew the rapper's dog -- Yeeerndamean -- to the wrong city during a layover ... United Airlines Misplaces ScHoolboy Q's Dog XXLMAG.COM United Airlines Puts Schoolboy Q's Puppy On Wrong Flight Home Vibe United Airlines Just Lost This Rapper's Dog Fortune Hip-Hop Wired - Rap-Up.com - TMZ.com - PEOPLE.com all 15 news articles »
+CNN United Airlines sends rapper's dog to wrong city CNN (CNN) Rapper ScHoolboy Q once said, "Only thing I got is my girl and my dogs." Friday night, however, United Airlines put that statement to the test after they accidentally flew the rapper's dog -- Yeeerndamean -- to the wrong city during a layover ... United Airlines Misplaces ScHoolboy Q's Dog XXLMAG.COM United Airlines Just Lost This Rapper's Dog Fortune United Airlines Puts Schoolboy Q's Puppy On Wrong Flight Home Vibe Rap-Up.com - TMZ.com - PEOPLE.com - Celebrity Insider (blog) all 17 news articles »
 
 
 Full story on F3News: [United Airlines sends rapper's dog to wrong city - CNN](http://www.f3nws.com/n/zgNPNG)
