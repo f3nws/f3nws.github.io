@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liu Xiaobo laid to rest in private ceremony"
-date: 2017-07-15 12:05:44Z
+date: 2017-07-15 13:27:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The global outpouring of grief and anguish over Liu Xiaobo's death stands in mar
 
 Full story on F3News: [Liu Xiaobo laid to rest in private ceremony](http://www.f3nws.com/n/2jbUZE)
 
-> Posted on: Saturday, July 15, 2017 12:05:44 PM
+> Posted on: Saturday, July 15, 2017 1:27:48 PM

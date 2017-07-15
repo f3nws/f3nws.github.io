@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![After 4 Suburban Lives Are Lost, 2 Cousins Are Charged in Pennsylvania Killings - New York Times](https://static01.nyt.com/images/2017/07/15/us/15Bucks-County-1/15Bucks-County-1-facebookJumbo.jpg)
 
-New York Times After 4 Suburban Lives Are Lost, 2 Cousins Are Charged in Pennsylvania Killings New York Times Pennsylvania State Police officers walked up a driveway in Solebury, Pa., as the investigation of four murdered Pennsylvania men continued. Credit Matt Rourke/Associated Press. DOYLESTOWN, Pa. — They were linked in ways that connect many young ... Two charged with killing Pennsylvania men who went missing Washington Post 2 arrested in alleged Pennsylvania killing spree, chilling new details emerge ABC News Court docs reveal grisly new details in killings of 4 Pennsylvania men CBS News PennLive.com - Business Insider - Miami Herald - NBCNews.com all 381 news articles »
+New York Times After 4 Suburban Lives Are Lost, 2 Cousins Are Charged in Pennsylvania Killings New York Times Pennsylvania State Police officers walked up a driveway in Solebury, Pa., as the investigation of four murdered Pennsylvania men continued. Credit Matt Rourke/Associated Press. DOYLESTOWN, Pa. — They were linked in ways that connect many young ... 2 arrested in alleged Pennsylvania killing spree, chilling new details emerge ABC News Two charged with killing Pennsylvania men who went missing Washington Post Pennsylvania murders: Killer used pig roaster to burn bodies, official says Fox News Business Insider - PennLive.com - CBS News - CNN International all 362 news articles »
 
 
 Full story on F3News: [After 4 Suburban Lives Are Lost, 2 Cousins Are Charged in Pennsylvania Killings - New York Times](http://www.f3nws.com/n/FC2y3G)
