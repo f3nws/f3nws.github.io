@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Astronomers baffled by mysterious signals emanating from dwarf star"
-date: 2017-07-15 10:12:44Z
+date: 2017-07-15 10:12:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Astronomers on the hunt for habitable worlds beyond our solar system say they ha
 
 Full story on F3News: [Astronomers baffled by mysterious signals emanating from dwarf star](http://www.f3nws.com/n/fHxQeF)
 
-> Posted on: Saturday, July 15, 2017 10:12:44 AM
+> Posted on: Saturday, July 15, 2017 10:12:00 AM
