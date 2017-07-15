@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Honolulu fire: At least 3 dead in high-rise; fears that residents are trapped"
-date: 2017-07-15 06:30:01Z
+date: 2017-07-15 07:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ At least three people died Friday in a fire in a high-rise apartment building in
 
 Full story on F3News: [Honolulu fire: At least 3 dead in high-rise; fears that residents are trapped](http://www.f3nws.com/n/zsEyqG)
 
-> Posted on: Saturday, July 15, 2017 6:30:01 AM
+> Posted on: Saturday, July 15, 2017 7:00:03 AM
