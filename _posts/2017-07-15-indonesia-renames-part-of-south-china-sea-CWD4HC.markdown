@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Indonesia renames part of South China Sea"
-date: 2017-07-15 10:49:23Z
+date: 2017-07-15 19:21:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Indonesia has become the latest Southeast Asian nation to ruffle China's feather
 
 Full story on F3News: [Indonesia renames part of South China Sea](http://www.f3nws.com/n/CWD4HC)
 
-> Posted on: Saturday, July 15, 2017 10:49:23 AM
+> Posted on: Saturday, July 15, 2017 7:21:59 PM
