@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The Incredibles 2' picks up exactly where the original ended     - CNET"
-date: 2017-07-15 18:51:23Z
+date: 2017-07-15 18:52:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In real life, 14 years have passed since the animated superfamily put on its mas
 
 Full story on F3News: ['The Incredibles 2' picks up exactly where the original ended     - CNET](http://www.f3nws.com/n/RpquQB)
 
-> Posted on: Saturday, July 15, 2017 6:51:23 PM
+> Posted on: Saturday, July 15, 2017 6:52:28 PM
