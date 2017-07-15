@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 dead in Honolulu high-rise fire"
-date: 2017-07-15 07:06:35Z
+date: 2017-07-15 11:09:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least three people were killed in a massive fire at a Honolulu high-rise Frid
 
 Full story on F3News: [3 dead in Honolulu high-rise fire](http://www.f3nws.com/n/rkRJmD)
 
-> Posted on: Saturday, July 15, 2017 7:06:35 AM
+> Posted on: Saturday, July 15, 2017 11:09:02 AM
