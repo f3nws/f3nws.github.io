@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Turkey to mark anniversary of coup attempt - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p058qj0n.jpg)
 
-BBC News Turkey to mark anniversary of coup attempt BBC News Events will be held in Turkey later to mark the first anniversary of a failed coup in which at least 260 people died and 2,196 were wounded. A faction of the army tried to seize power from President Recep Tayyip Erdogan but the attempt collapsed. Since ... One year after coup attempt, Turkey is still battling terrorism The Boston Globe Turkey Dismisses Thousands of Police, Civil Servants, and Academics The Atlantic Turkey One Year After The Failed Coup HuffPost Washington Times - Breitbart News - War on the Rocks - Al-Monitor all 400 news articles »
+BBC News Turkey to mark anniversary of coup attempt BBC News Events will be held in Turkey later to mark the first anniversary of a failed coup in which at least 260 people died and 2,196 were wounded. A faction of the army tried to seize power from President Recep Tayyip Erdogan but the attempt collapsed. Since ... One year after coup attempt, Turkey is still battling terrorism The Boston Globe Turkey Dismisses Thousands of Police, Civil Servants, and Academics The Atlantic House votes to puts State Dept. on notice: Reject Turkish arms deal Washington Times Breitbart News - War on the Rocks - New York Daily News - Voice of America all 413 news articles »
 
 
 Full story on F3News: [Turkey to mark anniversary of coup attempt - BBC News](http://www.f3nws.com/n/CukuaC)

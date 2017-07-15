@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Woman's body found in car on Perth's Mitchell Freeway - ABC Online](http://www.abc.net.au/news/image/8711444-1x1-700x700.jpg)
 
-ABC Online Woman's body found in car on Perth's Mitchell Freeway ABC Online WA homicide detectives are investigating the death of a woman after a body was found in a car on Perth's Mitchell Freeway overnight. The driver of the vehicle was assisting officers with their inquiries, police said. It is understood the driver of an ... Mitchell Freeway closed after police find woman's body in car Community Newspaper Group Homicide cops investigating as Mitchell Freeway closed after woman's body found The West Australian Mitchell Freeway closed after police find woman's body in auto AppsforPCdaily Daily Mail all 7 news articles »
+ABC Online Woman's body found in car on Perth's Mitchell Freeway ABC Online WA homicide detectives are investigating the death of a woman after a body was found in a car on Perth's Mitchell Freeway overnight. The driver of the vehicle was assisting officers with their inquiries, police said. It is understood the driver of an ... Woman's body found in car on Perth freeway 9news.com.au Mitchell Freeway closed after police find woman's body in car Community Newspaper Group Homicide cops investigating as Mitchell Freeway closed after woman's body found The West Australian AppsforPCdaily - Daily Mail all 8 news articles »
 
 
 Full story on F3News: [Woman's body found in car on Perth's Mitchell Freeway - ABC Online](http://www.f3nws.com/n/YztvtC)
