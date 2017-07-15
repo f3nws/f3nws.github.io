@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Muguruza smashes Williams to win first Wimbledon title"
-date: 2017-07-15 15:30:29Z
+date: 2017-07-15 17:34:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Six weeks ago, Garbine Muguruza crashed out of the French Open in tears, losing 
 
 Full story on F3News: [Muguruza smashes Williams to win first Wimbledon title](http://www.f3nws.com/n/WSEyEG)
 
-> Posted on: Saturday, July 15, 2017 3:30:29 PM
+> Posted on: Saturday, July 15, 2017 5:34:18 PM
