@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon’s antitrust issue comes under scrutiny in DC & beyond"
-date: 2017-07-15 04:06:32Z
+date: 2017-07-15 04:06:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Amazon’s desire to spread its empire far and wide is facing pushback from two 
 
 Full story on F3News: [Amazon’s antitrust issue comes under scrutiny in DC & beyond](http://www.f3nws.com/n/UjExzE)
 
-> Posted on: Saturday, July 15, 2017 4:06:32 AM
+> Posted on: Saturday, July 15, 2017 4:06:00 AM
