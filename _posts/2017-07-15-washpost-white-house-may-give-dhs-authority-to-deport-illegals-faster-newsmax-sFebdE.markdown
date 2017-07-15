@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![WashPost: White House May Give DHS Authority to Deport Illegals Faster - Newsmax](http://www.newsmax.com/CMSPages/GetFile.aspx?guid=a7de44b7-1950-4d06-bbe7-809021897685&SiteName=Newsmax)
 
-Newsmax WashPost: White House May Give DHS Authority to Deport Illegals Faster Newsmax The Trump administration may expand the authority of the Department of Homeland Security to speed the deportation of some illegal immigrants, The Washington Post reported Friday. The policy under consideration would allow Homeland Security to deport ... In memo, Trump administration weighs expanding the expedited deportation powers of DHS Washington Post all 15 news articles »
+Newsmax WashPost: White House May Give DHS Authority to Deport Illegals Faster Newsmax The Trump administration may expand the authority of the Department of Homeland Security to speed the deportation of some illegal immigrants, The Washington Post reported Friday. The policy under consideration would allow Homeland Security to deport ... and more »
 
 
 Full story on F3News: [WashPost: White House May Give DHS Authority to Deport Illegals Faster - Newsmax](http://www.f3nws.com/n/sFebdE)
