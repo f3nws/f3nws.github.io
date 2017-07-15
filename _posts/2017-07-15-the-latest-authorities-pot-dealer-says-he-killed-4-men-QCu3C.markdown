@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Latest: Authorities: Pot dealer says he killed 4 men"
-date: 2017-07-15 05:14:16Z
+date: 2017-07-15 08:49:52Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ DOYLESTOWN, Pa. (AP) — The Latest on the investigation into the killings of fo
 
 Full story on F3News: [The Latest: Authorities: Pot dealer says he killed 4 men](http://www.f3nws.com/n/QCu3C)
 
-> Posted on: Saturday, July 15, 2017 5:14:16 AM
+> Posted on: Saturday, July 15, 2017 8:49:52 AM

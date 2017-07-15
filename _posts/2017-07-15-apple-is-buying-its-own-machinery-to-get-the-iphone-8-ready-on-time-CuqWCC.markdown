@@ -7,7 +7,7 @@ categories: techradar
 
 ![Apple is buying its own machinery to get the iPhone 8 ready on time](http://cdn.mos.cms.futurecdn.net/gigc5yrCqjgNwzrEKKgHDU-1200-80.jpg)
 
-Apple is giving its suppliers some extra help in the run up to this year's unveiling of the new iPhones.
+Apple is giving its suppliers some extra help in the run-up to this year's unveiling of the new iPhones.
 
 
 Full story on F3News: [Apple is buying its own machinery to get the iPhone 8 ready on time](http://www.f3nws.com/n/CuqWCC)
