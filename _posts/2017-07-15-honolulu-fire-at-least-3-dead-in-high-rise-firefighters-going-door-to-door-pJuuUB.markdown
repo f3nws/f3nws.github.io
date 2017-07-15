@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Honolulu fire: At least 3 dead in high-rise; firefighters going door-to-door"
-date: 2017-07-15 14:30:08Z
+date: 2017-07-15 15:00:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Firefighters in Honolulu were going door-to-door Saturday in a search for any ad
 
 Full story on F3News: [Honolulu fire: At least 3 dead in high-rise; firefighters going door-to-door](http://www.f3nws.com/n/pJuuUB)
 
-> Posted on: Saturday, July 15, 2017 2:30:08 PM
+> Posted on: Saturday, July 15, 2017 3:00:01 PM
