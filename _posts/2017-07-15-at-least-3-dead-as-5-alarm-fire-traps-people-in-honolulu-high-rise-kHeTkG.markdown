@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![At least 3 dead as 5-alarm fire traps people in Honolulu high-rise](https://img.rt.com/files/static.en/article/breaking.jpg)
 
-At least three people have died, as over 100 firefighters are battling a massive five-alarm fire in a condominium building in Honolulu, Hawaii. Two people have reportedly been hospitalized in serious condition. Read Full Article at RT.com
+At least three people died, as over 100 firefighters battled a massive five-alarm fire in a condominium in Honolulu, Hawaii. At least 12 were reportedly injured in the blaze. Read Full Article at RT.com
 
 
 Full story on F3News: [At least 3 dead as 5-alarm fire traps people in Honolulu high-rise](http://www.f3nws.com/n/kHeTkG)
