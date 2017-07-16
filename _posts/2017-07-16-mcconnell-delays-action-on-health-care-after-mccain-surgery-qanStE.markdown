@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McConnell delays action on health care after McCain surgery"
-date: 2017-07-16 04:00:00Z
+date: 2017-07-16 10:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Senate Majority Leader Mitch McConnell R-Ky announced Saturday that he was delay
 
 Full story on F3News: [McConnell delays action on health care after McCain surgery](http://www.f3nws.com/n/qanStE)
 
-> Posted on: Sunday, July 16, 2017 4:00:00 AM
+> Posted on: Sunday, July 16, 2017 10:00:00 AM
