@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Donald Trump Jr. Russia meeting -- what we know"
-date: 2017-07-16 00:17:17Z
+date: 2017-07-16 18:02:46Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ New revelations about Donald Trump Jr.'s meeting last summer with a Russian lawy
 
 Full story on F3News: [The Donald Trump Jr. Russia meeting -- what we know](http://www.f3nws.com/n/vQNxaH)
 
-> Posted on: Sunday, July 16, 2017 12:17:17 AM
+> Posted on: Sunday, July 16, 2017 6:02:46 PM

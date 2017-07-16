@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Federer clinches historic eighth Wimbledon title"
-date: 2017-07-16 17:13:00Z
+date: 2017-07-16 18:25:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An ace at 3:52PM local British time turned Roger Federer into the greatest Wimbl
 
 Full story on F3News: [Federer clinches historic eighth Wimbledon title](http://www.f3nws.com/n/nd4e4B)
 
-> Posted on: Sunday, July 16, 2017 5:13:00 PM
+> Posted on: Sunday, July 16, 2017 6:25:06 PM
