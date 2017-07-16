@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's Approval Stands at 50 Percent in the Counties That Fueled His Win - NBCNews.com](https://media4.s-nbcnews.com/j/newscms/2017_17/1982986/trump_14049-jpg-c1d8f_d800697bf4837fad41b67c2de13b6489.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Trump's Approval Stands at 50 Percent in the Counties That Fueled His Win NBCNews.com WASHINGTON — President Donald Trump's job approval rating in the American counties that fueled his 2016 victory stands at 50 percent, according to a new NBC News/Wall Street Journal poll of these "Trump counties." Fifty percent of adults in these ... Trump's approval rating at record low The Hill Trump's approval continues to drop, new poll finds Washington Examiner Trump's Approval Ratings After Six Months Are the Worst of Any President Newsweek New York Daily News - Daily Beast - Washington Post - Wall Street Journal (subscription) all 32 news articles »
+NBCNews.com Trump's Approval Stands at 50 Percent in the Counties That Fueled His Win NBCNews.com WASHINGTON — President Donald Trump's job approval rating in the American counties that fueled his 2016 victory stands at 50 percent, according to a new NBC News/Wall Street Journal poll of these "Trump counties." Fifty percent of adults in these ... Trump's approval rating at record low The Hill Trump calls ABC/Washington Post poll 'most inaccurate poll around election time' Politico Trump's approval continues to drop, new poll finds Washington Examiner Newsweek - New York Daily News - SFGate - Mic all 41 news articles »
 
 
 Full story on F3News: [Trump's Approval Stands at 50 Percent in the Counties That Fueled His Win - NBCNews.com](http://www.f3nws.com/n/DfSfPJ)
