@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamilton wins record 5th British GP"
-date: 2017-07-16 16:14:22Z
+date: 2017-07-16 16:36:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Silverstone proved home from home again for Lewis Hamilton as a record-equaling 
 
 Full story on F3News: [Hamilton wins record 5th British GP](http://www.f3nws.com/n/2hQVPG)
 
-> Posted on: Sunday, July 16, 2017 4:14:22 PM
+> Posted on: Sunday, July 16, 2017 4:36:42 PM

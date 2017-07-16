@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Aaron Carter Arrested for Alleged DUI and Marijuana Possession in Georgia - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2016022/rs_300x300-160122112441-600-aaron-carter.jpg?downsize=600:*&crop=600:315;left,top)
 
-E! Online Aaron Carter Arrested for Alleged DUI and Marijuana Possession in Georgia E! Online Aaron Carter was arrested in Georgia Saturday on suspicion of driving under the influence and pot possession, while his passenger, girlfriend Madison Parker, was also taken into custody for alleged drug-related offenses. The two have not commented. Aaron Carter Arrested for DUI, Marijuana Possession in Georgia Billboard Aaron Carter Arrested for Alleged DUI and Drug Possession PEOPLE.com Aaron Carter and His Girlfriend Madison Parker Arrested on DUI and Drug Possession Charges Life & Style Weekly Jezebel - PerezHilton.com - HuffPost - ABC News all 61 news articles »
+E! Online Aaron Carter Arrested for Alleged DUI and Marijuana Possession in Georgia E! Online Aaron Carter was arrested in Georgia Saturday on suspicion of driving under the influence and pot possession, while his passenger, girlfriend Madison Parker, was also taken into custody for alleged drug-related offenses. The two have not commented. Aaron Carter Arrested for Alleged DUI and Drug Possession PEOPLE.com Aaron Carter Arrested for DUI, Marijuana Possession in Georgia Billboard Aaron Carter Arrested On DUI, Weed Possession Charges Jezebel Life & Style Weekly - PerezHilton.com - ABC News - CNN all 65 news articles »
 
 
 Full story on F3News: [Aaron Carter Arrested for Alleged DUI and Marijuana Possession in Georgia - E! Online](http://www.f3nws.com/n/nzUfTE)

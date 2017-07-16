@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Federer wins record 8th Wimbledon"
-date: 2017-07-16 15:00:51Z
+date: 2017-07-16 16:30:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An ace at 3:52PM local British time turned Roger Federer into the greatest Wimbl
 
 Full story on F3News: [Federer wins record 8th Wimbledon](http://www.f3nws.com/n/nd4e4B)
 
-> Posted on: Sunday, July 16, 2017 3:00:51 PM
+> Posted on: Sunday, July 16, 2017 4:30:54 PM
