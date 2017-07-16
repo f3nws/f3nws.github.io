@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arizona swimming hole flash flood: 7 dead, 3 missing"
-date: 2017-07-16 18:06:00Z
+date: 2017-07-16 20:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Four people died, including two children, and six others remain missing on Sunda
 
 Full story on F3News: [Arizona swimming hole flash flood: 7 dead, 3 missing](http://www.f3nws.com/n/dsjSQG)
 
-> Posted on: Sunday, July 16, 2017 6:06:00 PM
+> Posted on: Sunday, July 16, 2017 8:30:00 PM
