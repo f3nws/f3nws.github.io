@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A year after failed coup in Turkey, Erdogan says 'behead traitors'"
-date: 2017-07-16 09:28:26Z
+date: 2017-07-16 11:32:34Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Turkish President Recep Tayyip Erdogan -- delivering a feisty and stirring messa
 
 Full story on F3News: [A year after failed coup in Turkey, Erdogan says 'behead traitors'](http://www.f3nws.com/n/QAPvcH)
 
-> Posted on: Sunday, July 16, 2017 9:28:26 AM
+> Posted on: Sunday, July 16, 2017 11:32:34 AM
