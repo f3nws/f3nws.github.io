@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Grisly murders stun small-town Pennsylvania"
-date: 2017-07-16 11:29:56Z
+date: 2017-07-16 12:46:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Susan Coleman and her husband were enjoying a quiet afternoon in the pool last w
 
 Full story on F3News: [Grisly murders stun small-town Pennsylvania](http://www.f3nws.com/n/cCgZ3C)
 
-> Posted on: Sunday, July 16, 2017 11:29:56 AM
+> Posted on: Sunday, July 16, 2017 12:46:03 PM
