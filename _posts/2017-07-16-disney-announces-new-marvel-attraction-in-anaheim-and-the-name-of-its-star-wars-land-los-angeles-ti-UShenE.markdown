@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Disney announces new Marvel attraction in Anaheim and the name of its Star Wars land - Los Angeles Times](http://www.trbimg.com/img-596ab96f/turbine/la-fi-disneyland-star-wars-20170715)
 
-Los Angeles Times Disney announces new Marvel attraction in Anaheim and the name of its Star Wars land Los Angeles Times With demand continuing to grow for Disney parks and movies, the entertainment giant announced plans to add new attractions throughout its parks, including a new Marvel superhero expansion in Anaheim. During its fan exposition D23 in Anaheim, Disney ... 'Infinity Wars' upstages 'Star Wars' at star-studded fan expo Fox News Photos from Disney's Live-Action Panel at the D23 Expo ComingSoon.net New details of Disney theme parks' Star Wars land revealed: 'Galaxy's Edge' EW.com Vulture - Forbes - CNBC - Orlando Sentinel all 848 news articles »
+Los Angeles Times Disney announces new Marvel attraction in Anaheim and the name of its Star Wars land Los Angeles Times With demand continuing to grow for Disney parks and movies, the entertainment giant announced plans to add new attractions throughout its parks, including a new Marvel superhero expansion in Anaheim. During its fan exposition D23 in Anaheim, Disney ... Photos from Disney's Live-Action Panel at the D23 Expo ComingSoon.net New details of Disney theme parks' Star Wars land revealed: 'Galaxy's Edge' EW.com The New Star Wars Hotel Is Basically Westworld With Lightsabers. What Could Go Wrong? Vulture CNBC - Forbes - Comicbook.com - Deadline all 848 news articles »
 
 
 Full story on F3News: [Disney announces new Marvel attraction in Anaheim and the name of its Star Wars land - Los Angeles Times](http://www.f3nws.com/n/UShenE)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel reopens Jerusalem holy site after deadly assault"
-date: 2017-07-16 11:45:40Z
+date: 2017-07-16 12:39:30Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Israeli police say security forces have shot dead a Palestinian assailant behind
 
 Full story on F3News: [Israel reopens Jerusalem holy site after deadly assault](http://www.f3nws.com/n/prGrYF)
 
-> Posted on: Sunday, July 16, 2017 11:45:40 AM
+> Posted on: Sunday, July 16, 2017 12:39:30 PM
