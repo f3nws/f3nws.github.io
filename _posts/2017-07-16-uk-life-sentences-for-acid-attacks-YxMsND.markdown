@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK: Life sentences for acid attacks?"
-date: 2017-07-16 11:07:24Z
+date: 2017-07-16 17:29:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The British government is set to launch a review on tougher sentencing for perpe
 
 Full story on F3News: [UK: Life sentences for acid attacks?](http://www.f3nws.com/n/YxMsND)
 
-> Posted on: Sunday, July 16, 2017 11:07:24 AM
+> Posted on: Sunday, July 16, 2017 5:29:15 PM
