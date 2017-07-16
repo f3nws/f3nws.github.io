@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Man dies in balcony fall at Fremantle's Sail and Anchor pub - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-ABC Online Man dies in balcony fall at Fremantle's Sail and Anchor pub ABC Online A 28-year-old man has fallen to his death from the balcony at a pub in Fremantle. Police said the West Perth man fell through plastic cafe blinds on the first floor at Sail and Anchor about 8.30pm on Saturday. It is thought he may have been sitting on ... Man, 28, falls to death from Fremantle hotel balcony NEWS.com.au Man dies after falling from Sail and Anchor Hotel in Fremantle Perth Now Man dies after falling from hotel balcony WAtoday Community Newspaper Group all 5 news articles »
+ABC Online Man dies in balcony fall at Fremantle's Sail and Anchor pub ABC Online A 28-year-old man has fallen to his death from the balcony at a pub in Fremantle. Police said the West Perth man fell through plastic cafe blinds on the first floor at Sail and Anchor about 8.30pm on Saturday. It is thought he may have been sitting on ... Man, 28, falls to death from Fremantle hotel balcony NEWS.com.au Man dies in fall from Freo pub balcony 9news.com.au Man dies after falling from Sail and Anchor Hotel in Fremantle Perth Now WAtoday - Community Newspaper Group all 7 news articles »
 
 
 Full story on F3News: [Man dies in balcony fall at Fremantle's Sail and Anchor pub - ABC Online](http://www.f3nws.com/n/ESMSFB)
