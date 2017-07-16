@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Female Doctor Who Is Exactly What the Franchise Needed - Vulture](https://pixel.nymag.com/imgs/daily/vulture/2017/07/16/DoctorWho1.w1200.h630.jpg)
 
-Vulture A Female Doctor Who Is Exactly What the Franchise Needed Vulture “I want to tell the fans not to be scared by my gender. Because this is a really exciting time, and Doctor Who represents everything that's exciting about change. The fans have lived through so many changes, and this is only a new, different one, not a ... New 'Doctor Who' Star Jodie Whittaker: Don't Be "Scared By My Gender" Hollywood Reporter First woman to play 'Doctor Who' sparks backlash New York Daily News Jodie Whittaker Responds to First Female 'Doctor Who' Outcry RollingStone.com Forbes - CBS News - mySanAntonio.com - Bustle all 498 news articles »
+Vulture A Female Doctor Who Is Exactly What the Franchise Needed Vulture “I want to tell the fans not to be scared by my gender. Because this is a really exciting time, and Doctor Who represents everything that's exciting about change. The fans have lived through so many changes, and this is only a new, different one, not a ... A Thousand Year Old Alien is Now a Woman, Or How White Fanboys Lost Their Damn Minds HuffPost First woman to play 'Doctor Who' sparks backlash New York Daily News Doctor Who: Jodie Whittaker casting splits fans BBC News CBS News - Forbes - Entertainment Tonight - Heavy.com all 516 news articles »
 
 
 Full story on F3News: [A Female Doctor Who Is Exactly What the Franchise Needed - Vulture](http://www.f3nws.com/n/nat4nD)
