@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Roger Federer takes record eighth Wimbledon title - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0716%2Fr231668_1296x729_16%2D9.jpg)
 
-ESPN Roger Federer takes record eighth Wimbledon title ESPN Roger Federer is a Wimbledon champion for a men's record eighth time, defeating Marin Cilic 6-3, 6-1, 6-4 in Sunday's final. The win moves Federer past both Pete Sampras and William Renshaw, who each won seven titles at the grass-court major, for the ... Roger Federer Wins Record-Breaking Eighth Wimbledon Title New York Times As it happened: Roger Federer defeats Marin Cilic to win record eighth Wimbledon Sports Illustrated Marin Cilic vs. Roger Federer: Live Updates, Score, Highlights for 2017 Wimbledon Men's Final Bleacher Report (blog) Washington Post - SB Nation - CNN - Los Angeles Times all 516 news articles »
+ESPN Roger Federer takes record eighth Wimbledon title ESPN Roger Federer is a Wimbledon champion for a men's record eighth time, defeating Marin Cilic 6-3, 6-1, 6-4 in Sunday's final. The win moves Federer past both Pete Sampras and William Renshaw, who each won seven titles at the grass-court major, for the ... Roger Federer Wins Record-Breaking Eighth Wimbledon Title New York Times Roger Federer, at 35, wins Wimbledon for a record eighth time Washington Post Roger Federer wins 2017 Wimbledon men's championship SB Nation Sports Illustrated - Reuters - Channel3000.com - WISC-TV3 - Sporting News all 537 news articles »
 
 
 Full story on F3News: [Roger Federer takes record eighth Wimbledon title - ESPN](http://www.f3nws.com/n/WjQdm)

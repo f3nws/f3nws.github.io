@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![An Amazon Echo Can't Call the Police—But Maybe It Should - WIRED](https://media.wired.com/photos/596956ace72d0f3ddf5e2f71/191:100/pass/Alexa911-FeatureArt.jpg)
 
-WIRED An Amazon Echo Can't Call the Police—But Maybe It Should WIRED Despite what you may have heard, an Amazon Echo did not call the police earlier this week, when it heard a husband threatening his wife with a gun in New Mexico. On Monday, news reports took Bernalillo County authorities' version of those events ... Amazon Echo has finally caught-up with THIS Google Home feature Express.co.uk Review: Amazon Echo Show is 'good enough' AppleInsider (press release) (blog) Amazon's Alexa Works Great in Your Car Lifehacker Blasting News - Tom's Guide - WBTV - Tech Times all 32 news articles »
+WIRED An Amazon Echo Can't Call the Police—But Maybe It Should WIRED Despite what you may have heard, an Amazon Echo did not call the police earlier this week, when it heard a husband threatening his wife with a gun in New Mexico. On Monday, news reports took Bernalillo County authorities' version of those events ... Amazon Echo has finally caught-up with THIS Google Home feature Express.co.uk Review: Amazon Echo Show is 'good enough' AppleInsider (press release) (blog) Amazon's Alexa Works Great in Your Car Lifehacker Tom's Guide - WBTV - Tech Times - StockNews.com (blog) all 32 news articles »
 
 
 Full story on F3News: [An Amazon Echo Can't Call the Police—But Maybe It Should - WIRED](http://www.f3nws.com/n/PfKCdH)

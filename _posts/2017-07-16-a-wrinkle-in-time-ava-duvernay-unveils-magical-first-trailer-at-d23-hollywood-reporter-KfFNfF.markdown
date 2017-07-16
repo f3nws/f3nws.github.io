@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['A Wrinkle in Time': Ava DuVernay Unveils Magical First Trailer at D23 - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/07/wrinkle_oprah.jpg)
 
-Hollywood Reporter 'A Wrinkle in Time': Ava DuVernay Unveils Magical First Trailer at D23 Hollywood Reporter Oprah Winfrey, Reese Witherspoon, Mindy Kaling, Chris Pine, Zach Galifianakis and Storm Reid star in the adaptation. It's time for the first look at one of next year's most anticipated films. The first trailer for director Ava DuVernay's A Wrinkle in ... Watch the dazzling first trailer for Ava DuVernay's A Wrinkle in Time EW.com (blog) The A Wrinkle In Time Trailer Has Arrived — Watch The Dazzling, Star-Studded Teaser HERE! PerezHilton.com Oprah wears the most amazing outfits in 'Wrinkle in Time' trailer USA TODAY The Root - Variety - InStyle - Slate Magazine (blog) all 145 news articles »
+Hollywood Reporter 'A Wrinkle in Time': Ava DuVernay Unveils Magical First Trailer at D23 Hollywood Reporter Oprah Winfrey, Reese Witherspoon, Mindy Kaling, Chris Pine, Zach Galifianakis and Storm Reid star in the adaptation. It's time for the first look at one of next year's most anticipated films. The first trailer for director Ava DuVernay's A Wrinkle in ... Watch the dazzling first trailer for Ava DuVernay's A Wrinkle in Time EW.com (blog) Oprah wears the most amazing outfits in 'Wrinkle in Time' trailer USA TODAY The A Wrinkle In Time Trailer Has Arrived — Watch The Dazzling, Star-Studded Teaser HERE! PerezHilton.com The Root - Polygon - Variety - Slate Magazine (blog) all 149 news articles »
 
 
 Full story on F3News: ['A Wrinkle in Time': Ava DuVernay Unveils Magical First Trailer at D23 - Hollywood Reporter](http://www.f3nws.com/n/KfFNfF)
