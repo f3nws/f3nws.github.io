@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Doctor Who' to get first female lead"
-date: 2017-07-16 16:48:48Z
+date: 2017-07-16 21:57:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ BBC has made history with the selection of the newest star of "Doctor Who."
 
 Full story on F3News: ['Doctor Who' to get first female lead](http://www.f3nws.com/n/HUzJaE)
 
-> Posted on: Sunday, July 16, 2017 4:48:48 PM
+> Posted on: Sunday, July 16, 2017 9:57:21 PM
