@@ -5,7 +5,7 @@ date: 2017-07-16 18:37:18Z
 categories: cnn-com-top-stories
 ---
 
-![Federer clinches historic eighth Wimbledon title](http://i2.cdn.cnn.com/cnnnext/dam/assets/170710172344-federer-centre-court-super-tease.jpg)
+![Federer clinches historic eighth Wimbledon title](http://i2.cdn.cnn.com/cnnnext/dam/assets/170716115252-03-roger-federer-0716-super-tease.jpg)
 
 An ace at 3:52PM local British time turned Roger Federer into the greatest Wimbledon men's champion of all time.
 
