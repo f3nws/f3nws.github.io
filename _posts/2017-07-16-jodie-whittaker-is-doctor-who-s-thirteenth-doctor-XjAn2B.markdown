@@ -5,7 +5,7 @@ date: 2017-07-16 15:29:00Z
 categories: the-verge
 ---
 
-![Jodie Whittaker is Doctor Who’s Thirteenth Doctor](https://cdn.vox-cdn.com/thumbor/1i5mxhE7bbzbluVcdsWyoovq_yM=/135x0:3097x1666/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55731309/Screen_Shot_2017_07_16_at_11.39.18_AM.1500219374.png)
+![Jodie Whittaker is Doctor Who’s Thirteenth Doctor](https://cdn.vox-cdn.com/thumbor/YPwOBWDO-4i2cPqBWwHxB-lw7fk=/0x0:590x332/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55731309/Jodie_Whittaker_Broadchurch_845172.0.jpg)
 
 
 
