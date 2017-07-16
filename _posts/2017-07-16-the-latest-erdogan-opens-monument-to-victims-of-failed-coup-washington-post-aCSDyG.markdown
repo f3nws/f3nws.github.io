@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Latest: Erdogan opens monument to victims of failed coup - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-07-16/AP/Images/Turkey_Coup_Anniversary_89039.jpg-bc63b.jpg?t=20170517)
 
-Washington Post The Latest: Erdogan opens monument to victims of failed coup Washington Post ISTANBUL — The Latest on the first anniversary since Turkey quashed last summer's coup attempt (all times local):. 6:40 a.m.. President Recep Tayyip Erdogan has inaugurated a monument in the capital Ankara honoring the some 250 people who were ... Turkey coup anniversary: Emotional Erdogan hails 'defenders of nation' BBC News Turkish president joins march commemorating 1-year anniversary of failed coup CBS News In shadow of crackdown, Turkey commemorates failed coup New York Daily News Los Angeles Times - Pittsburgh Post-Gazette - BuzzFeed News - Breitbart News all 697 news articles »
+Washington Post The Latest: Erdogan opens monument to victims of failed coup Washington Post ISTANBUL — The Latest on the first anniversary since Turkey quashed last summer's coup attempt (all times local):. 6:40 a.m.. President Recep Tayyip Erdogan has inaugurated a monument in the capital Ankara honoring the some 250 people who were ... Turkey coup anniversary: Emotional Erdogan hails 'defenders of nation' BBC News A year after failed coup in Turkey, Erdogan says 'behead traitors' CNN Turkish president joins march commemorating 1-year anniversary of failed coup CBS News New York Daily News - Los Angeles Times - Pittsburgh Post-Gazette - BuzzFeed News all 704 news articles »
 
 
 Full story on F3News: [The Latest: Erdogan opens monument to victims of failed coup - Washington Post](http://www.f3nws.com/n/aCSDyG)
