@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Deadly Hawaii fire raises concerns about lack of sprinklers in older high-rises across the US - Los Angeles Times"
+date: 2017-07-16 01:05:26Z
+categories: google-news-top-stories
+---
+
+![Deadly Hawaii fire raises concerns about lack of sprinklers in older high-rises across the US - Los Angeles Times](http://www.trbimg.com/img-596a7bea/turbine/la-na-hawaii-building-fire-20170715)
+
+Los Angeles Times Deadly Hawaii fire raises concerns about lack of sprinklers in older high-rises across the US Los Angeles Times Moon Yun Pellerin was still in shock as she sat on a bench Saturday morning in the crowded lobby of her Honolulu high-rise. Her home on the 27th floor — owned by her 78-year-old mother who has dementia — had been destroyed when the raging fire broke ... Man Killed in Honolulu High-Rise Fire Remembered as Caring Professional NBCNews.com Marco Polo residents return after deadly fire; 12 units 'heavily damaged' Honolulu Star-Advertiser Ex-unit owner says building had extinguishers WKYT fox5sandiego.com - Tribune-Review - Pacific Business News (Honolulu) - SFGate all 247 news articles »
+
+
+Full story on F3News: [Deadly Hawaii fire raises concerns about lack of sprinklers in older high-rises across the US - Los Angeles Times](http://www.f3nws.com/n/gAU2XE)
+
+> Posted on: Sunday, July 16, 2017 1:05:26 AM
