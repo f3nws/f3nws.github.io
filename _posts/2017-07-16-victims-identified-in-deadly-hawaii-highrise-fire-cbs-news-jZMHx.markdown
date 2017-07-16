@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Victims identified in deadly Hawaii highrise fire - CBS News](http://cbsnews1.cbsistatic.com/hub/i/2017/07/16/691da325-7885-46cd-99a5-793196ffac43/image004-1.jpg)
 
-CBS News Victims identified in deadly Hawaii highrise fire CBS News Last Updated Jul 16, 2017 12:29 AM EDT. HONOLULU -- The three victims killed in a fire at a Honolulu high-rise apartment that was not equipped with sprinklers have been identified, family members and sources said on Saturday. Officials said two women ... Triple-fatal Honolulu fire: Photos show charred remains of 26th floor; victim remembered Chicago Tribune Marco Polo residents return after deadly fire; 12 units 'heavily damaged' Honolulu Star-Advertiser Investigators look for cause of fatal Hawaii tower fire Reuters fox5sandiego.com - KITV Honolulu - WKYT - SFGate all 355 news articles »
+CBS News Victims identified in deadly Hawaii highrise fire CBS News Last Updated Jul 16, 2017 12:29 AM EDT. HONOLULU -- The three victims killed in a fire at a Honolulu high-rise apartment that was not equipped with sprinklers have been identified, family members and sources said on Saturday. Officials said two women ... Triple-fatal Honolulu fire: Photos show charred remains of 26th floor; victim remembered Chicago Tribune The Latest: Some in Honolulu high-rise did not hear alarm ABC News Man Killed in Honolulu High-Rise Fire Remembered as Caring Professional NBCNews.com Reuters - Honolulu Star-Advertiser - WKYT - fox5sandiego.com all 367 news articles »
 
 
 Full story on F3News: [Victims identified in deadly Hawaii highrise fire - CBS News](http://www.f3nws.com/n/jZMHx)
