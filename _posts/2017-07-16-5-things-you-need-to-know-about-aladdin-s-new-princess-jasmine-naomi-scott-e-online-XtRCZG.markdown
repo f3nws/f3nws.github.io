@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![5 Things You Need to Know About Aladdin's New Princess Jasmine, Naomi Scott - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017615/rs_600x600-170715181459-600.Naomi-Scott.kg.071517.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online 5 Things You Need to Know About Aladdin's New Princess Jasmine, Naomi Scott E! Online Earlier today at the D23 Expo, the House of Mouse revealed the actress who will play the princess who fell in love with the pauper in Guy Ritchie's live-action reboot of Aladdin and her name is Naomi Scott. While most may not know her name, you may ... Disney Announces Main Aladdin Cast Including Will Smith Vanity Fair Disney Announces Its New Aladdin and Princess Jasmine: Mena Massoud and Naomi Scott Slate Magazine (blog) Naomi Scott & Mena Massoud: 5 Things To Hollywood Life Bustle - Heavy.com - Entertainment Tonight - WTSP 10 News all 146 news articles »
+E! Online 5 Things You Need to Know About Aladdin's New Princess Jasmine, Naomi Scott E! Online Earlier today at the D23 Expo, the House of Mouse revealed the actress who will play the princess who fell in love with the pauper in Guy Ritchie's live-action reboot of Aladdin and her name is Naomi Scott. While most may not know her name, you may ... Disney Announces Main Aladdin Cast Including Will Smith Vanity Fair Disney Announces Its New Aladdin and Princess Jasmine: Mena Massoud and Naomi Scott Slate Magazine (blog) Naomi Scott & Mena Massoud: 5 Things To Hollywood Life Bustle - Heavy.com - Entertainment Tonight - WTSP 10 News all 148 news articles »
 
 
 Full story on F3News: [5 Things You Need to Know About Aladdin's New Princess Jasmine, Naomi Scott - E! Online](http://www.f3nws.com/n/XtRCZG)
