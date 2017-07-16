@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump defends Donald Trump Jr. in tweetstorm"
-date: 2017-07-16 12:44:03Z
+date: 2017-07-16 15:02:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump defended his eldest son, Donald Trump Jr., on Twitter Sun
 
 Full story on F3News: [Trump defends Donald Trump Jr. in tweetstorm](http://www.f3nws.com/n/bKMWSB)
 
-> Posted on: Sunday, July 16, 2017 12:44:03 PM
+> Posted on: Sunday, July 16, 2017 3:02:04 PM
