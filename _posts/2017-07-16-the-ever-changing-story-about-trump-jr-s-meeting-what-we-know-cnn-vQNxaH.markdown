@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The ever-changing story about Trump Jr.'s meeting -- what we know - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170711055507-donald-trump-jr-trump-tower-super-tease.jpg)
 
-CNN The ever-changing story about Trump Jr.'s meeting -- what we know CNN Washington (CNN) New revelations about Donald Trump Jr.'s meeting last summer with a Russian lawyer are continuing to surface a week after the revelation rocketed the President's eldest son to the center of allegations of collusion with Russia. Daily ... Trump campaign paid firm of lawyer representing Trump Jr. before emails were made public Washington Post Soviet Veteran Who Met With Trump Jr. Is a Master of the Dark Arts New York Times Trump campaign paid $50000 to Trump Jr.'s attorney Politico HuffPost - CBS News - USA TODAY - The Boston Globe all 2,414 news articles »
+CNN The ever-changing story about Trump Jr.'s meeting -- what we know CNN Washington (CNN) New revelations about Donald Trump Jr.'s meeting last summer with a Russian lawyer are continuing to surface a week after the revelation rocketed the President's eldest son to the center of allegations of collusion with Russia. Daily ... Trump campaign paid firm of lawyer representing Trump Jr. before emails were made public Washington Post Trump campaign paid $50000 to Trump Jr.'s attorney Politico Trump Campaign Paid $50000 To Trump Jr.'s Lawyer Days Before Bombshell NYT Report HuffPost CBS News - USA TODAY - The Hill - Bloomberg all 2,414 news articles »
 
 
 Full story on F3News: [The ever-changing story about Trump Jr.'s meeting -- what we know - CNN](http://www.f3nws.com/n/vQNxaH)
