@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The ever-changing story about Trump Jr.'s meeting -- what we know - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170711055507-donald-trump-jr-trump-tower-super-tease.jpg)
 
-CNN The ever-changing story about Trump Jr.'s meeting -- what we know CNN Washington (CNN) New revelations about Donald Trump Jr.'s meeting last summer with a Russian lawyer are continuing to surface a week after the revelation rocketed the President's eldest son to the center of allegations of collusion with Russia. Daily ... AP News in Brief at 11:04 pm EDT Washington Post Meet the people who were at Trump Jr.'s Russia meeting The Hill Trump's Re-Election Campaign Doubles Its Spending on Legal Fees New York Times Politico - HuffPost - The Boston Globe - Los Angeles Times all 2,801 news articles »
+CNN The ever-changing story about Trump Jr.'s meeting -- what we know CNN Washington (CNN) New revelations about Donald Trump Jr.'s meeting last summer with a Russian lawyer are continuing to surface a week after the revelation rocketed the President's eldest son to the center of allegations of collusion with Russia. Daily ... Soviet Veteran Who Met With Trump Jr. Is a Master of the Dark Arts New York Times Meet the people who were at Trump Jr.'s Russia meeting The Hill Trump campaign paid firm of lawyer representing Trump Jr. before emails were made public Washington Post Politico - HuffPost - Los Angeles Times - Slate Magazine all 2,718 news articles »
 
 
 Full story on F3News: [The ever-changing story about Trump Jr.'s meeting -- what we know - CNN](http://www.f3nws.com/n/vQNxaH)
