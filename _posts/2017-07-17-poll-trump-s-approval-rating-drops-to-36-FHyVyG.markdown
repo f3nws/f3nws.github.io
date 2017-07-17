@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Poll: Trump's approval rating drops to 36%"
-date: 2017-07-17 06:57:46Z
+date: 2017-07-17 13:22:22Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Only 36% of Americans approve of President Donald Trump's performance in the Ova
 
 Full story on F3News: [Poll: Trump's approval rating drops to 36%](http://www.f3nws.com/n/FHyVyG)
 
-> Posted on: Monday, July 17, 2017 6:57:46 AM
+> Posted on: Monday, July 17, 2017 1:22:22 PM
