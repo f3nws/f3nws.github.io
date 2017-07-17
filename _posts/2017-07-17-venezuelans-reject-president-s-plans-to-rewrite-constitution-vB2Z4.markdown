@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuelans reject President's plans to rewrite constitution"
-date: 2017-07-17 10:49:27Z
+date: 2017-07-17 20:40:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Millions of Venezuelans have voted to reject President Nicolas Maduro's controve
 
 Full story on F3News: [Venezuelans reject President's plans to rewrite constitution](http://www.f3nws.com/n/vB2Z4)
 
-> Posted on: Monday, July 17, 2017 10:49:27 AM
+> Posted on: Monday, July 17, 2017 8:40:37 PM
