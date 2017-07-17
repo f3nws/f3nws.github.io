@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McCain's Surgery May Be More Serious Than Thought, Experts Say - New York Times](https://static01.nyt.com/images/2017/07/17/us/17mccain1/17mccain1-facebookJumbo.jpg)
 
-New York Times McCain's Surgery May Be More Serious Than Thought, Experts Say New York Times Senator John McCain of Arizona last week on Capitol Hill. He had surgery on Friday to remove a blood clot. Credit Jacquelyn Martin/Associated Press. The condition for which Senator John McCain had surgery on Friday may be more serious than initial ... Obamacare repeal bill plunges into new uncertainty Politico Source: CBO report on health care bill not expected Monday CNN The Latest: CBO delays analysis of latest health care bill Washington Post New York Daily News - The Hill - NBCNews.com - The Boston Globe all 376 news articles »
+New York Times McCain's Surgery May Be More Serious Than Thought, Experts Say New York Times Senator John McCain of Arizona last week on Capitol Hill. He had surgery on Friday to remove a blood clot. Credit Jacquelyn Martin/Associated Press. The condition for which Senator John McCain had surgery on Friday may be more serious than initial ... AP News in Brief at 11:04 pm EDT Washington Post Obamacare repeal bill plunges into new uncertainty Politico Source: CBO report on health care bill not expected Monday CNN The Hill - New York Daily News - NBCNews.com - Chicago Tribune all 375 news articles »
 
 
 Full story on F3News: [McCain's Surgery May Be More Serious Than Thought, Experts Say - New York Times](http://www.f3nws.com/n/hDGnVB)
