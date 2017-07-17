@@ -5,7 +5,7 @@ date: 2017-07-17 04:09:18Z
 categories: abc-top-stories
 ---
 
-!['They knew it would bankrupt me': Amber Harrison ordered to pay Seven's costs](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
+!['They knew it would bankrupt me': Amber Harrison ordered to pay Seven's costs](http://www.abc.net.au/news/image/8689544-1x1-700x700.jpg)
 
 The former lover of Seven West Media boss Tim Worner fires a broadside at the legal system and her former employer after being ordered to pay the media giant's legal costs for breaching a confidentiality agreement.
 
