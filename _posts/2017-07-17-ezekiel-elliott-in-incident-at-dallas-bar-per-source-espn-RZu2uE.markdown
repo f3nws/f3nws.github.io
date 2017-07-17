@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ezekiel Elliott in incident at Dallas bar, per source - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F0521%2Fr85121_1296x729_16%2D9.jpg)
 
-ESPN Ezekiel Elliott in incident at Dallas bar, per source ESPN Cowboys running back Ezekiel Elliott was involved in a late-night incident at a Dallas bar Sunday, a source confirmed to ESPN's Adam Schefter. According to the Dallas Police Department, officers were dispatched to the bar around 9:40 p.m. A 30-year-old ... Another incident for Ezekiel Elliott NBCSports.com Cowboys' Ezekiel Elliott reportedly involved in an incident in a Dallas bar Washington Post Ezekiel Elliott Involved in Incident at Dallas Bar; Police Report No Arrests Bleacher Report NFL.com - TMZ.com - NJ.com - Sports Illustrated all 208 news articles »
+ESPN Ezekiel Elliott in incident at Dallas bar, per source ESPN Cowboys running back Ezekiel Elliott was involved in a late-night incident at a Dallas bar Sunday, a source confirmed to ESPN's Adam Schefter. According to the Dallas Police Department, officers were dispatched to the bar around 9:40 p.m. A 30-year-old ... NFL already investigating latest Ezekiel Elliott incident NBCSports.com Ezekiel Elliott Involved in Incident at Dallas Bar; Police Report No Arrests Bleacher Report Cowboys' Ezekiel Elliott reportedly involved in an incident in a Dallas bar Washington Post NFL.com - TMZ.com - NJ.com - Los Angeles Times all 223 news articles »
 
 
 Full story on F3News: [Ezekiel Elliott in incident at Dallas bar, per source - ESPN](http://www.f3nws.com/n/RZu2uE)
