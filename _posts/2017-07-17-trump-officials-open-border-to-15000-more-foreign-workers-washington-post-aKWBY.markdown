@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump officials open border to 15000 more foreign workers - Washington Post](https://images.washingtonpost.com/?url=http://img.washingtonpost.com/blogs/wonkblog/files/2017/07/SEAFOOD41447333147.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Trump officials open border to 15000 more foreign workers Washington Post The Department of Homeland Security on Monday announced a one-time increase of 15,000 additional visas for low-wage seasonal workers for the remainder of this fiscal year, a seeming about-face from President Trump's "Hire American" rhetoric, following ... US to allow 15000 extra temporary worker visas this year USA TODAY The Trump Administration Is Letting American Businesses Hire More Foreign Workers BuzzFeed News Trump administration to allow for 15000 more foreign workers Politico The Hill - ABC News - U.S. News & World Report - HuffPost all 69 news articles »
+Washington Post Trump officials open border to 15000 more foreign workers Washington Post The Department of Homeland Security on Monday announced a one-time increase of 15,000 additional visas for low-wage seasonal workers for the remainder of this fiscal year, a seeming about-face from President Trump's "Hire American" rhetoric, following ... US to allow 15000 extra temporary worker visas this year USA TODAY The Trump Administration Is Letting American Businesses Hire More Foreign Workers BuzzFeed News Homeland Security to allow 15000 more visas for seasonal workers The Hill Politico - ABC News - U.S. News & World Report - HuffPost all 70 news articles »
 
 
 Full story on F3News: [Trump officials open border to 15000 more foreign workers - Washington Post](http://www.f3nws.com/n/aKWBY)

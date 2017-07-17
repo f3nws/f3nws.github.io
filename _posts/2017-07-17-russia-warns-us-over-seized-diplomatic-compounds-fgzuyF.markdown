@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia warns US over seized diplomatic compounds"
-date: 2017-07-17 12:24:47Z
+date: 2017-07-17 22:24:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia has described any possible conditions set by Washington to return two of 
 
 Full story on F3News: [Russia warns US over seized diplomatic compounds](http://www.f3nws.com/n/fgzuyF)
 
-> Posted on: Monday, July 17, 2017 12:24:47 PM
+> Posted on: Monday, July 17, 2017 10:24:14 PM
