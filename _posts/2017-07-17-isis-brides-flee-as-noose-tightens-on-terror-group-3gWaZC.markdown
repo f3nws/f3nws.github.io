@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS brides flee as noose tightens on terror group"
-date: 2017-07-17 07:12:07Z
+date: 2017-07-17 21:12:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They tell stories that their lives depend upon. All insist they were shocked and
 
 Full story on F3News: [ISIS brides flee as noose tightens on terror group](http://www.f3nws.com/n/3gWaZC)
 
-> Posted on: Monday, July 17, 2017 7:12:07 AM
+> Posted on: Monday, July 17, 2017 9:12:35 PM
