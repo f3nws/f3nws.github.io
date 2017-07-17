@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuelans reject President's plan in non-binding vote"
-date: 2017-07-17 05:25:03Z
+date: 2017-07-17 05:49:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Millions of Venezuelans have voted to reject President Nicolas Maduro's controve
 
 Full story on F3News: [Venezuelans reject President's plan in non-binding vote](http://www.f3nws.com/n/vB2Z4)
 
-> Posted on: Monday, July 17, 2017 5:25:03 AM
+> Posted on: Monday, July 17, 2017 5:49:40 AM
