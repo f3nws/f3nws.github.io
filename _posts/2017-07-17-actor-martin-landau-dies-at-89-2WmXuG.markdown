@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Actor Martin Landau dies at 89"
-date: 2017-07-17 01:42:17Z
+date: 2017-07-17 02:06:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Actor Martin Landau, who starred in the 1960s television show "Mission Impossibl
 
 Full story on F3News: [Actor Martin Landau dies at 89](http://www.f3nws.com/n/2WmXuG)
 
-> Posted on: Monday, July 17, 2017 1:42:17 AM
+> Posted on: Monday, July 17, 2017 2:06:16 AM
