@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merkel rules out limiting number of refugees in Germany"
-date: 2017-07-17 12:52:10Z
+date: 2017-07-17 16:12:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ German Chancellor Angela Merkel has ruled out setting an upper limit on refugees
 
 Full story on F3News: [Merkel rules out limiting number of refugees in Germany](http://www.f3nws.com/n/ECzEuG)
 
-> Posted on: Monday, July 17, 2017 12:52:10 PM
+> Posted on: Monday, July 17, 2017 4:12:31 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Review: 'Game of Thrones' heats up as winter arrives"
-date: 2017-07-17 15:04:09Z
+date: 2017-07-17 16:27:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The following contains spoilers about the seventh-season premiere of "Game of Th
 
 Full story on F3News: [Review: 'Game of Thrones' heats up as winter arrives](http://www.f3nws.com/n/mEkVZB)
 
-> Posted on: Monday, July 17, 2017 3:04:09 PM
+> Posted on: Monday, July 17, 2017 4:27:21 PM
