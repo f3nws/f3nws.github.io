@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Horror movie legend George A. Romero, creator of 'Night of the Living Dead,' dies at 77"
-date: 2017-07-17 04:56:21Z
+date: 2017-07-17 19:51:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Horror movie legend George A. Romero, creator of 'Night of the Living Dead,' dies at 77](http://www.f3nws.com/n/nzYSZH)
 
-> Posted on: Monday, July 17, 2017 4:56:21 AM
+> Posted on: Monday, July 17, 2017 7:51:46 PM
