@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Columbia University settles with student accused of sexual assault"
-date: 2017-07-17 03:30:15Z
+date: 2017-07-17 13:16:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Columbia University has settled a lawsuit filed by a student over its handling o
 
 Full story on F3News: [Columbia University settles with student accused of sexual assault](http://www.f3nws.com/n/B2F3HF)
 
-> Posted on: Monday, July 17, 2017 3:30:15 AM
+> Posted on: Monday, July 17, 2017 1:16:21 PM
