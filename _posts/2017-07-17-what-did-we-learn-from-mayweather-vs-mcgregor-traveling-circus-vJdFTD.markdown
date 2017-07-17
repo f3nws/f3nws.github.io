@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What did we learn from Mayweather vs. McGregor traveling circus?"
-date: 2017-07-17 09:39:55Z
+date: 2017-07-17 11:35:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The boxing purists are utterly dismissive of the fight as a total mismatch but t
 
 Full story on F3News: [What did we learn from Mayweather vs. McGregor traveling circus?](http://www.f3nws.com/n/vJdFTD)
 
-> Posted on: Monday, July 17, 2017 9:39:55 AM
+> Posted on: Monday, July 17, 2017 11:35:20 AM
