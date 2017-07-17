@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best gaming PC: 10 of the top rigs you can buy in 2017"
-date: 2017-07-17 14:14:00Z
+date: 2017-07-17 14:19:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ These are the best gaming PCs, always updated with the greatest pre-built rigs a
 
 Full story on F3News: [Best gaming PC: 10 of the top rigs you can buy in 2017](http://www.f3nws.com/n/4cygAE)
 
-> Posted on: Monday, July 17, 2017 2:14:00 PM
+> Posted on: Monday, July 17, 2017 2:19:00 PM
