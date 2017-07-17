@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian woman in US fatally shot by police officer"
-date: 2017-07-17 04:28:24Z
+date: 2017-07-17 06:03:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Minnesota authorities are investigating the shooting death of an Australian woma
 
 Full story on F3News: [Australian woman in US fatally shot by police officer](http://www.f3nws.com/n/CaSTa)
 
-> Posted on: Monday, July 17, 2017 4:28:24 AM
+> Posted on: Monday, July 17, 2017 6:03:51 AM
