@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iranian-American sentenced to 10 years in Iran for spying"
-date: 2017-07-17 01:08:00Z
+date: 2017-07-17 02:27:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ An Iranian-American was sentenced to 10 years in prison for spying, Iran said Su
 
 Full story on F3News: [Iranian-American sentenced to 10 years in Iran for spying](http://www.f3nws.com/n/hkZmfB)
 
-> Posted on: Monday, July 17, 2017 1:08:00 AM
+> Posted on: Monday, July 17, 2017 2:27:48 AM
