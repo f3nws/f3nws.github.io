@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Delta hits back at Ann Coulter after her tweetstorm over seat mix-up"
-date: 2017-07-17 15:42:48Z
+date: 2017-07-17 19:04:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Delta Airlines has hit back at what it called a "public attack" on its employees
 
 Full story on F3News: [Delta hits back at Ann Coulter after her tweetstorm over seat mix-up](http://www.f3nws.com/n/JMSZtF)
 
-> Posted on: Monday, July 17, 2017 3:42:48 PM
+> Posted on: Monday, July 17, 2017 7:04:42 PM
