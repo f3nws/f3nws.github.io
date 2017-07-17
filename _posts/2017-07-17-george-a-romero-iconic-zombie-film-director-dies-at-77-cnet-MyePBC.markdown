@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "George A. Romero, iconic zombie film director, dies at 77     - CNET"
-date: 2017-07-17 02:40:37Z
+date: 2017-07-17 04:08:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The "Night of the Living Dead" creator, who inspired horror filmmakers for decad
 
 Full story on F3News: [George A. Romero, iconic zombie film director, dies at 77     - CNET](http://www.f3nws.com/n/MyePBC)
 
-> Posted on: Monday, July 17, 2017 2:40:37 AM
+> Posted on: Monday, July 17, 2017 4:08:27 AM

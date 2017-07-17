@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea proposes military talks with North"
-date: 2017-07-17 03:24:12Z
+date: 2017-07-17 04:11:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korea's new government is making overtures to the North, proposing militar
 
 Full story on F3News: [South Korea proposes military talks with North](http://www.f3nws.com/n/GNeCcH)
 
-> Posted on: Monday, July 17, 2017 3:24:12 AM
+> Posted on: Monday, July 17, 2017 4:11:11 AM
