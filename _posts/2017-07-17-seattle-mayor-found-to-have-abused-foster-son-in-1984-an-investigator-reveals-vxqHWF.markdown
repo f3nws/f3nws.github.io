@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seattle mayor found to have abused foster son in 1984, an investigator reveals"
-date: 2017-07-17 04:00:05Z
+date: 2017-07-17 04:01:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Three decades before Ed Murray was elected Seattle's mayor, an Oregon child-welf
 
 Full story on F3News: [Seattle mayor found to have abused foster son in 1984, an investigator reveals](http://www.f3nws.com/n/vxqHWF)
 
-> Posted on: Monday, July 17, 2017 4:00:05 AM
+> Posted on: Monday, July 17, 2017 4:01:00 AM
