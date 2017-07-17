@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flash flood kills 7 from family"
-date: 2017-07-17 03:57:39Z
+date: 2017-07-17 05:19:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seven people are dead and three others missing after flash flooding swept away a
 
 Full story on F3News: [Flash flood kills 7 from family](http://www.f3nws.com/n/ZyYMsB)
 
-> Posted on: Monday, July 17, 2017 3:57:39 AM
+> Posted on: Monday, July 17, 2017 5:19:45 AM

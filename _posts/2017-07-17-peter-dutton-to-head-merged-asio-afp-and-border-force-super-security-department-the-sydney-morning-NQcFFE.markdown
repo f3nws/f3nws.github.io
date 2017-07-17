@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peter Dutton to head merged ASIO, AFP and Border Force super security department - The Sydney Morning Herald"
-date: 2017-07-17 04:01:44Z
+date: 2017-07-17 04:05:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Peter Dutton to head merged ASIO, AFP and Border Force
 
 Full story on F3News: [Peter Dutton to head merged ASIO, AFP and Border Force super security department - The Sydney Morning Herald](http://www.f3nws.com/n/NQcFFE)
 
-> Posted on: Monday, July 17, 2017 4:01:44 AM
+> Posted on: Monday, July 17, 2017 4:05:00 AM
