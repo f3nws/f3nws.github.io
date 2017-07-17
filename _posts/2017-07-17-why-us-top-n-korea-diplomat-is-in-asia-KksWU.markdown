@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why US' top N. Korea diplomat is in  Asia"
-date: 2017-07-17 07:55:03Z
+date: 2017-07-17 11:16:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When US Ambassador Joseph Yun visits Myanmar this week, he'll likely be trying t
 
 Full story on F3News: [Why US' top N. Korea diplomat is in  Asia](http://www.f3nws.com/n/KksWU)
 
-> Posted on: Monday, July 17, 2017 7:55:03 AM
+> Posted on: Monday, July 17, 2017 11:16:02 AM

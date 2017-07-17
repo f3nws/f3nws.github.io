@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump changes tune, flexes US muscle overseas"
-date: 2017-07-17 11:47:28Z
+date: 2017-07-17 15:14:43Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ In the first six months of President Donald Trump's tenure, the US has ramped up
 
 Full story on F3News: [Trump changes tune, flexes US muscle overseas](http://www.f3nws.com/n/gpsb2D)
 
-> Posted on: Monday, July 17, 2017 11:47:28 AM
+> Posted on: Monday, July 17, 2017 3:14:43 PM
