@@ -5,6 +5,8 @@ date: 2017-07-17 04:01:00Z
 categories: wired-top-stories
 ---
 
+![IBM Z's 'Pervasive Encryption' Wants to Stop Data Breaches in Their Tracks](https://media.wired.com/photos/59692e7e996a4d5d7da87e7c/191:100/pass/IBM-FeatureArt.jpg)
+
 The new IBM Z mainframe uses "pervasive encryption" to stop data breaches in their tracks.
 
 
