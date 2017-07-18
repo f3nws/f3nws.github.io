@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Neighbors Pissed at 'Cult' Allegation - TMZ.com"
+date: 2017-07-18 08:02:58Z
+categories: google-news-entertaintment
+---
+
+![Neighbors Pissed at 'Cult' Allegation - TMZ.com](https://media.tmz.com/2017/07/17/0717-r-kelly-tmz-01-1200x630-1.jpg)
+
+TMZ.com Neighbors Pissed at 'Cult' Allegation TMZ.com R. Kelly Neighbors Deny Turning Blind Eye, No Signs of Alleged 'Cult' of Young Women. EXCLUSIVE. R. Kelly's Georgia crib was more of a party house than the home base of an abusive cult ... according to neighbors who are shocked at claims the singer ... Is R. Kelly Finally Having His Bill Cosby Moment? Slate Magazine R. Kelly Denies “Sex Cult” Allegations Vibe R Kelly denies holding several women in 'abusive cult' BBC News Newsweek - Reuters - Noisey - KABC-TV all 333 news articles »
+
+
+Full story on F3News: [Neighbors Pissed at 'Cult' Allegation - TMZ.com](http://www.f3nws.com/n/YcMypH)
+
+> Posted on: Tuesday, July 18, 2017 8:02:58 AM
