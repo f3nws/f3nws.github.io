@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![James Franco is Tommy Wiseau in first teaser for The Disaster Artist - EW.com](http://i1.wp.com/ewedit.files.wordpress.com/2017/07/thedisasterartist.jpg?crop=0px%2C76px%2C2700px%2C1419px&resize=1200%2C630&ssl=1)
 
-EW.com James Franco is Tommy Wiseau in first teaser for The Disaster Artist EW.com James Franco's new film as director, The Disaster Artist, details the making of 2003's infamously bad — but, also, famously entertaining — movie, The Room. Franco himself plays the movie's director-star Tommy Wiseau while his brother Dave portrays ... Is 'The Disaster Artist' James Franco's next shot at Oscar gold? Los Angeles Times James Franco's Movie About Making The Room Looks Perfectly Terrible Vanity Fair Watch James Franco Recreate Tommy Wiseau's Cult Classic 'The Room' RollingStone.com Hollywood Reporter - Slate Magazine (blog) - Vulture - Hollywood Life all 100 news articles »
+EW.com James Franco is Tommy Wiseau in first teaser for The Disaster Artist EW.com James Franco's new film as director, The Disaster Artist, details the making of 2003's infamously bad — but, also, famously entertaining — movie, The Room. Franco himself plays the movie's director-star Tommy Wiseau while his brother Dave portrays ... Is 'The Disaster Artist' James Franco's next shot at Oscar gold? Los Angeles Times James Franco's Movie About Making The Room Looks Perfectly Terrible Vanity Fair 'The Disaster Artist' Trailer: James, Dave Franco Say, "Oh, Hi Mark" Hollywood Reporter Slate Magazine (blog) - Forbes - Vulture - RollingStone.com all 107 news articles »
 
 
 Full story on F3News: [James Franco is Tommy Wiseau in first teaser for The Disaster Artist - EW.com](http://www.f3nws.com/n/tRWXuC)
