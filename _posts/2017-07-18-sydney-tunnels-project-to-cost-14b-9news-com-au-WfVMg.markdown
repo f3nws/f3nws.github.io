@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Sydney tunnels project 'to cost $14b' - 9news.com.au](http://www.9news.com.au/assets/img/9news_imgbg.053d2949.png)
 
-Architecture and Design Sydney tunnels project 'to cost $14b' 9news.com.au The 14-kilometre tunnel tollway set to link Sydney's northern beaches to the city could cost the same amount as Australia's largest road project, it's been revealed. The proposed Western Harbour Tunnel, which will connect Rozelle in the inner west to ... The toll tunnel to Sydney's northern beaches is set to cost $1 billion per kilometre Business Insider Australia all 5 news articles »
+Sydney tunnels project 'to cost $14b' 9news.com.au The 14-kilometre tunnel tollway set to link Sydney's northern beaches to the city could cost the same amount as Australia's largest road project, it's been revealed. The proposed Western Harbour Tunnel, which will connect Rozelle in the inner west to ... and more »
 
 
 Full story on F3News: [Sydney tunnels project 'to cost $14b' - 9news.com.au](http://www.f3nws.com/n/WfVMg)
