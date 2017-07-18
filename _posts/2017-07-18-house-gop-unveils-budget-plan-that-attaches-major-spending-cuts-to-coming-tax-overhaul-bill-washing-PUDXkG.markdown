@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![House GOP unveils budget plan that attaches major spending cuts to coming tax overhaul bill - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/18/National-Politics/Images/813903124.jpg?t=20170517)
 
-Washington Post House GOP unveils budget plan that attaches major spending cuts to coming tax overhaul bill Washington Post House Republicans unveiled a 2018 budget plan Tuesday that would pave the way for ambitious tax reform legislation — but only alongside a package of politically sensitive spending cuts that threaten to derail the tax rewrite before it begins. GOP ... House Republican budget slashes billions in spending, paving path to tax cuts CNN House GOP releases $1.1 trillion budget The Hill GOP budget would unlock special power for tax bill — with a catch Politico New York Times - ABC News - Bloomberg - HuffPost all 38 news articles »
+Washington Post House GOP unveils budget plan that attaches major spending cuts to coming tax overhaul bill Washington Post House Republicans unveiled a 2018 budget plan Tuesday that would pave the way for ambitious tax reform legislation — but only alongside a package of politically sensitive spending cuts that threaten to derail the tax rewrite before it begins. GOP ... House Republican budget slashes billions in spending, paving path to tax cuts CNN A New GOP Battle Begins as Republicans Look to Pass a Budget New York Times House GOP releases $1.1 trillion budget The Hill Politico - ABC News - U.S. News & World Report - Bloomberg all 42 news articles »
 
 
 Full story on F3News: [House GOP unveils budget plan that attaches major spending cuts to coming tax overhaul bill - Washington Post](http://www.f3nws.com/n/PUDXkG)
