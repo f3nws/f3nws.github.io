@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Google Glass gets a second chance in factories, where it’s likely to remain](https://cdn.vox-cdn.com/thumbor/iZPf-mrzAnFvy0O3RQIFpK596LQ=/286x0:1634x758/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55760027/AGCO1.0.jpg)
 
-The Verge Google Glass gets a second chance in factories, where it's likely to remain The Verge Google Glass, the smart heads-up display and camera that was supposed to become everyone's next portable computer, isn't dead. It's gotten a job — multiple jobs, in fact. The second iteration of Google Glass has been tested and deployed across many ... Google Glass is back with hardware focused on the enterprise TechCrunch Google Glass 2.0 Is a Startling Second Act WIRED Google Glass gets a second life as a workplace tool Mashable 9to5Google - Tom's Guide - Neowin - City A.M. all 24 news articles »
+The Verge Google Glass gets a second chance in factories, where it's likely to remain The Verge Google Glass, the smart heads-up display and camera that was supposed to become everyone's next portable computer, isn't dead. It's gotten a job — multiple jobs, in fact. The second iteration of Google Glass has been tested and deployed across many ... Google Glass is back with hardware focused on the enterprise TechCrunch Google Glass 2.0 Is a Startling Second Act WIRED Redesigned Google Glass Enterprise Edition Now Official Android Headlines Mashable - 9to5Google - Tom's Guide - NDTV all 35 news articles »
 
 
 Full story on F3News: [Google Glass gets a second chance in factories, where it’s likely to remain](http://www.f3nws.com/n/2dqxfD)
