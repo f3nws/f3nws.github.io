@@ -5,7 +5,7 @@ date: 2017-07-18 10:55:00Z
 categories: fox-news
 ---
 
-The Russian lawyer who met with Donald Trump Jr. during last year’s campaign supposedly under the guise of discussing dirt on Hillary Clinton had one big thing in common with the Democratic candidate, it turns out – both had opposed Russia sanctions targeting human-rights abusers.
+The Russian lawyer who landed a meeting with Donald Trump Jr. during last year’s campaign with the promise of dirt on Hillary Clinton had one big thing in common with the Democratic candidate: Both had opposed Russia sanctions targeting human-rights abusers.
 
 
 Full story on F3News: [Hillary Clinton sided with Russia on sanctions as Bill made $500G on Moscow speech](http://www.f3nws.com/n/cYvfQH)
