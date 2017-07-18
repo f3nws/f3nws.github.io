@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 5 best Windows tablets: top Windows tablets reviewed"
-date: 2017-07-18 19:11:00Z
+date: 2017-07-18 19:26:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Brace yourself for the best Windows tablets to take on the go.
 
 Full story on F3News: [The 5 best Windows tablets: top Windows tablets reviewed](http://www.f3nws.com/n/VmzbPD)
 
-> Posted on: Tuesday, July 18, 2017 7:11:00 PM
+> Posted on: Tuesday, July 18, 2017 7:26:00 PM

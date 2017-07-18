@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 10 best wireless routers of 2017"
-date: 2017-07-18 19:45:00Z
+date: 2017-07-18 19:40:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ From Google Wifi to Netgear Nighthawk, these are the best wireless routers we've
 
 Full story on F3News: [The 10 best wireless routers of 2017](http://www.f3nws.com/n/zSPduG)
 
-> Posted on: Tuesday, July 18, 2017 7:45:00 PM
+> Posted on: Tuesday, July 18, 2017 7:40:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump calls Maduro a 'bad leader', threatens tougher sanctions"
-date: 2017-07-18 14:52:52Z
+date: 2017-07-18 19:56:29Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump described Venezuelan President Nicolas Maduro as a "ba
 
 Full story on F3News: [Trump calls Maduro a 'bad leader', threatens tougher sanctions](http://www.f3nws.com/n/keceuB)
 
-> Posted on: Tuesday, July 18, 2017 2:52:52 PM
+> Posted on: Tuesday, July 18, 2017 7:56:29 PM
