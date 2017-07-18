@@ -5,7 +5,7 @@ date: 2017-07-18 13:13:06Z
 categories: cnn-com-entertainment
 ---
 
-!['World first' statue of Jane Austen to be unveiled](http://i2.cdn.cnn.com/cnnnext/dam/assets/131212165733-jane-austen-portrait-story-top.jpg)
+!['World first' statue of Jane Austen to be unveiled](http://i2.cdn.cnn.com/cnnnext/dam/assets/170718135140-01-jane-austen-statue-super-tease.jpg)
 
 It's a truth universally acknowledged that Jane Austen is a novelist loved across the world.
 
