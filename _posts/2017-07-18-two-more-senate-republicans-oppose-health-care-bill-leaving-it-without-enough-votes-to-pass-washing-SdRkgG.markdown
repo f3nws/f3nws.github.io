@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Two more Senate Republicans oppose health-care bill, leaving it without enough votes to pass - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/06/08/Others/Images/2017-05-17/mccain_b.jpg?t=20170517)
 
-Washington Post Two more Senate Republicans oppose health-care bill, leaving it without enough votes to pass Washington Post Two more Senate Republicans have declared their opposition to the latest plan to overhaul the nation's health-care system, potentially ending a months-long effort to make good on a GOP promise that has defined the party for nearly a decade and been a ... How the Republican health care bill fell apart CNN GOP health care bill collapses Politico McConnell: Senate will try to repeal ObamaCare with delayed replacement The Hill ABC News - BBC News - NBCNews.com - NPR all 1,720 news articles »
+Washington Post Two more Senate Republicans oppose health-care bill, leaving it without enough votes to pass Washington Post Two more Senate Republicans have declared their opposition to the latest plan to overhaul the nation's health-care system, potentially ending a months-long effort to make good on a GOP promise that has defined the party for nearly a decade and been a ... How the Republican health care bill fell apart CNN Where The Senate Health Care Defeat Leaves Trump, GOP NPR GOP health care bill collapses Politico The Hill - BBC News - NBCNews.com - The Atlantic all 1,717 news articles »
 
 
 Full story on F3News: [Two more Senate Republicans oppose health-care bill, leaving it without enough votes to pass - Washington Post](http://www.f3nws.com/n/SdRkgG)
