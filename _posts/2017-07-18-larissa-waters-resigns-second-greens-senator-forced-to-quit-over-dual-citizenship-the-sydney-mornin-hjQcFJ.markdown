@@ -5,9 +5,9 @@ date: 2017-07-18 03:27:44Z
 categories: google-news-australia
 ---
 
-![Larissa Waters resigns: Second Greens senator forced to quit over dual citizenship - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/w/w/c/t/j/image.related.socialLead.620x349.gxdg9e.png/1500350381964.jpg)
+![Larissa Waters resigns: Second Greens senator forced to quit over dual citizenship - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/s/i/c/n/z/image.related.articleLeadwide.620x349.gxdg9e.png/1500348649663.jpg)
 
-The Sydney Morning Herald Larissa Waters resigns: Second Greens senator forced to quit over dual citizenship The Sydney Morning Herald The Greens have lost their second co-deputy leader after Larissa Waters has been caught in the same constitutional dual-citizenship muddle as Scott Ludlam, and has been forced to resign from the senate. Play Video. Replay Video. Play Video Don't Play ... Larissa Waters, deputy Greens leader, quits in latest citizenship bungle ABC Online Breastfeeding senator Larissa Waters resigns NEWS.com.au Second 'ineligible' Greens senator quits The Australian Courier Mail - Sky News Australia - The Australian Financial Review - Yahoo7 News all 38 news articles »
+The Sydney Morning Herald Larissa Waters resigns: Second Greens senator forced to quit over dual citizenship The Sydney Morning Herald The Greens have lost their second co-deputy leader after Larissa Waters has been caught in the same constitutional dual-citizenship muddle as Scott Ludlam, and has been forced to resign from the senate. Play Video. Replay Video. Play Video Don't Play ... Larissa Waters, deputy Greens leader, quits in latest citizenship bungle ABC Online Greens deputy leader Larissa Waters resigns over citizenship issue, days after Scott Ludlam The Australian Greens senator Larissa Waters resigns NEWS.com.au Courier Mail - Sky News Australia - The Australian Financial Review - 9news.com.au all 47 news articles »
 
 
 Full story on F3News: [Larissa Waters resigns: Second Greens senator forced to quit over dual citizenship - The Sydney Morning Herald](http://www.f3nws.com/n/hjQcFJ)
