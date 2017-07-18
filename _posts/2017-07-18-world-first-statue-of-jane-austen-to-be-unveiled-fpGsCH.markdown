@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'World first' statue of Jane Austen to be unveiled"
-date: 2017-07-18 13:13:06Z
+date: 2017-07-18 14:57:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ It's a truth universally acknowledged that Jane Austen is a novelist loved acros
 
 Full story on F3News: ['World first' statue of Jane Austen to be unveiled](http://www.f3nws.com/n/fpGsCH)
 
-> Posted on: Tuesday, July 18, 2017 1:13:06 PM
+> Posted on: Tuesday, July 18, 2017 2:57:41 PM
