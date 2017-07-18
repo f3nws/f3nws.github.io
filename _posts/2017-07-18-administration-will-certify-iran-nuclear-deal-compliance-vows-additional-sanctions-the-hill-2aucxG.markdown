@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Administration will certify Iran nuclear deal compliance, vows additional sanctions - The Hill](http://thehill.com/sites/default/files/blogs/iran_509517024.jpg)
 
-The Hill Administration will certify Iran nuclear deal compliance, vows additional sanctions The Hill The Trump administration on Monday announced its intention to certify Iran's compliance with the nuclear agreement reached two years ago under the Obama administration, but said Iran is "in default of the spirit" of the accord. A senior administration ... The Latest: Lawmakers urge more authority for Iran sanctions Washington Post Trump sanctions Iran over missiles, terrorism after saying it complies with nuclear deal USA TODAY US targets Iran with new sanctions over missile program Reuters Washington Examiner - NBCNews.com - Politico - Foreign Policy (blog) all 261 news articles »
+The Hill Administration will certify Iran nuclear deal compliance, vows additional sanctions The Hill The Trump administration on Monday announced its intention to certify Iran's compliance with the nuclear agreement reached two years ago under the Obama administration, but said Iran is "in default of the spirit" of the accord. A senior administration ... The Latest: Lawmakers urge more authority for Iran sanctions Washington Post Trump sanctions Iran over missiles, terrorism after saying it complies with nuclear deal USA TODAY US Military Chief: Tehran Has Complied With Iran Deal U.S. News & World Report Reuters - NBCNews.com - Washington Examiner - Politico all 269 news articles »
 
 
 Full story on F3News: [Administration will certify Iran nuclear deal compliance, vows additional sanctions - The Hill](http://www.f3nws.com/n/2aucxG)
