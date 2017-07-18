@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump suggests Republicans will let ACA market collapse, then rewrite health law - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/18/National-Politics/Images/Congress_Health_Overhaul_55661-2012f-4138.jpg?t=20170517)
 
-Washington Post Trump suggests Republicans will let ACA market collapse, then rewrite health law Washington Post President Trump predicted Tuesday morning that Republicans may wait for the federal insurance market to collapse and then work to broker a deal to rewrite the nation's landmark health-care law. In a series of tweets, Trump blamed the demise of a ... Two GOP senators to vote against ObamaCare repeal-only bill The Hill (blog) 7 uncomfortable truths for Republicans in the wake of the health care collapse CNN First Read's Morning Clips: McConnell Lacks the Votes NBCNews.com Los Angeles Times - Politico - NPR - New York Times all 2,236 news articles »
+Washington Post Trump suggests Republicans will let ACA market collapse, then rewrite health law Washington Post President Trump predicted Tuesday morning that Republicans may wait for the federal insurance market to collapse and then work to broker a deal to rewrite the nation's landmark health-care law. In a series of tweets, Trump blamed the demise of a ... Health Care Overhaul Collapses as Two Republican Senators Defect New York Times Two GOP senators to vote against ObamaCare repeal-only bill The Hill (blog) New GOP plan to repeal Obamacare hurtling toward failure Politico NBCNews.com - NPR - CNN - BBC News all 2,420 news articles »
 
 
 Full story on F3News: [Trump suggests Republicans will let ACA market collapse, then rewrite health law - Washington Post](http://www.f3nws.com/n/qbBKDD)
