@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to Republicans: Let's repeal ObamaCare"
-date: 2017-07-18 14:30:02Z
+date: 2017-07-18 15:00:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump tweeted late Monday that Republicans should “just REPEAL” Ob
 
 Full story on F3News: [Trump to Republicans: Let's repeal ObamaCare](http://www.f3nws.com/n/YEHV4H)
 
-> Posted on: Tuesday, July 18, 2017 2:30:02 PM
+> Posted on: Tuesday, July 18, 2017 3:00:02 PM
