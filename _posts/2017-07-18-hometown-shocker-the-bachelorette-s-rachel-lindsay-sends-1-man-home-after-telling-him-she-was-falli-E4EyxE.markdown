@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Hometown Shocker! The Bachelorette's Rachel Lindsay Sends 1 Man Home — After Telling Him She Was 'Falling in ... - PEOPLE.com](http://i1.wp.com/peopledotcom.files.wordpress.com/2017/07/146566_0281.jpg?crop=0px%2C973px%2C1331px%2C700px&resize=1200%2C630&ssl=1)
 
-PEOPLE.com Hometown Shocker! The Bachelorette's Rachel Lindsay Sends 1 Man Home — After Telling Him She Was 'Falling in ... PEOPLE.com Bachelor Nation, the end is near. On Monday night, we finally made it through hometowns dates on Rachel Lindsay's Bachelorette journey — and they were every bit as entertaining as we'd hoped. The Bachelorette Week 7: We Need a Drink After the Most Intense Hometown Date Ever E! Online The Bachelorette recap: Sikh-ing Acceptance EW.com (blog) Date With Dean's Family & ABombshell Ending Hollywood Life Variety - TV Guide - Hollywood Reporter - Gossip Cop all 151 news articles »
+PEOPLE.com Hometown Shocker! The Bachelorette's Rachel Lindsay Sends 1 Man Home — After Telling Him She Was 'Falling in ... PEOPLE.com Bachelor Nation, the end is near. On Monday night, we finally made it through hometowns dates on Rachel Lindsay's Bachelorette journey — and they were every bit as entertaining as we'd hoped. Bachelor Nation Reacts to Dean Unglert's Unforgettable Hometown Date With Rachel Lindsay on The Bachelorette E! Online Date With Dean's Family & ABombshell Ending Hollywood Life The Bachelorette recap: Sikh-ing Acceptance EW.com (blog) Entertainment Tonight - Variety - Bustle - TV Guide all 160 news articles »
 
 
 Full story on F3News: [Hometown Shocker! The Bachelorette's Rachel Lindsay Sends 1 Man Home — After Telling Him She Was 'Falling in ... - PEOPLE.com](http://www.f3nws.com/n/E4EyxE)
