@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mitch McConnell refuses to pull the plug on stalled Obamacare repeal plan - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170718074750-mcconnell-health-care-super-tease.jpg)
 
-CNN Mitch McConnell refuses to pull the plug on stalled Obamacare repeal plan CNN Washington (CNN) Another day, another excruciating setback for the Republican Party. Senate Majority Leader Mitch McConnell's latest attempt to make good on the GOP's seven-year campaign promise to gut the Affordable Care Act was once again plunged ... Trump suggests Republicans will let ACA market collapse, then rewrite health law Washington Post Trump threatens to gut Obamacare markets Politico It's (Still) Never Trump's Fault The Atlantic Reuters - NPR - National Review - Miami Herald all 2,441 news articles »
+CNN Mitch McConnell refuses to pull the plug on stalled Obamacare repeal plan CNN Washington (CNN) Another day, another excruciating setback for the Republican Party. Senate Majority Leader Mitch McConnell's latest attempt to make good on the GOP's seven-year campaign promise to gut the Affordable Care Act was once again plunged ... Senators pushed Trump to sidelines. He happily stayed there. Republicans are paying the price. Washington Post Trump threatens to gut Obamacare markets Politico OPINION | GOP's 7-year ObamaCare blood oath ends in failure The Hill (blog) NBCNews.com - The Atlantic - Reuters - NPR all 2,524 news articles »
 
 
 Full story on F3News: [Mitch McConnell refuses to pull the plug on stalled Obamacare repeal plan - CNN](http://www.f3nws.com/n/fapCpG)
