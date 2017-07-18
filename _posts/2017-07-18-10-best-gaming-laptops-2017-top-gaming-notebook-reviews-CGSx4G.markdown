@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 best gaming laptops 2017: top gaming notebook reviews"
-date: 2017-07-18 15:40:00Z
+date: 2017-07-18 15:50:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The best gaming laptops will have you playing with power in no time.
 
 Full story on F3News: [10 best gaming laptops 2017: top gaming notebook reviews](http://www.f3nws.com/n/CGSx4G)
 
-> Posted on: Tuesday, July 18, 2017 3:40:00 PM
+> Posted on: Tuesday, July 18, 2017 3:50:00 PM

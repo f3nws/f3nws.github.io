@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 10 best laptops for students in 2017: top laptops for college and high school"
-date: 2017-07-18 14:00:00Z
+date: 2017-07-18 14:05:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Now highlighting the Asus ZenBook UX310, these are the best laptops for students
 
 Full story on F3News: [The 10 best laptops for students in 2017: top laptops for college and high school](http://www.f3nws.com/n/MjemWD)
 
-> Posted on: Tuesday, July 18, 2017 2:00:00 PM
+> Posted on: Tuesday, July 18, 2017 2:05:00 PM
