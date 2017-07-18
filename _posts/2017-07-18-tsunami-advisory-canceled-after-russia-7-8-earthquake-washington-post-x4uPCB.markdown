@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tsunami advisory canceled after Russia 7.8 earthquake - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/18/Foreign/Graphics/2300-RUSSIAEARTHQUAKE0718.jpg?t=20170517)
 
-Washington Post Tsunami advisory canceled after Russia 7.8 earthquake Washington Post ANCHORAGE, Alaska — A strong earthquake on the Russian side of the Bering Sea briefly prompted a tsunami advisory for parts of the Pacific, including Alaska's remote Aleutian Islands and Russia. The National Tsunami Warning Center in Palmer, Alaska, ... Massive 7.7 Magnitude Earthquake Strikes Between Russia and Alaska The Weather Channel No tsunami expected after large earthquake off Russia Alaska Dispatch News MASSIVE offshore earthquake sparks fears of imminent Tsunami Daily Star The Indian Express - Hawaii News Now - CNBC - WBAL Baltimore all 62 news articles »
+Washington Post Tsunami advisory canceled after Russia 7.8 earthquake Washington Post ANCHORAGE, Alaska — A strong earthquake on the Russian side of the Bering Sea briefly prompted a tsunami advisory for parts of the Pacific, including Alaska's remote Aleutian Islands and Russia. The National Tsunami Warning Center in Palmer, Alaska, ... Massive 7.7 Magnitude Earthquake Strikes Between Russia and Alaska The Weather Channel Magnitude 6.4 quake shakes Peru's southern coast ABC News Alaska earthquake sparks tsunami warning The Australian Fox News all 70 news articles »
 
 
 Full story on F3News: [Tsunami advisory canceled after Russia 7.8 earthquake - Washington Post](http://www.f3nws.com/n/x4uPCB)
