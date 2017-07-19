@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi police detain woman in miniskirt video"
-date: 2017-07-19 03:07:08Z
+date: 2017-07-19 05:20:38Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Police in Saudi Arabia have detained a woman who featured in a social media vide
 
 Full story on F3News: [Saudi police detain woman in miniskirt video](http://www.f3nws.com/n/QS2zgG)
 
-> Posted on: Wednesday, July 19, 2017 3:07:08 AM
+> Posted on: Wednesday, July 19, 2017 5:20:38 AM
