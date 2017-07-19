@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Every 'Star Trek: Discovery' photo so far     - CNET"
-date: 2017-07-19 01:07:16Z
+date: 2017-07-19 03:05:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Here's every photo we could find from the new Star Trek show so far.
 
 Full story on F3News: [Every 'Star Trek: Discovery' photo so far     - CNET](http://www.f3nws.com/n/2BhRUG)
 
-> Posted on: Wednesday, July 19, 2017 1:07:16 AM
+> Posted on: Wednesday, July 19, 2017 3:05:02 AM

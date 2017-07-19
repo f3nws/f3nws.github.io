@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook to test subscription news service -- with paywall     - CNET"
-date: 2017-07-19 01:52:03Z
+date: 2017-07-19 02:25:41Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social media giant plans to test a paywall that would cut off nonsubscribers
 
 Full story on F3News: [Facebook to test subscription news service -- with paywall     - CNET](http://www.f3nws.com/n/E2tan)
 
-> Posted on: Wednesday, July 19, 2017 1:52:03 AM
+> Posted on: Wednesday, July 19, 2017 2:25:41 AM
