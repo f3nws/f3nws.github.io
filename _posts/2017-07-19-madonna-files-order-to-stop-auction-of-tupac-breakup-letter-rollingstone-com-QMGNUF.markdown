@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Madonna Files Order to Stop Auction of Tupac Breakup Letter - RollingStone.com"
-date: 2017-07-19 01:23:18Z
+date: 2017-07-19 01:16:00Z
 categories: google-news-entertaintment
 ---
 
 ![Madonna Files Order to Stop Auction of Tupac Breakup Letter - RollingStone.com](http://img.wennermedia.com/social/gettyimages-649551984-006450e7-feff-4d4f-bd0e-d23e8fcf3796.jpg)
 
-RollingStone.com Madonna Files Order to Stop Auction of Tupac Breakup Letter RollingStone.com Madonna is seeking a temporary restraining order against an auction house to stop the sale of personal items, including a breakup letter from Tupac. Credit: Patrick McMullan/Getty. By Jon Blistein. 3 hours ago ... Madonna wins emergency halt to auction of 'personally worn panties,' Tupac prison letter New York Daily News Auction of Madonna's panties, love letter from Tupac halted Washington Post Madonna Launches Legal Battle Over Tupac Breakup Letter Vanity Fair PerezHilton.com - Complex - Jezebel - Page Six all 35 news articles »
+RollingStone.com Madonna Files Order to Stop Auction of Tupac Breakup Letter RollingStone.com Madonna is seeking a temporary restraining order against an auction house to stop the sale of personal items, including a breakup letter from Tupac. Credit: Patrick McMullan/Getty. By Jon Blistein. 6 hours ago ... Madonna Prevails as Emergency Court Order Halts Sale of Her 'Highly Personal Items' TIME Files Order to Block Auction TMZ.com Madonna Launches Legal Battle Over Tupac Breakup Letter Vanity Fair New York Daily News - Billboard - PerezHilton.com - Page Six all 52 news articles »
 
 
 Full story on F3News: [Madonna Files Order to Stop Auction of Tupac Breakup Letter - RollingStone.com](http://www.f3nws.com/n/QMGNUF)
 
-> Posted on: Wednesday, July 19, 2017 1:23:18 AM
+> Posted on: Wednesday, July 19, 2017 1:16:00 AM

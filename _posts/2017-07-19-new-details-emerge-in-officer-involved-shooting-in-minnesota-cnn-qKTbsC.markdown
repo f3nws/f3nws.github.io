@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![New details emerge in officer-involved shooting in Minnesota - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170717103932-02-justine-ruszcyk-super-tease.jpg)
 
-CNN New details emerge in officer-involved shooting in Minnesota CNN Minneapolis (CNN) The mayor of Minneapolis said she wants to hear from the officer who fatally shot Justine Ruszczyk. But so far, officer Mohamed Noor has exercised his constitutional right to not speak to state investigators, the Minnesota Bureau of ... Minneapolis police fatally shot Australian woman after hearing 'loud sound,' investigators say Washington Post Officer: Partner fired fatal shot moments after loud sound ABC News Tevlin: Where Justine Damond died, cameras roll too late Minneapolis Star Tribune New York Times - NBCNews.com - Daily Beast - New York Daily News all 1,051 news articles »
+CNN New details emerge in officer-involved shooting in Minnesota CNN Minneapolis (CNN) The mayor of Minneapolis said she wants to hear from the officer who fatally shot Justine Ruszczyk. But so far, officer Mohamed Noor has exercised his constitutional right to not speak to state investigators, the Minnesota Bureau of ... Minneapolis police fatally shot Australian woman after hearing 'loud sound,' investigators say Washington Post Officer: Partner fired fatal shot moments after loud sound ABC News Tevlin: Where Justine Damond died, cameras roll too late Minneapolis Star Tribune New York Times - NBCNews.com - Daily Beast - New York Daily News all 1,058 news articles »
 
 
 Full story on F3News: [New details emerge in officer-involved shooting in Minnesota - CNN](http://www.f3nws.com/n/qKTbsC)
