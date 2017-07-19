@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Luis Fonsi and Daddy Yankee's 'Despacito' Sets Global Streaming Record - Billboard](http://www.billboard.com/files/media/03-Luis-Fonsi-Despacito-ft.-Daddy-Yankee-screenshot-2017-billboard-1548.jpg)
 
-Billboard Luis Fonsi and Daddy Yankee's 'Despacito' Sets Global Streaming Record Billboard It's official: “Despacito” is now the most streamed song of all time, and it got there in just six months. Luis Fonsi and Daddy Yankee's hit original song and its remix featuring Justin Bieber have accumulated more than 4.6 billion streams across all ... “Despacito” becomes most streamed song of all time CBS News 'Despacito' becomes the most streamed song in history Mashable “Despacito” Is Now The Most Streamed Song Of All Time The FADER BBC News - Daily Beast - Variety - New York Post all 37 news articles »
+Billboard Luis Fonsi and Daddy Yankee's 'Despacito' Sets Global Streaming Record Billboard It's official: “Despacito” is now the most streamed song of all time, and it got there in just six months. Luis Fonsi and Daddy Yankee's hit original song and its remix featuring Justin Bieber have accumulated more than 4.6 billion streams across all ... “Despacito” becomes most streamed song of all time CBS News 'Despacito' becomes the most streamed song in history Page Six “Despacito” Is Now The Most Streamed Song Of All Time The FADER Daily Beast - BBC News - Variety - New York Post all 39 news articles »
 
 
 Full story on F3News: [Luis Fonsi and Daddy Yankee's 'Despacito' Sets Global Streaming Record - Billboard](http://www.f3nws.com/n/DRqRXF)
