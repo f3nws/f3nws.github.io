@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hundreds of German choir boys allegedly abused, report says"
-date: 2017-07-19 12:48:09Z
+date: 2017-07-19 15:49:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As many as 547 former students of the Catholic Regensburger Domspatzen choir sch
 
 Full story on F3News: [Hundreds of German choir boys allegedly abused, report says](http://www.f3nws.com/n/2jBGhE)
 
-> Posted on: Wednesday, July 19, 2017 12:48:09 PM
+> Posted on: Wednesday, July 19, 2017 3:49:33 PM

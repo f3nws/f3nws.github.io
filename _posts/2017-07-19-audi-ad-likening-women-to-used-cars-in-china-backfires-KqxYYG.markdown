@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Audi ad likening women to used cars in China backfires"
-date: 2017-07-19 07:59:45Z
+date: 2017-07-19 17:29:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Audi ad likening women to used cars in China backfires](http://www.f3nws.com/n/KqxYYG)
 
-> Posted on: Wednesday, July 19, 2017 7:59:45 AM
+> Posted on: Wednesday, July 19, 2017 5:29:51 PM
