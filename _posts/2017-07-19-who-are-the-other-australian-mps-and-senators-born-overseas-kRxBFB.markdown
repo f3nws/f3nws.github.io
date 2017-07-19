@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Who are the other Australian MPs and senators born overseas?](http://www.abc.net.au/news/image/8721164-1x1-700x700.jpg)
 
-There are 23 other Australian MPs and senators aside from Scott Ludlam and Larissa Waters who were born overseas, and many of them have jumped on social media to clarify their citizenship.
+There are 23 other Australian MPs and senators aside from Scott Ludlam and Larissa Waters who were born overseas, and many of them are jumping on social media to clarify their citizenship.
 
 
 Full story on F3News: [Who are the other Australian MPs and senators born overseas?](http://www.f3nws.com/n/kRxBFB)
