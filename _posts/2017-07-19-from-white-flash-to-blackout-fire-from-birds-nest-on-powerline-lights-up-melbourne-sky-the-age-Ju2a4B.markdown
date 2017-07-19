@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "From white flash to blackout: Fire from birds' nest on powerline lights up Melbourne sky - The Age"
-date: 2017-07-19 00:44:39Z
+date: 2017-07-19 00:47:09Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Age From white flash to blackout: Fire from birds' nest on powerline lights 
 
 Full story on F3News: [From white flash to blackout: Fire from birds' nest on powerline lights up Melbourne sky - The Age](http://www.f3nws.com/n/Ju2a4B)
 
-> Posted on: Wednesday, July 19, 2017 12:44:39 AM
+> Posted on: Wednesday, July 19, 2017 12:47:09 AM
