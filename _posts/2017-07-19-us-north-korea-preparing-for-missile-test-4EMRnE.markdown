@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US: North Korea preparing for missile test?"
-date: 2017-07-19 17:57:24Z
+date: 2017-07-19 22:37:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN has learned that US intelligence indicates that North Korea is making prepar
 
 Full story on F3News: [US: North Korea preparing for missile test?](http://www.f3nws.com/n/4EMRnE)
 
-> Posted on: Wednesday, July 19, 2017 5:57:24 PM
+> Posted on: Wednesday, July 19, 2017 10:37:03 PM
