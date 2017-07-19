@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Vows Revenge After Push to Repeal Affordable Care Act Fails - New York Times](https://static01.nyt.com/images/2017/07/19/us/19dc-health/19dc-health-facebookJumbo.jpg)
 
-New York Times Trump Vows Revenge After Push to Repeal Affordable Care Act Fails New York Times Vice President Mike Pence, Speaker Paul D. Ryan and Senator Mitch McConnell, the majority leader, discuss the next steps. By THE NEW YORK TIMES on Publish Date July 18, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». Senate Republicans' effort to 'repeal and replace' Obamacare all but collapses Washington Post Mitch McConnell 'master tactician' label damaged after Senate health care fight CNN Health care collapse a blow to McConnell Politico The Hill - HuffPost - U.S. News & World Report - NBCNews.com all 2,854 news articles »
+New York Times Trump Vows Revenge After Push to Repeal Affordable Care Act Fails New York Times Vice President Mike Pence, Speaker Paul D. Ryan and Senator Mitch McConnell, the majority leader, discuss the next steps. By THE NEW YORK TIMES on Publish Date July 18, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». Senate Republicans' effort to 'repeal and replace' Obamacare all but collapses Washington Post Mitch McConnell 'master tactician' label damaged after Senate health care fight CNN Health care collapse a blow to McConnell Politico The Hill - U.S. News & World Report - HuffPost - NBCNews.com all 2,880 news articles »
 
 
 Full story on F3News: [Trump Vows Revenge After Push to Repeal Affordable Care Act Fails - New York Times](http://www.f3nws.com/n/exqmcB)
