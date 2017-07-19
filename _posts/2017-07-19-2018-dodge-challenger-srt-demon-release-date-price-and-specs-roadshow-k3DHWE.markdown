@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2018 Dodge Challenger SRT Demon Release Date, Price and Specs     - Roadshow"
-date: 2017-07-19 04:01:17Z
+date: 2017-07-19 04:25:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The 840-hp Demon is the fastest quarter-mile car ever, and we've finally taken i
 
 Full story on F3News: [2018 Dodge Challenger SRT Demon Release Date, Price and Specs     - Roadshow](http://www.f3nws.com/n/k3DHWE)
 
-> Posted on: Wednesday, July 19, 2017 4:01:17 AM
+> Posted on: Wednesday, July 19, 2017 4:25:48 AM
