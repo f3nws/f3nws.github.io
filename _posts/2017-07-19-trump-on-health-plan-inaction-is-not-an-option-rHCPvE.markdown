@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on health plan: 'Inaction is not an option'"
-date: 2017-07-19 19:00:00Z
+date: 2017-07-19 20:53:34Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump asked Republican senators not to leave town for their Aug
 
 Full story on F3News: [Trump on health plan: 'Inaction is not an option'](http://www.f3nws.com/n/rHCPvE)
 
-> Posted on: Wednesday, July 19, 2017 7:00:00 PM
+> Posted on: Wednesday, July 19, 2017 8:53:34 PM
