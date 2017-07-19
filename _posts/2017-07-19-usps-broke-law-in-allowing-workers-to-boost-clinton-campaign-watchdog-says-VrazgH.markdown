@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USPS broke law in allowing workers to boost Clinton campaign, watchdog says"
-date: 2017-07-19 12:30:00Z
+date: 2017-07-19 14:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The U.S. Postal Service violated federal law by letting employees do union-funde
 
 Full story on F3News: [USPS broke law in allowing workers to boost Clinton campaign, watchdog says](http://www.f3nws.com/n/VrazgH)
 
-> Posted on: Wednesday, July 19, 2017 12:30:00 PM
+> Posted on: Wednesday, July 19, 2017 2:30:00 PM
