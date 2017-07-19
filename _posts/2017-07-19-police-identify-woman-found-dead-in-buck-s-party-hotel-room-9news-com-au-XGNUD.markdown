@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Police identify woman found dead in buck's party hotel room - 9news.com.au](http://9network-vod-progressive.akamaized.net/media2/664969388001/2017/07/664969388001_5510107571001_5510098276001-vs.jpg?pubId=664969388001)
 
-9news.com.au Police identify woman found dead in buck's party hotel room 9news.com.au A woman found dead in the Melbourne hotel room of a buck's party reveller was a 20-year-old from Western Australia. Three days after her body was found at the Oaks on Market serviced apartments on Sunday morning, police confirmed the young woman ... Woman found dead at Melbourne buck's party from WA The West Australian all 4 news articles »
+9news.com.au Police identify woman found dead in buck's party hotel room 9news.com.au A woman found dead in the Melbourne hotel room of a buck's party reveller was a 20-year-old from Western Australia. Three days after her body was found at the Oaks on Market serviced apartments on Sunday morning, police confirmed the young woman ... Buck's night death woman identified The Australian Woman, 20, identified three days after her body was found in a Melbourne hotel room during a buck's party Daily Mail all 6 news articles »
 
 
 Full story on F3News: [Police identify woman found dead in buck's party hotel room - 9news.com.au](http://www.f3nws.com/n/XGNUD)
