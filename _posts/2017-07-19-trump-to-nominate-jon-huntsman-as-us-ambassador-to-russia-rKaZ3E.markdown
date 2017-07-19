@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to nominate Jon Huntsman as US ambassador to Russia"
-date: 2017-07-19 00:52:08Z
+date: 2017-07-19 00:52:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Jon Huntsman, former US ambassador to China will be nominated as the next US amb
 
 Full story on F3News: [Trump to nominate Jon Huntsman as US ambassador to Russia](http://www.f3nws.com/n/rKaZ3E)
 
-> Posted on: Wednesday, July 19, 2017 12:52:08 AM
+> Posted on: Wednesday, July 19, 2017 12:52:00 AM
