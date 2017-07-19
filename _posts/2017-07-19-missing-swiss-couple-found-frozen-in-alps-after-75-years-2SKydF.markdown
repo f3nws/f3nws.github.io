@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing Swiss couple found frozen in Alps after 75 years"
-date: 2017-07-19 10:40:06Z
+date: 2017-07-19 12:56:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Swiss couple who disappeared from their farm in the Alps during World War II h
 
 Full story on F3News: [Missing Swiss couple found frozen in Alps after 75 years](http://www.f3nws.com/n/2SKydF)
 
-> Posted on: Wednesday, July 19, 2017 10:40:06 AM
+> Posted on: Wednesday, July 19, 2017 12:56:59 PM
