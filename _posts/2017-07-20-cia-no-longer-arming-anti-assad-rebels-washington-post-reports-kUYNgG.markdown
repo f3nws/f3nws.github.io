@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CIA no longer arming anti-Assad rebels, Washington Post reports"
-date: 2017-07-20 11:29:14Z
+date: 2017-07-20 12:49:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has ordered the CIA to discontinue a program of arming
 
 Full story on F3News: [CIA no longer arming anti-Assad rebels, Washington Post reports](http://www.f3nws.com/n/kUYNgG)
 
-> Posted on: Thursday, July 20, 2017 11:29:14 AM
+> Posted on: Thursday, July 20, 2017 12:49:55 PM
