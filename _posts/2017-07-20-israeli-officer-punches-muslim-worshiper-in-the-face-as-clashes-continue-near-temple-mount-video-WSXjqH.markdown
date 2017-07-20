@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israeli officer punches Muslim worshiper in the face as clashes continue near Temple Mount (VIDEO)"
-date: 2017-07-20 00:08:14Z
+date: 2017-07-20 00:08:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israeli police used stun grenades to disperse a crowd of Palestinian protesters 
 
 Full story on F3News: [Israeli officer punches Muslim worshiper in the face as clashes continue near Temple Mount (VIDEO)](http://www.f3nws.com/n/WSXjqH)
 
-> Posted on: Thursday, July 20, 2017 12:08:14 AM
+> Posted on: Thursday, July 20, 2017 12:08:00 AM
