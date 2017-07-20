@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Native title claim over Andrew Forrest's Solomon mine upheld](http://www.abc.net.au/news/image/8727938-1x1-700x700.jpg)
 
-A court decision recognising a native title claim over land on which the $280 billion Solomon Hub mine sits in WA's ore-rich Pilbara region opens the way for the Yindjibarndi people to sue Fortescue Metals Group for millions of dollars.
+A court decision recognising a native title claim over land on which the Solomon Hub mine sits in WA's ore-rich Pilbara region opens the way for the Yindjibarndi people to sue Fortescue Metals Group for millions of dollars.
 
 
 Full story on F3News: [Native title claim over Andrew Forrest's Solomon mine upheld](http://www.f3nws.com/n/erSxyE)
