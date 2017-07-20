@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conway: GOP senators 'will be held accountable' for health care votes"
-date: 2017-07-20 03:00:02Z
+date: 2017-07-20 04:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Counselor to the President Kellyanne Conway told Fox News' "Hannity" Wednesday n
 
 Full story on F3News: [Conway: GOP senators 'will be held accountable' for health care votes](http://www.f3nws.com/n/ShWJQG)
 
-> Posted on: Thursday, July 20, 2017 3:00:02 AM
+> Posted on: Thursday, July 20, 2017 4:00:00 AM
