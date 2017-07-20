@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump trips over his own ignorance on..."
-date: 2017-07-20 14:01:59Z
+date: 2017-07-20 14:01:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ At a key moment in the health care fight, Donald Trump made it painfully clear h
 
 Full story on F3News: [Trump trips over his own ignorance on...](http://www.f3nws.com/n/423JkB)
 
-> Posted on: Thursday, July 20, 2017 2:01:59 PM
+> Posted on: Thursday, July 20, 2017 2:01:00 PM
