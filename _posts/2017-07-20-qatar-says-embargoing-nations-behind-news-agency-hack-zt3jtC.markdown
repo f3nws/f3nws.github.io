@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qatar says embargoing nations behind news agency hack"
-date: 2017-07-20 12:54:28Z
+date: 2017-07-20 20:13:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Gulf nations embargoing Qatar hacked its official news agency in May to plant fa
 
 Full story on F3News: [Qatar says embargoing nations behind news agency hack](http://www.f3nws.com/n/zt3jtC)
 
-> Posted on: Thursday, July 20, 2017 12:54:28 PM
+> Posted on: Thursday, July 20, 2017 8:13:29 PM
