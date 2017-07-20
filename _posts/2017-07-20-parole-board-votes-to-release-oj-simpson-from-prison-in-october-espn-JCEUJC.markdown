@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Parole board votes to release OJ Simpson from prison in October - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0720%2Fr234206_1296x729_16%2D9.jpg)
 
-ESPN Parole board votes to release OJ Simpson from prison in October ESPN LOVELOCK, Nev. -- O.J. Simpson was granted parole Thursday after more than eight years in prison for a Las Vegas hotel heist, successfully making his case in a nationally televised hearing that reflected America's enduring fascination with the former ... OJ Simpson Granted Parole: What's Next for the Former NFL Star? Sports Illustrated OJ Simpson is granted parole, closing another chapter in a neverending saga Washington Post OJ Simpson is granted parole after serving 9 years for Vegas robbery Los Angeles Times USA TODAY - Yahoo Sports - New York Times - NBCNews.com all 1,329 news articles »
+ESPN Parole board votes to release OJ Simpson from prison in October ESPN LOVELOCK, Nev. -- O.J. Simpson was granted parole Thursday after more than eight years in prison for a Las Vegas hotel heist, successfully making his case in a nationally televised hearing that reflected America's enduring fascination with the former ... OJ Simpson Granted Parole: What's Next for the Former NFL Star? Sports Illustrated OJ Simpson is granted parole, closing another chapter in a neverending saga Washington Post OJ Simpson is granted parole after serving 9 years for Vegas robbery Los Angeles Times Yahoo Sports - USA TODAY - New York Daily News - The Boston Globe all 1,395 news articles »
 
 
 Full story on F3News: [Parole board votes to release OJ Simpson from prison in October - ESPN](http://www.f3nws.com/n/JCEUJC)
