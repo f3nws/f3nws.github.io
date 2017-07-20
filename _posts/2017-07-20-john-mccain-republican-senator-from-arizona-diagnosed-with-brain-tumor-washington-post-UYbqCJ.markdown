@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![John McCain, Republican senator from Arizona, diagnosed with brain tumor - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/20/National-Politics/Images/_mccain%201a1403030652.jpg?t=20170517)
 
-Washington Post John McCain, Republican senator from Arizona, diagnosed with brain tumor Washington Post Sen. John McCain (R-Ariz.) has been diagnosed with a brain tumor, his office said Wednesday, throwing into doubt when and if he will return to Washington to resume his duties in the Senate. The Mayo Clinic said doctors diagnosed a tumor called a ... John McCain Has Brain Cancer, His Office Says New York Times Grief, support pours in after McCain brain cancer diagnosis CNN Senator McCain diagnosed with aggressive brain cancer Reuters NBCNews.com - ABC News - CBS News - The Atlantic all 655 news articles »
+Washington Post John McCain, Republican senator from Arizona, diagnosed with brain tumor Washington Post Sen. John McCain (R-Ariz.) has been diagnosed with a brain tumor, his office said Wednesday, throwing into doubt when and if he will return to Washington to resume his duties in the Senate. The Mayo Clinic said doctors diagnosed a tumor called a ... Sen. John McCain Diagnosed With Brain Cancer NBCNews.com Grief, support pours in after McCain brain cancer diagnosis CNN Senator McCain diagnosed with aggressive brain cancer Reuters BBC News - ABC News - The Atlantic - CBS News all 678 news articles »
 
 
 Full story on F3News: [John McCain, Republican senator from Arizona, diagnosed with brain tumor - Washington Post](http://www.f3nws.com/n/UYbqCJ)

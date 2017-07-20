@@ -7,7 +7,7 @@ categories: cnet
 
 ![Amazon launches Spark, a social network for its shoppers - CNET](https://cnet1.cbsistatic.com/img/8h9vqw0rjVSA0EuqTyu6y10HyBc=/670x503/2017/07/20/1f659ded-c41f-42d7-a36b-9bd1d5011544/amazon-spark.jpg)
 
-CNET Amazon launches Spark, a social network for its shoppers CNET Amazon Spark users are encouraged to tag images of products that are available for sale on the internet giant. Amazon. Amazon is getting into the social media game, but this network is more about shopping than sharing pictures of your kids or latest meal. Amazon's new Spark social feed wants to be 'Instagram for products' Marketing Land Amazon's new social network is looking a lot like Pinterest Washington Post Amazon launches shopping social network Spark for iOS Reuters SiliconBeat - Business Insider - VentureBeat - Consumerist all 35 news articles »
+CNET Amazon launches Spark, a social network for its shoppers CNET Amazon Spark users are encouraged to tag images of products that are available for sale on the internet giant. Amazon. Amazon is getting into the social media game, but this network is more about shopping than sharing pictures of your kids or latest meal. Amazon's new Spark social feed wants to be 'Instagram for products' Marketing Land Amazon's new social network is looking a lot like Pinterest Washington Post Amazon launches new way to shop, with Instagram-like photo feed SiliconBeat Business Insider - VentureBeat - Consumerist - Ars Technica all 36 news articles »
 
 
 Full story on F3News: [Amazon launches Spark, a social network for its shoppers - CNET](http://www.f3nws.com/n/uVm2e)
