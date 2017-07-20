@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Peter Smeeth's portrait of Lisa Wilkinson wins Packing Room Prize](http://www.abc.net.au/news/image/8726666-1x1-700x700.jpg)
 
-A portrait of TV journalist Lisa Wilkinson by Peter Smeeth is awarded the Packing Room Prize in this year's Archibald competition, with the artist saying the "high achiever and great role model" was an obvious subject choice.
+After decades of trying, Peter Smeeth wins the Packing Room Prize for his portrait of the TV journalist, but the artist says he has "no illusions of winning the big one", with today's award likely to be the "kiss of death" for his 2017 Archibald campaign.
 
 
 Full story on F3News: [Peter Smeeth's portrait of Lisa Wilkinson wins Packing Room Prize](http://www.f3nws.com/n/yRxfAE)

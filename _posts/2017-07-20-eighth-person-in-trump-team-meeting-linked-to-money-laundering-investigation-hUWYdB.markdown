@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eighth person in Trump team meeting linked to money laundering investigation"
-date: 2017-07-20 00:30:47Z
+date: 2017-07-20 02:16:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Government Accountability Office report published in 2000 details how companie
 
 Full story on F3News: [Eighth person in Trump team meeting linked to money laundering investigation](http://www.f3nws.com/n/hUWYdB)
 
-> Posted on: Thursday, July 20, 2017 12:30:47 AM
+> Posted on: Thursday, July 20, 2017 2:16:12 AM
