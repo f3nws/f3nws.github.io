@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Destiny 2 beta is a blast, says CNET's Destiny addict     - CNET"
-date: 2017-07-20 02:47:37Z
+date: 2017-07-20 03:14:45Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ You can play Destiny 2's public beta now... if you preordered or have an early a
 
 Full story on F3News: [Destiny 2 beta is a blast, says CNET's Destiny addict     - CNET](http://www.f3nws.com/n/4dhqc)
 
-> Posted on: Thursday, July 20, 2017 2:47:37 AM
+> Posted on: Thursday, July 20, 2017 3:14:45 AM
