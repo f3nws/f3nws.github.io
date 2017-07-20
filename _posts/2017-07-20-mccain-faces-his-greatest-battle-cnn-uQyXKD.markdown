@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "McCain faces his greatest battle - CNN"
-date: 2017-07-20 05:41:58Z
+date: 2017-07-20 16:16:02Z
 categories: google-news-top-stories
 ---
 
 ![McCain faces his greatest battle - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170719153053-01-john-mccain-file-super-tease.jpg)
 
-CNN McCain faces his greatest battle CNN Washington (CNN) John McCain has always lived for the fight. Now he's facing his toughest battle. The Arizona Republican senator has often seemed indestructible, despite the best efforts of his Vietnam War jailers, an earlier bout with melanoma and a ... The Capital City Contemplates The Possibility Of A Washington Without John McCain NPR Whether he wanted to or not, John McCain played an outsized role in Trump's campaign Washington Post Pols and lawmakers offer McCain support after cancer diagnosis: 'He will beat this' Politico BBC News - NBCNews.com - National Review - ABC News all 1,068 news articles »
+CNN McCain faces his greatest battle CNN Washington (CNN) John McCain has always lived for the fight. Now he's facing his toughest battle. The Arizona Republican senator has often seemed indestructible, despite the best efforts of his Vietnam War jailers, an earlier bout with melanoma and a ... What John McCain learned from Ted Kennedy on challenging his own party Washington Post What Is Glioblastoma? McCain's Brain Tumor Is an Aggressive Type of Cancer NBCNews.com McCain tweets: 'I'll be back soon, so stand-by' Politico NPR - Baltimore Sun - HuffPost - New York Daily News all 1,280 news articles »
 
 
 Full story on F3News: [McCain faces his greatest battle - CNN](http://www.f3nws.com/n/uQyXKD)
 
-> Posted on: Thursday, July 20, 2017 5:41:58 AM
+> Posted on: Thursday, July 20, 2017 4:16:02 PM
