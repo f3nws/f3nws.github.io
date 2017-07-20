@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says Sessions 'unfair' to recuse himself on Russia"
-date: 2017-07-20 02:42:15Z
+date: 2017-07-20 05:32:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said in an interview published Wednesday that he would no
 
 Full story on F3News: [Trump says Sessions 'unfair' to recuse himself on Russia](http://www.f3nws.com/n/ANyeeH)
 
-> Posted on: Thursday, July 20, 2017 2:42:15 AM
+> Posted on: Thursday, July 20, 2017 5:32:31 AM
