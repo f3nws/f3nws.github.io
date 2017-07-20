@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This is why traffic lights are so much better in Germany"
-date: 2017-07-20 10:11:28Z
+date: 2017-07-20 18:58:50Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A city in western Germany may soon be home to a rather unusual pedestrian light.
 
 Full story on F3News: [This is why traffic lights are so much better in Germany](http://www.f3nws.com/n/WCRR4B)
 
-> Posted on: Thursday, July 20, 2017 10:11:28 AM
+> Posted on: Thursday, July 20, 2017 6:58:50 PM
