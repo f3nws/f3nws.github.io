@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Another John Wayne Gacy victim ID'd, ending family's 40-year agony - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170719152608-john-wayne-gacy-victim-super-tease.jpg)
 
-CNN Another John Wayne Gacy victim ID'd, ending family's 40-year agony CNN (CNN) For half a decade, serial killer John Wayne Gacy prowled the streets of Chicago in search of young, vulnerable boys and men to lure back to his Norwood Park home. Gacy is believed to have murdered at least 33 men between 1972 and 1978. One of John Wayne Gacy's remaining seven unidentified victims finally has a name Washington Post John Wayne Gacy Victim Is Identified After Four Decades New York Times Second long-unknown Gacy victim identified as boy from Minnesota Chicago Tribune USA TODAY - ABC News - BuzzFeed News - SFGate all 69 news articles »
+USA TODAY Another John Wayne Gacy victim ID'd, ending family's 40-year agony CNN (CNN) For half a decade, serial killer John Wayne Gacy prowled the streets of Chicago in search of young, vulnerable boys and men to lure back to his Norwood Park home. Gacy is believed to have murdered at least 33 men between 1972 and 1978. John Wayne Gacy Victim Is Identified After Four Decades New York Times One of John Wayne Gacy's remaining seven unidentified victims finally has a name Washington Post Second long-unknown Gacy victim identified as boy from Minnesota Chicago Tribune USA TODAY - WLS-TV - BuzzFeed News - SFGate all 70 news articles »
 
 
 Full story on F3News: [Another John Wayne Gacy victim ID'd, ending family's 40-year agony - CNN](http://www.f3nws.com/n/rbBbTH)
