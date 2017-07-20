@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ice is growing in the desert"
-date: 2017-07-20 04:59:30Z
+date: 2017-07-20 06:38:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the far north of India, a cold mountain desert is the stunning backdrop to an
 
 Full story on F3News: [Ice is growing in the desert](http://www.f3nws.com/n/FprSdE)
 
-> Posted on: Thursday, July 20, 2017 4:59:30 AM
+> Posted on: Thursday, July 20, 2017 6:38:19 AM
