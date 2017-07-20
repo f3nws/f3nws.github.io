@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Video Appears to Show Baltimore Police Officer Planting Drugs - New York Times](https://static01.nyt.com/images/2017/07/19/multimedia/19police-drugs-still/19police-drugs-still-facebookJumbo.jpg)
 
-New York Times Video Appears to Show Baltimore Police Officer Planting Drugs New York Times Body camera footage appears to show a Baltimore police officer planting drugs near the scene of an arrest in January. By BALTIMORE POLICE DEPARTMENT, VIA STORYFUL on Publish Date July 19, 2017. Photo by Maryland Office of the Public Defender. Body camera footage shows officer planting drugs, public defender says Baltimore Sun SEE IT: Baltimore cop suspended after body camera footage of alleged drug planting New York Daily News Baltimore Cop Accidentally Recorded Himself Planting Drugs, Public Defender Says HuffPost TIME - ABC15 Arizona - WTSP 10 News - Yahoo News all 110 news articles »
+New York Times Video Appears to Show Baltimore Police Officer Planting Drugs New York Times Body camera footage appears to show a Baltimore police officer planting drugs near the scene of an arrest in January. By BALTIMORE POLICE DEPARTMENT, VIA STORYFUL on Publish Date July 19, 2017. Photo by Maryland Office of the Public Defender. Body cam video allegedly shows Baltimore cop planting drugs at crime scene USA TODAY SEE IT: Baltimore cop suspended after body camera footage of alleged drug planting New York Daily News Public defender says body camera footage shows officer planting drugs AOL Yahoo News - Baltimore Sun - Fox Baltimore all 112 news articles »
 
 
 Full story on F3News: [Video Appears to Show Baltimore Police Officer Planting Drugs - New York Times](http://www.f3nws.com/n/BcCGeB)
