@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Anthony Scaramucci Expected to Be Named White House Communications Director - NBCNews.com](https://media4.s-nbcnews.com/j/newscms/2017_29/2079821/170720-anthony-scaramucci-ac-1112p_8f7b34b0ce518e49b517b898e8998b57.nbcnews-fp-1200-800.jpg)
 
-NBCNews.com Anthony Scaramucci Expected to Be Named White House Communications Director NBCNews.com The Trump administration is expected to name former Trump transition team official Anthony Scaramucci as White House communications director, four sources in and close to the White House told NBC News Thursday. The news of the expected appointment ... Anthony Scaramucci expected to become next White House communications director New York Daily News Trump to name Scaramucci as WH communications director: report The Hill Scaramucci under consideration for top White House job Washington Post Politico - New York Times - Bloomberg - Business Insider all 31 news articles »
+NBCNews.com Anthony Scaramucci Expected to Be Named White House Communications Director NBCNews.com The Trump administration is expected to name former Trump transition team official Anthony Scaramucci as White House communications director, four sources in and close to the White House told NBC News Thursday. The news of the expected appointment ... Scaramucci under consideration for top White House job Washington Post Trump to appoint financier Anthony Scaramucci as White House communications director: Report Washington Examiner Trump expected to make Scaramucci communications director Axios all 56 news articles »
 
 
 Full story on F3News: [Anthony Scaramucci Expected to Be Named White House Communications Director - NBCNews.com](http://www.f3nws.com/n/FsC3tH)
