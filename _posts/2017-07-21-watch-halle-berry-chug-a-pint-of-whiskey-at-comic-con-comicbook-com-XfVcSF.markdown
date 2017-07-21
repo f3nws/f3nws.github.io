@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Watch Halle Berry Chug A Pint Of Whiskey At Comic-Con - Comicbook.com](http://media.comicbook.com/2017/07/halle-berry-bourbon-1011318-640x320.png)
 
-Comicbook.com Watch Halle Berry Chug A Pint Of Whiskey At Comic-Con Comicbook.com You never know what you're going to witness when attending a panel at San Diego Comic Con. Fans are often expecting footage, announcements, logos, or photos from their favorite movies and TV shows but during the Kingsman: The Golden Circle they got ... Did Halle Berry drink half a pint of whiskey at Kingsman Comic-Con event? BBC News EXCLUSIVE: Jeff Bridges Marvels at Halle Berry's Comic-Con Chug, Reveals Channing Tatum Dances in 'Kingsman 2' Entertainment Tonight What We Learned About Kingsman 2 at Comic-Con MovieWeb PerezHilton.com - Tribune-Review - CNET - Bleeding Cool News all 241 news articles »
+Comicbook.com Watch Halle Berry Chug A Pint Of Whiskey At Comic-Con Comicbook.com You never know what you're going to witness when attending a panel at San Diego Comic Con. Fans are often expecting footage, announcements, logos, or photos from their favorite movies and TV shows but during the Kingsman: The Golden Circle they got ... 'Kingsman: The Golden Circle' Cast Talks Nicknames, Elton John on 'Conan' Hollywood Reporter What happened on the first day of Comic-Con? BBC News Kingsman star teases Julianne Moore's villain: 'American sweetheart on an acid trip' EW.com Cinema Blend - Entertainment Tonight - MovieWeb - PerezHilton.com all 242 news articles »
 
 
 Full story on F3News: [Watch Halle Berry Chug A Pint Of Whiskey At Comic-Con - Comicbook.com](http://www.f3nws.com/n/XfVcSF)
