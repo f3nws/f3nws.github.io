@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Pokémon Go Players Are Preparing For Legendaries By Powering Up Golem - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--OYrutW1S--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/wuhvmpjj1sgntez2jdwb.png)
 
-Kotaku Pokémon Go Players Are Preparing For Legendaries By Powering Up Golem Kotaku Legendaries are typically the most powerful monsters in the compendium, so getting one this weekend is likely going to be tough. Fortunately, players are already figuring out the most efficient counters to all the possibilities. During the legendaries ... The 5 best Pokemon (GO!) for Legendary Raid Battles SlashGear Here's What You Might Have Missed in Pokemon Go's Legendary Trailer Comicbook.com 'Pokémon Go' First Legendary: Will Mewtwo make a surprise appearance at the Chicago fest? Mic Game Rant - Siliconera - Pixelkin (blog) - Daily Star all 48 news articles »
+Kotaku Pokémon Go Players Are Preparing For Legendaries By Powering Up Golem Kotaku Legendaries are typically the most powerful monsters in the compendium, so getting one this weekend is likely going to be tough. Fortunately, players are already figuring out the most efficient counters to all the possibilities. During the legendaries ... The 5 best Pokemon (GO!) for Legendary Raid Battles SlashGear Catching A Legendary Pokemon In Pokemon Go Won't Be An Easy Milestone To Reach Comicbook.com Thousands to capture creatures at Pokemon Go Fest Chicago Sun-Times Mic - Game Rant - CNET - Siliconera all 51 news articles »
 
 
 Full story on F3News: [Pokémon Go Players Are Preparing For Legendaries By Powering Up Golem - Kotaku](http://www.f3nws.com/n/yMbCJF)
