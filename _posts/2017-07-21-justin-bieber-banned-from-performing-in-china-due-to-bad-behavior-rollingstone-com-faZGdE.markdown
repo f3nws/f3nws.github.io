@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Justin Bieber Banned From Performing in China Due to 'Bad Behavior' - RollingStone.com](http://img.wennermedia.com/social/gettyimages-692360234-e85dd072-c7be-4e7d-bfb7-615814f132f9.jpg)
 
-RollingStone.com Justin Bieber Banned From Performing in China Due to 'Bad Behavior' RollingStone.com China has banned Justin Bieber from performing in the country, with the Beijing Municipal Bureau of Culture citing his "bad behavior." Credit: Kevin Mazur / Getty. By Ryan Reed. 3 hours ago. More News. Watch Supermodels Lip Dub Justin Bieber, David ... Justin Bieber Will Never Play A Concert In China Again Because Of His 'Bad Behavior' Hollywood Life Justin Bieber banned from performing in Beijing due to 'bad behavior' New York Daily News Justin Bieber gets himself banned from China for 'bad behavior' Washington Post CNN - BBC News - NBCNews.com - Salon all 131 news articles »
+RollingStone.com Justin Bieber Banned From Performing in China Due to 'Bad Behavior' RollingStone.com China has banned Justin Bieber from performing in the country, with the Beijing Municipal Bureau of Culture citing his "bad behavior." Credit: Kevin Mazur / Getty. By Ryan Reed. 3 hours ago. More News. Watch Supermodels Lip Dub Justin Bieber, David ... Justin Bieber banned from performing in Beijing due to 'bad behavior' New York Daily News Justin Bieber Will Never Play A Concert In Hollywood Life Justin Bieber Can't Perform In China Because Of His 'Bad Behavior' MTV.com CNN - Washington Post - Newsweek - USA TODAY all 152 news articles »
 
 
 Full story on F3News: [Justin Bieber Banned From Performing in China Due to 'Bad Behavior' - RollingStone.com](http://www.f3nws.com/n/faZGdE)

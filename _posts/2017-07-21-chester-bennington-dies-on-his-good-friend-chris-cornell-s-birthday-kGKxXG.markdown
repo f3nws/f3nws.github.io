@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chester Bennington dies on his good friend Chris Cornell's birthday"
-date: 2017-07-21 13:23:47Z
+date: 2017-07-21 17:41:52Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ After his friend Chris Cornell died two months ago, Linkin Park singer Chester B
 
 Full story on F3News: [Chester Bennington dies on his good friend Chris Cornell's birthday](http://www.f3nws.com/n/kGKxXG)
 
-> Posted on: Friday, July 21, 2017 1:23:47 PM
+> Posted on: Friday, July 21, 2017 5:41:52 PM
