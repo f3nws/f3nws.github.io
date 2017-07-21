@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Richard Di Natale's monthus horribilis: where to now for the Greens? - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/f/s/2/i/image.related.socialLead.620x349.gxf5em.png/1500604651237.jpg)
 
-The Sydney Morning Herald Richard Di Natale's monthus horribilis: where to now for the Greens? The Sydney Morning Herald Greens leader Richard Di Natale was in Queensland on a break with his wife and two sons when his deputy, Larissa Waters called him. It was Friday night, just hours after his other deputy leader, Scott Ludlam, had resigned in a shock press conference, ... Office affairs shouldn't be a sackable offence, say 4 out of 5 The Australian Di Natale proves Australian citizenship Sky News Australia Jordon Steele-John to take Greens Senator seat left vacant by Scott Ludlam NEWS.com.au SBS - The Guardian - Cessnock Advertiser - BBC News all 24 news articles »
+The Sydney Morning Herald Richard Di Natale's monthus horribilis: where to now for the Greens? The Sydney Morning Herald Greens leader Richard Di Natale was in Queensland on a break with his wife and two sons when his deputy, Larissa Waters called him. It was Friday night, just hours after his other deputy leader, Scott Ludlam, had resigned in a shock press conference, ... Office affairs shouldn't be a sackable offence, say 4 out of 5 The Australian Di Natale proves Australian citizenship Sky News Australia Jordon Steele-John to take Greens Senator seat left vacant by Scott Ludlam NEWS.com.au SBS - The Guardian - Cessnock Advertiser - The Advocate all 25 news articles »
 
 
 Full story on F3News: [Richard Di Natale's monthus horribilis: where to now for the Greens? - The Sydney Morning Herald](http://www.f3nws.com/n/3XvufE)
