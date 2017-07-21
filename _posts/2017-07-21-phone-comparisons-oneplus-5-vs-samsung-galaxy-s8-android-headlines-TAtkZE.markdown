@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Phone Comparisons: OnePlus 5 Vs. Samsung Galaxy S8+ - Android Headlines](https://www.androidheadlines.com/wp-content/uploads/2017/07/Kish-Comp-July-20th.jpg)
 
-Android Headlines Phone Comparisons: OnePlus 5 Vs. Samsung Galaxy S8+ Android Headlines Today, we pit the OnePlus 5 against the Galaxy S8+ to see which one comes out on top. Both are powered by the exact same chip and have very similar footprint, although, the Samsung device has a much larger display compared to its rival. Overall, though ... Samsung expected to announce Galaxy Note 8 on Aug. 23 AppleInsider (press release) (blog) Galaxy Note 8 on Aug. 23: Samsung makes it official CNET Samsung Set to Unveil Galaxy Note 8 on Aug. 23 PCMag Ubergizmo - Android Police - Tech Times - Mac Rumors all 217 news articles »
+Android Headlines Phone Comparisons: OnePlus 5 Vs. Samsung Galaxy S8+ Android Headlines Today, we pit the OnePlus 5 against the Galaxy S8+ to see which one comes out on top. Both are powered by the exact same chip and have very similar footprint, although, the Samsung device has a much larger display compared to its rival. Overall, though ... Samsung expected to announce Galaxy Note 8 on Aug. 23 AppleInsider (press release) (blog) Galaxy Note 8 on Aug. 23: Samsung makes it official CNET Samsung Set to Unveil Galaxy Note 8 on Aug. 23 PCMag TechCrunch - Ubergizmo - Tech Times - Mac Rumors all 223 news articles »
 
 
 Full story on F3News: [Phone Comparisons: OnePlus 5 Vs. Samsung Galaxy S8+ - Android Headlines](http://www.f3nws.com/n/TAtkZE)
