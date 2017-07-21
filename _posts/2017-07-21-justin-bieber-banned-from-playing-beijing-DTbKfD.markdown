@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justin Bieber banned from playing Beijing"
-date: 2017-07-21 09:34:20Z
+date: 2017-07-21 14:35:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Justin Bieber won't be hitting the stage in Beijing anytime soon.
 
 Full story on F3News: [Justin Bieber banned from playing Beijing](http://www.f3nws.com/n/DTbKfD)
 
-> Posted on: Friday, July 21, 2017 9:34:20 AM
+> Posted on: Friday, July 21, 2017 2:35:11 PM
