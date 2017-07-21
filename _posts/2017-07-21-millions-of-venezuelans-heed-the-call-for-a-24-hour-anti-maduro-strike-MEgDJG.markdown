@@ -7,7 +7,7 @@ categories: fortune
 
 ![Millions of Venezuelans Heed the Call for a 24-Hour Anti-Maduro Strike](https://fortunedotcom.files.wordpress.com/2017/07/gettyimages-819800432.jpg?w=720)
 
-The opposition said 85 percent of the country joined the strike.
+The opposition said 85% of the country joined the strike.
 
 
 Full story on F3News: [Millions of Venezuelans Heed the Call for a 24-Hour Anti-Maduro Strike](http://www.f3nws.com/n/MEgDJG)

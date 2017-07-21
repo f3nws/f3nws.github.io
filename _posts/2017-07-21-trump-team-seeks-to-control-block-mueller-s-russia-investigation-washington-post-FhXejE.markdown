@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump team seeks to control, block Mueller's Russia investigation - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/21/National-Politics/Images/WHITEHOUSEGLASS2004.JPG?t=20170517)
 
-Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Trump Aides, Seeking Leverage, Investigate Mueller's Investigators New York Times Dem rep: Trump threatened Mueller by trying to set limits for Russia probe The Hill Jeff Sessions' appointment of special prosecutor bites Trump Washington Times CBS News - NJ.com - Philly.com - The Daily Caller all 240 news articles »
+Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Trump Aides, Seeking Leverage, Investigate Mueller's Investigators New York Times Trump lawyers looking into special counsel's potential conflicts of interest: reports The Hill The swamp strikes back Washington Times Business Insider - Washington Examiner - CBS News - CNBC all 174 news articles »
 
 
 Full story on F3News: [Trump team seeks to control, block Mueller's Russia investigation - Washington Post](http://www.f3nws.com/n/FhXejE)
