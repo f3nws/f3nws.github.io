@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![LNP MP apologises for questioning the number of women on a board - Brisbane Times](http://www.brisbanetimes.com.au/content/dam/images/z/y/6/s/d/image.related.articleLeadwide.620x349.gxfnwy.png/1500608382544.jpg)
 
-Clarence Valley Daily Examiner LNP MP apologises for questioning the number of women on a board Brisbane Times LNP politician Tim Mander has apologised for questioning the "gender imbalance" on a government board that has more women than men. On Thursday night during estimates, Opposition Corrective Services spokesman Tim Mander questioned how the new ... Queensland Opposition apologises for claiming there are too many woman new parole board ABC Online Qld premier offended by Mander's sleight SBS Qld premier offended by Mander's comments 9news.com.au The Sunshine Coast Daily all 6 news articles »
+Brisbane Times LNP MP apologises for questioning the number of women on a board Brisbane Times LNP politician Tim Mander has apologised for questioning the "gender imbalance" on a government board that has more women than men. On Thursday night during estimates, Opposition Corrective Services spokesman Tim Mander questioned how the new ... Is the Qld LNP Australia's most misogynist political party? NEWS.com.au Qld premier offended by Mander's sleight SBS Queensland Opposition apologises for claiming there are too many woman new parole board ABC Online 9news.com.au - The Sunshine Coast Daily all 8 news articles »
 
 
 Full story on F3News: [LNP MP apologises for questioning the number of women on a board - Brisbane Times](http://www.f3nws.com/n/TptvUE)

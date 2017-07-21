@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump team seeks to control, block Mueller's Russia investigation - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/21/National-Politics/Images/WHITEHOUSEGLASS2004.JPG?t=20170517)
 
-Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Trump reshuffling legal team CNN Here's the Chain Reaction Trump Could Set Off by Trying to Fire Mueller Bloomberg Trump's Lawyers Look At Pardons, Conflicts Of Interest to Derail Mueller Probe HuffPost The Atlantic - New York Daily News - CBS News - The Hill all 250 news articles »
+Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Trump reshuffling legal team CNN Trump Asks About Pardons As Lawyers Look At Ways to Derail Mueller Probe HuffPost Trump Trains His Sights on Mueller's Investigation The Atlantic Bloomberg - New York Daily News - CBS News - Slate Magazine (blog) all 262 news articles »
 
 
 Full story on F3News: [Trump team seeks to control, block Mueller's Russia investigation - Washington Post](http://www.f3nws.com/n/FhXejE)
