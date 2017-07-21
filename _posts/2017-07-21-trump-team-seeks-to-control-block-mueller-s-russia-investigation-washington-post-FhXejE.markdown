@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump team seeks to control, block Mueller's Russia investigation - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/21/National-Politics/Images/WHITEHOUSEGLASS2004.JPG?t=20170517)
 
-Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Can President Trump pardon himself? CNN Will Republicans Draw a Red Line on Trump Powers? NBCNews.com Trump's lawyers look for conflicts of interest among Mueller's investigators amid a legal team shakeup Los Angeles Times The Hill - Politico - ABC News - Fox News all 834 news articles »
+Washington Post Trump team seeks to control, block Mueller's Russia investigation Washington Post Some of President Trump's lawyers are exploring ways to limit or undercut special counsel Robert S. Mueller III's Russia investigation, building a case against what they allege are his conflicts of interest and discussing the president's authority to ... Can President Trump pardon himself? CNN Will Republicans Draw a Red Line on Trump Powers? NBCNews.com Trump's lawyers look for conflicts of interest among Mueller's investigators amid a legal team shakeup Los Angeles Times Politico - The Hill - ABC News - USA TODAY all 849 news articles »
 
 
 Full story on F3News: [Trump team seeks to control, block Mueller's Russia investigation - Washington Post](http://www.f3nws.com/n/FhXejE)
