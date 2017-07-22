@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/20/National-Politics/Images/Botsford170209Trump11738.JPG?t=20170517)
 
-Washington Post In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon Washington Post NORFOLK, Va. — A defiant President Trump unleashed a flurry of nearly a dozen Tweets Saturday morning, asserting that he has the “complete power to pardon” aides, family members and possibly even himself — an apparent response to the special ... Trump Says He Has 'Complete Power' to Pardon New York Times Trump launches all-out assault on Mueller probe The Hill Jeff Sessions had a totally terrible week CNN BBC News - Politico - Business Insider - Chicago Tribune all 2,326 news articles »
+Washington Post In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon Washington Post NORFOLK, Va. — A defiant President Trump unleashed a flurry of nearly a dozen tweets Saturday morning, asserting that he has the “complete power to pardon” aides, family members and possibly even himself — an apparent response to the special ... Trump Says He Has 'Complete Power' to Pardon New York Times Trump launches all-out assault on Mueller probe The Hill Can Trump stop Mueller? CNN Politico - BBC News - Business Insider - Chicago Tribune all 2,373 news articles »
 
 
 Full story on F3News: [In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon - Washington Post](http://www.f3nws.com/n/CVvcrE)
