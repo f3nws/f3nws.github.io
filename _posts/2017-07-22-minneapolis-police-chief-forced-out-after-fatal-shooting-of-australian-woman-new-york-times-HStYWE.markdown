@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Minneapolis Police Chief Forced Out After Fatal Shooting of Australian Woman - New York Times](https://static01.nyt.com/images/2017/07/22/us/22minneapolis/22minneapolis-facebookJumbo.jpg)
 
-New York Times Minneapolis Police Chief Forced Out After Fatal Shooting of Australian Woman New York Times Police Chief Janee Harteau of Minneapolis, center. Credit Maria Alejandra Cardona/Minnesota Public Radio, via Associated Press. The Minneapolis police chief, Janee Harteau, resigned on Friday at the mayor's request, less than a week after one of the ... Minneapolis chief resigns after shooting of Australian woman ABC News The Latest: Minneapolis mayor: 'I will not be resigning' Washington Post Protesters shut down Minneapolis mayor's press conference The Hill BBC News - The Atlantic - STLtoday.com - The Denver Post all 280 news articles »
+New York Times Minneapolis Police Chief Forced Out After Fatal Shooting of Australian Woman New York Times Police Chief Janee Harteau of Minneapolis, center. Credit Maria Alejandra Cardona/Minnesota Public Radio, via Associated Press. The Minneapolis police chief, Janee Harteau, resigned on Friday at the mayor's request, less than a week after one of the ... The Latest: Minneapolis mayor: 'I will not be resigning' Washington Post Minneapolis chief resigns after shooting of Australian woman ABC News Justine Damond shooting: Police chief Janee Harteau quits BBC News The Hill - The Denver Post - The Atlantic - STLtoday.com all 280 news articles »
 
 
 Full story on F3News: [Minneapolis Police Chief Forced Out After Fatal Shooting of Australian Woman - New York Times](http://www.f3nws.com/n/HStYWE)
