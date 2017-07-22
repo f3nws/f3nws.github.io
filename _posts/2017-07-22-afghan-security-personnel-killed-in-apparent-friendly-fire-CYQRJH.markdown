@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Afghan security personnel killed in apparent friendly fire"
-date: 2017-07-22 09:56:30Z
+date: 2017-07-22 13:18:25Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A US-supported Afghan airstrike struck and killed local security personnel align
 
 Full story on F3News: [Afghan security personnel killed in apparent friendly fire](http://www.f3nws.com/n/CYQRJH)
 
-> Posted on: Saturday, July 22, 2017 9:56:30 AM
+> Posted on: Saturday, July 22, 2017 1:18:25 PM

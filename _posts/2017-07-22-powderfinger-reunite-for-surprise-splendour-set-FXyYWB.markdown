@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powderfinger reunite for surprise Splendour set"
-date: 2017-07-22 13:29:14Z
+date: 2017-07-22 13:26:00Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ Splendour in the Grass festival-goers are treated to a surprise set by iconic Br
 
 Full story on F3News: [Powderfinger reunite for surprise Splendour set](http://www.f3nws.com/n/FXyYWB)
 
-> Posted on: Saturday, July 22, 2017 1:29:14 PM
+> Posted on: Saturday, July 22, 2017 1:26:00 PM
