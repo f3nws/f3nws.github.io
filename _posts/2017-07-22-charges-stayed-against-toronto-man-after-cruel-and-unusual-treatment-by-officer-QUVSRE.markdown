@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Charges stayed against Toronto man after ‘cruel and unusual’ treatment by officer](https://www.thestar.com/content/dam/thestar/news/crime/2017/07/22/charges-stayed-against-toronto-man-after-cruel-and-unusual-treatment-by-officer/philip-alafe.jpg)
 
-Judge issues ruling after prisoner suffering from sickle cell anemia ends up naked and without a mattress or blanket in Brantford jail, as seen in cell videos of incident.
+Judge issues ruling after prisoner suffering from sickle cell anemia ends up naked and without a mattress or blanket in Brantford police station lock-up, as seen in cell videos of incident.
 
 
 Full story on F3News: [Charges stayed against Toronto man after ‘cruel and unusual’ treatment by officer](http://www.f3nws.com/n/QUVSRE)

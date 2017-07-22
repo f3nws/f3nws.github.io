@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con: The Defenders have arrived to kick ass and take names     - CNET"
-date: 2017-07-22 03:52:09Z
+date: 2017-07-22 16:29:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ On Friday we chatted with the cast and showrunner, and learned that every Netfli
 
 Full story on F3News: [Comic-Con: The Defenders have arrived to kick ass and take names     - CNET](http://www.f3nws.com/n/uhFtVD)
 
-> Posted on: Saturday, July 22, 2017 3:52:09 AM
+> Posted on: Saturday, July 22, 2017 4:29:39 PM
