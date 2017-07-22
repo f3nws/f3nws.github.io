@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump launches all-out assault on Mueller probe - The Hill](http://thehill.com/sites/default/files/robertmueller_072117getty.jpg)
 
-The Hill Trump launches all-out assault on Mueller probe The Hill President Trump has launched an all-out assault on the federal investigation into his campaign's ties to Russia, reflecting an intensifying obsession with the probe within the West Wing. As reports emerged this week that special counsel Robert Mueller ... Can Trump stop Mueller? CNN In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon Washington Post Donald Trump insists he has 'complete power' to pardon BBC News Business Insider - Politico - Slate Magazine (blog) - Washington Examiner all 2,297 news articles »
+The Hill Trump launches all-out assault on Mueller probe The Hill President Trump has launched an all-out assault on the federal investigation into his campaign's ties to Russia, reflecting an intensifying obsession with the probe within the West Wing. As reports emerged this week that special counsel Robert Mueller ... In tweet storm, Trump decries 'illegal leaks' and asserts 'all agree' he has complete power to pardon Washington Post Trump Says He Has 'Complete Power' to Pardon New York Times Jeff Sessions had a totally terrible week CNN BBC News - Politico - Business Insider - Chicago Tribune all 2,478 news articles »
 
 
 Full story on F3News: [Trump launches all-out assault on Mueller probe - The Hill](http://www.f3nws.com/n/EbZCFB)
