@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![The Walking Dead: Shocking Season 8 Trailer Twist Explained - Comicbook.com](http://media.comicbook.com/2017/07/rick-grimes-old-man-season-8-the-walking-dead-1011425-1011507-640x320.jpg)
 
-Comicbook.com The Walking Dead: Shocking Season 8 Trailer Twist Explained Comicbook.com Potential spoilers for The Walking Dead Season 8 follow. On Friday, AMC unveiled the first trailer for the eighth season of The Walking Dead. While the first footage from the upcoming batch of episodes was, in fact, loaded with insight, there was one ... Fear the Walking Dead: New episodes feature more zombies, apocalypse EW.com (blog) Fear the Walking Dead Comic-Con Trailer and Interviews ComingSoon.net 'Fear The Walking Dead' SDCC Panel: Troy Knows Madison Is Playing Him & More Hollywood Life RollingStone.com - Screen Rant - Gizmodo - Entertainment Tonight all 269 news articles »
+Comicbook.com The Walking Dead: Shocking Season 8 Trailer Twist Explained Comicbook.com Potential spoilers for The Walking Dead Season 8 follow. On Friday, AMC unveiled the first trailer for the eighth season of The Walking Dead. While the first footage from the upcoming batch of episodes was, in fact, loaded with insight, there was one ... Fear the Walking Dead: New episodes feature more zombies, apocalypse EW.com (blog) Fear the Walking Dead Comic-Con Trailer and Interviews ComingSoon.net 'The Walking Dead' and 'Fear The Walking Dead' Panels Open With Moment of Silence For Dead Stuntman IndieWire Hollywood Life - Entertainment Tonight - Gizmodo - Screen Rant all 275 news articles »
 
 
 Full story on F3News: [The Walking Dead: Shocking Season 8 Trailer Twist Explained - Comicbook.com](http://www.f3nws.com/n/mxR2BC)
