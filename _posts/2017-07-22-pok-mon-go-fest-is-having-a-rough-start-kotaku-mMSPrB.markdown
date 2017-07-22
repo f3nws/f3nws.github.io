@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Pokémon Go Fest Is Having A Rough Start - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--N7jhUuG5--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/tirsguq8mdbykf3tb480.png)
 
-Kotaku Pokémon Go Fest Is Having A Rough Start Kotaku Players at the first ever live Pokémon Go event do not seem happy this morning, judging from reports of long lines and connectivity issues trickling in from Chicago. First reported by Game Informer, the game is apparently “unplayable” for many at the ... Here's Everything You Need To Know About 'Pokémon GO Fest' Forbes Pokemon Go Fest hits problems as players can't get game to work, crowd boos Niantic CEO Chicago Tribune Watch Pokémon Go Fest here Polygon GameSpot - BGR - TechCrunch - Comicbook.com all 110 news articles »
+Kotaku Pokémon Go Fest Is Having A Rough Start Kotaku Players at the first ever live Pokémon Go event do not seem happy this morning, judging from reports of long lines and connectivity issues trickling in from Chicago. First reported by Game Informer, the game is apparently “unplayable” for many at the ... Here's Everything You Need To Know About 'Pokémon GO Fest' Forbes Pokemon Go Fest hits problems as players can't get game to work, crowd boos Niantic CEO Chicago Tribune Pokemon Go Fans Revolt Against Niantic During Disastrous Chicago Event Heavy.com Polygon - GameSpot - TechCrunch - BGR all 114 news articles »
 
 
 Full story on F3News: [Pokémon Go Fest Is Having A Rough Start - Kotaku](http://www.f3nws.com/n/mMSPrB)
