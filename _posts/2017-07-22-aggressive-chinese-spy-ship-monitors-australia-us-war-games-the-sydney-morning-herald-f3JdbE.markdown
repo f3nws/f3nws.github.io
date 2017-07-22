@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['Aggressive': Chinese spy ship monitors Australia-US war games - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/1/5/u/m/image.related.articleLeadwide.620x349.gxgiu9.png/1500695993635.jpg)
 
-The Sydney Morning Herald 'Aggressive': Chinese spy ship monitors Australia-US war games The Sydney Morning Herald The Chinese military has been spying on major war games taking place between Australia and the United States off the coast of Queensland. In a statement, the Department of Defence said a Chinese surveillance ship has been operating within the ... Chinese ship in 'vicinity' of war games Sky News Australia Chinese spy ship in 'vicinity' of Australia-US war games SBS 'Provocative move': Chinese spy ship sighted off Queensland coast The Guardian NEWS.com.au - The New Daily all 8 news articles »
+The Sydney Morning Herald 'Aggressive': Chinese spy ship monitors Australia-US war games The Sydney Morning Herald The Chinese military has been spying on major war games taking place between Australia and the United States off the coast of Queensland. In a statement, the Department of Defence said a Chinese surveillance ship has been operating within the ... Chinese ship in 'vicinity' of war games Sky News Australia Chinese spy ship in 'vicinity' of Australia-US war games SBS 'Provocative move': Chinese spy ship sighted off Queensland coast The Guardian Business Insider Australia - NEWS.com.au - Reuters - The New Daily all 10 news articles »
 
 
 Full story on F3News: ['Aggressive': Chinese spy ship monitors Australia-US war games - The Sydney Morning Herald](http://www.f3nws.com/n/f3JdbE)
