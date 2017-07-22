@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con 2017: 'The Gifted' promises mutant mayhem in X-Men spin-off     - CNET"
-date: 2017-07-22 00:43:36Z
+date: 2017-07-22 00:56:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The San Diego Comic-Con panel introduced the Fox TV show "The Gifted" with revea
 
 Full story on F3News: [Comic-Con 2017: 'The Gifted' promises mutant mayhem in X-Men spin-off     - CNET](http://www.f3nws.com/n/YfdCk)
 
-> Posted on: Saturday, July 22, 2017 12:43:36 AM
+> Posted on: Saturday, July 22, 2017 12:56:39 AM

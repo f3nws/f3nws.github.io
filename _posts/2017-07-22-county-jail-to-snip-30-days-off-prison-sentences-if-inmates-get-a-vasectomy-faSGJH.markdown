@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "County jail to snip 30 days off prison sentences if inmates get a vasectomy"
-date: 2017-07-22 00:30:03Z
+date: 2017-07-22 00:39:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Officials in White County, Tennessee have given inmates the option of ending the
 
 Full story on F3News: [County jail to snip 30 days off prison sentences if inmates get a vasectomy](http://www.f3nws.com/n/faSGJH)
 
-> Posted on: Saturday, July 22, 2017 12:30:03 AM
+> Posted on: Saturday, July 22, 2017 12:39:00 AM
