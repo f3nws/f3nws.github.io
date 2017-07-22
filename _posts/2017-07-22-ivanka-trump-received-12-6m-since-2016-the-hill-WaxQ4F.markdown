@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ivanka Trump received $12.6M since 2016 - The Hill](http://thehill.com/sites/default/files/blogs/trumpivanka_031717gn_lead_0.jpg)
 
-The Hill Ivanka Trump received $12.6M since 2016 The Hill First daughter Ivanka Trump or her trust made at least $12.6 million from her various business ventures since early 2016 and will make at least $1.5 million per year even as she serves in the White House, according to an ethics disclosure. The New York ... Kushner reports millions in 77 previously 'omitted' assets Politico Jared Kushner adds more than 70 previously undisclosed assets worth $10M CBS News Kushner's Amended Financial Form Lists 77 'Omitted' Holdings Bloomberg Death and Taxes - Patheos (blog) - NJ.com - International Business Times all 107 news articles »
+The Hill Ivanka Trump received $12.6M since 2016 The Hill First daughter Ivanka Trump or her trust made at least $12.6 million from her various business ventures since early 2016 and will make at least $1.5 million per year even as she serves in the White House, according to an ethics disclosure. The New York ... Jared Kushner sold his stake in Monmouth Mall Asbury Park Press Jared Kushner Revises Financial Disclosure Form With Dozens of Assets He Initially Omitted Mediaite Ivanka Trump Received at Least $12.6 Million Since 2016, Disclosure Shows New York Times all 125 news articles »
 
 
 Full story on F3News: [Ivanka Trump received $12.6M since 2016 - The Hill](http://www.f3nws.com/n/WaxQ4F)
