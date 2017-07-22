@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Verizon Says It Was Totally Just Testing How to Throttle Video - Gizmodo](https://i.kinja-img.com/gawker-media/image/upload/s--ZcncQGvM--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/prseek39watlob3qr6tq.jpg)
 
-Gizmodo Verizon Says It Was Totally Just Testing How to Throttle Video Gizmodo After rumors spread on Reddit that Verizon Wireless customers were unable to achieve feeds of faster than 10Mbps while connected to Netflix, the company confirmed to Ars Technica this week it was conducting “network testing over the past few days to ... Verizon admits to throttling video in apparent violation of net neutrality The Verge Users Claim Verizon Is Throttling Their Streaming Speeds On Netflix And YouTube Tech Times Verizon accused of throttling Netflix and YouTube, admits to “video optimization” Ars Technica Business Insider - Hot Hardware - BetaNews - PCMag all 59 news articles »
+Gizmodo Verizon Says It Was Totally Just Testing How to Throttle Video Gizmodo After rumors spread on Reddit that Verizon Wireless customers were unable to achieve feeds of faster than 10Mbps while connected to Netflix, the company confirmed to Ars Technica this week it was conducting “network testing over the past few days to ... Report: Verizon Throttles Netflix, YouTube During Networks Tests PCMag Users Claim Verizon Is Throttling Their Streaming Speeds On Netflix And YouTube Tech Times Verizon says it's not really trying to throttle Netflix traffic, just testing PC Gamer AppleInsider (press release) (blog) - Hot Hardware - BetaNews - Android Headlines all 59 news articles »
 
 
 Full story on F3News: [Verizon Says It Was Totally Just Testing How to Throttle Video - Gizmodo](http://www.f3nws.com/n/YPsYyG)
