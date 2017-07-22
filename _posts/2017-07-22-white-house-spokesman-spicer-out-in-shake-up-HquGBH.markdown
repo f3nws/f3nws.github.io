@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House spokesman Spicer out in shake-up"
-date: 2017-07-22 01:17:23Z
+date: 2017-07-22 09:37:34Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ Spicer quit after Trump named Anthony Scaramucci, a Wall Street financier and on
 
 Full story on F3News: [White House spokesman Spicer out in shake-up](http://www.f3nws.com/n/HquGBH)
 
-> Posted on: Saturday, July 22, 2017 1:17:23 AM
+> Posted on: Saturday, July 22, 2017 9:37:34 AM
