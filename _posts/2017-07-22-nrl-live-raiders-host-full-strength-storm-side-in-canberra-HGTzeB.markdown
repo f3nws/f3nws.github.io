@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![NRL live: Raiders host full-strength Storm side in Canberra](http://www.abc.net.au/news/image/6403350-1x1-700x700.jpg)
 
-The table-topping Melbourne Storm is in Canberra for a clash with the Raiders. Follow the action in our NRL ScoreCentre.
+The table-topping Melbourne Storm are in Canberra for a clash with the Raiders. Follow the action in our NRL ScoreCentre.
 
 
 Full story on F3News: [NRL live: Raiders host full-strength Storm side in Canberra](http://www.f3nws.com/n/HGTzeB)
