@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kushner discloses additional $10M in assets - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-07-22/AP/Images/Kushner_Financial_Disclosure_63817.jpg-0c37a.jpg?t=20170517)
 
-Washington Post Kushner discloses additional $10M in assets Washington Post WASHINGTON — President Donald Trump's son-in-law and senior adviser Jared Kushner “inadvertently omitted” more than 70 assets worth at least $10.6 million from his personal financial disclosure reports, according to revised paperwork released Friday. Ivanka Trump received $12.6M since 2016 The Hill Kushner, Ivanka detail up to $762 million in assets WFMZ Allentown Jared Kushner's role as Trump adviser still used to attract Chinese investors, report says NJ.com Eureka Times Standard - CNN all 89 news articles »
+Washington Post Kushner discloses additional $10M in assets Washington Post WASHINGTON — President Donald Trump's son-in-law and senior adviser Jared Kushner “inadvertently omitted” more than 70 assets worth at least $10.6 million from his personal financial disclosure reports, according to revised paperwork released Friday. Ivanka Trump received $12.6M since 2016 The Hill Kushner, Ivanka detail up to $762 million in assets Local 10 Jared Kushner's role as Trump adviser still used to attract Chinese investors, report says NJ.com New York Times - Eureka Times Standard - CNN all 90 news articles »
 
 
 Full story on F3News: [Kushner discloses additional $10M in assets - Washington Post](http://www.f3nws.com/n/nGKbHD)
