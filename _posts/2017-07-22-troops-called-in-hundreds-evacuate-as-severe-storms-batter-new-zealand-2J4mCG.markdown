@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Troops called in, hundreds evacuate as severe storms batter New Zealand](http://www.abc.net.au/news/image/8734270-1x1-700x700.jpg)
 
-A severe weather event lashes the country's South Island, causing flooding, cutting highways and sparking the evacuation of hundreds of homes. Soldiers have been called in to help emergency services.
+Rescue workers in South Island cities including Christchurch are working around the clock to help those affected by flooding that has sparked a state of emergency and led to the evacuation of hundreds of homes.
 
 
 Full story on F3News: [Troops called in, hundreds evacuate as severe storms batter New Zealand](http://www.f3nws.com/n/2J4mCG)
