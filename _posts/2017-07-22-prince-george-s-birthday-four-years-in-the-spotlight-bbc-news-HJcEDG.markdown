@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Prince George's birthday: Four years in the spotlight - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/7C46/production/_97041813_george17.jpg)
 
-BBC News Prince George's birthday: Four years in the spotlight BBC News From newborn baby to his first day at nursery, the pictures that show how Prince George has grown up. George with his parents outside hospital Getty Images. 23 July 2013: George makes his first public appearance outside St Mary's Hospital in London. Prince George Turns 4: How Growing Up Royal Can Be Tougher Than It Looks Newsweek UK palace releases Prince George's 4th birthday portrait ABC News Prince George, world traveller, turns four-years-old CTV News WHAS 11.com - Mirror.co.uk - Telegraph.co.uk - Newser all 265 news articles »
+BBC News Prince George's birthday: Four years in the spotlight BBC News From newborn baby to his first day at nursery, the pictures that show how Prince George has grown up. George with his parents outside hospital Getty Images. 23 July 2013: George makes his first public appearance outside St Mary's Hospital in London. Happy Birthday, Prince George! Kensington Palace Releases New Portrait Parade Prince George Turns 4: How Growing Up Royal Can Be Tougher Than It Looks Newsweek UK palace releases Prince George's 4th birthday portrait Chicago Tribune Independent.ie - CTV News - ABC News - E! Online all 296 news articles »
 
 
 Full story on F3News: [Prince George's birthday: Four years in the spotlight - BBC News](http://www.f3nws.com/n/HJcEDG)
