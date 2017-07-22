@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 Palestinians dead in Jerusalem clashes, health ministry says"
-date: 2017-07-22 10:01:37Z
+date: 2017-07-22 10:26:45Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three Palestinians were killed after clashes over restrictions imposed by Israel
 
 Full story on F3News: [3 Palestinians dead in Jerusalem clashes, health ministry says](http://www.f3nws.com/n/jCrDDG)
 
-> Posted on: Saturday, July 22, 2017 10:01:37 AM
+> Posted on: Saturday, July 22, 2017 10:26:45 AM

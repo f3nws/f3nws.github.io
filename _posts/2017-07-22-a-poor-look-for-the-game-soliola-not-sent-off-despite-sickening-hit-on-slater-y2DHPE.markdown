@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['A poor look for the game': Soliola not sent off despite sickening hit on Slater](http://www.abc.net.au/news/image/8734650-1x1-700x700.jpg)
 
-The decision not to send Sia Soliola from the field after his brutal flattening of Storm star Billy Slater leaves commentators baffled as to what someone has to do to get sent off in the NRL.
+The decision not to send Sia Soliola from the field for his brutal high shot on Storm star Billy Slater prompts Melbourne's chief executive to send a 'please explain' to the NRL.
 
 
 Full story on F3News: ['A poor look for the game': Soliola not sent off despite sickening hit on Slater](http://www.f3nws.com/n/y2DHPE)
