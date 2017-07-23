@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robot finds likely melted nuclear fuel deposits inside Fukushima reactor"
-date: 2017-07-23 04:00:01Z
+date: 2017-07-23 04:01:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Images captured by an underwater robot showed massive deposits believed to be me
 
 Full story on F3News: [Robot finds likely melted nuclear fuel deposits inside Fukushima reactor](http://www.f3nws.com/n/nK3tfF)
 
-> Posted on: Sunday, July 23, 2017 4:00:01 AM
+> Posted on: Sunday, July 23, 2017 4:01:00 AM
