@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![HMAS Arunta docks in Perth to an excited crowd after nine months at sea - ABC Online](http://www.abc.net.au/news/image/8735930-1x1-700x700.jpg)
 
-ABC Online HMAS Arunta docks in Perth to an excited crowd after nine months at sea ABC Online Ashleigh Spencer had not seen her fiancé Brendon Davies since the day after he proposed nine months ago. Today, she finally got to see him again after he spent a long stint as a Commanding Officer Secretary onboard HMAS Arunta. It had been deployed to ... Arunta home after long Mideast mission The Australian Australian Navy Ship Returns Home After 9 Months In Middle East Huffington Post Australia 'Report for booty!' Woman holds up cheeky sign as hundreds welcome home HMAS Arunta after lengthy deployment Daily Mail all 6 news articles »
+ABC Online HMAS Arunta docks in Perth to an excited crowd after nine months at sea ABC Online Ashleigh Spencer had not seen her fiancé Brendon Davies since the day after he proposed nine months ago. Today, she finally got to see him again after he spent a long stint as a Commanding Officer Secretary onboard HMAS Arunta. It had been deployed to ... Arunta home after long Mideast mission The Australian A woman has welcomed back her Navy partner with a very cheeky display Daily Mail Australian Navy Ship Returns Home After 9 Months In Middle East Huffington Post Australia all 5 news articles »
 
 
 Full story on F3News: [HMAS Arunta docks in Perth to an excited crowd after nine months at sea - ABC Online](http://www.f3nws.com/n/BVAtxD)
