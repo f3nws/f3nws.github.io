@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Congress Reaches Deal on Russia Sanctions, Setting Up Tough Choice for Trump - New York Times](https://static01.nyt.com/images/2017/07/23/us/23sanctions/23sanctions-facebookJumbo.jpg)
 
-New York Times Congress Reaches Deal on Russia Sanctions, Setting Up Tough Choice for Trump New York Times Senator Benjamin L. Cardin, Democrat of Maryland, praised a House bill that would impose new sanctions on Russia, Iran and North Korea. Credit J. Scott Applewhite/Associated Press. WASHINGTON — Congressional leaders have reached an agreement ... US lawmakers reach deal on Russia sanctions bill, creating limits for Trump Reuters Schumer: Dems, not Russia, are to blame for loss to Trump The Hill (blog) Congress Comes to an Agreement on Russia Sanctions The Atlantic Slate Magazine (blog) - New York Post - fox2now.com - Press Herald all 386 news articles »
+New York Times Congress Reaches Deal on Russia Sanctions, Setting Up Tough Choice for Trump New York Times Senator Benjamin L. Cardin, Democrat of Maryland, praised a House bill that would impose new sanctions on Russia, Iran and North Korea. Credit J. Scott Applewhite/Associated Press. WASHINGTON — Congressional leaders have reached an agreement ... US lawmakers reach deal on Russia sanctions bill, creating limits for Trump Reuters Lawmakers herald agreement on sweeping Russia sanctions bill Washington Post House And Senate Reach Deal On Sanctions For Russia, Iran And North Korea NPR The Hill (blog) - The Atlantic - New York Daily News - USA TODAY all 401 news articles »
 
 
 Full story on F3News: [Congress Reaches Deal on Russia Sanctions, Setting Up Tough Choice for Trump - New York Times](http://www.f3nws.com/n/uHZVgE)
