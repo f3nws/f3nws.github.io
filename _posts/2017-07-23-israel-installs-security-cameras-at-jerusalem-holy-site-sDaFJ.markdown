@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel installs security cameras at Jerusalem holy site"
-date: 2017-07-23 16:50:07Z
+date: 2017-07-23 21:13:22Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Israel has installed security cameras near the entrance to one of the holiest si
 
 Full story on F3News: [Israel installs security cameras at Jerusalem holy site](http://www.f3nws.com/n/sDaFJ)
 
-> Posted on: Sunday, July 23, 2017 4:50:07 PM
+> Posted on: Sunday, July 23, 2017 9:13:22 PM
