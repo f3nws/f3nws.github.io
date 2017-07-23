@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con: 'Star Trek: Discovery' trailer has big stakes, even bigger explosions     - CNET"
-date: 2017-07-23 02:00:33Z
+date: 2017-07-23 04:45:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ On Saturday, the cast and crew of the newest Star Trek show gave fans a glimpse 
 
 Full story on F3News: [Comic-Con: 'Star Trek: Discovery' trailer has big stakes, even bigger explosions     - CNET](http://www.f3nws.com/n/cjQbNC)
 
-> Posted on: Sunday, July 23, 2017 2:00:33 AM
+> Posted on: Sunday, July 23, 2017 4:45:17 AM
