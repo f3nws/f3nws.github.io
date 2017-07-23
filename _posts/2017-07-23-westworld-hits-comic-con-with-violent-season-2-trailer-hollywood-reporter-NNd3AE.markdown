@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Westworld' Hits Comic-Con With Violent Season 2 Trailer - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/07/e.png)
 
-Hollywood Reporter 'Westworld' Hits Comic-Con With Violent Season 2 Trailer Hollywood Reporter The show has only been back in production for a week, but HBO blew the lid off of Comic-Con nonetheless with the second season's first official footage. As it turns out, even humans can cease all motor functions in the face of Westworld. At Comic-Con ... 'Westworld' Reveals Season 2 Trailer But Mainly Goes For Laughs In Packed Hall H – Comic-Con Deadline The Women of Westworld Really Love Being On Westworld Vulture Westworld unveils riveting, violent season 2 trailer EW.com (blog) Entertainment Tonight - YouTube all 89 news articles »
+Hollywood Reporter 'Westworld' Hits Comic-Con With Violent Season 2 Trailer Hollywood Reporter The show has only been back in production for a week, but HBO blew the lid off of Comic-Con nonetheless with the second season's first official footage. As it turns out, even humans can cease all motor functions in the face of Westworld. At Comic-Con ... 'Westworld' Reveals Season 2 Trailer But Mainly Goes For Laughs In Packed Hall H – Comic-Con Deadline Westworld unveils riveting, violent season 2 trailer EW.com (blog) The Women of Westworld Really Love Being On Westworld Vulture RollingStone.com - ABC News - UPROXX - USA TODAY all 90 news articles »
 
 
 Full story on F3News: ['Westworld' Hits Comic-Con With Violent Season 2 Trailer - Hollywood Reporter](http://www.f3nws.com/n/NNd3AE)
