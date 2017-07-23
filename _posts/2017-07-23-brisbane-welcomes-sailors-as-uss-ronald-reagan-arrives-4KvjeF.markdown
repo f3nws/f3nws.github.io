@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Brisbane welcomes sailors as USS Ronald Reagan arrives](http://www.abc.net.au/news/image/8711782-1x1-700x700.jpg)
 
-The $4 billion nuclear-powered USS Ronald Reagan arrives into Brisbane, with retired serviceman and Queensland beer ready to welcome its sailors.
+The $4 billion nuclear-powered USS Ronald Reagan arrives into Brisbane, with retired servicemen and Queensland beer ready to welcome its sailors.
 
 
 Full story on F3News: [Brisbane welcomes sailors as USS Ronald Reagan arrives](http://www.f3nws.com/n/4KvjeF)

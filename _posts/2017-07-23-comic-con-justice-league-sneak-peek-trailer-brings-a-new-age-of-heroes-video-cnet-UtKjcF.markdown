@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con 'Justice League' sneak peek trailer brings a new age of heroes video     - CNET"
-date: 2017-07-23 00:49:08Z
+date: 2017-07-23 02:53:45Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Wonder Woman leads off but the whole team is here for the fight on land and sea,
 
 Full story on F3News: [Comic-Con 'Justice League' sneak peek trailer brings a new age of heroes video     - CNET](http://www.f3nws.com/n/UtKjcF)
 
-> Posted on: Sunday, July 23, 2017 12:49:08 AM
+> Posted on: Sunday, July 23, 2017 2:53:45 AM
