@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con: 'Star Trek: Discovery' gets new trailer     - CNET"
-date: 2017-07-23 00:43:24Z
+date: 2017-07-23 01:15:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ On Saturday, the cast and crew of the newest Star Trek show gave fans a glimpse 
 
 Full story on F3News: [Comic-Con: 'Star Trek: Discovery' gets new trailer     - CNET](http://www.f3nws.com/n/cjQbNC)
 
-> Posted on: Sunday, July 23, 2017 12:43:24 AM
+> Posted on: Sunday, July 23, 2017 1:15:28 AM
