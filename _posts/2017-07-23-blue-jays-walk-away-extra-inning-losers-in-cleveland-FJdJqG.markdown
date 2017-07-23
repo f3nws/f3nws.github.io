@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Blue Jays walk away extra-inning losers in Cleveland](https://www.thestar.com/content/dam/thestar/sports/bluejays/2017/07/22/blue-jays-walk-away-extra-inning-losers-in-cleveland/jays-barney-tag.jpg)
 
-Francisco Lindor homer in 10th sinks Jays after gutsy start by Marcus Stroman and game-tying homer from Justin Smoak.
+Francisco Lindor homer in 10th sinks Jays after gutsy start by Marcus Stroman despite blister and game-tying homer from Justin Smoak.
 
 
 Full story on F3News: [Blue Jays walk away extra-inning losers in Cleveland](http://www.f3nws.com/n/FJdJqG)
