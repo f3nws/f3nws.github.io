@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Women of Westworld Really Love Being On Westworld - Vulture](https://pixel.nymag.com/imgs/daily/vulture/2017/07/22/22-westworld.w1200.h630.jpg)
 
-Vulture The Women of Westworld Really Love Being On Westworld Vulture Two strong themes emerged from the Westworld panel at San Diego Comic-Con on Saturday. First of all, no one really knows what's going on, and second, the women of this show love being a part of Westworld. When moderator Reggie Watts asked Evan ... Stranger Things Season 2: Breaking Down That Haunting Trailer EW.com Comic-Con: 'Stranger Things' Cast Promises "Justice for Barb" in Season 2 Hollywood Reporter Comic-Con: Tearful Evan Rachel Wood Explains How 'Westworld' Helped Her Tackle Trauma: 'It Was Transformative' Entertainment Tonight Slate Magazine (blog) - New York Daily News - Bustle - Den of Geek US all 304 news articles »
+Vulture The Women of Westworld Really Love Being On Westworld Vulture Two strong themes emerged from the Westworld panel at San Diego Comic-Con on Saturday. First of all, no one really knows what's going on, and second, the women of this show love being a part of Westworld. When moderator Reggie Watts asked Evan ... Stranger Things Season 2: Breaking Down That Haunting Trailer EW.com Comic-Con: 'Stranger Things' Cast Promises "Justice for Barb" in Season 2 Hollywood Reporter Comic-Con: Tearful Evan Rachel Wood Explains How 'Westworld' Helped Her Tackle Trauma: 'It Was Transformative' Entertainment Tonight Slate Magazine (blog) - Fox News - New York Daily News - Bustle all 301 news articles »
 
 
 Full story on F3News: [The Women of Westworld Really Love Being On Westworld - Vulture](http://www.f3nws.com/n/fBUTbF)
