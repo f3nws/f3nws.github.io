@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con 2017:  New 'Thor: Ragnarok' trailer is the ultimate Marvel buddy movie     - CNET"
-date: 2017-07-23 05:41:22Z
+date: 2017-07-23 05:53:42Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Cast and crew delight fans at Comic-Con with new footage of Thor and Hulk in act
 
 Full story on F3News: [Comic-Con 2017:  New 'Thor: Ragnarok' trailer is the ultimate Marvel buddy movie     - CNET](http://www.f3nws.com/n/EzzmHJ)
 
-> Posted on: Sunday, July 23, 2017 5:41:22 AM
+> Posted on: Sunday, July 23, 2017 5:53:42 AM

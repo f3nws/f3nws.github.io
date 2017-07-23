@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Westworld' Rides Past Samurai World and Straight Into Comic-Con - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/06/03551afc5bcb736b2f0b263abc96b9f604c407a67106a2c66649301c55d01efe789a3f28bb0c9b6518949432db1b6ac9_-_h_2017.jpg)
 
-Hollywood Reporter 'Westworld' Rides Past Samurai World and Straight Into Comic-Con Hollywood Reporter The cast and creators of the hit HBO show looked back on the first season, and offered a visceral tease of what's ahead in season two. "That doesn't look like anything to me." It's a familiar refrain for anyone who watches Westworld, the HBO series set ... 'Westworld' Season 2 Trailer Rides in, Guns Blazing [Comic-Con 2017] /FILM Comic-Con: The Westworld Season 2 Trailer is Here! ComingSoon.net Westworld Season 2 Teaser Promises New Worlds and Vengeful Robots Vanity Fair Screen Rant - Geek - moviepilot.com - YouTube all 63 news articles »
+Hollywood Reporter 'Westworld' Rides Past Samurai World and Straight Into Comic-Con Hollywood Reporter The cast and creators of the hit HBO show looked back on the first season, and offered a visceral tease of what's ahead in season two. "That doesn't look like anything to me." It's a familiar refrain for anyone who watches Westworld, the HBO series set ... Comic-Con: The Westworld Season 2 Trailer is Here! ComingSoon.net Westworld Season 2 Teaser Promises New Worlds and Vengeful Robots Vanity Fair Westworld Premieres a Season 2 Trailer at SDCC Geek YouTube all 63 news articles »
 
 
 Full story on F3News: ['Westworld' Rides Past Samurai World and Straight Into Comic-Con - Hollywood Reporter](http://www.f3nws.com/n/nt24YB)
