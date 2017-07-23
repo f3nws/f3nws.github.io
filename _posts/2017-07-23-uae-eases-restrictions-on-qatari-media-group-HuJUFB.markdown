@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UAE eases restrictions on Qatari media group"
-date: 2017-07-23 11:55:56Z
+date: 2017-07-23 15:35:14Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The United Arab Emirates is easing restrictions on some Qatari media.
 
 Full story on F3News: [UAE eases restrictions on Qatari media group](http://www.f3nws.com/n/HuJUFB)
 
-> Posted on: Sunday, July 23, 2017 11:55:56 AM
+> Posted on: Sunday, July 23, 2017 3:35:14 PM
