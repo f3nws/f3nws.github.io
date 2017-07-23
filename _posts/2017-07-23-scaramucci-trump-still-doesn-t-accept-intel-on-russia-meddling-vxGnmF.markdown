@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci: Trump still doesn't accept intel on Russia meddling"
-date: 2017-07-23 16:15:42Z
+date: 2017-07-23 20:49:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Newly minted White House Communications Director Anthony Scaramucci said on CNN'
 
 Full story on F3News: [Scaramucci: Trump still doesn't accept intel on Russia meddling](http://www.f3nws.com/n/vxGnmF)
 
-> Posted on: Sunday, July 23, 2017 4:15:42 PM
+> Posted on: Sunday, July 23, 2017 8:49:48 PM
