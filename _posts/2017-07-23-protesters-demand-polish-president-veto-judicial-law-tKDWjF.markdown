@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters demand Polish President veto judicial law"
-date: 2017-07-23 11:32:43Z
+date: 2017-07-23 19:36:10Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Thousand of protesters are expected to rally in the Polish capital of Warsaw on 
 
 Full story on F3News: [Protesters demand Polish President veto judicial law](http://www.f3nws.com/n/tKDWjF)
 
-> Posted on: Sunday, July 23, 2017 11:32:43 AM
+> Posted on: Sunday, July 23, 2017 7:36:10 PM
