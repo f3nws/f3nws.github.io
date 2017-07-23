@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "90 hospitalized during Chance the Rapper concert"
-date: 2017-07-23 12:13:00Z
+date: 2017-07-23 19:02:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ More than 90 people were hospitalized in Connecticut during a concert headlined 
 
 Full story on F3News: [90 hospitalized during Chance the Rapper concert](http://www.f3nws.com/n/RRyTMG)
 
-> Posted on: Sunday, July 23, 2017 12:13:00 PM
+> Posted on: Sunday, July 23, 2017 7:02:03 PM

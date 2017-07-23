@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Are German car companies running a cartel?"
-date: 2017-07-23 18:43:30Z
+date: 2017-07-23 19:17:46Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Antitrust officials confirmed Saturday that they are investigating claims that t
 
 Full story on F3News: [Are German car companies running a cartel?](http://www.f3nws.com/n/TCq4U)
 
-> Posted on: Sunday, July 23, 2017 6:43:30 PM
+> Posted on: Sunday, July 23, 2017 7:17:46 PM
