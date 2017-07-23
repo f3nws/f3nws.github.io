@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comic-Con 2017:  Marvel reveals exciting 'Black Panther' details     - CNET"
-date: 2017-07-23 06:09:07Z
+date: 2017-07-23 11:25:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Get all the highlights from the "Black Panther" Marvel panel at San Diego Comic-
 
 Full story on F3News: [Comic-Con 2017:  Marvel reveals exciting 'Black Panther' details     - CNET](http://www.f3nws.com/n/YBYMRB)
 
-> Posted on: Sunday, July 23, 2017 6:09:07 AM
+> Posted on: Sunday, July 23, 2017 11:25:23 AM
