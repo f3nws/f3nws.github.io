@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Scaramucci: Trump still doesn't accept intelligence conclusion on Russia - CNN"
+date: 2017-07-23 15:25:13Z
+categories: cnn-com-world
+---
+
+![Scaramucci: Trump still doesn't accept intelligence conclusion on Russia - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170722150953-anthony-scaramucci-0721-super-tease.jpg)
+
+CNN Scaramucci: Trump still doesn't accept intelligence conclusion on Russia CNN Washington (CNN) Newly minted White House Communications Director Anthony Scaramucci said on CNN's "State of the Union" Sunday that President Donald Trump still does not accept the intelligence community's conclusion that Russia attempted to ... White House Signals Acceptance of Russia Sanctions Bill New York Times Anthony Scaramucci said he wants Sarah Sanders 'to continue to use the hair and makeup person' Washington Post Scaramucci makes Sunday shows debut with vow to stop WH leaks The Hill Los Angeles Times - NBCNews.com - Newsweek - USA TODAY all 2,958 news articles »
+
+
+Full story on F3News: [Scaramucci: Trump still doesn't accept intelligence conclusion on Russia - CNN](http://www.f3nws.com/n/vxGnmF)
+
+> Posted on: Sunday, July 23, 2017 3:25:13 PM
