@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charlie Gard's parents give up battle to take son to US"
-date: 2017-07-24 13:39:12Z
+date: 2017-07-24 14:22:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The parents of the terminally ill British baby Charlie Gard have given up their 
 
 Full story on F3News: [Charlie Gard's parents give up battle to take son to US](http://www.f3nws.com/n/qYvEQG)
 
-> Posted on: Monday, July 24, 2017 1:39:12 PM
+> Posted on: Monday, July 24, 2017 2:22:49 PM
