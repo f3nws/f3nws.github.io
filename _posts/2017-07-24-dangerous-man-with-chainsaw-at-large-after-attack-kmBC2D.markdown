@@ -5,7 +5,7 @@ date: 2017-07-24 15:50:07Z
 categories: cnn-com-top-stories
 ---
 
-!['Dangerous' man with chainsaw at large after attack](http://i2.cdn.cnn.com/cnnnext/dam/assets/170724074357-01-schaffhausen-0724-super-tease.jpg)
+!['Dangerous' man with chainsaw at large after attack](http://i2.cdn.cnn.com/cnnnext/dam/assets/170724074753-02-schaffhausen-0724-super-tease.jpg)
 
 A man wielding a chainsaw in northern Switzerland has injured several people, police have told CNN, in what they said was an ongoing situation.
 
