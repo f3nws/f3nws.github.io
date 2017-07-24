@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Crimea always been Russia’: award winning filmmaker Kusturica says during Peninsula visit"
-date: 2017-07-24 01:07:06Z
+date: 2017-07-24 01:07:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Crimea’s reunification with Russia is an “organic” process, Serbian movie 
 
 Full story on F3News: [‘Crimea always been Russia’: award winning filmmaker Kusturica says during Peninsula visit](http://www.f3nws.com/n/aEKSBC)
 
-> Posted on: Monday, July 24, 2017 1:07:06 AM
+> Posted on: Monday, July 24, 2017 1:07:00 AM
