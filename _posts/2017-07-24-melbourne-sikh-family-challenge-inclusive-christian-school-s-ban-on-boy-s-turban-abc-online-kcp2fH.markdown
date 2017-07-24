@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melbourne Sikh family challenge 'inclusive' Christian school's ban on boy's turban - ABC Online"
-date: 2017-07-24 09:14:00Z
+date: 2017-07-24 09:19:57Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Melbourne Sikh family challenge 'inclusive' Christian school's ban on
 
 Full story on F3News: [Melbourne Sikh family challenge 'inclusive' Christian school's ban on boy's turban - ABC Online](http://www.f3nws.com/n/kcp2fH)
 
-> Posted on: Monday, July 24, 2017 9:14:00 AM
+> Posted on: Monday, July 24, 2017 9:19:57 AM
