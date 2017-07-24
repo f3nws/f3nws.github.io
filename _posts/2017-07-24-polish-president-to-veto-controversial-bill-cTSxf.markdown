@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Polish President to veto controversial bill"
-date: 2017-07-24 11:50:14Z
+date: 2017-07-24 14:00:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Polish President Andrzej Duda said Monday he will veto a bill that would have gi
 
 Full story on F3News: [Polish President to veto controversial bill](http://www.f3nws.com/n/cTSxf)
 
-> Posted on: Monday, July 24, 2017 11:50:14 AM
+> Posted on: Monday, July 24, 2017 2:00:45 PM
