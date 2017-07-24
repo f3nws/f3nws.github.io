@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moon's interior may contain water, scientists say"
-date: 2017-07-24 20:04:27Z
+date: 2017-07-24 22:24:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There may be water -- a good bit of it -- deep inside the moon, scientists at Br
 
 Full story on F3News: [Moon's interior may contain water, scientists say](http://www.f3nws.com/n/SafkMC)
 
-> Posted on: Monday, July 24, 2017 8:04:27 PM
+> Posted on: Monday, July 24, 2017 10:24:31 PM
