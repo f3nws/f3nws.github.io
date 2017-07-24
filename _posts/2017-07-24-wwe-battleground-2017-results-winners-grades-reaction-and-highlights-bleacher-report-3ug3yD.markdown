@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "WWE Battleground 2017 Results: Winners, Grades, Reaction and Highlights - Bleacher Report"
-date: 2017-07-24 00:07:40Z
+date: 2017-07-24 03:26:18Z
 categories: google-news-entertaintment
 ---
 
 ![WWE Battleground 2017 Results: Winners, Grades, Reaction and Highlights - Bleacher Report](https://img.bleacherreport.net/img/images/photos/003/685/173/6a3a6d50a69e75e1e7c58aa50ade7be6_crop_exact.jpg?w=1200&h=1200&q=75)
 
-Forbes WWE Battleground 2017 Results: Winners, Grades, Reaction and Highlights Bleacher Report SmackDown's top stars will look to make WWE Battleground 2017 more than just a warm-up for SummerSlam. John Cena will clash with Rusev in a Flag match. AJ Styles will try to fend off Kevin Owens and keep hold of the United States Championship in ... We're live blogging WWE Battleground, last stop before SummerSlam A.V. Club (blog) WWE Battleground 2017 results: Natalya wins 5Way for right to challenge Naomi at SummerSlam Cageside Seats (blog) WWE Battleground Results: John Cena vs. Rusev – Flag Match Wrestlezone Forbes - CBSSports.com - The Inquisitr - Sporting News all 294 news articles »
+The Indian Express WWE Battleground 2017 Results: Winners, Grades, Reaction and Highlights Bleacher Report If WWE Battleground 2017 was a warm-up for SummerSlam, it was quite the tepid one at times. The jingoistic storylines from Sunday's pay-per-view most floundered. John Cena and Rusev clashed in a Flag match that felt like it went on for hours. Jinder ... WWE Battleground: Randy Orton Vs. Jinder Mahal (Punjabi Prison Match For The WWE Title) Wrestling Inc. WWE Battleground Results: WWE Championship – Jinder Mahal vs. Randy Orton – Punjabi Prison Match Wrestlezone 2017 WWE Battleground results, recap, grades: Two title changes and a big return CBSSports.com Forbes - UPROXX - FanSided - Business 2 Community all 319 news articles »
 
 
 Full story on F3News: [WWE Battleground 2017 Results: Winners, Grades, Reaction and Highlights - Bleacher Report](http://www.f3nws.com/n/3ug3yD)
 
-> Posted on: Monday, July 24, 2017 12:07:40 AM
+> Posted on: Monday, July 24, 2017 3:26:18 AM
