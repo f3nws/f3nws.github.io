@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Leading German car makers involved in decades-long price fixing cartel – media"
-date: 2017-07-24 00:00:53Z
+date: 2017-07-24 00:00:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ German carmakers are being investigated over allegations that it’s been operat
 
 Full story on F3News: [Leading German car makers involved in decades-long price fixing cartel – media](http://www.f3nws.com/n/uJ3FWC)
 
-> Posted on: Monday, July 24, 2017 12:00:53 AM
+> Posted on: Monday, July 24, 2017 12:00:00 AM

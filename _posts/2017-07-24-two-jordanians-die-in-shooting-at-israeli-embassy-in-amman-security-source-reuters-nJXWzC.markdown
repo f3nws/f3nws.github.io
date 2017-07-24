@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Two Jordanians die in shooting at Israeli embassy in Amman: security source - Reuters](https://s3.reutersmedia.net/resources/r/?m=02&d=20170723&t=2&i=1194101077&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED6M0N6)
 
-Reuters Two Jordanians die in shooting at Israeli embassy in Amman: security source Reuters AMMAN (Reuters) - Two Jordanians died from wounds inflicted during a shooting on Sunday in the compound of the heavily-guarded Israeli embassy that also wounded an Israeli, police and a security source said. Police said earlier that the two Jordanians ... An Attack at the Israeli Embassy in Jordan The Atlantic At least 1 dead in shooting incident at Israeli embassy in Jordan Business Insider Israeli embassy in Amman: Shooting leaves two dead BBC News CBS News - U.S. News & World Report - The Independent - Daily Beast all 73 news articles »
+Reuters Two Jordanians die in shooting at Israeli embassy in Amman: security source Reuters AMMAN (Reuters) - Two Jordanians died from wounds inflicted during a shooting on Sunday in the compound of the heavily-guarded Israeli embassy that also wounded an Israeli, police and a security source said. Police said earlier that the two Jordanians ... At least 1 dead in shooting incident at Israeli embassy in Jordan Business Insider An Attack at the Israeli Embassy in Jordan The Atlantic Israeli embassy in Amman: Shooting leaves two dead BBC News CBS News - Bloomberg - U.S. News & World Report - UPI.com all 82 news articles »
 
 
 Full story on F3News: [Two Jordanians die in shooting at Israeli embassy in Amman: security source - Reuters](http://www.f3nws.com/n/nJXWzC)
