@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Federal Government broke promises over refugee resettlement deal with US, UNHCR says - ABC Online](http://www.abc.net.au/news/image/8020126-1x1-700x700.jpg)
 
-ABC Online Federal Government broke promises over refugee resettlement deal with US, UNHCR says ABC Online The United Nations' refugee agency has accused the Federal Government of a breach of trust over the United States refugee deal, saying it has broken a promise to resettle refugees with close family ties to Australia. The UN High Commissioner for ... United Nations claims government had agreed to resettle some refugees in Australia under US deal The Sydney Morning Herald Australia 'reneged' on refugee promise: UN The Australian Australia backtracked on settling vulnerable refugees: UNHCR SBS Sky News Australia - Herald Sun - The New Daily - Yahoo7 News all 25 news articles »
+ABC Online Federal Government broke promises over refugee resettlement deal with US, UNHCR says ABC Online The United Nations' refugee agency has accused the Federal Government of a breach of trust over the United States refugee deal, saying it has broken a promise to resettle refugees with close family ties to Australia. The UN High Commissioner for ... United Nations claims government had agreed to resettle some refugees in Australia under US deal The Sydney Morning Herald Peter Dutton denies deal on asylum settlement The Australian Offshore detention: '(It's) caused extensive, avoidable suffering for far too long' NEWS.com.au Sky News Australia - Herald Sun - 9news.com.au - The New Daily all 27 news articles »
 
 
 Full story on F3News: [Federal Government broke promises over refugee resettlement deal with US, UNHCR says - ABC Online](http://www.f3nws.com/n/WTryWD)
