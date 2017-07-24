@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US student freed after week held in China over taxi dispute"
-date: 2017-07-24 02:17:07Z
+date: 2017-07-24 03:48:40Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ BILLINGS, Mont. (AP) — An American university student is free following a week
 
 Full story on F3News: [US student freed after week held in China over taxi dispute](http://www.f3nws.com/n/S3YaAB)
 
-> Posted on: Monday, July 24, 2017 2:17:07 AM
+> Posted on: Monday, July 24, 2017 3:48:40 AM
