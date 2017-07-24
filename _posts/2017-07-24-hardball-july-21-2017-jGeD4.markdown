@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hardball July 21, 2017"
-date: 2017-07-24 09:00:01Z
+date: 2017-07-24 09:30:02Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Chris Matthews and a panel of guests discuss the political news of the day.
 
 Full story on F3News: [Hardball July 21, 2017](http://www.f3nws.com/n/jGeD4)
 
-> Posted on: Monday, July 24, 2017 9:00:01 AM
+> Posted on: Monday, July 24, 2017 9:30:02 AM
