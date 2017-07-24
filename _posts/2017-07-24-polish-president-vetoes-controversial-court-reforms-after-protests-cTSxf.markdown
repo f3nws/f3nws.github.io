@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Polish President vetoes controversial court reforms after protests"
-date: 2017-07-24 16:17:17Z
+date: 2017-07-24 18:56:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Polish President Andrzej Duda has surprised observers by vetoing two bills that 
 
 Full story on F3News: [Polish President vetoes controversial court reforms after protests](http://www.f3nws.com/n/cTSxf)
 
-> Posted on: Monday, July 24, 2017 4:17:17 PM
+> Posted on: Monday, July 24, 2017 6:56:28 PM
