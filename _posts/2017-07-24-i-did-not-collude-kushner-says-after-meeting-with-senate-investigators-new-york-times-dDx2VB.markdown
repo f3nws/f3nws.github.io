@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['I Did Not Collude,' Kushner Says After Meeting With Senate Investigators - New York Times](https://static01.nyt.com/images/2017/07/24/us/24kushnerlive2/24kushnerlive2-facebookJumbo.jpg)
 
-New York Times 'I Did Not Collude,' Kushner Says After Meeting With Senate Investigators New York Times The president's adviser and son-in-law gave a brief statement following a meeting with congressional investigators looking into Russian influence in the 2016 election. By THE ASSOCIATED PRESS. Photo by Tom Brenner/The New York Times. Watch in ... Here are five questions Jared Kushner still needs to answer Washington Post Watch live: Jared Kushner gives a statement following hearing on Russia Los Angeles Times Jared Kushner Details Contacts With Russians, Denies Collusion U.S. News & World Report The Hill (blog) - The Atlantic - USA TODAY - Miami Herald all 578 news articles »
+New York Times 'I Did Not Collude,' Kushner Says After Meeting With Senate Investigators New York Times The president's adviser and son-in-law gave a brief statement following a meeting with congressional investigators looking into Russian influence in the 2016 election. By THE ASSOCIATED PRESS. Photo by Tom Brenner/The New York Times. Watch in ... Here are five questions Jared Kushner still needs to answer Washington Post Watch live: Jared Kushner gives a statement following hearing on Russia Los Angeles Times Jared Kushner Details Contacts With Russians, Denies Collusion U.S. News & World Report CNN - The Atlantic - The Hill (blog) - USA TODAY all 585 news articles »
 
 
 Full story on F3News: ['I Did Not Collude,' Kushner Says After Meeting With Senate Investigators - New York Times](http://www.f3nws.com/n/dDx2VB)
