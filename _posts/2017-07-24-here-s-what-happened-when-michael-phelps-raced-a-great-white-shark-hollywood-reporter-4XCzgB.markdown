@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Here's What Happened When Michael Phelps Raced a Great White Shark - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/07/phelps.jpg)
 
-Hollywood Reporter Here's What Happened When Michael Phelps Raced a Great White Shark Hollywood Reporter The most decorated Olympian in history took on the creature in Sunday night's special, but, to the disappointment of some viewers, he was not actually swimming alongside a shark in the water. Retired competitive swimmer Michael Phelps, the most ... Michael Phelps Loses Race Against Great White Shark — but Wins Against Reef Shark PEOPLE.com Shark weak: Michael Phelps loses race to computer-generated great white Washington Post Michael Phelps loses race against Great White shark New York Post New York Daily News - CBS 8 San Diego - Swimming World Magazine - Hollywood Life all 150 news articles »
+Hollywood Reporter Here's What Happened When Michael Phelps Raced a Great White Shark Hollywood Reporter The most decorated Olympian in history took on the creature in Sunday night's special, but, to the disappointment of some viewers, he was not actually swimming alongside a shark in the water. Retired competitive swimmer Michael Phelps, the most ... Michael Phelps Disappoints America, Does Not Get Eaten By a Shark on TV Daily Beast Shark weak: Michael Phelps loses race to computer-generated great white Washington Post Michael Phelps loses race against Great White shark New York Post PEOPLE.com - New York Daily News - CBS 8 San Diego - Swimming World Magazine all 163 news articles »
 
 
 Full story on F3News: [Here's What Happened When Michael Phelps Raced a Great White Shark - Hollywood Reporter](http://www.f3nws.com/n/4XCzgB)
