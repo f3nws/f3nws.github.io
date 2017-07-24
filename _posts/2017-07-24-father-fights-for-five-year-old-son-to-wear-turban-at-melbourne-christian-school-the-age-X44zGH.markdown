@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Father fights for five-year-old son to wear turban at Melbourne Christian school - The Age](http://www.theage.com.au/content/dam/images/g/x/h/r/e/k/image.related.articleLeadwide.620x349.gxhkkk.png/1500887959134.jpg)
 
-The Age Father fights for five-year-old son to wear turban at Melbourne Christian school The Age The traditional Sikh man is battling a Christian school that he claims refused to enrol his five-year-old boy if he wore the child's version of a turban, called a patka, or grew his hair long. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Melbourne Sikh family challenge 'inclusive' Christian school's ban on boy's turban ABC Online all 2 news articles »
+The Age Father fights for five-year-old son to wear turban at Melbourne Christian school The Age The traditional Sikh man is battling a Christian school that he claims refused to enrol his five-year-old boy if he wore the child's version of a turban, called a patka, or grew his hair long. Play Video. Play. Unmute. Current Time 0:00. /. Duration ... Melbourne Sikh family challenge 'inclusive' Christian school's ban on boy's turban ABC Online all 2 news articles »
 
 
 Full story on F3News: [Father fights for five-year-old son to wear turban at Melbourne Christian school - The Age](http://www.f3nws.com/n/X44zGH)
