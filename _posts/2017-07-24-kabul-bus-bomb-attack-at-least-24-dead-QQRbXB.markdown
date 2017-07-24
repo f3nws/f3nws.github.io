@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kabul bus bomb attack: At least 24 dead"
-date: 2017-07-24 11:30:45Z
+date: 2017-07-24 12:23:09Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 24 people have been killed in a car bomb attack in Kabul on Monday morn
 
 Full story on F3News: [Kabul bus bomb attack: At least 24 dead](http://www.f3nws.com/n/QQRbXB)
 
-> Posted on: Monday, July 24, 2017 11:30:45 AM
+> Posted on: Monday, July 24, 2017 12:23:09 PM
