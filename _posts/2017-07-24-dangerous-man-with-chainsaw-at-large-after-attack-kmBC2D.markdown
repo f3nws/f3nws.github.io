@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dangerous' man with chainsaw at large after attack"
-date: 2017-07-24 12:40:40Z
+date: 2017-07-24 15:50:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man wielding a chainsaw in northern Switzerland has injured several people, po
 
 Full story on F3News: ['Dangerous' man with chainsaw at large after attack](http://www.f3nws.com/n/kmBC2D)
 
-> Posted on: Monday, July 24, 2017 12:40:40 PM
+> Posted on: Monday, July 24, 2017 3:50:07 PM
