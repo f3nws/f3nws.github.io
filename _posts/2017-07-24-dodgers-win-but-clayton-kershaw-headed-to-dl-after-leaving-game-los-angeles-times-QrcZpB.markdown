@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Dodgers win, but Clayton Kershaw headed to DL after leaving game - Los Angeles Times](http://www.trbimg.com/img-59755efe/turbine/la-sp-dodgers-kershaw-injury-20170723)
 
-Los Angeles Times Dodgers win, but Clayton Kershaw headed to DL after leaving game Los Angeles Times An idyllic Dodgers season skidded into familiar, harrowing territory Sunday afternoon. Clayton Kershaw, the left-handed anchor of the team with baseball's best record, revealed a hint of the vulnerability that sidelined him last season. His condition ... Kershaw Bound for DL With Back Problem New York Times Corey Kluber dominant again, but Clayton Kershaw, Stephen Strasburg exit with injuries Sporting News Clayton Kershaw's back has him back on DL LA Daily News The Spokesman-Review - SFGate - True Blue LA - Comcast SportsNet Philadelphia all 369 news articles »
+Los Angeles Times Dodgers win, but Clayton Kershaw headed to DL after leaving game Los Angeles Times An idyllic Dodgers season skidded into familiar, harrowing territory Sunday afternoon. Clayton Kershaw, the left-handed anchor of the team with baseball's best record, revealed a hint of the vulnerability that sidelined him last season. His condition ... Kershaw Bound for DL With Back Problem New York Times Dodgers lose injured Kershaw, beat Braves 5-4 in 10 Washington Post Clayton Kershaw's back has him back on DL LA Daily News The Spokesman-Review - True Blue LA - SB Nation - Sporting News all 366 news articles »
 
 
 Full story on F3News: [Dodgers win, but Clayton Kershaw headed to DL after leaving game - Los Angeles Times](http://www.f3nws.com/n/QrcZpB)
