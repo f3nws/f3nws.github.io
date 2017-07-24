@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel: 3-month-old son is 'doing great' after open-heart surgery"
-date: 2017-07-24 20:22:26Z
+date: 2017-07-24 20:29:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jimmy Kimmel tweeted an update and adorable photo of his baby son on Friday, mor
 
 Full story on F3News: [Jimmy Kimmel: 3-month-old son is 'doing great' after open-heart surgery](http://www.f3nws.com/n/aWfdMH)
 
-> Posted on: Monday, July 24, 2017 8:22:26 PM
+> Posted on: Monday, July 24, 2017 8:29:16 PM

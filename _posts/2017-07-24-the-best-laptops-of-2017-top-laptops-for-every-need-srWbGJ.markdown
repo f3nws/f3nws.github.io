@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best laptops of 2017: top laptops for every need"
-date: 2017-07-24 20:15:00Z
+date: 2017-07-24 20:25:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ In the market for a new laptop? Let us be your guide to the best laptops around.
 
 Full story on F3News: [The best laptops of 2017: top laptops for every need](http://www.f3nws.com/n/srWbGJ)
 
-> Posted on: Monday, July 24, 2017 8:15:00 PM
+> Posted on: Monday, July 24, 2017 8:25:00 PM

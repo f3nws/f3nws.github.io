@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Chester Bennington: An Honest Voice of Pain and Anger for a Generation - RollingStone.com](http://img.wennermedia.com/social/gettyimages-459426644-fc81d7fc-17ef-4f80-8e67-c38cdcac0e99.jpg)
 
-RollingStone.com Chester Bennington: An Honest Voice of Pain and Anger for a Generation RollingStone.com After the shocking news of Chester Bennington's suicide broke on Thursday afternoon, many of the tributes from fellow artists and fans had one thing in common. Related. Linkin Park: 12 Essential Songs. Revisit Chester Bennington & Co.'s key tracks ... The Latest: Bennington's death ruled suicide by hanging Washington Post Periphery Members Release 'Shadow of the Day' Tribute to Chester Bennington Loudwire Linkin Park Issues Open Letter To Chester Bennington, Band's Future Unclear Forbes Hollywood Reporter - PEOPLE.com - New York Times - USA TODAY all 502 news articles »
+RollingStone.com Chester Bennington: An Honest Voice of Pain and Anger for a Generation RollingStone.com After the shocking news of Chester Bennington's suicide broke on Thursday afternoon, many of the tributes from fellow artists and fans had one thing in common. Related. Linkin Park: 12 Essential Songs. Revisit Chester Bennington & Co.'s key tracks ... Let's Talk About Suicide New York Times Periphery Members Release 'Shadow of the Day' Tribute to Chester Bennington Loudwire The Latest: Bennington's death ruled suicide by hanging Washington Post Hollywood Reporter - PEOPLE.com - New York Daily News - USA TODAY all 515 news articles »
 
 
 Full story on F3News: [Chester Bennington: An Honest Voice of Pain and Anger for a Generation - RollingStone.com](http://www.f3nws.com/n/gYaz3C)
