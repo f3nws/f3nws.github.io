@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump talks to Boy Scouts about 'fake news,' Obamacare"
-date: 2017-07-25 01:48:48Z
+date: 2017-07-25 03:34:53Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump turned a Boy Scouts event into a campaign-style rally Mon
 
 Full story on F3News: [Trump talks to Boy Scouts about 'fake news,' Obamacare](http://www.f3nws.com/n/BuxgaE)
 
-> Posted on: Tuesday, July 25, 2017 1:48:48 AM
+> Posted on: Tuesday, July 25, 2017 3:34:53 AM
