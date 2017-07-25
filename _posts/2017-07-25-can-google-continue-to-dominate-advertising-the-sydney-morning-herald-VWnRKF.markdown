@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Can Google continue to dominate advertising? - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/h/z/a/g/image.related.articleLeadwide.620x349.gxi15r.png/1500942336775.jpg)
 
-The Sydney Morning Herald Can Google continue to dominate advertising? The Sydney Morning Herald The biggest worry about Google and Facebook is whether they can stay Google and Facebook. That is, can those two companies continue to dominate advertising. It won't be an easy task, especially for the relative elder statesman Google. But it should be ... Everything You Need To Know About Alphabet's Most Fascinating Business TheStreet.com Google parent Alphabet reports lower Q2 profit thanks to EU fine Phone Arena EU increases pressure on Facebook, Google and Twitter over user terms Reuters Fortune - The Australian - Daily Mail - Android Authority (blog) all 206 news articles »
+Los Angeles Times Can Google continue to dominate advertising? The Sydney Morning Herald The biggest worry about Google and Facebook is whether they can stay Google and Facebook. That is, can those two companies continue to dominate advertising. It won't be an easy task, especially for the relative elder statesman Google. But it should be ... Everything You Need To Know About Alphabet's Most Fascinating Business TheStreet.com Google parent Alphabet reports lower Q2 profit thanks to EU fine Phone Arena Alphabet profit hit by EU fine on Google Daily Mail Reuters - Fortune - Android Authority (blog) - The Australian all 217 news articles »
 
 
 Full story on F3News: [Can Google continue to dominate advertising? - The Sydney Morning Herald](http://www.f3nws.com/n/VWnRKF)
