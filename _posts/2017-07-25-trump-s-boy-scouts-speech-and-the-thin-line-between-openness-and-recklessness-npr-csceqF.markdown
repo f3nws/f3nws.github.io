@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's Boy Scouts Speech And The Thin Line Between Openness And Recklessness - NPR](https://media.npr.org/assets/img/2017/07/25/ap_17205861660983_wide-b670398acd5eaf5a9d4131f060ab02c8314d7ee4.jpg?s=1400)
 
-NPR Trump's Boy Scouts Speech And The Thin Line Between Openness And Recklessness NPR "Know your audience" is usually the first rule of public speaking. But that doesn't really seem to matter all that much to President Trump. Trump became overtly political in yet another setting that some are seeing as crossing the line — in a speech ... I'm an Eagle Scout. But I'm glad my son wasn't at President Trump's Boy Scout speech. Washington Post Boy Scouts, in Spotlight After Trump's Speech, Say They Are 'Wholly Nonpartisan' New York Times The Origin of Trump's Weird Sex Yacht Anecdote in His Boy Scout Speech Slate Magazine (blog) HuffPost - USA TODAY - SFGate - TIME all 432 news articles »
+NPR Trump's Boy Scouts Speech And The Thin Line Between Openness And Recklessness NPR "Know your audience" is usually the first rule of public speaking. But that doesn't really seem to matter all that much to President Trump. Trump became overtly political in yet another setting that some are seeing as crossing the line — in a speech ... After Trump Injects Politics Into Speech, Boy Scouts Face Blowback New York Times The Origin of Trump's Weird Sex Yacht Anecdote in His Boy Scout Speech Slate Magazine (blog) A guide to Boy Scout ranks and badges, revised for Trump Scouts Washington Post SFGate - USA TODAY - TIME - Business Insider all 437 news articles »
 
 
 Full story on F3News: [Trump's Boy Scouts Speech And The Thin Line Between Openness And Recklessness - NPR](http://www.f3nws.com/n/csceqF)
