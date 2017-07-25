@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alice Cooper's Warhol found after four decades in storage"
-date: 2017-07-25 07:20:13Z
+date: 2017-07-25 14:20:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Alice Cooper can be forgiven for forgetting some of the finer details of the ear
 
 Full story on F3News: [Alice Cooper's Warhol found after four decades in storage](http://www.f3nws.com/n/SeQAx)
 
-> Posted on: Tuesday, July 25, 2017 7:20:13 AM
+> Posted on: Tuesday, July 25, 2017 2:20:12 PM
