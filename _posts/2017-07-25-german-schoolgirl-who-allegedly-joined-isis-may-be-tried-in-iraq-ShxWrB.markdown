@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German schoolgirl who allegedly joined ISIS may be tried in Iraq"
-date: 2017-07-25 07:27:42Z
+date: 2017-07-25 11:20:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A 16-year-old German girl who ran away from home in 2016 and allegedly joined IS
 
 Full story on F3News: [German schoolgirl who allegedly joined ISIS may be tried in Iraq](http://www.f3nws.com/n/ShxWrB)
 
-> Posted on: Tuesday, July 25, 2017 7:27:42 AM
+> Posted on: Tuesday, July 25, 2017 11:20:33 AM
