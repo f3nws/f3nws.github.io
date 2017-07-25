@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Vile' man convicted, loses $800 after he admits urinating on woman at gig - The Age"
-date: 2017-07-25 07:08:00Z
+date: 2017-07-25 07:10:17Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Age 'Vile' man convicted, loses $800 after he admits urinating on woman at g
 
 Full story on F3News: ['Vile' man convicted, loses $800 after he admits urinating on woman at gig - The Age](http://www.f3nws.com/n/BjfCXB)
 
-> Posted on: Tuesday, July 25, 2017 7:08:00 AM
+> Posted on: Tuesday, July 25, 2017 7:10:17 AM
