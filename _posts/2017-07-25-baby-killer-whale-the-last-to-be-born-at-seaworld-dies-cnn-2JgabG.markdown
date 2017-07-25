@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Baby killer whale, the last to be born at SeaWorld, dies - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170419213359-sea-world-killer-whale-takara-calf-super-tease.jpg)
 
-CNN Baby killer whale, the last to be born at SeaWorld, dies CNN (CNN) A three-month old killer whale, the last to be born in captivity at SeaWorld, died Monday after serious health problems, including what's likely to be pneumonia, according to the park. Kyara was born in April at SeaWorld San Antonio and spent her ... Kyara, Last Killer Whale Born in Captivity at a SeaWorld Park, Dies at 3-Months-Old NBCNews.com Activists blame life in captivity for baby orca's death at SeaWorld CBS News Baby killer whale 'Kyara' dies at SeaWorld San Antonio WFAA Mic - San Francisco Chronicle - seattlepi.com (blog) - Express.co.uk all 36 news articles »
+CNN Baby killer whale, the last to be born at SeaWorld, dies CNN (CNN) A three-month old killer whale, the last to be born in captivity at SeaWorld, died Monday after serious health problems, including what's likely to be pneumonia, according to the park. Kyara was born in April at SeaWorld San Antonio and spent her ... Last orca calf born in captivity at SeaWorld park dies USA TODAY Activists blame life in captivity for baby orca's death at SeaWorld CBS News SeaWorld's three-month-old killer whale Kyara dies UPI.com mySanAntonio.com - Mic - Orlando Sentinel - WPSD Local 6 all 41 news articles »
 
 
 Full story on F3News: [Baby killer whale, the last to be born at SeaWorld, dies - CNN](http://www.f3nws.com/n/2JgabG)
