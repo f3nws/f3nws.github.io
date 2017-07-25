@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brain trauma in 99% of dead NFL players"
-date: 2017-07-25 16:07:31Z
+date: 2017-07-25 18:57:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chronic Traumatic Encephalopathy (CTE) was found in 110 brains of 111 deceased f
 
 Full story on F3News: [Brain trauma in 99% of dead NFL players](http://www.f3nws.com/n/WsxBC)
 
-> Posted on: Tuesday, July 25, 2017 4:07:31 PM
+> Posted on: Tuesday, July 25, 2017 6:57:29 PM
