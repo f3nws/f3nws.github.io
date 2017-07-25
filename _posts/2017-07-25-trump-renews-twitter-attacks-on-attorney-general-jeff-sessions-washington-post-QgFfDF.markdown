@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump renews Twitter attacks on Attorney General Jeff Sessions - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/25/National-Politics/Images/Trump_Sessions_Beleaugred_67618-d4236.jpg?t=20170517)
 
-Washington Post Trump renews Twitter attacks on Attorney General Jeff Sessions Washington Post President Trump launched another public assault Tuesday morning on his own attorney general, Jeff Sessions, questioning why the Justice Department chief has not done more to investigate alleged “crimes” by Hillary Clinton and those who have leaked ... Trump further cranks up the heat on Sessions Politico Trump Steps Up Attacks on His Own Attorney General New York Times How the GOP Can Do the Right Thing Slate Magazine Los Angeles Times - The Hill (blog) - NBCNews.com - BBC News all 1,323 news articles »
+Washington Post Trump renews Twitter attacks on Attorney General Jeff Sessions Washington Post President Trump launched another public assault Tuesday morning on his own attorney general, Jeff Sessions, questioning why the Justice Department chief has not done more to investigate alleged “crimes” by Hillary Clinton and those who have leaked ... Trump further cranks up the heat on Sessions Politico Trump's strategy -- troll Sessions to get to Mueller CNN Trump Steps Up Attacks on His Own Attorney General New York Times Los Angeles Times - Slate Magazine - The Atlantic - The Hill (blog) all 1,340 news articles »
 
 
 Full story on F3News: [Trump renews Twitter attacks on Attorney General Jeff Sessions - Washington Post](http://www.f3nws.com/n/QgFfDF)

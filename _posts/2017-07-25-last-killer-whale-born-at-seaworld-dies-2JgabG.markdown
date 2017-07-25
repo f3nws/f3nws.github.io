@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Last killer whale born at SeaWorld dies"
-date: 2017-07-25 12:13:31Z
+date: 2017-07-25 14:39:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A three-month old killer whale, the last to be born in captivity at SeaWorld, di
 
 Full story on F3News: [Last killer whale born at SeaWorld dies](http://www.f3nws.com/n/2JgabG)
 
-> Posted on: Tuesday, July 25, 2017 12:13:31 PM
+> Posted on: Tuesday, July 25, 2017 2:39:30 PM

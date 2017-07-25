@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paul Manafort subpoenaed by Senate Judiciary Committee"
-date: 2017-07-25 14:30:00Z
+date: 2017-07-25 15:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Senate Judiciary Committee issued a subpoena late Monday to compel former Tr
 
 Full story on F3News: [Paul Manafort subpoenaed by Senate Judiciary Committee](http://www.f3nws.com/n/2FgCXB)
 
-> Posted on: Tuesday, July 25, 2017 2:30:00 PM
+> Posted on: Tuesday, July 25, 2017 3:15:00 PM
