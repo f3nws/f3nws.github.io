@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![The Manchester-born mechanic who waged war against a Middle Eastern despot](http://www.abc.net.au/news/image/8740132-1x1-700x700.jpg)
 
-Now that Ben Ramadan is home, he and many others are coming under the focus of British national security services.
+Now that Ben Ramadan is home from fighting against the Gaddafi regime in Libya, he and many others are coming under the focus of British national security services.
 
 
 Full story on F3News: [The Manchester-born mechanic who waged war against a Middle Eastern despot](http://www.f3nws.com/n/acgmAE)
