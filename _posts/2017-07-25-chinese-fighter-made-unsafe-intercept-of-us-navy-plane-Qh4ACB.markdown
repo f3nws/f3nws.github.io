@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese fighter made 'unsafe' intercept of US Navy plane"
-date: 2017-07-25 01:51:46Z
+date: 2017-07-25 02:20:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Chinese J-10 fighter jet performed an "unsafe" intercept of a US Navy aircraft
 
 Full story on F3News: [Chinese fighter made 'unsafe' intercept of US Navy plane](http://www.f3nws.com/n/Qh4ACB)
 
-> Posted on: Tuesday, July 25, 2017 1:51:46 AM
+> Posted on: Tuesday, July 25, 2017 2:20:38 AM
