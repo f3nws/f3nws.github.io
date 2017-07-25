@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qualcomm: Apple supporters are trying to misdirect regulators     - CNET"
-date: 2017-07-25 00:47:31Z
+date: 2017-07-25 01:33:07Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In a filing with the US International Trade Commission, the chip giant defends i
 
 Full story on F3News: [Qualcomm: Apple supporters are trying to misdirect regulators     - CNET](http://www.f3nws.com/n/r3rja)
 
-> Posted on: Tuesday, July 25, 2017 12:47:31 AM
+> Posted on: Tuesday, July 25, 2017 1:33:07 AM
