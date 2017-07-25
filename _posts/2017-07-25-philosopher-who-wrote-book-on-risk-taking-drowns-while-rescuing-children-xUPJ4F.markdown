@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Philosopher who wrote book on risk-taking drowns while rescuing children](http://www.abc.net.au/news/image/8740504-1x1-700x700.jpg)
 
-A prominent French philosopher best known for her works on risk-taking dies after trying to save two children from drowning at a beach near St Tropez, in the South of France.
+A prominent French philosopher best known for her works on risk-taking dies after trying to save two children from drowning at a beach near St Tropez, in the south of France.
 
 
 Full story on F3News: [Philosopher who wrote book on risk-taking drowns while rescuing children](http://www.f3nws.com/n/xUPJ4F)
