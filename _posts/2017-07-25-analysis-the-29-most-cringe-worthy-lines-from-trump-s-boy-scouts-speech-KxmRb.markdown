@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ANALYSIS: The 29 most cringe-worthy lines from Trump's Boy Scouts speech"
-date: 2017-07-25 14:35:01Z
+date: 2017-07-25 22:36:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Monday night, President Donald Trump jetted to West Virginia to address the a
 
 Full story on F3News: [ANALYSIS: The 29 most cringe-worthy lines from Trump's Boy Scouts speech](http://www.f3nws.com/n/KxmRb)
 
-> Posted on: Tuesday, July 25, 2017 2:35:01 PM
+> Posted on: Tuesday, July 25, 2017 10:36:53 PM
