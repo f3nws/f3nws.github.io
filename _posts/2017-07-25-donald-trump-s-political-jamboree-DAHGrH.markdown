@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump's political jamboree"
-date: 2017-07-25 07:03:56Z
+date: 2017-07-25 08:32:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ New White House communications czar Anthony Scaramucci wasn't joking when he sai
 
 Full story on F3News: [Donald Trump's political jamboree](http://www.f3nws.com/n/DAHGrH)
 
-> Posted on: Tuesday, July 25, 2017 7:03:56 AM
+> Posted on: Tuesday, July 25, 2017 8:32:41 AM

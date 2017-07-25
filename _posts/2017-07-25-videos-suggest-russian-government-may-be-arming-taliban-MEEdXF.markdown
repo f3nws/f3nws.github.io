@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Videos suggest Russian government may be arming Taliban"
-date: 2017-07-25 06:35:15Z
+date: 2017-07-25 08:40:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Taliban have received improved weaponry in Afghanistan that appears to have 
 
 Full story on F3News: [Videos suggest Russian government may be arming Taliban](http://www.f3nws.com/n/MEEdXF)
 
-> Posted on: Tuesday, July 25, 2017 6:35:15 AM
+> Posted on: Tuesday, July 25, 2017 8:40:14 AM
