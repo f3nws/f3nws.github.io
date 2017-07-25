@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![New Dem message doesn't mention Trump - The Hill](http://thehill.com/sites/default/files/17205792702056.jpg)
 
-The Hill New Dem message doesn't mention Trump The Hill BERRYVILLE, Va. — Eyeing big wins in 2018, Democrats are fighting to reclaim the populist mantle from President Trump — without actually talking about him. In 12 pages of messaging documents released Monday, the Democrats unveiled their much-hyped ... With 'Better Deal,' Democrats (temporarily) calm a restive left Washington Post 'A Better Deal' is more of the same from Dems CNN Congressional Democrats Promise a 'Better Deal' for American Workers New York Times Politico - NBCNews.com - Slate Magazine (blog) - The Atlantic all 253 news articles »
+The Hill New Dem message doesn't mention Trump The Hill BERRYVILLE, Va. — Eyeing big wins in 2018, Democrats are fighting to reclaim the populist mantle from President Trump — without actually talking about him. In 12 pages of messaging documents released Monday, the Democrats unveiled their much-hyped ... Chuck Schumer: A Better Deal for American Workers New York Times all 230 news articles »
 
 
 Full story on F3News: [New Dem message doesn't mention Trump - The Hill](http://www.f3nws.com/n/PahDUC)

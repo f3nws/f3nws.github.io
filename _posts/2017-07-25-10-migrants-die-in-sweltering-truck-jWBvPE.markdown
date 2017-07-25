@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 migrants die in sweltering truck"
-date: 2017-07-25 03:33:44Z
+date: 2017-07-25 04:18:39Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The inhumane conditions from a boiling-hot tractor trailer have killed a 10th pe
 
 Full story on F3News: [10 migrants die in sweltering truck](http://www.f3nws.com/n/jWBvPE)
 
-> Posted on: Tuesday, July 25, 2017 3:33:44 AM
+> Posted on: Tuesday, July 25, 2017 4:18:39 AM
