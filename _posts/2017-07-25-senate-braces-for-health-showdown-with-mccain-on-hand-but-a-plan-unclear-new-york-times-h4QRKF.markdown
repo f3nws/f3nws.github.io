@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear - New York Times](https://static01.nyt.com/images/2017/07/24/us/24mcconnell/24mcconnell-facebookJumbo-v3.jpg)
 
-New York Times Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear New York Times On Tuesday, Republicans will make another attempt to try to repeal and possibly replace the Affordable Care Act. But will they have the votes this time? By NATALIE RENEAU on Publish Date July 24, 2017. Photo by Alex Wong/Getty Images. Watch in Times ... McCain's return, heavy with drama for 'Obamacare' repeal Omaha World-Herald Arizona Republican Says McCain Should Resign, Adds She'd Be Strong Replacement NBCNews.com John McCain Cancer Is 'Godly Justice' for Challenging Trump, Alt-Right Claims Newsweek Politico - Twitter all 348 news articles »
+New York Times Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear New York Times On Tuesday, Republicans will make another attempt to try to repeal and possibly replace the Affordable Care Act. But will they have the votes this time? By NATALIE RENEAU on Publish Date July 24, 2017. Photo by Alex Wong/Getty Images. Watch in Times ... and more »
 
 
 Full story on F3News: [Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear - New York Times](http://www.f3nws.com/n/h4QRKF)
