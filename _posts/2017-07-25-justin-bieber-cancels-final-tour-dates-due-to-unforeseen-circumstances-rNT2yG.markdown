@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justin Bieber cancels final tour dates 'due to unforeseen circumstances'"
-date: 2017-07-25 01:19:38Z
+date: 2017-07-25 03:23:25Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sorry, Beliebers.
 
 Full story on F3News: [Justin Bieber cancels final tour dates 'due to unforeseen circumstances'](http://www.f3nws.com/n/rNT2yG)
 
-> Posted on: Tuesday, July 25, 2017 1:19:38 AM
+> Posted on: Tuesday, July 25, 2017 3:23:25 AM
