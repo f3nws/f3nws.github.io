@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear - New York Times](https://static01.nyt.com/images/2017/07/24/us/24mcconnell/24mcconnell-facebookJumbo-v3.jpg)
 
-New York Times Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear New York Times On Tuesday, Republicans will make another attempt to try to repeal and possibly replace the Affordable Care Act. But will they have the votes this time? By NATALIE RENEAU on Publish Date July 24, 2017. Photo by Alex Wong/Getty Images. Watch in Times ... McCain's return, heavy with drama for 'Obamacare' repeal Washington Post McCain says he'll return to Senate for healthcare vote Los Angeles Times John McCain Is Returning to the Senate for the Health-Care Vote The Atlantic Reuters - Bloomberg - Idaho Statesman - HuffPost all 329 news articles »
+New York Times Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear New York Times On Tuesday, Republicans will make another attempt to try to repeal and possibly replace the Affordable Care Act. But will they have the votes this time? By NATALIE RENEAU on Publish Date July 24, 2017. Photo by Alex Wong/Getty Images. Watch in Times ... McCain to make dramatic return for Obamacare vote Politico 'Obamacare is death': Trump urges Republicans to move ahead with health-care overhaul Washington Post Mitch McConnell's Health Care Gambit: What We Don't Know HuffPost Bloomberg - NBCNews.com - Roll Call - The Hill (blog) all 1,207 news articles »
 
 
 Full story on F3News: [Senate Braces for Health Showdown With McCain on Hand but a Plan Unclear - New York Times](http://www.f3nws.com/n/h4QRKF)
