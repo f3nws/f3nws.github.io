@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "From Negan to the demogorgon, the scariest villains of Comic-Con     - CNET"
-date: 2017-07-25 00:41:11Z
+date: 2017-07-25 05:06:49Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Not everything is superheroes at Comic-Con International, and this year we got t
 
 Full story on F3News: [From Negan to the demogorgon, the scariest villains of Comic-Con     - CNET](http://www.f3nws.com/n/zzSBPE)
 
-> Posted on: Tuesday, July 25, 2017 12:41:11 AM
+> Posted on: Tuesday, July 25, 2017 5:06:49 AM
