@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Treatment will stop HIV transmission while world awaits a vaccine"
-date: 2017-07-25 09:57:07Z
+date: 2017-07-25 12:09:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The evidence is in and the message is clear: When someone is HIV positive, adher
 
 Full story on F3News: [Treatment will stop HIV transmission while world awaits a vaccine](http://www.f3nws.com/n/ufqms)
 
-> Posted on: Tuesday, July 25, 2017 9:57:07 AM
+> Posted on: Tuesday, July 25, 2017 12:09:58 PM
