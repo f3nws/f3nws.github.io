@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What it takes to turn Rocket League into a retro PlayStation game     - CNET"
-date: 2017-07-26 00:11:17Z
+date: 2017-07-26 01:46:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ What if Rocket League and other modern games were made using 1998 technology? Th
 
 Full story on F3News: [What it takes to turn Rocket League into a retro PlayStation game     - CNET](http://www.f3nws.com/n/MSVCUD)
 
-> Posted on: Wednesday, July 26, 2017 12:11:17 AM
+> Posted on: Wednesday, July 26, 2017 1:46:15 AM

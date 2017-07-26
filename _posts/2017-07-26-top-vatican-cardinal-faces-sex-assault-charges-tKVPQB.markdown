@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top Vatican Cardinal faces sex assault charges"
-date: 2017-07-26 01:19:54Z
+date: 2017-07-26 02:09:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One of the most senior figures in the Vatican will on Wednesday face a court in 
 
 Full story on F3News: [Top Vatican Cardinal faces sex assault charges](http://www.f3nws.com/n/tKVPQB)
 
-> Posted on: Wednesday, July 26, 2017 1:19:54 AM
+> Posted on: Wednesday, July 26, 2017 2:09:51 AM

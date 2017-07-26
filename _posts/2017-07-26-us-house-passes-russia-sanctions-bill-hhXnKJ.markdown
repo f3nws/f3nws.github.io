@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US House passes Russia sanctions bill"
-date: 2017-07-26 01:32:51Z
+date: 2017-07-26 02:20:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House of Representatives overwhelmingly passed a bill giving Congress the po
 
 Full story on F3News: [US House passes Russia sanctions bill](http://www.f3nws.com/n/hhXnKJ)
 
-> Posted on: Wednesday, July 26, 2017 1:32:51 AM
+> Posted on: Wednesday, July 26, 2017 2:20:42 AM
