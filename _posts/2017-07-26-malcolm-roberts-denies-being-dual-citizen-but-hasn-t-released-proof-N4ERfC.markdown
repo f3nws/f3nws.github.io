@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Malcolm Roberts denies being dual citizen, but hasn't released proof](http://www.abc.net.au/news/image/8017554-1x1-700x700.jpg)
 
-One Nation senator Malcolm Robert insists he is eligible to sit in Parliament but still refuses to release documents proving he has renounced his British citizenship.
+One Nation senator Malcolm Roberts insists he is eligible to sit in Parliament but still refuses to release documents proving he has renounced his British citizenship.
 
 
 Full story on F3News: [Malcolm Roberts denies being dual citizen, but hasn't released proof](http://www.f3nws.com/n/N4ERfC)
