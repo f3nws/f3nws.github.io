@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![To America, It Looks Like Chaos. For Trump, It's Just Tuesday. - Politico](http://static.politico.com/5c/94/8c022eb34f0a876889efb768db80/20-donald-trump-25-ap-1160.jpg)
 
-Politico To America, It Looks Like Chaos. For Trump, It's Just Tuesday. Politico It started Monday morning with Donald Trump calling his own attorney general “beleaguered.” It continued with an Air Force One flight to West Virginia and a rambling, partisan speech to thousands of hollering Boy Scouts. And it kept going with another ... How Trump's speech to the Boy Scouts could put AT&T's CEO in a tricky spot Washington Post Parents, former Scouts troubled by Trump's speech at jamboree CBS News Trevor Noah Calls Donald Trump Out For Telling 'Yacht Sex' Story To Boy Scouts HuffPost Business Insider - Daily Beast - The Week Magazine - Philly.com all 151 news articles »
+Politico To America, It Looks Like Chaos. For Trump, It's Just Tuesday. Politico It started Monday morning with Donald Trump calling his own attorney general “beleaguered.” It continued with an Air Force One flight to West Virginia and a rambling, partisan speech to thousands of hollering Boy Scouts. And it kept going with another ... How Trump's speech to the Boy Scouts could put AT&T's CEO in a tricky spot Washington Post Parents, former Scouts troubled by Trump's speech at jamboree CBS News 'People Love You': For Trump, a Welcome Escape From the Capital New York Times Los Angeles Times - Fox News - Washington Times - HuffPost all 162 news articles »
 
 
 Full story on F3News: [To America, It Looks Like Chaos. For Trump, It's Just Tuesday. - Politico](http://www.f3nws.com/n/QSCn2F)
