@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Trump announces ban on transgender individuals serving in military](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-President Trump tweeted Wednesday that the U.S. government will not allow transgender individuals “to serve in any capacity in the U.S. military.”
+President Trump touched off a firestorm Wednesday after tweeting that he wants to ban transgender people from serving in the U.S. military in any capacity- citing advice from his "generals" and medical costs.
 
 
 Full story on F3News: [Trump announces ban on transgender individuals serving in military](http://www.f3nws.com/n/Vd4gSE)
