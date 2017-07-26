@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stars who think bras are tops"
-date: 2017-07-26 00:00:02Z
+date: 2017-07-26 04:00:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Saving money or showing off? These celebs decided a shirt simply isn't necessary
 
 Full story on F3News: [Stars who think bras are tops](http://www.f3nws.com/n/aFguyD)
 
-> Posted on: Wednesday, July 26, 2017 12:00:02 AM
+> Posted on: Wednesday, July 26, 2017 4:00:02 AM

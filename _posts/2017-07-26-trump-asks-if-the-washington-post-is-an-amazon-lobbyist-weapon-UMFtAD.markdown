@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump asks if The Washington Post is an Amazon 'lobbyist weapon'"
-date: 2017-07-26 00:00:02Z
+date: 2017-07-26 03:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump took to Twitter late Monday to call out The Washington Post and 
 
 Full story on F3News: [Trump asks if The Washington Post is an Amazon 'lobbyist weapon'](http://www.f3nws.com/n/UMFtAD)
 
-> Posted on: Wednesday, July 26, 2017 12:00:02 AM
+> Posted on: Wednesday, July 26, 2017 3:00:00 AM
