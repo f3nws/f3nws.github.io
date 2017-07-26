@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Senate Votes Down Broad Obamacare Repeal - New York Times"
-date: 2017-07-26 02:05:00Z
+date: 2017-07-26 09:39:12Z
 categories: google-news-top-stories
 ---
 
 ![Senate Votes Down Broad Obamacare Repeal - New York Times](https://static01.nyt.com/images/2017/07/25/us/25mmconnell/25mmconnell-facebookJumbo-v3.jpg)
 
-New York Times Senate Votes Down Broad Obamacare Repeal New York Times The Senate majority leader, Mitch McConnell of Kentucky, at the Capitol on Tuesday. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Senate voted narrowly on Tuesday to begin debate on a bill to repeal major provisions of the ... Obamacare: US senators debate plans to replace health policy BBC News GOP bill is voted down as divided Senate dives into health-care debate Washington Post How the GOP brought Obamacare repeal back from the dead Politico The Hill - CNN - NBCNews.com - ABC News all 2,926 news articles »
+New York Times Senate Votes Down Broad Obamacare Repeal New York Times The Senate majority leader, Mitch McConnell of Kentucky, at the Capitol on Tuesday. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Senate voted narrowly on Tuesday to begin debate on a bill to repeal major provisions of the ... Here's how local TV news is making it harder for the Senate to repeal Obamacare Washington Post What Is The 'Regular Order' John McCain Longs To Return To On Health Care? NPR How the GOP brought Obamacare repeal back from the dead Politico The Hill - CNN - BBC News - NBCNews.com all 3,092 news articles »
 
 
 Full story on F3News: [Senate Votes Down Broad Obamacare Repeal - New York Times](http://www.f3nws.com/n/bHdDWB)
 
-> Posted on: Wednesday, July 26, 2017 2:05:00 AM
+> Posted on: Wednesday, July 26, 2017 9:39:12 AM
