@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy ship fired warning shots at Iranian boat in Persian Gulf"
-date: 2017-07-26 00:18:08Z
+date: 2017-07-26 14:04:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US Navy ship fired warning shots at an armed Iranian patrol boat Tuesday in th
 
 Full story on F3News: [US Navy ship fired warning shots at Iranian boat in Persian Gulf](http://www.f3nws.com/n/mfkm2E)
 
-> Posted on: Wednesday, July 26, 2017 12:18:08 AM
+> Posted on: Wednesday, July 26, 2017 2:04:37 PM
