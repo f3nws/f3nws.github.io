@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All in One Toolchain for Article Writing with Visual Studio Code"
-date: 2017-07-26 18:46:00Z
+date: 2017-07-26 20:23:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ Now with auto-numbering! New Visual Studio Code extension “Extensible Markdown
 
 Full story on F3News: [All in One Toolchain for Article Writing with Visual Studio Code](http://www.f3nws.com/n/gGqtMF)
 
-> Posted on: Wednesday, July 26, 2017 6:46:00 PM
+> Posted on: Wednesday, July 26, 2017 8:23:00 PM

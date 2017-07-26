@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rolling Stone takes on Trump with Trudeau cover"
-date: 2017-07-26 15:53:15Z
+date: 2017-07-26 20:00:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Rolling Stone takes on Trump with Trudeau cover](http://www.f3nws.com/n/GWFRWG)
 
-> Posted on: Wednesday, July 26, 2017 3:53:15 PM
+> Posted on: Wednesday, July 26, 2017 8:00:11 PM
