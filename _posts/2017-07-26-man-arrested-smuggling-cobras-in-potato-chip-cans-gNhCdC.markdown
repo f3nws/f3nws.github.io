@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man arrested smuggling cobras in potato chip cans"
-date: 2017-07-26 03:31:31Z
+date: 2017-07-26 09:07:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The discovery of three deadly king cobras in potato chip cans led to the arrest 
 
 Full story on F3News: [Man arrested smuggling cobras in potato chip cans](http://www.f3nws.com/n/gNhCdC)
 
-> Posted on: Wednesday, July 26, 2017 3:31:31 AM
+> Posted on: Wednesday, July 26, 2017 9:07:43 AM

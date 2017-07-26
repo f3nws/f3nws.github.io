@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Steel Valley's Youngstown is much more complicated than Trump portrays - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/25/Others/Images/2017-07-24/170723_MahoningTrump_07.jpg?t=20170517)
 
-Washington Post Steel Valley's Youngstown is much more complicated than Trump portrays Washington Post YOUNGSTOWN, Ohio — President Trump escaped the roiling turmoil of Washington on Tuesday evening — leaving behind the chaotic effort to repeal and replace the Affordable Care Act, the intensifying Russia investigation and his latest staff shake-up ... At Ohio rally, Trump keeps making campaign promises Politico Trump Says the Nation is One Step Closer to Liberation from 'Obamacare Nightmare' TIME Manufacturing Has a Future in Ohio—Just Not the One Trump Thinks Daily Beast New York Post - Fox News - BuzzFeed News - Boston Herald all 215 news articles »
+Washington Post Steel Valley's Youngstown is much more complicated than Trump portrays Washington Post YOUNGSTOWN, Ohio — President Trump escaped the roiling turmoil of Washington on Tuesday evening — leaving behind the chaotic effort to repeal and replace the Affordable Care Act, the intensifying Russia investigation and his latest staff shake-up ... Manufacturing Has a Future in Ohio—Just Not the One Trump Thinks Daily Beast Why the Rust Belt just gave Donald Trump a hero's welcome New York Post Youngstown Loves A Fighter, But Eventually Trump's Spiritual Base Will Want Results BuzzFeed News Boston Herald - cleveland.com - HuffPost - Pittsburgh Post-Gazette all 218 news articles »
 
 
 Full story on F3News: [Steel Valley's Youngstown is much more complicated than Trump portrays - Washington Post](http://www.f3nws.com/n/pVzYCB)
