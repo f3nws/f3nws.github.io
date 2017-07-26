@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Yoga Teacher Was Shot And Killed By Police After The Squad Car Was "Slapped" By A Woman - BuzzFeed News](https://img.buzzfeed.com/buzzfeed-static/static/2017-07/25/19/campaign_images/buzzfeed-prod-fastlane-02/a-yoga-teacher-was-fatally-shot-by-a-minneapolis--2-29243-1501027195-4_dblbig.jpg)
 
-BuzzFeed News A Yoga Teacher Was Shot And Killed By Police After The Squad Car Was "Slapped" By A Woman BuzzFeed News "Upon police arrival, a female 'slaps' the back of the patrol squad," a search warrant said. Moments later, Australian yoga teacher Justine Damond was shot and killed. Posted on July 25, 2017, at 5:37 p.m.. Michelle Broder Van Dyke. BuzzFeed News Reporter. Minneapolis police shooting tests mayor as re-election looms Chattanooga Times Free Press 5 Things to Know Wednesday KSTP.com Warrant: Squad car was “slapped” before Justine Damond's fatal shooting by police WWAY NewsChannel 3 all 116 news articles »
+BuzzFeed News A Yoga Teacher Was Shot And Killed By Police After The Squad Car Was "Slapped" By A Woman BuzzFeed News "Upon police arrival, a female 'slaps' the back of the patrol squad," a search warrant said. Moments later, Australian yoga teacher Justine Damond was shot and killed. Posted on July 25, 2017, at 5:37 p.m.. Michelle Broder Van Dyke. BuzzFeed News Reporter. and more »
 
 
 Full story on F3News: [A Yoga Teacher Was Shot And Killed By Police After The Squad Car Was "Slapped" By A Woman - BuzzFeed News](http://www.f3nws.com/n/jBUhpG)

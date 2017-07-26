@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Manafort Talks With Senate Investigators About Meeting With Russians - New York Times](https://static01.nyt.com/images/2017/07/26/world/26dc-intel/26dc-intel-facebookJumbo.jpg)
 
-New York Times Manafort Talks With Senate Investigators About Meeting With Russians New York Times Paul Manafort at the Republican National Convention in Cleveland last July. Credit Matt Rourke/Associated Press. WASHINGTON — President Trump's former campaign chairman, Paul Manafort, met with Senate Intelligence Committee investigators on ... Senate Judiciary Committee withdraws subpoena for Manafort Washington Post Subpoena dropped against former Trump campaign chairman ABC News Do Donald Trump Jr. & Paul Manafort Know Each Other? Bustle Telegraph.co.uk - New York Daily News - Politico all 157 news articles »
+New York Times Manafort Talks With Senate Investigators About Meeting With Russians New York Times Paul Manafort at the Republican National Convention in Cleveland last July. Credit Matt Rourke/Associated Press. WASHINGTON — President Trump's former campaign chairman, Paul Manafort, met with Senate Intelligence Committee investigators on ... Senate Judiciary Committee withdraws subpoena for Manafort Washington Post Senate Judiciary Committee rescinds Manafort subpoena Fox News Mueller's mad dogs Washington Times Arkansas Online - Bustle - Telegraph.co.uk - Politico all 155 news articles »
 
 
 Full story on F3News: [Manafort Talks With Senate Investigators About Meeting With Russians - New York Times](http://www.f3nws.com/n/2aHDTG)
