@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Matt Drudge is firing warning shots at Trump, and that should worry the president"
-date: 2017-07-26 12:28:40Z
+date: 2017-07-26 15:39:23Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ He's met with President Donald Trump, spent time with Ivanka Trump, and doled ou
 
 Full story on F3News: [Matt Drudge is firing warning shots at Trump, and that should worry the president](http://www.f3nws.com/n/jEYvUF)
 
-> Posted on: Wednesday, July 26, 2017 12:28:40 PM
+> Posted on: Wednesday, July 26, 2017 3:39:23 PM
