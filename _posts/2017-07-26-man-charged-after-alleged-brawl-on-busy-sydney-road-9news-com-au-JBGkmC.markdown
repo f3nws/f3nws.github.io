@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man charged after alleged brawl on busy Sydney road - 9news.com.au](http://9network-vod-progressive.akamaized.net/media2/664969388001/2017/07/664969388001_5521202105001_5521163964001-vs.jpg?pubId=664969388001)
 
-9news.com.au Man charged after alleged brawl on busy Sydney road 9news.com.au A man has been charged after an ugly brawl in Sydney's west, where a group of men allegedly began punching and kicking kicking one another in front of stopped traffic. The shocking altercation broke out near an intersection on Centenary Drive in ... Four men punch and kick one another in Merrylands 'road rage' brawl The Sydney Morning Herald Four men in a shocking road rage brawl in Merrylands Perth Now Road rage assaults could be prompted by warm weather, NSW Police say ABC Online NEWS.com.au - Yahoo7 News - The Sunshine Coast Daily - Sky News Australia all 20 news articles »
+9news.com.au Man charged after alleged brawl on busy Sydney road 9news.com.au A man has been charged after an ugly brawl in Sydney's west, where a group of men allegedly began punching and kicking kicking one another in front of stopped traffic. The shocking altercation broke out near an intersection on Centenary Drive in ... Four men punch and kick one another in Merrylands 'road rage' brawl The Sydney Morning Herald Four men in a shocking road rage brawl in Merrylands Perth Now Road rage assaults could be prompted by warm weather, NSW Police say ABC Online NEWS.com.au - Yahoo7 News - The Sunshine Coast Daily - Sky News Australia all 18 news articles »
 
 
 Full story on F3News: [Man charged after alleged brawl on busy Sydney road - 9news.com.au](http://www.f3nws.com/n/JBGkmC)

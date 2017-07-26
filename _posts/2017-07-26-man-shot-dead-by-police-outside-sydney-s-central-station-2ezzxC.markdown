@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Man shot dead by police outside Sydney's Central Station](http://www.abc.net.au/news/image/8746798-1x1-700x700.jpg)
 
-A man is fatally shot by NSW police officers outside Central Station in the Sydney CBD after they were called to investigate reports of an armed robbery.
+Called to investigate reports of an armed robbery, NSW police officers become involved in a stand-off with a man outside Sydney's Central Station and open fire as, according to a witness, he tries to flee.
 
 
 Full story on F3News: [Man shot dead by police outside Sydney's Central Station](http://www.f3nws.com/n/2ezzxC)
