@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![George Pell: Prince of the Catholic Church walks gauntlet at court - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/i/v/d/w/image.related.articleLeadwide.620x349.gxixue.png/1501038925182.jpg)
 
-Toronto Star George Pell: Prince of the Catholic Church walks gauntlet at court The Sydney Morning Herald Only the large ring of gold on the big right hand gave away that this man in the clerical collar was more than a mere priest. That, and the fact that the face, pale today beneath its thatch of grey hair and a bald patch shining beneath the harsh light ... Cardinal George Pell to plead not guilty to all charges of sex abuse The Australian Pell starts court battle amid media glare 9news.com.au Ring of police shields Pell from media SBS The New Daily - The Australian Financial Review - Ararat Advertiser - The Border Mail all 133 news articles »
+The Sydney Morning Herald George Pell: Prince of the Catholic Church walks gauntlet at court The Sydney Morning Herald Only the large ring of gold on the big right hand gave away that this man in the clerical collar was more than a mere priest. That, and the fact that the face, pale today beneath its thatch of grey hair and a bald patch shining beneath the harsh light ... Cardinal George Pell to plead not guilty to all charges of sex abuse The Australian Pell starts court battle amid media glare 9news.com.au Cardinal George Pell fronts court on 'momentous, symbolic day' The New Daily SBS - Herald Sun - New York Daily News - The Australian Financial Review all 131 news articles »
 
 
 Full story on F3News: [George Pell: Prince of the Catholic Church walks gauntlet at court - The Sydney Morning Herald](http://www.f3nws.com/n/auHpQF)
