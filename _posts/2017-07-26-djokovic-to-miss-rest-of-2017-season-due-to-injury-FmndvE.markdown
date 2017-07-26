@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Djokovic to miss rest of 2017 season due to injury"
-date: 2017-07-26 13:46:13Z
+date: 2017-07-26 15:29:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twelve-time grand slam champion Novak Djokovic has decided not to play again dur
 
 Full story on F3News: [Djokovic to miss rest of 2017 season due to injury](http://www.f3nws.com/n/FmndvE)
 
-> Posted on: Wednesday, July 26, 2017 1:46:13 PM
+> Posted on: Wednesday, July 26, 2017 3:29:05 PM
