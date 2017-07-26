@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In Trump's World, 'Very Weak' Sessions Twists in Wind - New York Times](https://static01.nyt.com/images/2017/07/21/us/21dc-sessions/21dc-sessions-facebookJumbo.jpg)
 
-New York Times In Trump's World, 'Very Weak' Sessions Twists in Wind New York Times At a news conference on Tuesday at the White House, President Trump took questions about his attorney general, Jeff Sessions. By THE ASSOCIATED PRESS. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. WASHINGTON — In ... The standoff between Trump and Sessions escalates Washington Post Trump turns up heat on AG Sessions over recusal The Hill Sessions' defenders take on Trump taunts Politico Los Angeles Times - NBCNews.com - NPR - National Review all 1,269 news articles »
+New York Times In Trump's World, 'Very Weak' Sessions Twists in Wind New York Times At a news conference on Tuesday at the White House, President Trump took questions about his attorney general, Jeff Sessions. By THE ASSOCIATED PRESS. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. WASHINGTON — In ... The standoff between Trump and Sessions escalates Washington Post Trump turns up heat on AG Sessions over recusal The Hill Top White House aides press Trump to pull back on Sessions criticism CNN Politico - Los Angeles Times - National Review - NPR all 1,270 news articles »
 
 
 Full story on F3News: [In Trump's World, 'Very Weak' Sessions Twists in Wind - New York Times](http://www.f3nws.com/n/GDSxNE)
