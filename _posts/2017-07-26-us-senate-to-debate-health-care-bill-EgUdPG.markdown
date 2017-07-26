@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Senate to debate health care bill"
-date: 2017-07-26 02:07:01Z
+date: 2017-07-26 02:54:02Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senate Republicans voted to advance to floor debate on their efforts to repeal a
 
 Full story on F3News: [US Senate to debate health care bill](http://www.f3nws.com/n/EgUdPG)
 
-> Posted on: Wednesday, July 26, 2017 2:07:01 AM
+> Posted on: Wednesday, July 26, 2017 2:54:02 AM
