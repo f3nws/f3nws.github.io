@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Will Avengers: Infinity War Bring Back Peggy Carter? - Comicbook.com](http://media.comicbook.com/2017/07/captain-ameica-peggy-1012225-640x320.png)
 
-Comicbook.com Will Avengers: Infinity War Bring Back Peggy Carter? Comicbook.com It's no secret; Marvel fans love Peggy Carter, and they'll back the British spy until the end. The no-nonsense SSR agent debuted in Captain America as a confidant and love interest to Steve Rogers, but her role in the MCU has expanded since. And, now ... Joe Russo: No Avengers Infinity War Comic-Con Footage For You Bleeding Cool News Avengers 3 Director Says Captain Marvel is Not in Infinity War Screen Rant Joe Russo Shuts Down Hopes For Captain Marvel Appearing In 'Infinity War'—But Don't Count Out 'Avengers 4' moviepilot.com The Outhouse - Hidden Remote - Hollywood Reporter - DigitalSpy.com all 330 news articles »
+Comicbook.com Will Avengers: Infinity War Bring Back Peggy Carter? Comicbook.com It's no secret; Marvel fans love Peggy Carter, and they'll back the British spy until the end. The no-nonsense SSR agent debuted in Captain America as a confidant and love interest to Steve Rogers, but her role in the MCU has expanded since. And, now ... Avengers 3 Director Says Captain Marvel is Not in Infinity War Screen Rant Joe Russo Shuts Down Hopes For Captain Marvel Appearing In 'Infinity War'—But Don't Count Out 'Avengers 4' moviepilot.com That's Not right: 'Avengers: Infinity War' Panel Footage Deemed Not Right by One of Its Directors!! The Outhouse Hidden Remote - Hollywood Reporter - NME.com - Inverse all 332 news articles »
 
 
 Full story on F3News: [Will Avengers: Infinity War Bring Back Peggy Carter? - Comicbook.com](http://www.f3nws.com/n/3GkjsE)
