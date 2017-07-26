@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump announces ban on transgender individuals serving in military"
-date: 2017-07-26 13:12:00Z
+date: 2017-07-26 16:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump touched off a firestorm Wednesday after tweeting that he wants t
 
 Full story on F3News: [Trump announces ban on transgender individuals serving in military](http://www.f3nws.com/n/Vd4gSE)
 
-> Posted on: Wednesday, July 26, 2017 1:12:00 PM
+> Posted on: Wednesday, July 26, 2017 4:30:00 PM
