@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Days of hell for Republicans on health care"
-date: 2017-07-26 05:51:54Z
+date: 2017-07-26 12:33:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Vice President Mike Pence cast his tie-breaking "yes" vote, there was no sp
 
 Full story on F3News: [Days of hell for Republicans on health care](http://www.f3nws.com/n/QQB4GE)
 
-> Posted on: Wednesday, July 26, 2017 5:51:54 AM
+> Posted on: Wednesday, July 26, 2017 12:33:45 PM
