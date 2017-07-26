@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Muslim cleric: Protest to go on despite Israeli concession"
-date: 2017-07-26 07:40:00Z
+date: 2017-07-26 09:17:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ JERUSALEM (AP) — A senior Muslim official in Jerusalem said Wednesday that wor
 
 Full story on F3News: [Muslim cleric: Protest to go on despite Israeli concession](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, July 26, 2017 7:40:00 AM
+> Posted on: Wednesday, July 26, 2017 9:17:00 AM
