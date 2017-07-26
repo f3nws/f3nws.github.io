@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American Muslims growing more liberal, survey shows"
-date: 2017-07-26 04:16:15Z
+date: 2017-07-26 11:14:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ American Muslims are growing more religiously and socially liberal, with the num
 
 Full story on F3News: [American Muslims growing more liberal, survey shows](http://www.f3nws.com/n/cSdRSD)
 
-> Posted on: Wednesday, July 26, 2017 4:16:15 AM
+> Posted on: Wednesday, July 26, 2017 11:14:05 AM
