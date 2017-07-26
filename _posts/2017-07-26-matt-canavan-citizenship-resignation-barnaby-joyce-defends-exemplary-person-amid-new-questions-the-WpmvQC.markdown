@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Matt Canavan citizenship resignation: Barnaby Joyce defends 'exemplary person' amid new questions - The Sydney Morning Herald"
+date: 2017-07-26 00:06:20Z
+categories: google-news-australia
+---
+
+![Matt Canavan citizenship resignation: Barnaby Joyce defends 'exemplary person' amid new questions - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/i/s/6/h/image.related.socialLead.620x349.gxis6e.png/1501026001751.jpg)
+
+The Sydney Morning Herald Matt Canavan citizenship resignation: Barnaby Joyce defends 'exemplary person' amid new questions The Sydney Morning Herald Matt Canavan discussed taking out Italian citizenship with his family in 2005 but says he never signed any documents or forms and believed the matter never progressed. Deputy Prime Minister Barnaby Joyce on Wednesday defended the former resources ... Barnaby Joyce defends Senator Canavan amid citizenship drama The Australian Matt Canavan's Italian citizenship forms 'unsigned', Barnaby Joyce says ABC Online Senator Matt Canavan steps aside from Cabinet as citizenship questioned Courier Mail NEWS.com.au - SBS - dailytelegraph.com.au - The Conversation AU all 80 news articles »
+
+
+Full story on F3News: [Matt Canavan citizenship resignation: Barnaby Joyce defends 'exemplary person' amid new questions - The Sydney Morning Herald](http://www.f3nws.com/n/WpmvQC)
+
+> Posted on: Wednesday, July 26, 2017 12:06:20 AM
