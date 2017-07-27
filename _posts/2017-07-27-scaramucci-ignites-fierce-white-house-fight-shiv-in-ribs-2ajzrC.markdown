@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci ignites fierce White House fight: 'Shiv in ribs'?"
-date: 2017-07-27 18:14:00Z
+date: 2017-07-27 18:40:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's new communications director explode
 
 Full story on F3News: [Scaramucci ignites fierce White House fight: 'Shiv in ribs'?](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, July 27, 2017 6:14:00 PM
+> Posted on: Thursday, July 27, 2017 6:40:00 PM
