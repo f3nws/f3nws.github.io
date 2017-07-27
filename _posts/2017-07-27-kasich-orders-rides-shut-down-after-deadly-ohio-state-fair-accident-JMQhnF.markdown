@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kasich orders rides shut down after deadly Ohio State Fair accident"
-date: 2017-07-27 04:15:00Z
+date: 2017-07-27 11:44:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Ohio Gov. John Kasich ordered all rides at the state fair in Columbus to be shut
 
 Full story on F3News: [Kasich orders rides shut down after deadly Ohio State Fair accident](http://www.f3nws.com/n/JMQhnF)
 
-> Posted on: Thursday, July 27, 2017 4:15:00 AM
+> Posted on: Thursday, July 27, 2017 11:44:00 AM
