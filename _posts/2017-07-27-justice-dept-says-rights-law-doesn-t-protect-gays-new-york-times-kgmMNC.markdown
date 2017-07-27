@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Justice Dept. Says Rights Law Doesn't Protect Gays - New York Times"
-date: 2017-07-27 18:47:00Z
+date: 2017-07-27 18:47:32Z
 categories: google-news-top-stories
 ---
 
 ![Justice Dept. Says Rights Law Doesn't Protect Gays - New York Times](https://static01.nyt.com/images/2017/07/28/us/28sessions2_hp/28sessions2_hp-facebookJumbo.jpg)
 
-New York Times Justice Dept. Says Rights Law Doesn't Protect Gays New York Times Attorney General Jeff Sessions boarded a plane for a trip to El Salvador on Thursday where he will meet with local leaders about fighting gang violence. Credit Pablo Martinez Monsivais/Associated Press. The Department of Justice has filed court papers ... Trump administration, intervening in major LGBT case, says job bias law does not cover sexual orientation Washington Post Justice Department says no LGBT protection in federal sex-discrimination law Politico Why Trump's Justice Department Just Increased the Stakes In the Fight for LGBT Workplace Rights Fortune CNN - NBCNews.com - New York Post - Bloomberg all 90 news articles »
+New York Times Justice Dept. Says Rights Law Doesn't Protect Gays New York Times Attorney General Jeff Sessions boarded a plane for a trip to El Salvador on Thursday where he will meet with local leaders about fighting gang violence. Credit Pablo Martinez Monsivais/Associated Press. The Department of Justice has filed court papers ... Trump administration, intervening in major LGBT case, says job bias law does not cover sexual orientation Washington Post Justice Department says no LGBT protection in federal sex-discrimination law Politico DOJ argues sexual orientation not covered by anti-discrimination laws The Hill Fortune - NBCNews.com - New York Post - USA TODAY all 91 news articles »
 
 
 Full story on F3News: [Justice Dept. Says Rights Law Doesn't Protect Gays - New York Times](http://www.f3nws.com/n/kgmMNC)
 
-> Posted on: Thursday, July 27, 2017 6:47:00 PM
+> Posted on: Thursday, July 27, 2017 6:47:32 PM
