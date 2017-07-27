@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence praises Trump's 'candor' in Sessions confrontation"
-date: 2017-07-27 01:00:00Z
+date: 2017-07-27 04:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ In an exclusive interview with Fox News' "Tucker Carlson Tonight" Wednesday, Vic
 
 Full story on F3News: [Pence praises Trump's 'candor' in Sessions confrontation](http://www.f3nws.com/n/ACvNEG)
 
-> Posted on: Thursday, July 27, 2017 1:00:00 AM
+> Posted on: Thursday, July 27, 2017 4:30:00 AM

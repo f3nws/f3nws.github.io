@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Cricket Australia lays down 'challenge' to players to resolve bitter pay dispute](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Cricket Australia says it will take its bitter pay dispute with players to an independent umpire if it is not resolved within the coming days, urging players to "take up the challenge" and reach an agreement.
+Cricket Australia urges players to "take up the challenge" and reach an agreement in its bitter pay dispute, saying it is prepared to bring in an independent umpire, but the players association slams the way the governing body is conducting itself during negotiations.
 
 
 Full story on F3News: [Cricket Australia lays down 'challenge' to players to resolve bitter pay dispute](http://www.f3nws.com/n/VPXpCE)

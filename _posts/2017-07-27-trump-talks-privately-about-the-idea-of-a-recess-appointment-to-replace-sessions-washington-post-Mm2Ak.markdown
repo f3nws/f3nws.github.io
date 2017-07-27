@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump talks privately about the idea of a recess appointment to replace Sessions - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/25/National-Politics/Images/s_4.jpg?t=20170517)
 
-Washington Post Trump talks privately about the idea of a recess appointment to replace Sessions Washington Post President Trump has discussed with confidants and advisers in recent days the possibility of installing a new attorney general through a recess appointment if Jeff Sessions leaves the job, but he has been warned not to move to push him out because of ... Allies Warn Trump of Conservative Revolt Unless He Backs Off Sessions New York Times Sessions' powerful friends stand up to Trump Politico Trump urged to use recess appointment to replace Sessions -- is that possible? CNN Los Angeles Times - Business Insider - National Review - BBC News all 2,329 news articles »
+Washington Post Trump talks privately about the idea of a recess appointment to replace Sessions Washington Post President Trump has discussed with confidants and advisers in recent days the possibility of installing a new attorney general through a recess appointment if Jeff Sessions leaves the job, but he has been warned not to move to push him out because of ... Allies Warn Trump of Conservative Revolt Unless He Backs Off Sessions New York Times Sessions' powerful friends stand up to Trump Politico Pence praises Trump's 'candor' in Sessions confrontation Fox News CNN - National Review - The Hill (blog) - Business Insider all 2,403 news articles »
 
 
 Full story on F3News: [Trump talks privately about the idea of a recess appointment to replace Sessions - Washington Post](http://www.f3nws.com/n/Mm2Ak)

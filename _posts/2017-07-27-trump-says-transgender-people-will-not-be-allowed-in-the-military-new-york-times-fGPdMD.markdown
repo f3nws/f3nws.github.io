@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Says Transgender People Will Not Be Allowed in the Military - New York Times](https://static01.nyt.com/images/2017/07/26/us/26salute/26salute-facebookJumbo.jpg)
 
-New York Times Trump Says Transgender People Will Not Be Allowed in the Military New York Times In a move that caught many in Washington by surprise, President Trump issued via Twitter a ban on transgender people serving in the military. By AINARA TIEFENTHÄLER on Publish Date July 26, 2017. Photo by Doug Mills/The New York Times. Watch in ... 'It's not my thing': A history of Trump's shifting relationship with the LGBT community Washington Post Lawmakers, LGBTQ groups divided over transgender military service CNN Trump's Transgender Ban Is a Legal Land Mine Politico Reuters - NBCNews.com - Los Angeles Times - New York Daily News all 2,341 news articles »
+New York Times Trump Says Transgender People Will Not Be Allowed in the Military New York Times In a move that caught many in Washington by surprise, President Trump issued via Twitter a ban on transgender people serving in the military. By AINARA TIEFENTHÄLER on Publish Date July 26, 2017. Photo by Doug Mills/The New York Times. Watch in ... Pentagon caught flat-footed on Trump's transsexual ban Washington Post Lawmakers, LGBTQ groups divided over transgender military service CNN Trump's Transgender Ban Is a Legal Land Mine Politico Reuters - NBCNews.com - Los Angeles Times - New York Daily News all 2,363 news articles »
 
 
 Full story on F3News: [Trump Says Transgender People Will Not Be Allowed in the Military - New York Times](http://www.f3nws.com/n/fGPdMD)
