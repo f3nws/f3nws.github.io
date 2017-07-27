@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate blocks proposal to repeal and replace ObamaCare"
-date: 2017-07-27 00:30:03Z
+date: 2017-07-27 02:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Senate has blocked a wide-ranging proposal by Republicans to repeal much of 
 
 Full story on F3News: [Senate blocks proposal to repeal and replace ObamaCare](http://www.f3nws.com/n/J4dWnE)
 
-> Posted on: Thursday, July 27, 2017 12:30:03 AM
+> Posted on: Thursday, July 27, 2017 2:00:03 AM
