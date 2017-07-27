@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The children working in Cambodia's brick kilns"
-date: 2017-07-27 05:41:32Z
+date: 2017-07-27 07:27:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The children working in Cambodia's brick kilns](http://www.f3nws.com/n/n3d4rH)
 
-> Posted on: Thursday, July 27, 2017 5:41:32 AM
+> Posted on: Thursday, July 27, 2017 7:27:18 AM
