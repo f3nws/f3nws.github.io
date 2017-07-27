@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justin Bieber hits paparazzo with car, police say"
-date: 2017-07-27 07:37:11Z
+date: 2017-07-27 10:48:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Singer Justin Bieber struck a paparazzo with his truck while trying to drive awa
 
 Full story on F3News: [Justin Bieber hits paparazzo with car, police say](http://www.f3nws.com/n/Jge3aG)
 
-> Posted on: Thursday, July 27, 2017 7:37:11 AM
+> Posted on: Thursday, July 27, 2017 10:48:40 AM
