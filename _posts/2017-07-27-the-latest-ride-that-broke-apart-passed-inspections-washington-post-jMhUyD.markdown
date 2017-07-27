@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![The Latest: Ride that broke apart passed inspections - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-07-27/AP/Images/State_Fair_Ride_Malfunction_88909.jpg-82aae.jpg?t=20170517)
 
-Washington Post The Latest: Ride that broke apart passed inspections Washington Post COLUMBUS, Ohio — The Latest on a deadly ride malfunction on the first day of the Ohio State Fair (all times local):. 11:20 p.m.. Officials say a ride that broke apart at the Ohio State Fair, killing one man and injuring seven other people Wednesday ... The Latest: Ride malfunction called a 'terrible tragedy' New York Daily News Officials: Ohio State Fair ride that broke apart, killing 1, passed inspections Minneapolis Star Tribune One Dead, Seven Injured After a Spinning Ride Malfunctions at the Ohio State Fair TIME NPR - Miami Herald - Sacramento Bee - Canton Repository all 286 news articles »
+Washington Post The Latest: Ride that broke apart passed inspections Washington Post COLUMBUS, Ohio — The Latest on a deadly ride malfunction on the first day of the Ohio State Fair (all times local):. 11:20 p.m.. Officials say a ride that broke apart at the Ohio State Fair, killing one man and injuring seven other people Wednesday ... The Latest: Ride malfunction called a 'terrible tragedy' New York Daily News 'Fireball' Ride Horrifyingly Breaks Leaving 1Dead & 7 Hurt At Ohio State Fair —Shocking Video Hollywood Life One Dead, Seven Injured After a Spinning Ride Malfunctions at the Ohio State Fair TIME SFGate - fox6now.com - NPR - Sacramento Bee all 296 news articles »
 
 
 Full story on F3News: [The Latest: Ride that broke apart passed inspections - Washington Post](http://www.f3nws.com/n/jMhUyD)
