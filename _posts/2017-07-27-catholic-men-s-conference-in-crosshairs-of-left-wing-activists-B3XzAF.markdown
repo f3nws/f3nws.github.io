@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catholic men's conference in crosshairs of left-wing activists"
-date: 2017-07-27 17:00:03Z
+date: 2017-07-27 17:30:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Christine Niles, an immigrant from Vietnam who helps run a parachurch group that
 
 Full story on F3News: [Catholic men's conference in crosshairs of left-wing activists](http://www.f3nws.com/n/B3XzAF)
 
-> Posted on: Thursday, July 27, 2017 5:00:03 PM
+> Posted on: Thursday, July 27, 2017 5:30:02 PM
