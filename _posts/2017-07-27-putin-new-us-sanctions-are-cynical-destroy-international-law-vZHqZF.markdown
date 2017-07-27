@@ -5,7 +5,7 @@ date: 2017-07-27 14:26:00Z
 categories: rt-news
 ---
 
-![Putin: New US sanctions are cynical, destroy international law](https://img.rt.com/files/static.en/article/breaking.jpg)
+![Putin: New US sanctions are cynical, destroy international law](https://cdn.rt.com/files/2017.07/article/5979f9d2dda4c855098b4567.jpg)
 
 The new round of US sanctions against Russia is “extremely cynical,” President Vladimir Putin said, accusing Washington of using its political advantage for business purposes. Read Full Article at RT.com
 
