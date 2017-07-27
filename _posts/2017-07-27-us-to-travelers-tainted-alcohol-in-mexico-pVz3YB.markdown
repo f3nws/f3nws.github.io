@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US to travelers: Tainted alcohol in Mexico"
-date: 2017-07-27 08:14:50Z
+date: 2017-07-27 14:22:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States is warning travelers to Mexico about tainted or counterfeit al
 
 Full story on F3News: [US to travelers: Tainted alcohol in Mexico](http://www.f3nws.com/n/pVz3YB)
 
-> Posted on: Thursday, July 27, 2017 8:14:50 AM
+> Posted on: Thursday, July 27, 2017 2:22:20 PM
