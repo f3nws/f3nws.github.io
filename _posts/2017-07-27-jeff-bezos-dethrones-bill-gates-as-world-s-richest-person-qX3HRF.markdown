@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jeff Bezos dethrones Bill Gates as world's richest person"
-date: 2017-07-27 17:47:56Z
+date: 2017-07-27 18:37:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Jeff Bezos dethrones Bill Gates as world's richest person](http://www.f3nws.com/n/qX3HRF)
 
-> Posted on: Thursday, July 27, 2017 5:47:56 PM
+> Posted on: Thursday, July 27, 2017 6:37:44 PM
