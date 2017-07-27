@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Larry David will learn he's related to Bernie Sanders on 'Finding Your Roots'"
-date: 2017-07-27 05:02:13Z
+date: 2017-07-27 05:29:07Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ How did Larry David deliver a spot-on impression of Bernie Sanders on "Saturday 
 
 Full story on F3News: [Larry David will learn he's related to Bernie Sanders on 'Finding Your Roots'](http://www.f3nws.com/n/hMVzmF)
 
-> Posted on: Thursday, July 27, 2017 5:02:13 AM
+> Posted on: Thursday, July 27, 2017 5:29:07 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spinning Ohio State Fair ride breaks apart; 1 dead, 7 hurt"
-date: 2017-07-27 00:24:00Z
+date: 2017-07-27 01:06:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ COLUMBUS, Ohio (AP) — A swinging and spinning amusement park ride called the F
 
 Full story on F3News: [Spinning Ohio State Fair ride breaks apart; 1 dead, 7 hurt](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, July 27, 2017 12:24:00 AM
+> Posted on: Thursday, July 27, 2017 1:06:00 AM

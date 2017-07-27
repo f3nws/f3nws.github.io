@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Perth man Jason Headland jailed for at least 31 years for killing own children - ABC Online"
-date: 2017-07-27 05:21:00Z
+date: 2017-07-27 05:22:00Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Perth man Jason Headland jailed for at least 31 years for killing own
 
 Full story on F3News: [Perth man Jason Headland jailed for at least 31 years for killing own children - ABC Online](http://www.f3nws.com/n/3d4EW)
 
-> Posted on: Thursday, July 27, 2017 5:21:00 AM
+> Posted on: Thursday, July 27, 2017 5:22:00 AM

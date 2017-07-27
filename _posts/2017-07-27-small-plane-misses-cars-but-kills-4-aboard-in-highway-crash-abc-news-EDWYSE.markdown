@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Small plane misses cars but kills 4 aboard in highway crash - ABC News](http://a.abcnews.com/images/US/WireAP_e9306420a09b42b4bb0bf2def3cad5c2_16x9_992.jpg)
 
-CBS News Small plane misses cars but kills 4 aboard in highway crash ABC News Four people died when their small plane crashed in the middle of I-15 near Riverdale, Utah, Wednesday, July 26, 2017. The crash closed the freeway to northbound traffic. (Rick Egan/The Salt Lake Tribune via AP)more +. 0 Shares. Email. A small plane ... Small plane crash on Utah highway kills 4 people aboard: authorities CBS News 2 Weber County couples killed in plane crash on I-15 KSL.com Small plane crashes on Utah freeway, killing two married couples Salt Lake Tribune KUTV 2News - Fox News all 40 news articles »
+CBS News Small plane misses cars but kills 4 aboard in highway crash ABC News Four people died when their small plane crashed in the middle of I-15 near Riverdale, Utah, Wednesday, July 26, 2017. The crash closed the freeway to northbound traffic. (Rick Egan/The Salt Lake Tribune via AP)more +. 0 Shares. Email. A small plane ... Small plane crashes on Utah freeway, killing two married couples Salt Lake Tribune Four killed in small plane crash outside Salt Lake City Fox News Northbound I-15 reopens after crash, vehicle fire in SLC KSL.com all 33 news articles »
 
 
 Full story on F3News: [Small plane misses cars but kills 4 aboard in highway crash - ABC News](http://www.f3nws.com/n/EDWYSE)
