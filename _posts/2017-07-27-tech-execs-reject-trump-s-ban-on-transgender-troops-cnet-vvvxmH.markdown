@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tech execs reject Trump's ban on transgender troops     - CNET"
-date: 2017-07-27 00:06:51Z
+date: 2017-07-27 00:33:40Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The heads of Apple, Facebook, Google and Twitter take aim at the president again
 
 Full story on F3News: [Tech execs reject Trump's ban on transgender troops     - CNET](http://www.f3nws.com/n/vvvxmH)
 
-> Posted on: Thursday, July 27, 2017 12:06:51 AM
+> Posted on: Thursday, July 27, 2017 12:33:40 AM

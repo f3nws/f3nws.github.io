@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to preorder the SNES Classic Edition     - CNET"
-date: 2017-07-27 00:12:06Z
+date: 2017-07-27 00:16:45Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ If you're totally hyped for the upcoming mini Super NES, here's how you can get 
 
 Full story on F3News: [How to preorder the SNES Classic Edition     - CNET](http://www.f3nws.com/n/TTpPvG)
 
-> Posted on: Thursday, July 27, 2017 12:12:06 AM
+> Posted on: Thursday, July 27, 2017 12:16:45 AM
