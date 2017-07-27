@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen pleads not guilty in fatal crash recorded on Instagram"
-date: 2017-07-27 01:34:50Z
+date: 2017-07-27 02:47:29Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Prosecutors have filed criminal charges against a California teen who livestream
 
 Full story on F3News: [Teen pleads not guilty in fatal crash recorded on Instagram](http://www.f3nws.com/n/Zat4hE)
 
-> Posted on: Thursday, July 27, 2017 1:34:50 AM
+> Posted on: Thursday, July 27, 2017 2:47:29 AM
