@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deal reached to send Russia sanctions bill to Trump's desk"
-date: 2017-07-27 02:11:12Z
+date: 2017-07-27 04:53:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ House and Senate Republicans have reached a deal that is paving the way to send 
 
 Full story on F3News: [Deal reached to send Russia sanctions bill to Trump's desk](http://www.f3nws.com/n/fEntcE)
 
-> Posted on: Thursday, July 27, 2017 2:11:12 AM
+> Posted on: Thursday, July 27, 2017 4:53:35 AM

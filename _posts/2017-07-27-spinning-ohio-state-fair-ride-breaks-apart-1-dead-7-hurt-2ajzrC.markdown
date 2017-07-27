@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Spinning Ohio State Fair ride breaks apart; 1 dead, 7 hurt"
-date: 2017-07-27 00:08:00Z
+date: 2017-07-27 00:24:00Z
 categories: associated-press-ap-top-headlines
 ---
 
-COLUMBUS, Ohio (AP) — A swinging and spinning amusement park ride called the Fire Ball broke apart on the opening day of the Ohio State Fair on Wednesday, hurling people through the air, killing at least one and injuring seven others.
+COLUMBUS, Ohio (AP) — A swinging and spinning amusement park ride called the Fire Ball broke apart on the opening day of the Ohio State Fair on Wednesday, hurtling people through the air, killing at least one and injuring seven others.
 
 
 Full story on F3News: [Spinning Ohio State Fair ride breaks apart; 1 dead, 7 hurt](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, July 27, 2017 12:08:00 AM
+> Posted on: Thursday, July 27, 2017 12:24:00 AM
