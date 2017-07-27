@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USB feels the need for double speed video     - CNET"
-date: 2017-07-27 01:21:16Z
+date: 2017-07-27 02:30:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The new USB 3.2 standard will potentially double data transfer speeds to 20 giga
 
 Full story on F3News: [USB feels the need for double speed video     - CNET](http://www.f3nws.com/n/XrWyu)
 
-> Posted on: Thursday, July 27, 2017 1:21:16 AM
+> Posted on: Thursday, July 27, 2017 2:30:02 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon's big launch in Singapore"
-date: 2017-07-27 02:34:02Z
+date: 2017-07-27 03:16:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Amazon's big launch in Singapore](http://www.f3nws.com/n/pakhRF)
 
-> Posted on: Thursday, July 27, 2017 2:34:02 AM
+> Posted on: Thursday, July 27, 2017 3:16:45 AM
