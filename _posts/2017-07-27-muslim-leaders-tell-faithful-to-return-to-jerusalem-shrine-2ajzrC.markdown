@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Muslim leaders tell faithful to return to Jerusalem shrine"
-date: 2017-07-27 04:17:00Z
+date: 2017-07-27 06:15:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ JERUSALEM (AP) — Muslim leaders told the faithful to return to pray inside a m
 
 Full story on F3News: [Muslim leaders tell faithful to return to Jerusalem shrine](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, July 27, 2017 4:17:00 AM
+> Posted on: Thursday, July 27, 2017 6:15:00 AM

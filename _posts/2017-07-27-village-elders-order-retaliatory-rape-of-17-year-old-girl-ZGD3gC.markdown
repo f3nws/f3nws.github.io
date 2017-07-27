@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Village elders order retaliatory rape of 17-year-old girl"
-date: 2017-07-27 08:02:32Z
+date: 2017-07-27 09:56:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Village elders in Pakistan ordered the rape of a 17-year-old girl after her brot
 
 Full story on F3News: [Village elders order retaliatory rape of 17-year-old girl](http://www.f3nws.com/n/ZGD3gC)
 
-> Posted on: Thursday, July 27, 2017 8:02:32 AM
+> Posted on: Thursday, July 27, 2017 9:56:44 AM
