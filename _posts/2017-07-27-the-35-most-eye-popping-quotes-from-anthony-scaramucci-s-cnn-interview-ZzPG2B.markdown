@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 35 most eye-popping quotes from Anthony Scaramucci's CNN interview"
-date: 2017-07-27 16:41:55Z
+date: 2017-07-27 18:00:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Anthony Scaramucci was named White House communications director six days a
 
 Full story on F3News: [The 35 most eye-popping quotes from Anthony Scaramucci's CNN interview](http://www.f3nws.com/n/ZzPG2B)
 
-> Posted on: Thursday, July 27, 2017 4:41:55 PM
+> Posted on: Thursday, July 27, 2017 6:00:09 PM
