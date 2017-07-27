@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "One killed when fair ride malfunctions"
-date: 2017-07-27 05:39:01Z
+date: 2017-07-27 08:08:31Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ One person was killed Wednesday evening when a ride malfunctioned during opening
 
 Full story on F3News: [One killed when fair ride malfunctions](http://www.f3nws.com/n/hgchh)
 
-> Posted on: Thursday, July 27, 2017 5:39:01 AM
+> Posted on: Thursday, July 27, 2017 8:08:31 AM

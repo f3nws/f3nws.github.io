@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two-day strike begins in Venezuela against Maduro"
-date: 2017-07-27 03:17:39Z
+date: 2017-07-27 08:06:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A national strike has gripped Venezuela, building tension ahead of a controversi
 
 Full story on F3News: [Two-day strike begins in Venezuela against Maduro](http://www.f3nws.com/n/GX4nsG)
 
-> Posted on: Thursday, July 27, 2017 3:17:39 AM
+> Posted on: Thursday, July 27, 2017 8:06:04 AM

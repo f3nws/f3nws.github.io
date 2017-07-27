@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brothers charged over stabbing death of homeless man at Maroubra - The Sydney Morning Herald"
-date: 2017-07-27 07:16:00Z
+date: 2017-07-27 07:17:29Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Brothers charged over stabbing death of homeless man a
 
 Full story on F3News: [Brothers charged over stabbing death of homeless man at Maroubra - The Sydney Morning Herald](http://www.f3nws.com/n/4MeHW)
 
-> Posted on: Thursday, July 27, 2017 7:16:00 AM
+> Posted on: Thursday, July 27, 2017 7:17:29 AM

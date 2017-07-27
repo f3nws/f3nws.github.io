@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Never-before seen images of N Korea's missile program"
-date: 2017-07-27 04:59:32Z
+date: 2017-07-27 08:06:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Following the successful launch of their first intercontinental ballistic missil
 
 Full story on F3News: [Never-before seen images of N Korea's missile program](http://www.f3nws.com/n/vDvpxF)
 
-> Posted on: Thursday, July 27, 2017 4:59:32 AM
+> Posted on: Thursday, July 27, 2017 8:06:31 AM
