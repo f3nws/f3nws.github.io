@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan's defense minister resigns amid scandal"
-date: 2017-07-28 05:41:31Z
+date: 2017-07-28 09:58:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan's Defense Minister has resigned following allegations she helped to suppre
 
 Full story on F3News: [Japan's defense minister resigns amid scandal](http://www.f3nws.com/n/dqVqxH)
 
-> Posted on: Friday, July 28, 2017 5:41:31 AM
+> Posted on: Friday, July 28, 2017 9:58:40 AM
