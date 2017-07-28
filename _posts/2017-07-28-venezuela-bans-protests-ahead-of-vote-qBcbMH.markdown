@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela bans protests ahead of vote"
-date: 2017-07-28 00:31:16Z
+date: 2017-07-28 01:18:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Venezuela bans protests ahead of vote](http://www.f3nws.com/n/qBcbMH)
 
-> Posted on: Friday, July 28, 2017 12:31:16 AM
+> Posted on: Friday, July 28, 2017 1:18:23 AM
