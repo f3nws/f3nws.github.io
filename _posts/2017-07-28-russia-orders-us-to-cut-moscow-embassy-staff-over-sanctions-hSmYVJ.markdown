@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia orders US to cut Moscow embassy staff over sanctions"
-date: 2017-07-28 13:51:36Z
+date: 2017-07-28 17:38:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia's Foreign Ministry has demanded Friday that the United States cut the num
 
 Full story on F3News: [Russia orders US to cut Moscow embassy staff over sanctions](http://www.f3nws.com/n/hSmYVJ)
 
-> Posted on: Friday, July 28, 2017 1:51:36 PM
+> Posted on: Friday, July 28, 2017 5:38:14 PM
