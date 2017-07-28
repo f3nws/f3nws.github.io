@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man who swayed the vote: John McCain's maverick moment"
-date: 2017-07-28 10:22:53Z
+date: 2017-07-28 10:45:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Shortly before Sen. John McCain entered the Senate chamber in the wee hours of F
 
 Full story on F3News: [Man who swayed the vote: John McCain's maverick moment](http://www.f3nws.com/n/ZZMUDF)
 
-> Posted on: Friday, July 28, 2017 10:22:53 AM
+> Posted on: Friday, July 28, 2017 10:45:29 AM
