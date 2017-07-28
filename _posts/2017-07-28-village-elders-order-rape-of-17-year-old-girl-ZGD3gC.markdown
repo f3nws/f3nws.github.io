@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Village elders order rape of 17-year-old girl"
-date: 2017-07-28 03:01:47Z
+date: 2017-07-28 04:44:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Village elders in Pakistan ordered the rape of a 17-year-old girl after her brot
 
 Full story on F3News: [Village elders order rape of 17-year-old girl](http://www.f3nws.com/n/ZGD3gC)
 
-> Posted on: Friday, July 28, 2017 3:01:47 AM
+> Posted on: Friday, July 28, 2017 4:44:07 AM
