@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's metro station in the middle of nowhere"
-date: 2017-07-28 01:24:58Z
+date: 2017-07-28 15:02:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If you've emerged from a gleaming modern metro station only to find yourself in 
 
 Full story on F3News: [China's metro station in the middle of nowhere](http://www.f3nws.com/n/pgaGJB)
 
-> Posted on: Friday, July 28, 2017 1:24:58 AM
+> Posted on: Friday, July 28, 2017 3:02:03 PM

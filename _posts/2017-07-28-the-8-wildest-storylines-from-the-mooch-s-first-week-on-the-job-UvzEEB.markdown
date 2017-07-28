@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 8 wildest storylines from The Mooch's first week on the job"
-date: 2017-07-28 11:06:34Z
+date: 2017-07-28 15:02:30Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ WARNING: This story contains graphic language.
 
 Full story on F3News: [The 8 wildest storylines from The Mooch's first week on the job](http://www.f3nws.com/n/UvzEEB)
 
-> Posted on: Friday, July 28, 2017 11:06:34 AM
+> Posted on: Friday, July 28, 2017 3:02:30 PM
