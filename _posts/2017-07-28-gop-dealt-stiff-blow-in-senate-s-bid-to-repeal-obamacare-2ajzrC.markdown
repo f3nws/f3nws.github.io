@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP dealt stiff blow in Senate's bid to repeal 'Obamacare'"
-date: 2017-07-28 02:00:00Z
+date: 2017-07-28 02:37:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Dealing a serious blow to President Donald Trump's agenda, t
 
 Full story on F3News: [GOP dealt stiff blow in Senate's bid to repeal 'Obamacare'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, July 28, 2017 2:00:00 AM
+> Posted on: Friday, July 28, 2017 2:37:00 AM
