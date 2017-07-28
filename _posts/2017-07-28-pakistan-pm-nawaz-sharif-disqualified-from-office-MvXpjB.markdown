@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan PM Nawaz Sharif disqualified from office"
-date: 2017-07-28 10:44:37Z
+date: 2017-07-28 11:19:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pakistani Prime Minister Nawaz Sharif has been disqualified from office by the c
 
 Full story on F3News: [Pakistan PM Nawaz Sharif disqualified from office](http://www.f3nws.com/n/MvXpjB)
 
-> Posted on: Friday, July 28, 2017 10:44:37 AM
+> Posted on: Friday, July 28, 2017 11:19:25 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beijing: UK 'stirring trouble' in South China Sea"
-date: 2017-07-28 08:08:16Z
+date: 2017-07-28 11:03:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The UK has waded into a tense territorial dispute in the South China Sea, potent
 
 Full story on F3News: [Beijing: UK 'stirring trouble' in South China Sea](http://www.f3nws.com/n/VzeqzF)
 
-> Posted on: Friday, July 28, 2017 8:08:16 AM
+> Posted on: Friday, July 28, 2017 11:03:35 AM
