@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Prime Minister Nawaz Sharif of Pakistan Is Ordered Removed - New York Times](https://static01.nyt.com/images/2017/07/29/world/29pakistan-1/29pakistan-1-facebookJumbo.jpg)
 
-New York Times Prime Minister Nawaz Sharif of Pakistan Is Ordered Removed New York Times Supporters of Prime Minister Nawaz Sharif during rally to condemn his dismissal in Lahore, Pakistan, on Friday. Credit K.M. Chaudary/Associated Press. ISLAMABAD, Pakistan — Pakistan's Supreme Court on Friday ordered the removal of Prime Minister ... Pakistani court disqualifies PM on corruption allegations Washington Post Pakistan faces political turmoil as PM Sharif ousted in wealth probe New York Daily News Sharif's Ouster Is Bad News Bloomberg CNN - NBCNews.com - Charlotte Observer - Reuters all 798 news articles »
+New York Times Prime Minister Nawaz Sharif of Pakistan Is Ordered Removed New York Times Supporters of Prime Minister Nawaz Sharif during rally to condemn his dismissal in Lahore, Pakistan, on Friday. Credit K.M. Chaudary/Associated Press. ISLAMABAD, Pakistan — Pakistan's Supreme Court on Friday ordered the removal of Prime Minister ... Pakistani court disqualifies PM on corruption allegations Washington Post Sharif's Ousting Returns Pakistan to a High-Risk Investor Play Bloomberg Pakistan faces political turmoil as PM Sharif ousted in wealth probe Reuters New York Daily News - U.S. News & World Report - CNBC - CNN all 833 news articles »
 
 
 Full story on F3News: [Prime Minister Nawaz Sharif of Pakistan Is Ordered Removed - New York Times](http://www.f3nws.com/n/apDCBC)
