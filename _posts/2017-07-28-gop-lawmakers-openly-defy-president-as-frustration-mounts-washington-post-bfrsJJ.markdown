@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP lawmakers openly defy president as frustration mounts - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/27/National-Politics/Images/2017-07-27T221700Z_1326145990_RC1B3AD201F0_RTRMADP_3_USA-HEALTHCARE.jpg?t=20170517)
 
-Washington Post GOP lawmakers openly defy president as frustration mounts Washington Post They passed legislation to stop him from lifting sanctions on Russia. They recoiled at his snap decision to ban transgender Americans from the military. And they warned him in no uncertain terms not to fire the attorney general or the special counsel ... Graham, Booker writing bill to prevent Trump from firing special counsel The Hill Donald Trump Eats First The Atlantic Senators to introduce bill to protect special counsels... such as Robert Mueller USA TODAY Newsweek - Miami Herald - Business Insider - Washington Examiner all 183 news articles »
+Washington Post GOP lawmakers openly defy president as frustration mounts Washington Post They passed legislation to stop him from lifting sanctions on Russia. They recoiled at his snap decision to ban transgender Americans from the military. And they warned him in no uncertain terms not to fire the attorney general or the special counsel ... Want to see bipartisanship in Washington? Fire Mueller Politico Trump's denunciations of Sessions make him look kind of guilty Miami Herald Trump's attacks stun Republican senators The Hill Slate Magazine - New York Times - Newsmax - USA TODAY all 255 news articles »
 
 
 Full story on F3News: [GOP lawmakers openly defy president as frustration mounts - Washington Post](http://www.f3nws.com/n/bfrsJJ)
