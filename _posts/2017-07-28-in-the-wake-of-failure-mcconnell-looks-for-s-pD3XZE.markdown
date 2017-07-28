@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In the wake of failure, McConnell looks for s"
-date: 2017-07-28 12:46:52Z
+date: 2017-07-28 12:46:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Senate Majority Leader Mitch McConnell thinks Dems failed to work on health care
 
 Full story on F3News: [In the wake of failure, McConnell looks for s](http://www.f3nws.com/n/pD3XZE)
 
-> Posted on: Friday, July 28, 2017 12:46:52 PM
+> Posted on: Friday, July 28, 2017 12:46:00 PM

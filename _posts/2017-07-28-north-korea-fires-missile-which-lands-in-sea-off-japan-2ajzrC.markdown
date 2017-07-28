@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "North Korea fires missile which lands in sea off Japan"
-date: 2017-07-28 12:08:00Z
+date: 2017-07-28 13:10:00Z
 categories: associated-press-ap-top-headlines
 ---
 
-TOKYO (AP) — North Korea fired a ballistic missile Friday night which landed in the ocean off Japan, Japanese officials said.
+PYONGYANG, North Korea (AP) — North Korea launched a ballistic missile Friday night which flew longer than any of its previous missiles and landed in the ocean off Japan, according to officials from Japan, South Korea and the United States.
 
 
 Full story on F3News: [North Korea fires missile which lands in sea off Japan](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, July 28, 2017 12:08:00 PM
+> Posted on: Friday, July 28, 2017 1:10:00 PM

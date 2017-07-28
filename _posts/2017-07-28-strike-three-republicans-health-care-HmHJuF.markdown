@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Strike Three: Republicans' health care..."
-date: 2017-07-28 12:00:15Z
+date: 2017-07-28 12:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ categories: msnbc
 
 Full story on F3News: [Strike Three: Republicans' health care...](http://www.f3nws.com/n/HmHJuF)
 
-> Posted on: Friday, July 28, 2017 12:00:15 PM
+> Posted on: Friday, July 28, 2017 12:00:00 PM
