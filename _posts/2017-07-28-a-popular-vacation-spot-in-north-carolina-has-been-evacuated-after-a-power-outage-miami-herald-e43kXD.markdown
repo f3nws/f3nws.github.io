@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A popular vacation spot in North Carolina has been evacuated after a power outage - Miami Herald](http://pics.mcclatchyinteractive.com/news/nation-world/national/huwh2q/picture164106572/alternates/LANDSCAPE_1140/FERRY04-061715-RTW)
 
-USA TODAY A popular vacation spot in North Carolina has been evacuated after a power outage Miami Herald Thousands were without power on Ocracoke and Hatteras islands in North Carolina on Thursday and officials were unsure when it will be restored. The Cape Hatteras Electric Cooperative said on Thursday that it could take several days or even weeks before ... Mandatory evacuation on Ocracoke Island after OBX power outage fix 'could take weeks' WCNC Construction company accident leads to massive Outer Banks power outage WECT-TV6 10K Tourists Must Evacuate Ocracoke Island WUNC all 48 news articles »
+Miami Herald A popular vacation spot in North Carolina has been evacuated after a power outage Miami Herald Thousands were without power on Ocracoke and Hatteras islands in North Carolina on Thursday and officials were unsure when it will be restored. The Cape Hatteras Electric Cooperative said on Thursday that it could take several days or even weeks before ... Gov. Cooper declares State of Emergency after power outage causes mandatory evacuation on Ocracoke Island myfox8.com No power on 2 islands along North Carolina Outer Banks WXII The Triad Construction company accident leads to massive Outer Banks power outage WECT-TV6 WUNC all 49 news articles »
 
 
 Full story on F3News: [A popular vacation spot in North Carolina has been evacuated after a power outage - Miami Herald](http://www.f3nws.com/n/e43kXD)
