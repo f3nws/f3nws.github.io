@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman sought in Calgary quadruple homicide taken into custody in Toronto"
-date: 2017-07-28 01:48:30Z
+date: 2017-07-28 01:47:42Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Yu Chieh Liao, 24, is considered a person of interest in connection with bodies 
 
 Full story on F3News: [Woman sought in Calgary quadruple homicide taken into custody in Toronto](http://www.f3nws.com/n/MjbCrF)
 
-> Posted on: Friday, July 28, 2017 1:48:30 AM
+> Posted on: Friday, July 28, 2017 1:47:42 AM
