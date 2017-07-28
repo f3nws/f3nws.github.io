@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Local politician can’t ban constituents from Facebook page – judge"
-date: 2017-07-28 00:54:10Z
+date: 2017-07-28 00:54:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A federal court in Virginia has ruled that a politician violated a constituent�
 
 Full story on F3News: [Local politician can’t ban constituents from Facebook page – judge](http://www.f3nws.com/n/SegzCJ)
 
-> Posted on: Friday, July 28, 2017 12:54:10 AM
+> Posted on: Friday, July 28, 2017 12:54:00 AM
