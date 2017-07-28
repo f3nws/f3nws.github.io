@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "Senate Rejects Slimmed Down Obamacare Repeal as McCain Votes No - New York Times"
-date: 2017-07-28 06:38:28Z
+title:  "Senate Rejects Slimmed-Down Obamacare Repeal as McCain Votes No - New York Times"
+date: 2017-07-28 07:58:49Z
 categories: google-news-top-stories
 ---
 
-![Senate Rejects Slimmed Down Obamacare Repeal as McCain Votes No - New York Times](https://static01.nyt.com/images/2017/07/29/us/28dc-health_web10/29dc-health_web1-facebookJumbo.jpg)
+![Senate Rejects Slimmed-Down Obamacare Repeal as McCain Votes No - New York Times](https://static01.nyt.com/images/2017/07/29/us/28dc-health_web10/29dc-health_web1-facebookJumbo.jpg)
 
-New York Times Senate Rejects Slimmed Down Obamacare Repeal as McCain Votes No New York Times Senator John McCain of Arizona leaving the Senate chamber early Friday after casting the vote that ensured the measure's defeat. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Senate on Friday rejected a new, scaled-down ... Senate rejects measure to partly repeal Affordable Care Act, dealing GOP leaders a major setback Washington Post Senate rejects Obamacare repeal Politico Senate defeats ObamaCare repeal measure The Hill NPR - HuffPost - BBC News - Bloomberg all 5,905 news articles »
+New York Times Senate Rejects Slimmed-Down Obamacare Repeal as McCain Votes No New York Times Senator John McCain of Arizona leaving the Senate chamber early Friday after casting the vote that ensured the measure's defeat. Credit Gabriella Demczuk for The New York Times. WASHINGTON — The Senate in the early hours of Friday morning rejected ... Senate rejects measure to partly repeal Affordable Care Act, dealing GOP leaders a major setback Washington Post Senate rejects Obamacare repeal Politico Senate defeats ObamaCare repeal measure The Hill NPR - HuffPost - BBC News - ABC News all 5,904 news articles »
 
 
-Full story on F3News: [Senate Rejects Slimmed Down Obamacare Repeal as McCain Votes No - New York Times](http://www.f3nws.com/n/tmWJFJ)
+Full story on F3News: [Senate Rejects Slimmed-Down Obamacare Repeal as McCain Votes No - New York Times](http://www.f3nws.com/n/tmWJFJ)
 
-> Posted on: Friday, July 28, 2017 6:38:28 AM
+> Posted on: Friday, July 28, 2017 7:58:49 AM
