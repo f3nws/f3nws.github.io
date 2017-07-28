@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cillizza: Trump's manic, fantastical and utterly disastrous week"
-date: 2017-07-28 18:53:52Z
+date: 2017-07-28 19:38:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Quick: Think back to Monday. Can you remember what happened at the White House a
 
 Full story on F3News: [Cillizza: Trump's manic, fantastical and utterly disastrous week](http://www.f3nws.com/n/FAynXF)
 
-> Posted on: Friday, July 28, 2017 6:53:52 PM
+> Posted on: Friday, July 28, 2017 7:38:51 PM
