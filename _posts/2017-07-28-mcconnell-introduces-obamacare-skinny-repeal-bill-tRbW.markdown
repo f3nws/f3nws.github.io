@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McConnell introduces ObamaCare 'skinny repeal' bill"
-date: 2017-07-28 04:00:02Z
+date: 2017-07-28 04:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Senate Majority Leader Mitch McConnell, R-Ky., introduced a pared-down version o
 
 Full story on F3News: [McConnell introduces ObamaCare 'skinny repeal' bill](http://www.f3nws.com/n/tRbW)
 
-> Posted on: Friday, July 28, 2017 4:00:02 AM
+> Posted on: Friday, July 28, 2017 4:15:00 AM
