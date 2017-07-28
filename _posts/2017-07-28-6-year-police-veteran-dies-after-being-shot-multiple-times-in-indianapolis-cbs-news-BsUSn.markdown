@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![6-year police veteran dies after being shot multiple times in Indianapolis - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2017/07/28/be6c386e-ff60-4df3-a206-41d2c7af933d/170727-aaron-allen-kia.jpg)
 
-CBS News 6-year police veteran dies after being shot multiple times in Indianapolis CBS News INDIANAPOLIS -- A police officer died after being shot multiple times while responding to a traffic crash on the south side of Indianapolis, authorities said Thursday. During a press conference, Southport Police Chief Thomas Vaughn identified the slain ... Indiana Officer Is Fatally Shot by Survivor of Car Wreck, Police Say New York Times Officer Fatally Shot While Trying To Help People In A Crashed Car Near Indianapolis NPR Police officer dies after being shot multiple times at Indianapolis crash Chicago Tribune WISH-TV - WRTV Indianapolis - WTTV CBS4Indy all 50 news articles »
+CBS News 6-year police veteran dies after being shot multiple times in Indianapolis CBS News INDIANAPOLIS -- A police officer died after being shot multiple times while responding to a traffic crash on the south side of Indianapolis, authorities said Thursday. During a press conference, Southport Police Chief Thomas Vaughn identified the slain ... Voices from near, far honor slain Southport police officer WISH-TV Officer Fatally Shot While Trying To Help People In A Crashed Car Near Indianapolis NPR Officer shot, killed while trying to help car crash victims WESH Orlando WTTV CBS4Indy all 56 news articles »
 
 
 Full story on F3News: [6-year police veteran dies after being shot multiple times in Indianapolis - CBS News](http://www.f3nws.com/n/BsUSn)

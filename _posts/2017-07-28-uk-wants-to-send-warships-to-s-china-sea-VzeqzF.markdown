@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK wants to send warships to S. China Sea"
-date: 2017-07-28 04:07:12Z
+date: 2017-07-28 07:56:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The UK has waded into a tense territorial dispute in the South China Sea, potent
 
 Full story on F3News: [UK wants to send warships to S. China Sea](http://www.f3nws.com/n/VzeqzF)
 
-> Posted on: Friday, July 28, 2017 4:07:12 AM
+> Posted on: Friday, July 28, 2017 7:56:20 AM
