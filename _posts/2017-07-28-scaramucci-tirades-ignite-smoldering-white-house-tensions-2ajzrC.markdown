@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci tirades ignite smoldering White House tensions"
-date: 2017-07-28 07:34:00Z
+date: 2017-07-28 08:08:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's new communications director explode
 
 Full story on F3News: [Scaramucci tirades ignite smoldering White House tensions](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, July 28, 2017 7:34:00 AM
+> Posted on: Friday, July 28, 2017 8:08:00 AM
