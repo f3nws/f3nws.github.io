@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamburg attack suspect 'known as Islamist'"
-date: 2017-07-29 13:32:59Z
+date: 2017-07-29 15:36:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man accused of a fatal stabbing in Hamburg was known to investigators as an Is
 
 Full story on F3News: [Hamburg attack suspect 'known as Islamist'](http://www.f3nws.com/n/hgAGQG)
 
-> Posted on: Saturday, July 29, 2017 1:32:59 PM
+> Posted on: Saturday, July 29, 2017 3:36:55 PM
