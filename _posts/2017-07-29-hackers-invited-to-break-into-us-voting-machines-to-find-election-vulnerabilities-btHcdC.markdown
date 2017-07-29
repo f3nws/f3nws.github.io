@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hackers invited to break into US voting machines to find election vulnerabilities"
-date: 2017-07-29 02:23:20Z
+date: 2017-07-29 02:23:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of hackers from around the world were granted access to US vot
 
 Full story on F3News: [Hackers invited to break into US voting machines to find election vulnerabilities](http://www.f3nws.com/n/btHcdC)
 
-> Posted on: Saturday, July 29, 2017 2:23:20 AM
+> Posted on: Saturday, July 29, 2017 2:23:00 AM
