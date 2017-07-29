@@ -7,7 +7,7 @@ categories: the-verge
 
 ![A closer look at Tesla Model 3's spartan interior](https://cdn.vox-cdn.com/thumbor/q4CM2WWiWTIOkCluSP99oq4Du-4=/0x106:2040x1254/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55955573/9U3A2261__1_.0.jpg)
 
-
+The Verge A closer look at Tesla Model 3's spartan interior The Verge My Verge colleague Sean O'Kane put it well when he wrote that the Tesla Model 3 interior doesn't look like any car you've ever seen. It's stunningly austere, with a smooth strip of wood across the dashboard that looks like it was carved straight out of ... Here's what we know about Tesla's Model 3 Washington Post By the numbers: Tesla Model 3 vs. Chevrolet Bolt EV CNET Tesla delivers first lower-cost Model 3 cars STLtoday.com WIRED - CNBC - Green Car Reports - MarketWatch all 259 news articles »
 
 
 Full story on F3News: [A closer look at Tesla Model 3's spartan interior](http://www.f3nws.com/n/V3ftTB)
