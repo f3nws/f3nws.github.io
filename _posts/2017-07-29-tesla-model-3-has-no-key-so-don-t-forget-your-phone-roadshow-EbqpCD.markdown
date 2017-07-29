@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla Model 3 has no key, so don't forget your phone     - Roadshow"
-date: 2017-07-29 05:02:45Z
+date: 2017-07-29 18:47:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ When you pick up your new Model 3 electric car, Tesla won't hand you a key, but 
 
 Full story on F3News: [Tesla Model 3 has no key, so don't forget your phone     - Roadshow](http://www.f3nws.com/n/EbqpCD)
 
-> Posted on: Saturday, July 29, 2017 5:02:45 AM
+> Posted on: Saturday, July 29, 2017 6:47:16 PM
