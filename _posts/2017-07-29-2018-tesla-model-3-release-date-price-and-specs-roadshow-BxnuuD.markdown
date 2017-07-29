@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2018 Tesla Model 3 Release Date, Price and Specs     - Roadshow"
-date: 2017-07-29 05:03:35Z
+date: 2017-07-29 11:20:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Tesla's most affordable car delivers on the hype. It's great looking and great t
 
 Full story on F3News: [2018 Tesla Model 3 Release Date, Price and Specs     - Roadshow](http://www.f3nws.com/n/BxnuuD)
 
-> Posted on: Saturday, July 29, 2017 5:03:35 AM
+> Posted on: Saturday, July 29, 2017 11:20:52 AM
