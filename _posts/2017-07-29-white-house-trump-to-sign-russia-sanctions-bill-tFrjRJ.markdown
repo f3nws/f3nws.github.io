@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House: Trump to sign Russia sanctions bill"
-date: 2017-07-29 02:04:41Z
+date: 2017-07-29 07:01:03Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has reviewed the final version of Russia sanctions legisl
 
 Full story on F3News: [White House: Trump to sign Russia sanctions bill](http://www.f3nws.com/n/tFrjRJ)
 
-> Posted on: Saturday, July 29, 2017 2:04:41 AM
+> Posted on: Saturday, July 29, 2017 7:01:03 AM
