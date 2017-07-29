@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Don't forget rape survivors': Photo campaign puts universities on notice - ABC Online"
-date: 2017-07-29 03:28:00Z
+date: 2017-07-29 03:34:33Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online 'Don't forget rape survivors': Photo campaign puts universities on no
 
 Full story on F3News: ['Don't forget rape survivors': Photo campaign puts universities on notice - ABC Online](http://www.f3nws.com/n/SpteHJ)
 
-> Posted on: Saturday, July 29, 2017 3:28:00 AM
+> Posted on: Saturday, July 29, 2017 3:34:33 AM
