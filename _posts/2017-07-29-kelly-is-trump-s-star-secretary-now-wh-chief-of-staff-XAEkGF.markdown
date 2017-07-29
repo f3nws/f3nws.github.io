@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kelly is Trump's 'star' secretary, now WH chief of staff"
-date: 2017-07-29 02:11:13Z
+date: 2017-07-29 03:16:12Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Retired Marine Gen. John Kelly is a battle-hardened commander who would bring a 
 
 Full story on F3News: [Kelly is Trump's "star" secretary, now WH chief of staff](http://www.f3nws.com/n/XAEkGF)
 
-> Posted on: Saturday, July 29, 2017 2:11:13 AM
+> Posted on: Saturday, July 29, 2017 3:16:12 AM

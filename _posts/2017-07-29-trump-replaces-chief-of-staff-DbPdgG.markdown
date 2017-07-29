@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump replaces chief of staff"
-date: 2017-07-29 03:24:55Z
+date: 2017-07-29 03:36:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has selected Homeland Security Secretary John Kelly as hi
 
 Full story on F3News: [Trump replaces chief of staff](http://www.f3nws.com/n/DbPdgG)
 
-> Posted on: Saturday, July 29, 2017 3:24:55 AM
+> Posted on: Saturday, July 29, 2017 3:36:54 AM
