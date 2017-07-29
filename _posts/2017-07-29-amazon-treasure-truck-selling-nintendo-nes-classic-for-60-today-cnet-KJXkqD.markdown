@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon Treasure Truck selling Nintendo NES Classic for $60 today     - CNET"
-date: 2017-07-29 14:08:21Z
+date: 2017-07-29 15:57:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ No need to pinch yourself. The deal is available in Atlanta, Chicago, Dallas, Ho
 
 Full story on F3News: [Amazon Treasure Truck selling Nintendo NES Classic for $60 today     - CNET](http://www.f3nws.com/n/KJXkqD)
 
-> Posted on: Saturday, July 29, 2017 2:08:21 PM
+> Posted on: Saturday, July 29, 2017 3:57:00 PM
