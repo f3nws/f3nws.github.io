@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Motorcyclists shot on Melbourne's Bolte Bridge - ABC Online"
-date: 2017-07-29 00:14:00Z
+date: 2017-07-29 00:19:10Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Motorcyclists shot on Melbourne's Bolte Bridge ABC Online Two motorcy
 
 Full story on F3News: [Motorcyclists shot on Melbourne's Bolte Bridge - ABC Online](http://www.f3nws.com/n/yQqbFB)
 
-> Posted on: Saturday, July 29, 2017 12:14:00 AM
+> Posted on: Saturday, July 29, 2017 12:19:10 AM
