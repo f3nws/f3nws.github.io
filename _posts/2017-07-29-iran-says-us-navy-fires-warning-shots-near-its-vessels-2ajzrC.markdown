@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran says US Navy fires warning shots near its vessels"
-date: 2017-07-29 06:07:00Z
+date: 2017-07-29 08:46:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — Iran's elite Revolutionary Guard said Saturday a U.S. Navy
 
 Full story on F3News: [Iran says US Navy fires warning shots near its vessels](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, July 29, 2017 6:07:00 AM
+> Posted on: Saturday, July 29, 2017 8:46:00 AM
