@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Malaysia has a misogyny problem. Here's how to solve it"
-date: 2017-07-29 05:08:18Z
+date: 2017-07-29 07:36:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Malaysia has a problem: misogyny. The country's Parliament set yet another sordi
 
 Full story on F3News: [Malaysia has a misogyny problem. Here's how to solve it](http://www.f3nws.com/n/vvaCjH)
 
-> Posted on: Saturday, July 29, 2017 5:08:18 AM
+> Posted on: Saturday, July 29, 2017 7:36:55 AM
