@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baby Gard dies after life support withdrawn"
-date: 2017-07-29 01:25:42Z
+date: 2017-07-29 05:36:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British baby Charlie Gard, who was at the center of a legal battle that captured
 
 Full story on F3News: [Baby Gard dies after life support withdrawn](http://www.f3nws.com/n/Zkg2nG)
 
-> Posted on: Saturday, July 29, 2017 1:25:42 AM
+> Posted on: Saturday, July 29, 2017 5:36:56 AM
