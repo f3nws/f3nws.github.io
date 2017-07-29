@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuelans to defy protest ban"
-date: 2017-07-29 01:47:03Z
+date: 2017-07-29 03:15:34Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Venezuela's opposition leaders called for nationwide demonstrations Friday after
 
 Full story on F3News: [Venezuelans to defy protest ban](http://www.f3nws.com/n/xepsdC)
 
-> Posted on: Saturday, July 29, 2017 1:47:03 AM
+> Posted on: Saturday, July 29, 2017 3:15:34 AM
