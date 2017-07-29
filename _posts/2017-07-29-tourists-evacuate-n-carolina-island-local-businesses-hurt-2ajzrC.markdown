@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tourists evacuate N Carolina island; local businesses hurt"
-date: 2017-07-29 16:01:00Z
+date: 2017-07-29 18:14:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ A "steady stream" of tourists left a North Carolina island Saturday under evacua
 
 Full story on F3News: [Tourists evacuate N Carolina island; local businesses hurt](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, July 29, 2017 4:01:00 PM
+> Posted on: Saturday, July 29, 2017 6:14:00 PM
