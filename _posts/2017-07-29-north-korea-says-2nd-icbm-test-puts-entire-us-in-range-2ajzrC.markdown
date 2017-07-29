@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea says 2nd ICBM test puts 'entire' US in range"
-date: 2017-07-29 00:18:00Z
+date: 2017-07-29 01:51:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PYONGYANG, North Korea (AP) — North Korean leader Kim Jong Un said Saturday th
 
 Full story on F3News: [North Korea says 2nd ICBM test puts 'entire' US in range](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, July 29, 2017 12:18:00 AM
+> Posted on: Saturday, July 29, 2017 1:51:00 AM

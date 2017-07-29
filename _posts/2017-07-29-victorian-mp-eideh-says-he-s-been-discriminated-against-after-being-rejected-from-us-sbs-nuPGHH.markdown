@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Victorian MP Eideh says he's been 'discriminated against' after being rejected from US - SBS](http://www.sbs.com.au/news/sites/sbs.com.au.news/files/abo_1.jpg)
 
-SBS Victorian MP Eideh says he's been 'discriminated against' after being rejected from US SBS Victorian Labor MP Khalil Eideh doesn't believe his dual Syrian and Australian citizenship influenced the US decision to refuse him entry into the country while on official parliamentary business. Source: AAP. 1 HOUR AGO UPDATED 1 MIN AGO ... WHY IS THIS MAN IN PARLIAMENT? Herald Sun (blog) all 9 news articles »
+SBS Victorian MP Eideh says he's been 'discriminated against' after being rejected from US SBS Victorian Labor MP Khalil Eideh doesn't believe his dual Syrian and Australian citizenship influenced the US decision to refuse him entry into the country while on official parliamentary business. Source: AAP. 1 HOUR AGO UPDATED 1 MIN AGO ... and more »
 
 
 Full story on F3News: [Victorian MP Eideh says he's been 'discriminated against' after being rejected from US - SBS](http://www.f3nws.com/n/nuPGHH)
