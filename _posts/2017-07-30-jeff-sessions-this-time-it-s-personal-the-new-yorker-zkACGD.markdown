@@ -5,7 +5,7 @@ date: 2017-07-30 09:00:11Z
 categories: google-news-top-stories
 ---
 
-The New Yorker Jeff Sessions: This Time, It's Personal The New Yorker Trump's willful misunderstanding of the obligations of an Attorney General reflects a larger flaw in his Presidency and in his character. By Jeffrey Toobin. Illustration by Tom Bachtell. The Attorney General of the United States supervises all federal ... Donald Trump is becoming trapped New York Post John Kelly's Move To The White House Could Start A Domino Effect BuzzFeed News Trump turning friends into enemies, and that's a bad plan for him San Francisco Chronicle New York Times - Townhall - ABC News - Washington Post all 4,851 news articles »
+The New Yorker Jeff Sessions: This Time, It's Personal The New Yorker Trump's willful misunderstanding of the obligations of an Attorney General reflects a larger flaw in his Presidency and in his character. By Jeffrey Toobin. Illustration by Tom Bachtell. The Attorney General of the United States supervises all federal ... Donald Trump is becoming trapped New York Post John Kelly's Move To The White House Could Start A Domino Effect BuzzFeed News Trump turning friends into enemies, and that's a bad plan for him San Francisco Chronicle Townhall - New York Times - ABC News - Washington Post all 4,835 news articles »
 
 
 Full story on F3News: [Jeff Sessions: This Time, It's Personal - The New Yorker](http://www.f3nws.com/n/zkACGD)
