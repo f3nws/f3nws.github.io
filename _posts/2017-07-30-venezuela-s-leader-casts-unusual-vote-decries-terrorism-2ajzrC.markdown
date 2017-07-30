@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's leader casts unusual vote, decries 'terrorism'"
-date: 2017-07-30 08:32:00Z
+date: 2017-07-30 12:05:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Venezuelan President Nicolas Maduro asked for global
 
 Full story on F3News: [Venezuela's leader casts unusual vote, decries 'terrorism'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, July 30, 2017 8:32:00 AM
+> Posted on: Sunday, July 30, 2017 12:05:00 PM
