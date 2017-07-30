@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![22000 Evacuated From Tomorrowland Festival After Stage Catches Fire - NPR](https://media.npr.org/include/images/facebook-default-wide.jpg?s=1400)
 
-The Independent 22000 Evacuated From Tomorrowland Festival After Stage Catches Fire NPR After flames engulfed the main stage, Tomorrowland UNITE organizers say all 22,000 attendees were safely evacuated on Saturday night. No injuries from the fire have been reported so far. Video footage shows sparks spewing out of the stagecraft, growing ... Tomorrowland Unite Fire: 22000 Attendees Evacuated at Barcelona Festival Billboard Spain music festival hit by huge blaze on stage BBC News Thousands Of Festival Goers Were Evacuated From Tomorrowland After The Stage Catches Fire UPROXX Pitchfork - Telegraph.co.uk - STV News - Pueblo Chieftain all 74 news articles »
+The Indian Express 22000 Evacuated From Tomorrowland Festival After Stage Catches Fire NPR After flames engulfed the main stage, Tomorrowland UNITE organizers say all 22,000 attendees were safely evacuated on Saturday night. No injuries from the fire have been reported so far. Video footage shows sparks spewing out of the stagecraft, growing ... Tomorrowland Unite Fire: 22000 Attendees Evacuated at Barcelona Festival Billboard Spain music festival hit by huge blaze on stage BBC News Thousands Of Festival Goers Were Evacuated From Tomorrowland After The Stage Catches Fire UPROXX Pitchfork - Telegraph.co.uk - STV News - Hindustan Times all 75 news articles »
 
 
 Full story on F3News: [22000 Evacuated From Tomorrowland Festival After Stage Catches Fire - NPR](http://www.f3nws.com/n/VcnZTC)
