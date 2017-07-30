@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US successfully tests missile defense system"
-date: 2017-07-30 13:08:31Z
+date: 2017-07-30 18:19:33Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States said it conducted a successful missile defense test in the Pac
 
 Full story on F3News: [US successfully tests missile defense system](http://www.f3nws.com/n/vgWWfF)
 
-> Posted on: Sunday, July 30, 2017 1:08:31 PM
+> Posted on: Sunday, July 30, 2017 6:19:33 PM
