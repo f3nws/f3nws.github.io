@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Refsnyder hits ground running in Blue Jays debut"
-date: 2017-07-30 01:35:59Z
+date: 2017-07-30 01:36:41Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ After long delay at the border, ex-Yankee Rob Refsnyder arrives from Buffalo Bis
 
 Full story on F3News: [Refsnyder hits ground running in Blue Jays debut](http://www.f3nws.com/n/FsdbWF)
 
-> Posted on: Sunday, July 30, 2017 1:35:59 AM
+> Posted on: Sunday, July 30, 2017 1:36:41 AM

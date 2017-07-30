@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nicole Kidman on doing more TV: 'I'm so up for anything'"
-date: 2017-07-30 01:04:40Z
+date: 2017-07-30 05:16:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Between her Emmy nomination and her upcoming role on the critically acclaimed "T
 
 Full story on F3News: [Nicole Kidman on doing more TV: 'I'm so up for anything'](http://www.f3nws.com/n/UbqCpC)
 
-> Posted on: Sunday, July 30, 2017 1:04:40 AM
+> Posted on: Sunday, July 30, 2017 5:16:55 AM

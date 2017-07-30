@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Xi Jinping inspects troops on military's 90th anniversary](http://timesofindia.indiatimes.com/photo/msid-59828807/59828807.jpg?80357)
 
-China's armed forces, the world's largest, are in the midst of an ambitious modernisation programme, which includes investment in technology and new equipment, such as stealth fighters and aircraft carriers, as well as cuts to troop numbers.
+It was the first time China has marked Army Day, which formally falls on Aug. 1, with a military parade since the Communist revolution in 1949, state news agency Xinhua said. It was also the first time Xi has reviewed troops in the field like this, Xinhua added.
 
 
 Full story on F3News: [Xi Jinping inspects troops on military's 90th anniversary](http://www.f3nws.com/n/K2Cxs)

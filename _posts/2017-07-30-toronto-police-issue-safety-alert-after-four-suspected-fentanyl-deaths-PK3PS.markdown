@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Toronto police issue safety alert after four suspected fentanyl deaths"
-date: 2017-07-30 01:36:53Z
+date: 2017-07-30 01:37:49Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Toronto police say there have been four deaths due to fentanyl and 20 incidents 
 
 Full story on F3News: [Toronto police issue safety alert after four suspected fentanyl deaths](http://www.f3nws.com/n/PK3PS)
 
-> Posted on: Sunday, July 30, 2017 1:36:53 AM
+> Posted on: Sunday, July 30, 2017 1:37:49 AM
