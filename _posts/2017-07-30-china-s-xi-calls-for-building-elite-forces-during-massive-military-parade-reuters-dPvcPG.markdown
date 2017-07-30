@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![China's Xi calls for building elite forces during massive military parade - Reuters](https://s2.reutersmedia.net/resources/r/?m=02&d=20170730&t=2&i=1195024832&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED6T04H)
 
-Reuters China's Xi calls for building elite forces during massive military parade Reuters Soldiers of China's People's Liberation Army (PLA) get ready for the military parade to commemorate the 90th anniversary of the foundation of the army at Zhurihe military training base in Inner Mongolia Autonomous Region, China, July 30, 2017. China ... Chinese president oversees military parade in show of might New York Daily News Xi Calls for Strong Army, Tells China Troops 'World Isn't Safe' Bloomberg Chinese Army Can Defeat 'All Invading Enemies', Says Chinese President Xi Jinping NDTV Financial Times - Daily Mail - South China Morning Post - Firstpost all 105 news articles »
+Reuters China's Xi calls for building elite forces during massive military parade Reuters Soldiers of China's People's Liberation Army (PLA) get ready for the military parade to commemorate the 90th anniversary of the foundation of the army at Zhurihe military training base in Inner Mongolia Autonomous Region, China, July 30, 2017. China ... Chinese president oversees military parade in show of might Washington Times Xi Calls for Strong Army, Tells China Troops 'World Isn't Safe' Bloomberg China shows off newest weapons in huge military parade KTVQ Billings News The Guardian - NDTV - Financial Times - Daily Mail all 114 news articles »
 
 
 Full story on F3News: [China's Xi calls for building elite forces during massive military parade - Reuters](http://www.f3nws.com/n/dPvcPG)
