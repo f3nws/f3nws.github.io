@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Phoenix infant dies in hot car _ second such death in city"
-date: 2017-07-30 00:34:57Z
+date: 2017-07-30 06:57:21Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Phoenix Fire Department says that an infant left for about two hours in a ho
 
 Full story on F3News: [Phoenix infant dies in hot car _ second such death in city](http://www.f3nws.com/n/ajKHg)
 
-> Posted on: Sunday, July 30, 2017 12:34:57 AM
+> Posted on: Sunday, July 30, 2017 6:57:21 AM

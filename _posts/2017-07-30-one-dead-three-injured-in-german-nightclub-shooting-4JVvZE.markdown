@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![One dead, three injured in German nightclub shooting](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-A gunman who opened fire in a German nightclub is shot in a gunfight with police after killing one person and seriously injuring three others in the southern city of Konstanz.
+A gunman who opened fire in a German nightclub is fatally shot in a gunfight with police after killing one person and seriously injuring three others in the southern city of Konstanz.
 
 
 Full story on F3News: [One dead, three injured in German nightclub shooting](http://www.f3nws.com/n/4JVvZE)
