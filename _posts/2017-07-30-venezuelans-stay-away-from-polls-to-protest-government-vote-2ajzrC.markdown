@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuelans stay away from polls to protest government vote"
-date: 2017-07-30 17:43:00Z
+date: 2017-07-30 18:52:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Venezuelans stayed away from the polls in massive nu
 
 Full story on F3News: [Venezuelans stay away from polls to protest government vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, July 30, 2017 5:43:00 PM
+> Posted on: Sunday, July 30, 2017 6:52:00 PM
