@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police disrupt plot in Australia to 'bring down an airplane' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/30/Production/WashingtonPost/Images/824346260.jpg?t=20170517)
 
-Washington Post Police disrupt plot in Australia to 'bring down an airplane' Washington Post CANBERRA, Australia — Australian police disrupted a plot to bring down an airplane and arrested four men in raids on homes in several Sydney suburbs, the prime minister said Sunday. Prime Minister Malcolm Turnbull said that security has been increased ... Australia thwarts 'Islamic-inspired' plane attack plot Reuters 4 arrested in Australia for plot to 'bring down an airplane' USA TODAY Australian authorities arrest 4 in alleged airplane terrorist plot wreg.com The Hill - The Guardian - The Sydney Morning Herald - AOL all 428 news articles »
+Washington Post Police disrupt plot in Australia to 'bring down an airplane' Washington Post CANBERRA, Australia — Australian police disrupted a plot to bring down an airplane and arrested four men in raids on homes in several Sydney suburbs, the prime minister said Sunday. Prime Minister Malcolm Turnbull said that security has been increased ... Australia thwarts 'Islamic-inspired' plane attack plot Reuters 4 arrested in Australia for plot to 'bring down an airplane' USA TODAY Australian authorities arrest 4 in alleged airplane terrorist plot wreg.com The Hill - Albuquerque Journal - The Guardian - The Sydney Morning Herald all 432 news articles »
 
 
 Full story on F3News: [Police disrupt plot in Australia to 'bring down an airplane' - Washington Post](http://www.f3nws.com/n/YyfcuG)
