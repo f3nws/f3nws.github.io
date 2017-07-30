@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![China Shows Off Military Might, and Xi Jinping Puts Rivals on Notice - New York Times](https://static01.nyt.com/images/2017/07/31/world/asia/china-img2/china-img2-facebookJumbo.jpg)
 
-New York Times China Shows Off Military Might, and Xi Jinping Puts Rivals on Notice New York Times Soldiers from the People's Liberation Army of China preparing for a military parade on Sunday to commemorate the 90th anniversary of the foundation of the army. Credit China Daily/Reuters. BEIJING — China's president, Xi Jinping, has opened a public ... Chinese president oversees military parade in show of might ArmyTimes.com China shows off newest weapons in huge military parade STLtoday.com President Xi Jinping flexes China's military muscles The Australian Moneycontrol.com - The Hindu - Reuters - South China Morning Post all 370 news articles »
+New York Times China Shows Off Military Might, and Xi Jinping Puts Rivals on Notice New York Times Soldiers from the People's Liberation Army of China preparing for a military parade on Sunday to commemorate the 90th anniversary of the foundation of the army. Credit China Daily/Reuters. BEIJING — China's president, Xi Jinping, has opened a public ... Chinese president oversees military parade in show of might ArmyTimes.com China shows off newest weapons in huge military parade STLtoday.com Amid Doklam crisis, Xi inspects novel military parade The Hindu The Australian - Daily Star - Moneycontrol.com - Sky News all 365 news articles »
 
 
 Full story on F3News: [China Shows Off Military Might, and Xi Jinping Puts Rivals on Notice - New York Times](http://www.f3nws.com/n/gPVhVG)

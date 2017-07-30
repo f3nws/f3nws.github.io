@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Festival evacuated after stage catches fire"
-date: 2017-07-30 08:57:43Z
+date: 2017-07-30 15:49:33Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ More than 22,000 fans were evacuated after a fire erupted on stage at the Tomorr
 
 Full story on F3News: [Festival evacuated after stage catches fire](http://www.f3nws.com/n/E4APnG)
 
-> Posted on: Sunday, July 30, 2017 8:57:43 AM
+> Posted on: Sunday, July 30, 2017 3:49:33 PM
