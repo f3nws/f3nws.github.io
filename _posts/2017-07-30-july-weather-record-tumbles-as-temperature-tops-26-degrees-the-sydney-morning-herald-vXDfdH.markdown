@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "July weather record tumbles as temperature tops 26 degrees - The Sydney Morning Herald"
-date: 2017-07-30 05:31:35Z
+date: 2017-07-30 05:36:29Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald July weather record tumbles as temperature tops 26 deg
 
 Full story on F3News: [July weather record tumbles as temperature tops 26 degrees - The Sydney Morning Herald](http://www.f3nws.com/n/vXDfdH)
 
-> Posted on: Sunday, July 30, 2017 5:31:35 AM
+> Posted on: Sunday, July 30, 2017 5:36:29 AM
