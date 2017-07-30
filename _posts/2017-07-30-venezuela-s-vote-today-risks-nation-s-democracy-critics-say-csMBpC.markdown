@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's vote today risks nation's democracy, critics say"
-date: 2017-07-30 09:14:55Z
+date: 2017-07-30 10:14:56Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ With the outcome not in question, a major vote in Venezuela on Sunday could mark
 
 Full story on F3News: [Venezuela's vote today risks nation's democracy, critics say](http://www.f3nws.com/n/csMBpC)
 
-> Posted on: Sunday, July 30, 2017 9:14:55 AM
+> Posted on: Sunday, July 30, 2017 10:14:56 AM

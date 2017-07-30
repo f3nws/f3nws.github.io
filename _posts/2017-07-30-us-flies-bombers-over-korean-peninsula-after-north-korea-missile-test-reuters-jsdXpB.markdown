@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "US flies bombers over Korean peninsula after North Korea missile test - Reuters"
-date: 2017-07-30 04:41:15Z
+date: 2017-07-30 10:01:38Z
 categories: google-news-top-stories
 ---
 
-![US flies bombers over Korean peninsula after North Korea missile test - Reuters](https://s2.reutersmedia.net/resources/r/?m=02&d=20170730&t=2&i=1195024521&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED6T04E)
+![US flies bombers over Korean peninsula after North Korea missile test - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20170730&t=2&i=1195036132&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED6T07R)
 
-Reuters US flies bombers over Korean peninsula after North Korea missile test Reuters One of two U.S. Air Force B-1B Lancer bombers flies a 10-hour mission from Andersen Air Force Base, Guam, into Japanese airspace and over the Korean Peninsula, July 30, 2017. U.S. Air Force photo/Airman 1st Class Jacob Skovo/Handout via REUTERS. In North Korea, a generation gap grows behind the propaganda Washington Post US Bombers Fly Over South Korea After North Korean ICBM Test NBCNews.com US flies two B-1 bombers over South Korea after North Korea missile launch The Hill Fox News - BBC News - CBS News - New York Daily News all 2,174 news articles »
+Reuters US flies bombers over Korean peninsula after North Korea missile test Reuters SEOUL (Reuters) - The United States flew two supersonic B-1B bombers over the Korean peninsula in a show of force on Sunday after Pyongyang's recent tests of intercontinental ballistic missiles (ICBM), the U.S. and South Korean Air Forces said. US Bombers Fly Over South Korea After North Korean ICBM Test NBCNews.com US flies two B-1 bombers over South Korea after North Korea missile launch The Hill US, allies prepared to use 'overwhelming force' in North Korea, general says Fox News BBC News - CBS News - Washington Post - New York Daily News all 2,602 news articles »
 
 
 Full story on F3News: [US flies bombers over Korean peninsula after North Korea missile test - Reuters](http://www.f3nws.com/n/jsdXpB)
 
-> Posted on: Sunday, July 30, 2017 4:41:15 AM
+> Posted on: Sunday, July 30, 2017 10:01:38 AM
