@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘US block Russian arms supplies to Lebanon, while not helping to fight terrorism enough’ – former MP"
-date: 2017-07-30 03:00:11Z
+date: 2017-07-30 03:00:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Washington is reluctant to provide the Lebanese army with much needed support to
 
 Full story on F3News: [‘US block Russian arms supplies to Lebanon, while not helping to fight terrorism enough’ – former MP](http://www.f3nws.com/n/BbMdT)
 
-> Posted on: Sunday, July 30, 2017 3:00:11 AM
+> Posted on: Sunday, July 30, 2017 3:00:00 AM
