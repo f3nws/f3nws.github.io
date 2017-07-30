@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australia arrests 4 in alleged airliner terror plot"
-date: 2017-07-30 05:32:06Z
+date: 2017-07-30 08:33:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Authorities in Australia foiled a terrorist plot to bring down an airplane and a
 
 Full story on F3News: [Australia arrests 4 in alleged airliner terror plot](http://www.f3nws.com/n/camgSB)
 
-> Posted on: Sunday, July 30, 2017 5:32:06 AM
+> Posted on: Sunday, July 30, 2017 8:33:59 AM
