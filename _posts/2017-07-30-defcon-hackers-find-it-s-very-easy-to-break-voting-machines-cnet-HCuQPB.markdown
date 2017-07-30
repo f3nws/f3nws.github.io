@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Defcon hackers find it’s very easy to break voting machines     - CNET"
-date: 2017-07-30 12:00:08Z
+date: 2017-07-30 15:36:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Voting is at the foundation of every democracy. Hackers find it's on shaky groun
 
 Full story on F3News: [Defcon hackers find it’s very easy to break voting machines     - CNET](http://www.f3nws.com/n/HCuQPB)
 
-> Posted on: Sunday, July 30, 2017 12:00:08 PM
+> Posted on: Sunday, July 30, 2017 3:36:23 PM
