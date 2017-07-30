@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['I felt like his pimp': Driver's new allegations against Paul Pisasale under investigation - Brisbane Times](http://www.brisbanetimes.com.au/content/dam/images/g/x/l/l/m/5/image.related.articleLeadwide.620x349.gxllr3.png/1501398697193.jpg)
 
-Brisbane Times 'I felt like his pimp': Driver's new allegations against Paul Pisasale under investigation Brisbane Times The Crime and Corruption Commission is investigating claims former Ipswich mayor Paul Pisasale used his mayoral car for chauffeur-driven trips to brothels and frequent visits to backstreet massage parlours. In a widening investigation, the CCC has ... and more »
+Brisbane Times 'I felt like his pimp': Driver's new allegations against Paul Pisasale under investigation Brisbane Times The Crime and Corruption Commission is investigating claims former Ipswich mayor Paul Pisasale used his mayoral car for chauffeur-driven trips to brothels and frequent visits to backstreet massage parlours. In a widening investigation, the CCC has ... Paul Pisasale ex-driver claims former mayor visited brothels with developers Courier Mail all 2 news articles »
 
 
 Full story on F3News: ['I felt like his pimp': Driver's new allegations against Paul Pisasale under investigation - Brisbane Times](http://www.f3nws.com/n/HeRMfC)
