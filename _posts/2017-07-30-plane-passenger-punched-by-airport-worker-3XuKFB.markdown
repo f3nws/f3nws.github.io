@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plane passenger punched by airport worker"
-date: 2017-07-30 16:00:00Z
+date: 2017-07-30 19:45:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Europe's budget airline EasyJet flew into a storm Sunday after it emerged a memb
 
 Full story on F3News: [Plane passenger punched by airport worker](http://www.f3nws.com/n/3XuKFB)
 
-> Posted on: Sunday, July 30, 2017 4:00:00 PM
+> Posted on: Sunday, July 30, 2017 7:45:06 PM
