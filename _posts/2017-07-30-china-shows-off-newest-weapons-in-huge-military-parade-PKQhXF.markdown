@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China shows off newest weapons in huge military parade"
-date: 2017-07-30 06:54:43Z
+date: 2017-07-30 08:04:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chinese leader Xi Jinping presided over a major military parade Sunday, hours af
 
 Full story on F3News: [China shows off newest weapons in huge military parade](http://www.f3nws.com/n/PKQhXF)
 
-> Posted on: Sunday, July 30, 2017 6:54:43 AM
+> Posted on: Sunday, July 30, 2017 8:04:21 AM
