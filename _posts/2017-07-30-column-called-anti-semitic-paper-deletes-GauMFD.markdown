@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Column called anti-Semitic; paper deletes"
-date: 2017-07-30 14:03:58Z
+date: 2017-07-30 18:35:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The editors of London's Sunday Times and the newspaper's Irish edition have apol
 
 Full story on F3News: [Column called anti-Semitic; paper deletes](http://www.f3nws.com/n/GauMFD)
 
-> Posted on: Sunday, July 30, 2017 2:03:58 PM
+> Posted on: Sunday, July 30, 2017 6:35:11 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US bombers fly over South Korea after North's 2nd ICBM test"
-date: 2017-07-30 07:08:00Z
+date: 2017-07-30 14:36:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — The United States flew two supersonic bombers over t
 
 Full story on F3News: [US bombers fly over South Korea after North's 2nd ICBM test](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, July 30, 2017 7:08:00 AM
+> Posted on: Sunday, July 30, 2017 2:36:00 PM
