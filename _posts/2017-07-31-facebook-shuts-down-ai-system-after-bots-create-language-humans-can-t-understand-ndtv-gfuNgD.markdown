@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Facebook Shuts Down AI System After Bots Create Language Humans Can't Understand - NDTV](https://i.gadgets360cdn.com/large/ai_brain_1501050407301.jpg?output-quality=80)
 
-NDTV Facebook Shuts Down AI System After Bots Create Language Humans Can't Understand NDTV Days after Tesla CEO Elon Musk said Facebook co-founder Mark Zuckerberg's understanding of artificial intelligence (AI) was limited, the social media company has reportedly shut down one of its AI systems because "things got out of hand." The AI bots ... Facebook Shut Down AI After It Invented Its Own Language The Epoch Times Facebook shuts down AI system after it invents own language TechSpot Facebook Shuts Down Artificial Intelligence That Created Own Language No Human Understands Christian Post Moneycontrol.com - Digit - Scroll.in - domain-B all 50 news articles »
+NDTV Facebook Shuts Down AI System After Bots Create Language Humans Can't Understand NDTV Days after Tesla CEO Elon Musk said Facebook co-founder Mark Zuckerberg's understanding of artificial intelligence (AI) was limited, the social media company has reportedly shut down one of its AI systems because "things got out of hand." The AI bots ... Facebook Discontinues AI Bots That Developed A New Language Android Headlines Facebook Shut Down AI After It Invented Its Own Language The Epoch Times Facebook shuts down AI system after it invents own language TechSpot Christian Post - Moneycontrol.com - Deccan Chronicle - Digit all 52 news articles »
 
 
 Full story on F3News: [Facebook Shuts Down AI System After Bots Create Language Humans Can't Understand - NDTV](http://www.f3nws.com/n/gfuNgD)

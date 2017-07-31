@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia bans VPNs used to see censored sites"
-date: 2017-07-31 11:47:15Z
+date: 2017-07-31 14:44:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Russia bans VPNs used to see censored sites](http://www.f3nws.com/n/tPWTdG)
 
-> Posted on: Monday, July 31, 2017 11:47:15 AM
+> Posted on: Monday, July 31, 2017 2:44:26 PM
