@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sam Shepard, Pulitzer-winning playwright and actor, dead at 73"
-date: 2017-07-31 16:18:18Z
+date: 2017-07-31 16:47:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sam Shepard, the Pulitzer Prize-winning playwright and Oscar-nominated actor, di
 
 Full story on F3News: [Sam Shepard, Pulitzer-winning playwright and actor, dead at 73](http://www.f3nws.com/n/mPkvGC)
 
-> Posted on: Monday, July 31, 2017 4:18:18 PM
+> Posted on: Monday, July 31, 2017 4:47:03 PM
