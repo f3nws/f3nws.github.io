@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Scaramucci removed as White House communications director](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-White House Communications Director Anthony Scaramucci has been removed.
+President Trump’s headline-grabbing communications director Anthony Scaramucci has been shown the door, after just 11 days on the job.
 
 
 Full story on F3News: [Scaramucci removed as White House communications director](http://www.f3nws.com/n/YAWgRG)
