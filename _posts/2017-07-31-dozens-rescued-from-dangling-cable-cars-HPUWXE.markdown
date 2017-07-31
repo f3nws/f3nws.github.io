@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dozens rescued from dangling cable cars"
-date: 2017-07-31 10:09:47Z
+date: 2017-07-31 13:16:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dozens of people were left dangling high above the Rhine River when the wheels o
 
 Full story on F3News: [Dozens rescued from dangling cable cars](http://www.f3nws.com/n/HPUWXE)
 
-> Posted on: Monday, July 31, 2017 10:09:47 AM
+> Posted on: Monday, July 31, 2017 1:16:30 PM
