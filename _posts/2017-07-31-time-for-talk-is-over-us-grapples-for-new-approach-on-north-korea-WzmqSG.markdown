@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Time for talk is over': US grapples for new approach on North Korea"
-date: 2017-07-31 11:27:45Z
+date: 2017-07-31 12:18:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's test of a long-range missile that could hit major US cities drew c
 
 Full story on F3News: ['Time for talk is over': US grapples for new approach on North Korea](http://www.f3nws.com/n/WzmqSG)
 
-> Posted on: Monday, July 31, 2017 11:27:45 AM
+> Posted on: Monday, July 31, 2017 12:18:28 PM
