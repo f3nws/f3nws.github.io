@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Sheriff Joe Arpaio found guilty of criminal contempt"
-date: 2017-07-31 18:20:00Z
+date: 2017-07-31 21:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Former Maricopa County Sheriff Joe Arpaio was found guilty on Monday of criminal
 
 Full story on F3News: [Ex-Sheriff Joe Arpaio found guilty of criminal contempt](http://www.f3nws.com/n/3d3XCG)
 
-> Posted on: Monday, July 31, 2017 6:20:00 PM
+> Posted on: Monday, July 31, 2017 9:30:00 PM
