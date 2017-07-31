@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci removed as White House communications director"
-date: 2017-07-31 18:39:00Z
+date: 2017-07-31 19:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump’s headline-grabbing communications director Anthony Scaramucci
 
 Full story on F3News: [Scaramucci removed as White House communications director](http://www.f3nws.com/n/YAWgRG)
 
-> Posted on: Monday, July 31, 2017 6:39:00 PM
+> Posted on: Monday, July 31, 2017 7:45:00 PM
