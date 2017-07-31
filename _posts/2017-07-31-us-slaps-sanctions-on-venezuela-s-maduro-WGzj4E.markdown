@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US slaps sanctions on Venezuela's Maduro"
-date: 2017-07-31 21:36:15Z
+date: 2017-07-31 22:04:06Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [US slaps sanctions on Venezuela's Maduro](http://www.f3nws.com/n/WGzj4E)
 
-> Posted on: Monday, July 31, 2017 9:36:15 PM
+> Posted on: Monday, July 31, 2017 10:04:06 PM
