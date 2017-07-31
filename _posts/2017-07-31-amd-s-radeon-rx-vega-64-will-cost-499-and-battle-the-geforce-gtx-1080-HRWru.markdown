@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AMD's Radeon RX Vega 64 will cost $499 and battle the GeForce GTX 1080"
-date: 2017-07-31 02:30:00Z
+date: 2017-07-31 13:25:00Z
 categories: pcworld
 ---
 
@@ -12,4 +12,4 @@ After months of anticipation, AMD on Sunday finally unveiled its Vega gaming GPU
 
 Full story on F3News: [AMD's Radeon RX Vega 64 will cost $499 and battle the GeForce GTX 1080](http://www.f3nws.com/n/HRWru)
 
-> Posted on: Monday, July 31, 2017 2:30:00 AM
+> Posted on: Monday, July 31, 2017 1:25:00 PM

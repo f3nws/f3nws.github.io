@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin retaliates over looming US sanctions"
-date: 2017-07-31 12:21:17Z
+date: 2017-07-31 13:46:26Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin confirmed Sunday the staff at US diplomatic mis
 
 Full story on F3News: [Putin retaliates over looming US sanctions](http://www.f3nws.com/n/ccuzrB)
 
-> Posted on: Monday, July 31, 2017 12:21:17 PM
+> Posted on: Monday, July 31, 2017 1:46:26 PM
