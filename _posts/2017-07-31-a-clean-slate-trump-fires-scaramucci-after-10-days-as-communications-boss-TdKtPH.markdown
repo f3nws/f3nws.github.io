@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['A clean slate': Trump fires Scaramucci after 10 days as communications boss](http://www.abc.net.au/news/image/8734150-1x1-700x700.jpg)
 
-Just hours after swearing in a new chief of staff, US President Donald Trump removes Anthony Scaramucci from his job as communications director — which he only took on 10 days ago.
+Donald Trump's controversial communications boss Anthony Scaramucci is fired after just 10 days in the job. 'The Mooch' got his marching orders after retired Marine general John Kelly took over as White House chief of staff.
 
 
 Full story on F3News: ['A clean slate': Trump fires Scaramucci after 10 days as communications boss](http://www.f3nws.com/n/TdKtPH)
