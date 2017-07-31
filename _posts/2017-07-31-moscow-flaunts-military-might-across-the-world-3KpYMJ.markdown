@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moscow flaunts military might across the world"
-date: 2017-07-31 06:54:57Z
+date: 2017-07-31 07:28:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia's full naval might was on display Sunday as the country celebrated its an
 
 Full story on F3News: [Moscow flaunts military might across the world](http://www.f3nws.com/n/3KpYMJ)
 
-> Posted on: Monday, July 31, 2017 6:54:57 AM
+> Posted on: Monday, July 31, 2017 7:28:42 AM
