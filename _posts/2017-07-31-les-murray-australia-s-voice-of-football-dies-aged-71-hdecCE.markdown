@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Les Murray, Australia's voice of football, dies aged 71](http://www.abc.net.au/news/image/8759826-1x1-700x700.jpg)
 
-Les Murray, Australian football commentator and pioneer of the game in this country, dies aged 71.
+The Australian football icon and SBS commentator is remembered as "a much-loved colleague, mentor and friend who has left a unique legacy" after his death following a "long period of illness".
 
 
 Full story on F3News: [Les Murray, Australia's voice of football, dies aged 71](http://www.f3nws.com/n/hdecCE)

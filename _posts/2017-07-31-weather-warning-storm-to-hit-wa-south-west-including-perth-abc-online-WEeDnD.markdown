@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Weather warning: Storm to hit WA south west including Perth - ABC Online](http://www.abc.net.au/news/image/8759230-1x1-700x700.jpg)
 
-ABC Online Weather warning: Storm to hit WA south west including Perth ABC Online Residents in Perth and the South West are being warned to brace for wild weather, including damaging winds and possible hail, with a cold front expected to cross the coast late on Monday morning. The Bureau of Meteorology (BOM) said the coast would be ... Perth weather: Wild weather to hit Perth, South West this morning Perth Now Mandurah: DFES warns of severe weather Mandurah Mail all 4 news articles »
+ABC Online Weather warning: Storm to hit WA south west including Perth ABC Online Residents in Perth and the South West are being warned to brace for wild weather, including damaging winds and possible hail, with a cold front expected to cross the coast late on Monday morning. The Bureau of Meteorology (BOM) said the coast would be ... Perth weather: Wild weather to hit Perth, South West this morning Perth Now Mandurah: DFES warns of severe weather Mandurah Mail Severe Weather Warning Issued For Perth Over Damaging Winds Hit 107 all 4 news articles »
 
 
 Full story on F3News: [Weather warning: Storm to hit WA south west including Perth - ABC Online](http://www.f3nws.com/n/WEeDnD)
