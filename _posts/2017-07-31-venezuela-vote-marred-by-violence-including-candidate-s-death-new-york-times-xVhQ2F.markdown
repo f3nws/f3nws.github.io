@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Venezuela Vote Marred by Violence, Including Candidate's Death - New York Times](https://static01.nyt.com/images/2017/07/31/world/31VENEZUELA1/31VENEZUELA1-facebookJumbo.jpg)
 
-New York Times Venezuela Vote Marred by Violence, Including Candidate's Death New York Times Street art made from local currency in Caracas, Venezuela. It translates to “Constituent Fraud,” referring to the election for a constituent assembly. Credit Meridith Kohut for The New York Times. BOGOTÁ, Colombia — The legitimacy of Sunday's election ... The Latest: Venezuela electoral body says 8 million voted Washington Post Venezuela: Maduro claims huge voter turnout CNN Venezuela: more than 8 million grant government more power ABC News USA TODAY - TIME - CBS News - Miami Herald all 617 news articles »
+New York Times Venezuela Vote Marred by Violence, Including Candidate's Death New York Times Street art made from local currency in Caracas, Venezuela. It translates to “Constituent Fraud,” referring to the election for a constituent assembly. Credit Meridith Kohut for The New York Times. BOGOTÁ, Colombia — The legitimacy of Sunday's election ... Venezuela: Maduro claims huge voter turnout CNN Venezuela: more than 8 million grant government more power ABC News Venezuela claims 41.5% turnout in violent constituent assembly vote BBC News USA TODAY - TIME - CBS News - NPR all 616 news articles »
 
 
 Full story on F3News: [Venezuela Vote Marred by Violence, Including Candidate's Death - New York Times](http://www.f3nws.com/n/xVhQ2F)
