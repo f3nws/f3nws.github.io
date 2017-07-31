@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela: Maduro claims huge voter turnout"
-date: 2017-07-31 16:55:04Z
+date: 2017-07-31 17:41:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The President of Venezuela, Nicolás Maduro, has claimed a huge turnout in a con
 
 Full story on F3News: [Venezuela: Maduro claims huge voter turnout](http://www.f3nws.com/n/CgpsEC)
 
-> Posted on: Monday, July 31, 2017 4:55:04 PM
+> Posted on: Monday, July 31, 2017 5:41:11 PM
