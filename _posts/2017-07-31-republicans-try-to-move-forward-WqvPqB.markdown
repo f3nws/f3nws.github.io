@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans try to move forward"
-date: 2017-07-31 05:04:17Z
+date: 2017-07-31 09:24:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a chaotic week for President Donald Trump and his party, Republicans are f
 
 Full story on F3News: [Republicans try to move forward](http://www.f3nws.com/n/WqvPqB)
 
-> Posted on: Monday, July 31, 2017 5:04:17 AM
+> Posted on: Monday, July 31, 2017 9:24:49 AM
