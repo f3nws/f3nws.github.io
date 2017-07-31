@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Time for talk is over': US seeks new approach on N. Korea"
-date: 2017-07-31 13:47:14Z
+date: 2017-07-31 19:00:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Washington will not seek UN Security Council action following North Korea's late
 
 Full story on F3News: ['Time for talk is over': US seeks new approach on N. Korea](http://www.f3nws.com/n/WzmqSG)
 
-> Posted on: Monday, July 31, 2017 1:47:14 PM
+> Posted on: Monday, July 31, 2017 7:00:25 PM
