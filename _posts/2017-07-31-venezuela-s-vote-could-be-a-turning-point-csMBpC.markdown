@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's vote could be a turning point"
-date: 2017-07-31 02:20:16Z
+date: 2017-07-31 02:44:11Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ With the outcome not in question, a major vote in Venezuela on Sunday could mark
 
 Full story on F3News: [Venezuela's vote could be a turning point](http://www.f3nws.com/n/csMBpC)
 
-> Posted on: Monday, July 31, 2017 2:20:16 AM
+> Posted on: Monday, July 31, 2017 2:44:11 AM
