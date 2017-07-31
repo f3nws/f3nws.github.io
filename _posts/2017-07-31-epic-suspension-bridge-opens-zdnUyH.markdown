@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Epic suspension bridge opens"
-date: 2017-07-31 10:46:22Z
+date: 2017-07-31 15:36:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spanning an awesome 1621 feet and rising as high as 279 feet, the newly opened C
 
 Full story on F3News: [Epic suspension bridge opens](http://www.f3nws.com/n/zdnUyH)
 
-> Posted on: Monday, July 31, 2017 10:46:22 AM
+> Posted on: Monday, July 31, 2017 3:36:13 PM
