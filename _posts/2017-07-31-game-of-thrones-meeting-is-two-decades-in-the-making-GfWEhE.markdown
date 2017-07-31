@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Game of Thrones' meeting is two decades in the making"
-date: 2017-07-31 12:29:25Z
+date: 2017-07-31 17:01:02Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Warning: Spoiler alert for Sunday's episode of "Game of Thrones"
 
 Full story on F3News: ['Game of Thrones' meeting is two decades in the making](http://www.f3nws.com/n/GfWEhE)
 
-> Posted on: Monday, July 31, 2017 12:29:25 PM
+> Posted on: Monday, July 31, 2017 5:01:02 PM
