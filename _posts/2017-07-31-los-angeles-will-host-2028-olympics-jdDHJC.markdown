@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Los Angeles will host 2028 Olympics"
-date: 2017-07-31 18:56:09Z
+date: 2017-07-31 20:43:16Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ http://money.cnn.com/2017/07/31/news/los-angeles-olympics-2028/index.html
 
 Full story on F3News: [Los Angeles will host 2028 Olympics](http://www.f3nws.com/n/jdDHJC)
 
-> Posted on: Monday, July 31, 2017 6:56:09 PM
+> Posted on: Monday, July 31, 2017 8:43:16 PM
