@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Earth to warm 2 degrees by the end of this century"
-date: 2017-07-31 15:57:05Z
+date: 2017-07-31 16:15:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ By the end of the century, the global temperature is likely to rise more than 2 
 
 Full story on F3News: [Earth to warm 2 degrees by the end of this century](http://www.f3nws.com/n/TjuTCE)
 
-> Posted on: Monday, July 31, 2017 3:57:05 PM
+> Posted on: Monday, July 31, 2017 4:15:04 PM

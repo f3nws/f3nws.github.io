@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'13 Reasons Why' tied to rise in online suicide searches"
-date: 2017-07-31 15:03:02Z
+date: 2017-07-31 15:55:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Google searches about suicide climbed 19% in the days following the release of N
 
 Full story on F3News: ['13 Reasons Why' tied to rise in online suicide searches](http://www.f3nws.com/n/VkUJQE)
 
-> Posted on: Monday, July 31, 2017 3:03:02 PM
+> Posted on: Monday, July 31, 2017 3:55:48 PM
