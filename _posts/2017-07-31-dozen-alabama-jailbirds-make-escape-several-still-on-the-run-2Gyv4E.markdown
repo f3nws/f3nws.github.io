@@ -5,7 +5,7 @@ date: 2017-07-31 04:15:00Z
 categories: fox-news
 ---
 
-A dozen inmates escaped from a jail in Alabama on Sunday evening sparking a massive manhunt.
+A dozen inmates made a brazen escape from an Alabama jail on Sunday, sparking a massive manhunt and the recapturing of at least eight of them.
 
 
 Full story on F3News: [Dozen Alabama jailbirds make escape, several still on the run](http://www.f3nws.com/n/2Gyv4E)
