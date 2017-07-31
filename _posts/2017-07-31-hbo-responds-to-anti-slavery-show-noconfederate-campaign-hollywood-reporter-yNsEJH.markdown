@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![HBO Responds to Anti-Slavery Show #NoConfederate Campaign - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/07/d.b._weiss_and_david_benioff_photo_taken_by_art_streiber_-_august_-_h_2017_0.jpg)
 
-Hollywood Reporter HBO Responds to Anti-Slavery Show #NoConfederate Campaign Hollywood Reporter A grassroots campaign against the upcoming slave drama hit No. 2 on Twitter's worldwide trending topics Sunday during 'Game of Thrones.' Following a massive social media campaign urging HBO to abandon its upcoming slave drama Confederate, the ... HBO responds to Confederate Twitter protest EW.com (blog) New Controversial Series Draws #NoConfederate Tweets During 'Game Of Thrones', HBO Responds Deadline #NoConfederate campaign against HBO slave drama takes off ABC News CBS 8 San Diego - Vulture - Variety - Sacramento Bee all 93 news articles »
+Hollywood Reporter HBO Responds to Anti-Slavery Show #NoConfederate Campaign Hollywood Reporter A grassroots campaign against the upcoming slave drama hit No. 2 on Twitter's worldwide trending topics Sunday during 'Game of Thrones.' Following a massive social media campaign urging HBO to abandon its upcoming slave drama Confederate, the ... New Controversial Series Draws #NoConfederate Tweets During 'Game Of Thrones', HBO Responds Deadline HBO responds to Confederate Twitter protest EW.com (blog) 'Game of Thrones' greeted by tweet storm over HBO's 'Confederate,' a slavery fantasy Washington Post Variety - ABC News - New York Daily News - CBS 8 San Diego all 98 news articles »
 
 
 Full story on F3News: [HBO Responds to Anti-Slavery Show #NoConfederate Campaign - Hollywood Reporter](http://www.f3nws.com/n/yNsEJH)
