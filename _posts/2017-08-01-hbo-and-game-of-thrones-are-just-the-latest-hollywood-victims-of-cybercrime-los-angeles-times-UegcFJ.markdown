@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![HBO and 'Game of Thrones' are just the latest Hollywood victims of cybercrime - Los Angeles Times](http://www.trbimg.com/img-597f744a/turbine/la-fi-ct-hbo-game-of-thrones-hack-20170731)
 
-Los Angeles Times HBO and 'Game of Thrones' are just the latest Hollywood victims of cybercrime Los Angeles Times The cyberattack against HBO and its biggest series “Game of Thrones” is the latest reminder that Hollywood remains a vulnerable target for online pillagers. For cybercriminals seeking attention, there are few greater prizes than the hottest show on ... HBO is hacked, and Game of Thrones episodes may have leaked out Washington Post HBO Says It Was Hacked, Some Programming Stolen NPR HBO Hacked, Thieves Claim to Have 'Game of Thrones' Info NBCNews.com The Verge - HuffPost - RollingStone.com - TIME all 472 news articles »
+Los Angeles Times HBO and 'Game of Thrones' are just the latest Hollywood victims of cybercrime Los Angeles Times The cyberattack against HBO and its biggest series “Game of Thrones” is the latest reminder that Hollywood remains a vulnerable target for online pillagers. For cybercriminals seeking attention, there are few greater prizes than the hottest show on ... HBO is hacked, and Game of Thrones episodes may have leaked out Washington Post HBO Hacked, Thieves Claim to Have 'Game of Thrones' Info NBCNews.com HBO Says It Was Hacked, Some Programming Stolen NPR The Verge - HuffPost - RollingStone.com - A.V. Club all 473 news articles »
 
 
 Full story on F3News: [HBO and 'Game of Thrones' are just the latest Hollywood victims of cybercrime - Los Angeles Times](http://www.f3nws.com/n/UegcFJ)

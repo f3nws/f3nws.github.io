@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kidnapped woman gets away after abductors can't operate stick shift"
-date: 2017-08-01 02:00:03Z
+date: 2017-08-01 03:30:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A 20-year-old college student in Columbia, South Carolina, was able to escape he
 
 Full story on F3News: [Kidnapped woman gets away after abductors can't operate stick shift](http://www.f3nws.com/n/AmkYjG)
 
-> Posted on: Tuesday, August 1, 2017 2:00:03 AM
+> Posted on: Tuesday, August 1, 2017 3:30:01 AM
