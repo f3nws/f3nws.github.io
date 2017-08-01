@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Samsung Galaxy S8 deals in August 2017"
-date: 2017-08-01 07:20:38Z
+date: 2017-08-01 09:30:38Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ See all the best deals on the Samsung Galaxy S8 this month - possibly the best A
 
 Full story on F3News: [The best Samsung Galaxy S8 deals in August 2017](http://www.f3nws.com/n/DYHKhH)
 
-> Posted on: Tuesday, August 1, 2017 7:20:38 AM
+> Posted on: Tuesday, August 1, 2017 9:30:38 AM
