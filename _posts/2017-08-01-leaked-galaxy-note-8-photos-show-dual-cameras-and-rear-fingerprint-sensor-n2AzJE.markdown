@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Leaked Galaxy Note 8 photos show dual cameras and rear fingerprint sensor](https://cdn.vox-cdn.com/thumbor/8U8KBXeOipLNz7QHMyI-_Fu6D8g=/0x275:4000x2525/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/55990545/galaxy_note_8_full_size_leak.0.png)
 
-The Verge Leaked Galaxy Note 8 photos show dual cameras and rear fingerprint sensor The Verge Leaked images purportedly showing the front, rear, and sides of the upcoming Galaxy Note 8. Image credit: Evan Blass / Twitter. As noted leaker Evan Blass tweeted this morning, when it rains, it pours. Not even 24 hours after Blass had published an ... New Galaxy Note 8 Image Leaks, S Pen Stylus Pictured As Well Android Headlines Here's an early look at the Samsung Galaxy Note 8 TechCrunch New leaked images seemingly confirm the design of Samsung's upcoming Galaxy Note 8 Business Insider Forbes - CNET - ValueWalk - Droid Life (press release) (blog) all 351 news articles »
+The Verge Leaked Galaxy Note 8 photos show dual cameras and rear fingerprint sensor The Verge Leaked images purportedly showing the front, rear, and sides of the upcoming Galaxy Note 8. Image credit: Evan Blass / Twitter. As noted leaker Evan Blass tweeted this morning, when it rains, it pours. Not even 24 hours after Blass had published an ... Here's an early look at the Samsung Galaxy Note 8 TechCrunch An All But Official Image Of The Galaxy Note 8 Has 'Leaked' Forbes New Galaxy Note 8 Image Leaks, S Pen Stylus Pictured As Well Android Headlines Business Insider - CNET - ValueWalk - Droid Life (press release) (blog) all 355 news articles »
 
 
 Full story on F3News: [Leaked Galaxy Note 8 photos show dual cameras and rear fingerprint sensor](http://www.f3nws.com/n/n2AzJE)

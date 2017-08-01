@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN's Fareed Zakaria: Trump won because of rebellion from 'the white working man'"
-date: 2017-08-01 10:00:02Z
+date: 2017-08-01 10:30:11Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ CNN host Fareed Zakaria explained how President Donald Trump rose to power o
 
 Full story on F3News: [CNN's Fareed Zakaria: Trump won because of rebellion from 'the white working man'](http://www.f3nws.com/n/mDhfcC)
 
-> Posted on: Tuesday, August 1, 2017 10:00:02 AM
+> Posted on: Tuesday, August 1, 2017 10:30:11 AM

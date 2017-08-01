@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![No, Facebook Did Not Panic and Shut Down an AI Program That Was Getting Dangerously Smart - Gizmodo](https://i.kinja-img.com/gawker-media/image/upload/s--qCXUGZ4O--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/a2v2qabknctlfzxdidrk.jpg)
 
-Gizmodo No, Facebook Did Not Panic and Shut Down an AI Program That Was Getting Dangerously Smart Gizmodo In recent weeks, a story about experimental Facebook machine learning research has been circulating with increasingly panicky, Skynet-esque headlines. “Facebook engineers panic, pull plug on AI after bots develop their own language,” one site wrote. Facebook put cork in chatbots that created a secret language CNET Facebook shuts down robots after they invent their own language Telegraph.co.uk Facebook AI Creates Its Own Language In Creepy Preview Of Our Potential Future Forbes CIO Today - New York Post - Alphr - Economic Times all 112 news articles »
+Gizmodo No, Facebook Did Not Panic and Shut Down an AI Program That Was Getting Dangerously Smart Gizmodo In recent weeks, a story about experimental Facebook machine learning research has been circulating with increasingly panicky, Skynet-esque headlines. “Facebook engineers panic, pull plug on AI after bots develop their own language,” one site wrote. Facebook put cork in chatbots that created a secret language CNET Facebook shuts down robots after they invent their own language Telegraph.co.uk Future scary? Facebook AI bots created own language that humans couldn't understand India Today CIO Today - New York Post - Economic Times - Alphr all 118 news articles »
 
 
 Full story on F3News: [No, Facebook Did Not Panic and Shut Down an AI Program That Was Getting Dangerously Smart - Gizmodo](http://www.f3nws.com/n/uTuCFE)
