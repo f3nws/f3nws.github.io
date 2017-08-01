@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kushner says Trump campaign was too dysfunctional to collude"
-date: 2017-08-01 19:56:17Z
+date: 2017-08-01 20:16:57Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's son-in-law told a group of congress
 
 Full story on F3News: [Kushner says Trump campaign was too dysfunctional to collude](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 1, 2017 7:56:17 PM
+> Posted on: Tuesday, August 1, 2017 8:16:57 PM

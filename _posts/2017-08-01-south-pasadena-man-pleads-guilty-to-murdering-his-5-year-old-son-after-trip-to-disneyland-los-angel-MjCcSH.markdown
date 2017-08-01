@@ -5,7 +5,7 @@ date: 2017-08-01 17:29:55Z
 categories: google-news-top-stories
 ---
 
-![South Pasadena man pleads guilty to murdering his 5-year-old son after trip to Disneyland - Los Angeles Times](http://www.trbimg.com/img-5980bf78/turbine/la-me-andressian-guilty-20170801)
+![South Pasadena man pleads guilty to murdering his 5-year-old son after trip to Disneyland - Los Angeles Times](http://www.trbimg.com/img-5980bd16/turbine/la-me-andressian-guilty-20170801)
 
 Los Angeles Times South Pasadena man pleads guilty to murdering his 5-year-old son after trip to Disneyland Los Angeles Times A South Pasadena man accused of killing his 5-year-old son after a trip to Disneyland in April pleaded guilty Tuesday to first-degree murder. Aramazd Andressian Sr., 35, will be sentenced to 25 years to life in prison when he returns to court on Aug. 23. The Latest: Guilty plea in boy's death avoids death penalty Washington Post Father pleads guilty to killing son, 5, after Disneyland trip CBS News Father accused of killing 5-year-old to get back at wife pleads guilty New York Daily News ABC News - NBC Southern California - KTLA - Patch.com all 46 news articles »
 
