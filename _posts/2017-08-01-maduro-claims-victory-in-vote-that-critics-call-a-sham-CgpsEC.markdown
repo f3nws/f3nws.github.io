@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maduro claims victory in vote that critics call a sham"
-date: 2017-08-01 02:42:54Z
+date: 2017-08-01 08:30:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The President of Venezuela, Nicolás Maduro, has claimed a huge turnout in a con
 
 Full story on F3News: [Maduro claims victory in vote that critics call a sham](http://www.f3nws.com/n/CgpsEC)
 
-> Posted on: Tuesday, August 1, 2017 2:42:54 AM
+> Posted on: Tuesday, August 1, 2017 8:30:49 AM
