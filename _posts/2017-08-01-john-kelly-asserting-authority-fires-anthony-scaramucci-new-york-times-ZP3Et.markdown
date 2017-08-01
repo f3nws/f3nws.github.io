@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![John Kelly, Asserting Authority, Fires Anthony Scaramucci - New York Times](https://static01.nyt.com/images/2017/08/01/us/01dc-trump-2/01dc-trump-2-facebookJumbo.jpg)
 
-New York Times John Kelly, Asserting Authority, Fires Anthony Scaramucci New York Times President Trump meeting with members of his cabinet at the White House on Monday. Credit Doug Mills/The New York Times. WASHINGTON — John F. Kelly, President Trump's new chief of staff, firmly asserted his authority on his first day in the White House ... AP News in Brief at 12:04 am EDT Washington Post Scaramucci's short, wild ride through Trump's White House Politico Why Scaramucci had to go CNN The Hill - The Boston Globe - Washington Times - New York Magazine all 7,201 news articles »
+New York Times John Kelly, Asserting Authority, Fires Anthony Scaramucci New York Times President Trump meeting with members of his cabinet at the White House on Monday. Credit Doug Mills/The New York Times. WASHINGTON — John F. Kelly, President Trump's new chief of staff, firmly asserted his authority on his first day in the White House ... Scaramucci's short, wild ride through Trump's White House Politico Why Scaramucci had to go CNN The Mooch takes a fall of biblical proportions Washington Post The Hill - The Boston Globe - Washington Times - Los Angeles Times all 7,221 news articles »
 
 
 Full story on F3News: [John Kelly, Asserting Authority, Fires Anthony Scaramucci - New York Times](http://www.f3nws.com/n/ZP3Et)
