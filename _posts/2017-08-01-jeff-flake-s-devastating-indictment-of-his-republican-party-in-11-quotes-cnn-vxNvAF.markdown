@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Jeff Flake's devastating indictment of his Republican Party, in 11 quotes - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/160809152632-jeff-flake-2013-super-tease.jpg)
 
-CNN Jeff Flake's devastating indictment of his Republican Party, in 11 quotes CNN (CNN) Arizona's Jeff Flake has had enough. The Republican senator, who was a vocal critic of President Trump during the campaign, has penned a book entitled "The Conscience of a Conservative: A Rejection of Destructive Politics and a Return to ... Republican Senator Jeff Flake Rails Against Trump, but to What End? New York Times Flake Takes on Trump, Warns GOP Is 'in Spasms of Dying' NBCNews.com Face the Nation July 30, 2017 Transcript: Flake, Feinstein, Salvanto CBS News HuffPost - NPR - Newsweek - New Republic all 114 news articles »
+CNN Jeff Flake's devastating indictment of his Republican Party, in 11 quotes CNN (CNN) Arizona's Jeff Flake has had enough. The Republican senator, who was a vocal critic of President Trump during the campaign, has penned a book entitled "The Conscience of a Conservative: A Rejection of Destructive Politics and a Return to ... GOP senators tell Trump they are moving away from failed healthcare overhaul Los Angeles Times Sen. Jeff Flake: White House 'Chaos' Hurts 'Our Standing In The World' HuffPost Trump Supporters Attack Republican Jeff Flake For Slamming President, Defending Obama Newsweek NPR - POLITICO Magazine - NPR - New York Times all 158 news articles »
 
 
 Full story on F3News: [Jeff Flake's devastating indictment of his Republican Party, in 11 quotes - CNN](http://www.f3nws.com/n/vxNvAF)
