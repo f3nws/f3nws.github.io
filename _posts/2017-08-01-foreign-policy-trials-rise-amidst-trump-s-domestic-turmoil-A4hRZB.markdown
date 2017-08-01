@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Foreign policy trials rise amidst Trump's domestic turmoil"
-date: 2017-08-01 02:52:15Z
+date: 2017-08-01 04:20:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's turbulent few weeks at home -- the palace intrigue of W
 
 Full story on F3News: [Foreign policy trials rise amidst Trump's domestic turmoil](http://www.f3nws.com/n/A4hRZB)
 
-> Posted on: Tuesday, August 1, 2017 2:52:15 AM
+> Posted on: Tuesday, August 1, 2017 4:20:38 AM
