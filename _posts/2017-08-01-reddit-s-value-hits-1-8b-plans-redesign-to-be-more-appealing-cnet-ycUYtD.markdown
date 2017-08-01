@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reddit's value hits $1.8B, plans redesign to be more appealing     - CNET"
-date: 2017-08-01 00:26:38Z
+date: 2017-08-01 00:37:32Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The CEO for "the front page of the internet" says its $200 million in funding is
 
 Full story on F3News: [Reddit's value hits $1.8B, plans redesign to be more appealing     - CNET](http://www.f3nws.com/n/ycUYtD)
 
-> Posted on: Tuesday, August 1, 2017 12:26:38 AM
+> Posted on: Tuesday, August 1, 2017 12:37:32 AM
