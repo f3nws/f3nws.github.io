@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![New SA power stations will prevent blackouts this summer, Government says](http://www.abc.net.au/news/image/4156178-1x1-700x700.jpg)
 
-South Australia will bring two temporary back-up power generators online in Lonsdale and Elizabeth, to be used only when required to prevent an electricity supply shortfall, before they are merged into a permanent Government-owned power station.
+South Australia will bring temporary back-up power generators online in Lonsdale and Elizabeth, to be used only when required to prevent an electricity supply shortfall, before they are merged into a permanent Government-owned power station.
 
 
 Full story on F3News: [New SA power stations will prevent blackouts this summer, Government says](http://www.f3nws.com/n/ambxmG)
