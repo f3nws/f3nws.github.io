@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela opposition figures taken from homes"
-date: 2017-08-01 14:31:27Z
+date: 2017-08-01 17:45:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Leading Venezuelan opposition figures Leopoldo Lopez and Antonio Ledezma have be
 
 Full story on F3News: [Venezuela opposition figures taken from homes](http://www.f3nws.com/n/VmZNv)
 
-> Posted on: Tuesday, August 1, 2017 2:31:27 PM
+> Posted on: Tuesday, August 1, 2017 5:45:58 PM
