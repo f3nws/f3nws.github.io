@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea's evolving ways to get what it wants and needs"
-date: 2017-08-01 10:55:27Z
+date: 2017-08-01 11:22:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — North Korea has been condemned and sanctioned for it
 
 Full story on F3News: [North Korea's evolving ways to get what it wants and needs](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 1, 2017 10:55:27 AM
+> Posted on: Tuesday, August 1, 2017 11:22:32 AM
