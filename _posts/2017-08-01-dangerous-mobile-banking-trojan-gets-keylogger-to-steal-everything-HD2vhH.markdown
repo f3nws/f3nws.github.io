@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dangerous Mobile Banking Trojan Gets 'Keylogger' to Steal Everything"
-date: 2017-08-01 08:49:47Z
+date: 2017-08-01 09:12:19Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Cyber criminals are becoming more adept, innovative, and stealthy with each pass
 
 Full story on F3News: [Dangerous Mobile Banking Trojan Gets 'Keylogger' to Steal Everything](http://www.f3nws.com/n/HD2vhH)
 
-> Posted on: Tuesday, August 1, 2017 8:49:47 AM
+> Posted on: Tuesday, August 1, 2017 9:12:19 AM
