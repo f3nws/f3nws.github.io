@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![As Maduro takes Venezuela into uncharted waters, the opposition has few options - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/07/31/Foreign/Images/Venezuela_Political_Crisis_88745-64177-4925.jpg?t=20170517)
 
-Washington Post As Maduro takes Venezuela into uncharted waters, the opposition has few options Washington Post CARACAS, Venezuela — The Trump administration on Monday imposed sanctions on President Nicolás Maduro, after an election that critics called a tipping point toward dictatorship. But even with international pressure building and Venezuela's economy ... Venezuela's Opposition, Riding High Not Long Ago, Suffers a Crippling Blow New York Times Opposition leaders, election experts decry Venezuela vote Reuters Latin American Left Indulges Maduro Bloomberg USA TODAY - CNBC - U.S. News & World Report - HuffPost all 1,446 news articles »
+Washington Post As Maduro takes Venezuela into uncharted waters, the opposition has few options Washington Post CARACAS, Venezuela — The Trump administration on Monday imposed sanctions on President Nicolás Maduro, after an election that critics called a tipping point toward dictatorship. But even with international pressure building and Venezuela's economy ... Venezuela's Opposition, Riding High Not Long Ago, Suffers a Crippling Blow New York Times US imposes sanctions on Venezuelan leader Nicolás Maduro BBC News In Wake Of 'Sham Election,' US Sanctions Venezuelan President Maduro NPR Bloomberg - CNBC - NBCNews.com - The Atlantic all 1,493 news articles »
 
 
 Full story on F3News: [As Maduro takes Venezuela into uncharted waters, the opposition has few options - Washington Post](http://www.f3nws.com/n/CgvUBH)
