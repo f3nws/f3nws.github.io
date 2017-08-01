@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Scaramucci had to go"
-date: 2017-08-01 09:29:55Z
+date: 2017-08-01 10:34:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump has had three communications directors since May. If the President'
 
 Full story on F3News: [Why Scaramucci had to go](http://www.f3nws.com/n/zaQKkE)
 
-> Posted on: Tuesday, August 1, 2017 9:29:55 AM
+> Posted on: Tuesday, August 1, 2017 10:34:32 AM
