@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawsuit: Fox News concocted Seth Rich story with oversight from White House"
-date: 2017-08-01 18:03:46Z
+date: 2017-08-01 18:50:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The White House worked with Fox News and a wealthy Republican donor to push a st
 
 Full story on F3News: [Lawsuit: Fox News concocted Seth Rich story with oversight from White House](http://www.f3nws.com/n/SryKuC)
 
-> Posted on: Tuesday, August 1, 2017 6:03:46 PM
+> Posted on: Tuesday, August 1, 2017 6:50:48 PM
