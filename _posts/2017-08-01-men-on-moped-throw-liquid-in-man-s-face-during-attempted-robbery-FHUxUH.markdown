@@ -5,6 +5,8 @@ date: 2017-08-01 00:13:04Z
 categories: breakingnews-ie-world
 ---
 
+![Men on moped throw liquid in man's face during attempted robbery](http://www.breakingnews.ie/remote/media.central.ie/media/images/s/ScotlandYard_large.jpg?width=600&s=bn-800270)
+
 A man has been taken to hospital after being doused with a liquid during a suspected attempted robbery near London's Harrods department store.
 
 
