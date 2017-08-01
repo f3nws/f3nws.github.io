@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Same-sex marriage threatens to split Coalition](http://www.abc.net.au/news/image/8596694-1x1-700x700.jpg)
 
-The same-sex marriage issue again threatens the stability of the Federal Government, with conservatives angry that some Liberal MPs have not ruled out crossing the floor to force the lower house to debate the issue.
+Prime Minister Malcolm Turnbull refuses to say how he will handle the next steps in the same-sex marriage issue that is threatening the stability of his Government.
 
 
 Full story on F3News: [Same-sex marriage threatens to split Coalition](http://www.f3nws.com/n/dMNsCF)
