@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Washington Post says President dictated Trump Jr.'s account of Russian lawyer meeting"
-date: 2017-08-01 05:49:31Z
+date: 2017-08-01 12:29:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In response to New York Times reporting that Donald Trump Jr. met with a Russian
 
 Full story on F3News: [Washington Post says President dictated Trump Jr.'s account of Russian lawyer meeting](http://www.f3nws.com/n/crdUeB)
 
-> Posted on: Tuesday, August 1, 2017 5:49:31 AM
+> Posted on: Tuesday, August 1, 2017 12:29:54 PM
