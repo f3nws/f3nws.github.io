@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 6 deals in August 2017"
-date: 2017-08-01 06:30:31Z
+date: 2017-08-01 14:00:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Want Apple's iPhone 6 for the cheapest possible price? We've found the best deal
 
 Full story on F3News: [The best iPhone 6 deals in August 2017](http://www.f3nws.com/n/fPrrRE)
 
-> Posted on: Tuesday, August 1, 2017 6:30:31 AM
+> Posted on: Tuesday, August 1, 2017 2:00:31 PM
