@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Defiance that made Arizona sheriff popular led to downfall"
-date: 2017-08-01 09:47:14Z
+date: 2017-08-01 11:49:54Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PHOENIX (AP) — The political defiance that made Joe Arpaio popular and seeming
 
 Full story on F3News: [Defiance that made Arizona sheriff popular led to downfall](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 1, 2017 9:47:14 AM
+> Posted on: Tuesday, August 1, 2017 11:49:54 AM

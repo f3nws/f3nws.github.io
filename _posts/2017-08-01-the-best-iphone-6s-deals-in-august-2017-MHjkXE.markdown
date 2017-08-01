@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 6S deals in August 2017"
-date: 2017-08-01 07:15:00Z
+date: 2017-08-01 11:15:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ A more affordable way to own a fantastic iPhone, see our comparison tool and han
 
 Full story on F3News: [The best iPhone 6S deals in August 2017](http://www.f3nws.com/n/MHjkXE)
 
-> Posted on: Tuesday, August 1, 2017 7:15:00 AM
+> Posted on: Tuesday, August 1, 2017 11:15:00 AM

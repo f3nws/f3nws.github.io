@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![WaPo: Trump helped come up with misleading statement on Jr.'s meeting - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170712115323-05-trump-jr-file-super-tease.jpg)
 
-CNN WaPo: Trump helped come up with misleading statement on Jr.'s meeting CNN Washington (CNN) In response to New York Times reporting that Donald Trump Jr. met with a Russian lawyer during the campaign, President Donald Trump dictated a misleading statement for his son, The Washington Post reported Monday evening. Trump's lawyer repeatedly denied Trump was involved in Trump Jr.'s statement. But he was. Washington Post Report: Trump dictated Trump Jr.'s statement on Russian meeting CBS News Trump's Lawyer Denied The President Helped Draft Trump Jr.'s Statement Just Weeks Ago HuffPost USA TODAY - TIME - Washington Times - New York Magazine all 105 news articles »
+CNN WaPo: Trump helped come up with misleading statement on Jr.'s meeting CNN Washington (CNN) In response to New York Times reporting that Donald Trump Jr. met with a Russian lawyer during the campaign, President Donald Trump dictated a misleading statement for his son, The Washington Post reported Monday evening. Trump's lawyer repeatedly denied Trump was involved in Trump Jr.'s statement. But he was. Washington Post Report: Trump dictated Trump Jr.'s statement on Russian meeting CBS News Trump dictated son's misleading statement on meeting with Russian lawyer: Sources ABC News USA TODAY - TIME - New York Magazine - Washington Times all 109 news articles »
 
 
 Full story on F3News: [WaPo: Trump helped come up with misleading statement on Jr.'s meeting - CNN](http://www.f3nws.com/n/crdUeB)
