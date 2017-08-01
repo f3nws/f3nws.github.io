@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Before they were famous"
-date: 2017-08-01 03:30:03Z
+date: 2017-08-01 05:00:05Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ What were they doing before they made it big?
 
 Full story on F3News: [Before they were famous](http://www.f3nws.com/n/jrQrAD)
 
-> Posted on: Tuesday, August 1, 2017 3:30:03 AM
+> Posted on: Tuesday, August 1, 2017 5:00:05 AM

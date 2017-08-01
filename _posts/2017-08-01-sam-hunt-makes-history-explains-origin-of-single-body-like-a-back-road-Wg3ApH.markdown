@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sam Hunt makes history, explains origin of single 'Body Like a Back Road'"
-date: 2017-08-01 03:30:02Z
+date: 2017-08-01 05:00:04Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Country star Sam Hunt has overtaken Florida Georgia Line for holding the record 
 
 Full story on F3News: [Sam Hunt makes history, explains origin of single 'Body Like a Back Road'](http://www.f3nws.com/n/Wg3ApH)
 
-> Posted on: Tuesday, August 1, 2017 3:30:02 AM
+> Posted on: Tuesday, August 1, 2017 5:00:04 AM
