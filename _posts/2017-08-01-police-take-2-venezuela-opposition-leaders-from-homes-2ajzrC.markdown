@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police take 2 Venezuela opposition leaders from homes"
-date: 2017-08-01 12:58:05Z
+date: 2017-08-01 13:25:18Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Two of Venezuela's leading opposition figures were t
 
 Full story on F3News: [Police take 2 Venezuela opposition leaders from homes](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 1, 2017 12:58:05 PM
+> Posted on: Tuesday, August 1, 2017 1:25:18 PM
