@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "You're fired: Scaramucci's 250 hours of drama"
-date: 2017-08-01 08:09:46Z
+date: 2017-08-01 13:24:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Standing behind a crush of reporters in the Oval Office on Monday, Anthony Scara
 
 Full story on F3News: [You're fired: Scaramucci's 250 hours of drama](http://www.f3nws.com/n/x3HM4)
 
-> Posted on: Tuesday, August 1, 2017 8:09:46 AM
+> Posted on: Tuesday, August 1, 2017 1:24:41 PM

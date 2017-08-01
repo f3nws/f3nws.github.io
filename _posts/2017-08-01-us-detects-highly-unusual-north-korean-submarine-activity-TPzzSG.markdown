@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US detects 'highly unusual' North Korean submarine activity"
-date: 2017-08-01 11:10:56Z
+date: 2017-08-01 13:25:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US military has detected "highly unusual and unprecedented levels" of North 
 
 Full story on F3News: [US detects 'highly unusual' North Korean submarine activity](http://www.f3nws.com/n/TPzzSG)
 
-> Posted on: Tuesday, August 1, 2017 11:10:56 AM
+> Posted on: Tuesday, August 1, 2017 1:25:23 PM

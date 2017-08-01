@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "67 migrants storm into Spanish enclave bordering Morocco, 14 injured (VIDEO)"
-date: 2017-08-01 11:34:25Z
+date: 2017-08-01 11:34:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ More than 60 migrants managed to gain access to the Spanish territory of Ceuta a
 
 Full story on F3News: [67 migrants storm into Spanish enclave bordering Morocco, 14 injured (VIDEO)](http://www.f3nws.com/n/ndZ2VH)
 
-> Posted on: Tuesday, August 1, 2017 11:34:25 AM
+> Posted on: Tuesday, August 1, 2017 11:34:00 AM

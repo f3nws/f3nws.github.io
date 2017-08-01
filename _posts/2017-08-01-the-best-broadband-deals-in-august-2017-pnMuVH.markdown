@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best broadband deals in August 2017"
-date: 2017-08-01 07:45:38Z
+date: 2017-08-01 13:30:38Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've found the best broadband deals from the likes of BT, Sky, Virgin Media and
 
 Full story on F3News: [The best broadband deals in August 2017](http://www.f3nws.com/n/pnMuVH)
 
-> Posted on: Tuesday, August 1, 2017 7:45:38 AM
+> Posted on: Tuesday, August 1, 2017 1:30:38 PM
