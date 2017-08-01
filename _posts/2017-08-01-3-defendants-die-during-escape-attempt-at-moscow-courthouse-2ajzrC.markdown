@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 defendants die during escape attempt at Moscow courthouse"
-date: 2017-08-01 14:20:21Z
+date: 2017-08-01 14:47:26Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MOSCOW (AP) — Five defendants at a Moscow courthouse attacked their guards in 
 
 Full story on F3News: [3 defendants die during escape attempt at Moscow courthouse](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 1, 2017 2:20:21 PM
+> Posted on: Tuesday, August 1, 2017 2:47:26 PM
