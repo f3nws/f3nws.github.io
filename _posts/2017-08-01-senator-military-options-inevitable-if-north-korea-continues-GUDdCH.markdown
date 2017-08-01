@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senator: Military options 'inevitable if North Korea continues'"
-date: 2017-08-01 17:10:25Z
+date: 2017-08-01 21:10:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When asked about the US government's strategy on handling North Korea, GOP Sen. 
 
 Full story on F3News: [Senator: Military options 'inevitable if North Korea continues'](http://www.f3nws.com/n/GUDdCH)
 
-> Posted on: Tuesday, August 1, 2017 5:10:25 PM
+> Posted on: Tuesday, August 1, 2017 9:10:12 PM

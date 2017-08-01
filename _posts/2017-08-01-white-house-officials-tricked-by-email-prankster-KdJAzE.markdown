@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House officials tricked by email prankster"
-date: 2017-08-01 16:28:34Z
+date: 2017-08-01 16:53:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A self-described "email prankster" in the UK fooled a number of White House offi
 
 Full story on F3News: [White House officials tricked by email prankster](http://www.f3nws.com/n/KdJAzE)
 
-> Posted on: Tuesday, August 1, 2017 4:28:34 PM
+> Posted on: Tuesday, August 1, 2017 4:53:35 PM
