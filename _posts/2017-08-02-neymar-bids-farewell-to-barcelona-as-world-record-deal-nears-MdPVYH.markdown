@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Neymar bids farewell to Barcelona as world-record deal nears"
-date: 2017-08-02 10:48:53Z
+date: 2017-08-02 11:52:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Neymar has told his Barcelona teammates at training that he wants to leave, a cl
 
 Full story on F3News: [Neymar bids farewell to Barcelona as world-record deal nears](http://www.f3nws.com/n/MdPVYH)
 
-> Posted on: Wednesday, August 2, 2017 10:48:53 AM
+> Posted on: Wednesday, August 2, 2017 11:52:03 AM
