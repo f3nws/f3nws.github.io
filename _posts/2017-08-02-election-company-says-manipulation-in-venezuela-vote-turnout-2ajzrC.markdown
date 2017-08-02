@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Election company says manipulation in Venezuela vote turnout"
-date: 2017-08-02 19:17:45Z
+date: 2017-08-02 19:58:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — The official count of Venezuelans who participated i
 
 Full story on F3News: [Election company says manipulation in Venezuela vote turnout](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 7:17:45 PM
+> Posted on: Wednesday, August 2, 2017 7:58:21 PM
