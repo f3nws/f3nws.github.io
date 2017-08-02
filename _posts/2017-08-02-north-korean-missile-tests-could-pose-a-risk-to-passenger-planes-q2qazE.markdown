@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean missile tests could pose a risk to passenger planes"
-date: 2017-08-02 11:52:18Z
+date: 2017-08-02 13:50:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dramatically ramped up North Korean missile testing may pose a risk to passenger
 
 Full story on F3News: [North Korean missile tests could pose a risk to passenger planes](http://www.f3nws.com/n/q2qazE)
 
-> Posted on: Wednesday, August 2, 2017 11:52:18 AM
+> Posted on: Wednesday, August 2, 2017 1:50:59 PM
