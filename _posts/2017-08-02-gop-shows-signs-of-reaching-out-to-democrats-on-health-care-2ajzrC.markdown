@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP shows signs of reaching out to Democrats on health care"
-date: 2017-08-02 03:48:34Z
+date: 2017-08-02 06:46:14Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Republicans showed signs Tuesday of reaching out to Democrat
 
 Full story on F3News: [GOP shows signs of reaching out to Democrats on health care](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 3:48:34 AM
+> Posted on: Wednesday, August 2, 2017 6:46:14 AM
