@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Super Mario Odyssey trailer, release date, news and features"
+date: 2017-08-02 15:57:26Z
+categories: techradar
+---
+
+![Super Mario Odyssey trailer, release date, news and features](http://cdn.mos.cms.futurecdn.net/6K3P83wMkBuo68sJ8cFoNE-1200-80.jpg)
+
+Mario's next big adventure is set to release on October 27. Here's everything you need to know about it.
+
+
+Full story on F3News: [Super Mario Odyssey trailer, release date, news and features](http://www.f3nws.com/n/C3yYQC)
+
+> Posted on: Wednesday, August 2, 2017 3:57:26 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why the Trump White House drama really matters"
-date: 2017-08-02 14:36:56Z
+date: 2017-08-02 16:14:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than six months into his presidency, President Donald Trump, his top aides 
 
 Full story on F3News: [Why the Trump White House drama really matters](http://www.f3nws.com/n/TfybaD)
 
-> Posted on: Wednesday, August 2, 2017 2:36:56 PM
+> Posted on: Wednesday, August 2, 2017 4:14:58 PM
