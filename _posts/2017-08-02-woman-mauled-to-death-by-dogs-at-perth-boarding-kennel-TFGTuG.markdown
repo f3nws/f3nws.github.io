@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Woman mauled to death by dogs at Perth boarding kennel](http://www.abc.net.au/news/image/972808-1x1-700x700.jpg)
 
-The owner of a boarding kennel has been attacked and mauled to death by two dogs, a bull mastiff and a Staffordshire bull terrier, in the Perth suburb of Southern River.
+The owner of a boarding kennel is attacked and mauled to death by two dogs, a bull mastiff and a Staffordshire bull terrier, in the Perth suburb of Southern River.
 
 
 Full story on F3News: [Woman mauled to death by dogs at Perth boarding kennel](http://www.f3nws.com/n/TFGTuG)
