@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Inmates Who Used Peanut Butter, and Guile, to Escape an Alabama Jail Are Caught - New York Times](https://static01.nyt.com/images/2017/08/02/us/02xp-jailbreak/02xp-jailbreak-facebookJumbo.jpg)
 
-New York Times Inmates Who Used Peanut Butter, and Guile, to Escape an Alabama Jail Are Caught New York Times The Alabama peanut butter caper was not the most sophisticated jailbreak, but it did the trick. Some inmates in Walker County Jail in Jasper saved peanut butter from their sandwiches and used it like modeling clay to help alter the number above a door ... Alabama inmates escape after tricking guard with peanut butter BBC News Last of 12 inmates that escaped Alabama jail captured New York Post Last of 12 inmates who used peanut butter to escape Alabama jail is captured Chicago Tribune WTNH Connecticut News (press release) - myfox8.com - AL.com - Sun Sentinel all 138 news articles »
+New York Times Inmates Who Used Peanut Butter, and Guile, to Escape an Alabama Jail Are Caught New York Times The Alabama peanut butter caper was not the most sophisticated jailbreak, but it did the trick. Some inmates in Walker County Jail in Jasper saved peanut butter from their sandwiches and used it like modeling clay to help alter the number above a door ... Alabama inmates escape after tricking guard with peanut butter BBC News Last of 12 Escaped Alabama Jail Inmates Recaptured in Florida U.S. News & World Report Last of 12 inmates who used peanut butter to escape Alabama jail is captured Chicago Tribune New York Post - WPTV.com - myfox8.com - AL.com all 140 news articles »
 
 
 Full story on F3News: [Inmates Who Used Peanut Butter, and Guile, to Escape an Alabama Jail Are Caught - New York Times](http://www.f3nws.com/n/SYWHcG)
