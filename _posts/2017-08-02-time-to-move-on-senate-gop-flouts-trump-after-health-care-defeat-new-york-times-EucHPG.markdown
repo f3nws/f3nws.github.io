@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['Time to Move On': Senate GOP Flouts Trump After Health Care Defeat - New York Times](https://static01.nyt.com/images/2017/08/02/us/02DC-REPUBS-01/02DC-REPUBS-01-facebookJumbo.jpg)
 
-New York Times 'Time to Move On': Senate GOP Flouts Trump After Health Care Defeat New York Times From left, Senators John Cornyn of Texas, Charles E. Grassley of Iowa and John Thune of South Dakota in Washington on Tuesday. Credit Al Drago for The New York Times. WASHINGTON — Senate Republicans are not pretending to have missed the tweets ... Can this marriage be saved? Relationship between Trump, Senate GOP hits new skids. Washington Post McConnell plans to pass tax bill with just GOP votes Politico As Trump mulls cutting off Obamacare aid, Senate begins bipartisan approach Los Angeles Times RealClearPolitics - U.S. News & World Report - Business Insider - USA TODAY all 1,655 news articles »
+New York Times 'Time to Move On': Senate GOP Flouts Trump After Health Care Defeat New York Times From left, Senators John Cornyn of Texas, Charles E. Grassley of Iowa and John Thune of South Dakota in Washington on Tuesday. Credit Al Drago for The New York Times. WASHINGTON — Senate Republicans are not pretending to have missed the tweets ... Can this marriage be saved? Relationship between Trump, Senate GOP hits new skids. Washington Post GOP chairman opens door to Democrats on ObamaCare The Hill Senate To Hold Bipartisan Hearings To Stabilize Insurance Markets NPR Politico - NBCNews.com - RealClearPolitics - Business Insider all 1,440 news articles »
 
 
 Full story on F3News: ['Time to Move On': Senate GOP Flouts Trump After Health Care Defeat - New York Times](http://www.f3nws.com/n/EucHPG)
