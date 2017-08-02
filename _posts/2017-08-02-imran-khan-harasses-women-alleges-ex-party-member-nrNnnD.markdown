@@ -5,7 +5,7 @@ date: 2017-08-02 03:41:03Z
 categories: times-of-india-world
 ---
 
-![Imran Khan harasses women, alleges ex-party member](http://timesofindia.indiatimes.com/photo/msid-59874605/59874605.jpg?616802)
+![Imran Khan harasses women, alleges ex-party member](http://timesofindia.indiatimes.com/photo/msid-59874375/59874375.jpg?39785)
 
 
 

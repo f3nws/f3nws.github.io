@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Sue Lopicich found mauled to death by dogs at Perth boarding kennel - ABC Online](http://www.abc.net.au/news/image/972808-1x1-700x700.jpg)
 
-ABC Online Sue Lopicich found mauled to death by dogs at Perth boarding kennel ABC Online A mother who ran a boarding kennel and animal rescue home has been attacked and mauled to death by two dogs in the Perth suburb of Southern River. Sue Lopicich, aged in her 50s, was attacked yesterday afternoon at the property on Terrier Place, which ... Attack dog stood guard over woman's body The Australian Woman mauled to death by dogs in Southern River, Perth NEWS.com.au Woman mauled to death by dog in Southern River Perth Now 9news.com.au - Pedestrian TV - WAtoday - Mackay Daily Mercury all 25 news articles »
+ABC Online Sue Lopicich found mauled to death by dogs at Perth boarding kennel ABC Online A mother who ran a boarding kennel and animal rescue home has been attacked and mauled to death by two dogs in the Perth suburb of Southern River. Sue Lopicich, aged in her 50s, was attacked yesterday afternoon at the property on Terrier Place, which ... Attack dog stood guard over woman's body The Australian Woman mauled to death by dogs in Southern River, Perth NEWS.com.au Woman mauled to death by dog in Southern River Perth Now 9news.com.au - Pedestrian TV - Sky News Australia - WAtoday all 26 news articles »
 
 
 Full story on F3News: [Sue Lopicich found mauled to death by dogs at Perth boarding kennel - ABC Online](http://www.f3nws.com/n/TFGTuG)
