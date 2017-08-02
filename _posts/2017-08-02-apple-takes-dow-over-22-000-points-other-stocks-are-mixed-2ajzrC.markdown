@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple takes Dow over 22,000 points; other stocks are mixed"
-date: 2017-08-02 15:24:31Z
+date: 2017-08-02 15:51:40Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — A big gain from Apple Wednesday morning sent the Dow Jones ind
 
 Full story on F3News: [Apple takes Dow over 22,000 points; other stocks are mixed](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 3:24:31 PM
+> Posted on: Wednesday, August 2, 2017 3:51:40 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's secretive Wall Street Journal interview: 45 oddest quotes"
-date: 2017-08-02 14:33:32Z
+date: 2017-08-02 15:28:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On July 25, President Trump sat down for an interview with The Wall Street Journ
 
 Full story on F3News: [Trump's secretive Wall Street Journal interview: 45 oddest quotes](http://www.f3nws.com/n/VBahWE)
 
-> Posted on: Wednesday, August 2, 2017 2:33:32 PM
+> Posted on: Wednesday, August 2, 2017 3:28:44 PM
