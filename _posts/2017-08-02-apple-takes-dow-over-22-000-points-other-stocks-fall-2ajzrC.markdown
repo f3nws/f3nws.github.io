@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple takes Dow over 22,000 points; other stocks fall"
-date: 2017-08-02 16:19:39Z
+date: 2017-08-02 16:46:23Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Stocks are mostly lower at midday Wednesday, but a big gain fo
 
 Full story on F3News: [Apple takes Dow over 22,000 points; other stocks fall](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 4:19:39 PM
+> Posted on: Wednesday, August 2, 2017 4:46:23 PM
