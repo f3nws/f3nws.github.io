@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "22.5% of German population have ‘migrant background’ – census"
-date: 2017-08-02 01:01:32Z
+date: 2017-08-02 01:01:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The German populace with a migrant background has hit a new record of 18.6 milli
 
 Full story on F3News: [22.5% of German population have ‘migrant background’ – census](http://www.f3nws.com/n/Ugn2yF)
 
-> Posted on: Wednesday, August 2, 2017 1:01:32 AM
+> Posted on: Wednesday, August 2, 2017 1:01:00 AM

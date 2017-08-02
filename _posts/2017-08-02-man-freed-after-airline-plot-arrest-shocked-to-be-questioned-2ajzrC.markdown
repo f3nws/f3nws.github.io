@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man freed after airline plot arrest shocked to be questioned"
-date: 2017-08-02 02:26:03Z
+date: 2017-08-02 02:54:02Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CANBERRA, Australia (AP) — A man arrested over the weekend in Sydney has been 
 
 Full story on F3News: [Man freed after airline plot arrest shocked to be questioned](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 2:26:03 AM
+> Posted on: Wednesday, August 2, 2017 2:54:02 AM
