@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US would win, but at what cost? Thousands of lives at risk"
-date: 2017-08-02 06:43:34Z
+date: 2017-08-02 14:07:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has said it's ready to unleash American military might 
 
 Full story on F3News: [US would win, but at what cost? Thousands of lives at risk](http://www.f3nws.com/n/nKFa4)
 
-> Posted on: Wednesday, August 2, 2017 6:43:34 AM
+> Posted on: Wednesday, August 2, 2017 2:07:28 PM
