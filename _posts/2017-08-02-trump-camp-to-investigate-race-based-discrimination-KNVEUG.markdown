@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump camp to investigate 'race-based discrimination'"
-date: 2017-08-02 04:31:11Z
+date: 2017-08-02 10:16:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration is readying resources in the Justice Department's civil
 
 Full story on F3News: [Trump camp to investigate 'race-based discrimination'](http://www.f3nws.com/n/KNVEUG)
 
-> Posted on: Wednesday, August 2, 2017 4:31:11 AM
+> Posted on: Wednesday, August 2, 2017 10:16:29 AM
