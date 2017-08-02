@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Minnesota school building collapses after explosion"
-date: 2017-08-02 20:48:59Z
+date: 2017-08-02 22:05:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two people were unaccounted for and five were taken to the hospital Wednesday af
 
 Full story on F3News: [Minnesota school building collapses after explosion](http://www.f3nws.com/n/2vjzDB)
 
-> Posted on: Wednesday, August 2, 2017 8:48:59 PM
+> Posted on: Wednesday, August 2, 2017 10:05:05 PM
