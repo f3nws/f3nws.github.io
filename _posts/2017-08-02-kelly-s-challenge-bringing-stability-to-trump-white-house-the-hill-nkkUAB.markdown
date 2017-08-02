@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kelly's challenge? Bringing stability to Trump White House - The Hill](http://thehill.com/sites/default/files/kellyjohn_trumpdonald_073117getty_lead.jpg)
 
-The Hill Kelly's challenge? Bringing stability to Trump White House The Hill President Trump's chief of staff, John Kelly, faces a daunting task in his new role: bringing order and discipline to an unruly White House that has struggled to notch much-needed victories. On his first day, Kelly made a statement about who is in ... 9 people who might be the next DHS secretary CNN Can anyone get a handle on the president who handles everything? Washington Post Trump turns to his generals in times of trouble Washington Examiner Slate Magazine - The Boston Globe - Vanity Fair - NBCNews.com all 8,388 news articles »
+The Hill Kelly's challenge? Bringing stability to Trump White House The Hill President Trump's chief of staff, John Kelly, faces a daunting task in his new role: bringing order and discipline to an unruly White House that has struggled to notch much-needed victories. On his first day, Kelly made a statement about who is in ... Scaramucci, Priebus and Spicer's most regrettable praise for Trump, ranked Washington Post Is Trump (Finally) Ready for a 'Pivot' to Presidential? NBCNews.com Lock up the leakers? Sessions to unveil crackdown, as Kelly gets White House staff in line Fox News Slate Magazine - The Boston Globe - Washington Examiner - Vanity Fair all 8,329 news articles »
 
 
 Full story on F3News: [Kelly's challenge? Bringing stability to Trump White House - The Hill](http://www.f3nws.com/n/nkkUAB)

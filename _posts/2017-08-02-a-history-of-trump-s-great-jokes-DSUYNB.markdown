@@ -5,7 +5,7 @@ date: 2017-08-02 00:41:37Z
 categories: msnbc
 ---
 
-![A history of Trump’s great ‘jokes’](http://media1.s-nbcnews.com/j/MSNBC/Components/Video/201708/MNBC-CH-XXXXXXXX_CLN_SDO-3A2_20-00_ALL_IN_with_CHRIS_HAYES_AS_frame_89495.video_1067x600.jpg)
+![A history of Trump’s great ‘jokes’](http://media1.s-nbcnews.com/j/MSNBC/Components/Video/201708/2017-08-02T00-41-37-567Z--1280x720.video_1067x600.jpg)
 
 Thing 1/Thing 2: The Trump Team often passes off disturbing or offensive comments as 'a joke' – which is a great tactic when you’d rather not apologize.
 
