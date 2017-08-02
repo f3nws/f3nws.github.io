@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump, GOP senators introduce bill to slash legal immigration levels - Washington Post](https://img.washingtonpost.com/pbox.php?url=http://img.washingtonpost.com/blogs/post-politics/files/2017/08/Botsford170801Trump19140.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Trump, GOP senators introduce bill to slash legal immigration levels Washington Post President Trump on Wednesday endorsed a new bill in the Senate aimed at slashing legal immigration levels over a decade, a goal Trump endorsed on the campaign trail that would represent a profound change to U.S. immigration policies that have been in ... Trump backs plan that would curb legal immigration CNN The Hill's 12:30 Report The Hill Donald Trump Goes All In On Slashing Legal Immigration HuffPost New York Times - Fox News - Politico - CBS News all 324 news articles »
+Washington Post Trump, GOP senators introduce bill to slash legal immigration levels Washington Post President Trump on Wednesday endorsed a new bill in the Senate aimed at slashing legal immigration levels over a decade, a goal Trump endorsed on the campaign trail that would represent a profound change to U.S. immigration policies that have been in ... Trump backs plan that would curb legal immigration CNN Graham opposes measure to cut legal immigration The Hill The Cotton/Perdue Immigration Plan Is a Great Start National Review HuffPost - Politico - New York Times - Fox News all 409 news articles »
 
 
 Full story on F3News: [Trump, GOP senators introduce bill to slash legal immigration levels - Washington Post](http://www.f3nws.com/n/QaZazF)
