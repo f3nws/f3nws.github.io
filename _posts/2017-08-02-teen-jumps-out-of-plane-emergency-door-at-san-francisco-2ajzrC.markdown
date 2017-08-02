@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen jumps out of plane emergency door at San Francisco"
-date: 2017-08-02 14:16:42Z
+date: 2017-08-02 14:57:45Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — A teenage boy traveling alone opened an emergency door af
 
 Full story on F3News: [Teen jumps out of plane emergency door at San Francisco](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 2:16:42 PM
+> Posted on: Wednesday, August 2, 2017 2:57:45 PM
