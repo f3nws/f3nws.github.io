@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela opposition figures taken from homes"
-date: 2017-08-02 01:38:04Z
+date: 2017-08-02 02:12:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Venezuelan authorities seized opposition leaders Leopoldo Lopez and Antonio Lede
 
 Full story on F3News: [Venezuela opposition figures taken from homes](http://www.f3nws.com/n/VmZNv)
 
-> Posted on: Wednesday, August 2, 2017 1:38:04 AM
+> Posted on: Wednesday, August 2, 2017 2:12:48 AM
