@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Cattle musterer dies in outback Queensland after chopper crashes into powerlines - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Ballina Shire Advocate Cattle musterer dies in outback Queensland after chopper crashes into powerlines ABC Online A man who was mustering cattle in outback Queensland has died when his chopper ran off course and crashed into powerlines. The chopper came down in a paddock about 7:15am near Cloncurry, with smoke sighted by witnesses before emergency ... Man killed in outback helicopter crash near Cloncurry, Queensland The Australian Pilot killed in helicopter crash at Cloncurry, Queensland Courier Mail Man dies after helicopter crashes into power lines in Qld Brisbane Times NEWS.com.au - Bundaberg News Mail - The North West Star - Coffs Coast Advocate all 14 news articles »
+Ballina Shire Advocate Cattle musterer dies in outback Queensland after chopper crashes into powerlines ABC Online A man who was mustering cattle in outback Queensland has died when his chopper ran off course and crashed into powerlines. The chopper came down in a paddock about 7:15am near Cloncurry, with smoke sighted by witnesses before emergency ... Man killed in outback helicopter crash near Cloncurry, Queensland The Australian Pilot killed in helicopter crash at Cloncurry, Queensland Courier Mail Pilot dies in outback Qld helicopter crash NEWS.com.au Brisbane Times - Coffs Coast Advocate - Ten Eyewitness News - Ballina Shire Advocate all 14 news articles »
 
 
 Full story on F3News: [Cattle musterer dies in outback Queensland after chopper crashes into powerlines - ABC Online](http://www.f3nws.com/n/tRmUEB)
