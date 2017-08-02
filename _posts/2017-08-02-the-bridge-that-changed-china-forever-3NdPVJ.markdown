@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The bridge that changed China forever"
-date: 2017-08-02 03:56:14Z
+date: 2017-08-02 04:21:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ China may be home to both the longest and highest bridges in the world, but neit
 
 Full story on F3News: [The bridge that changed China forever](http://www.f3nws.com/n/3NdPVJ)
 
-> Posted on: Wednesday, August 2, 2017 3:56:14 AM
+> Posted on: Wednesday, August 2, 2017 4:21:42 AM
