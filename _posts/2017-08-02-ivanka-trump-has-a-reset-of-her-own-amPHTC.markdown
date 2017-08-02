@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump has a reset of her own"
-date: 2017-08-02 11:25:18Z
+date: 2017-08-02 12:48:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Ivanka Trump has a reset of her own](http://www.f3nws.com/n/amPHTC)
 
-> Posted on: Wednesday, August 2, 2017 11:25:18 AM
+> Posted on: Wednesday, August 2, 2017 12:48:02 PM
