@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Durkan takes early lead in primary to replace Seattle mayor"
-date: 2017-08-02 04:56:41Z
+date: 2017-08-02 05:24:12Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEATTLE (AP) — Seattle voters cast ballots Tuesday to start choosing a new may
 
 Full story on F3News: [Durkan takes early lead in primary to replace Seattle mayor](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 4:56:41 AM
+> Posted on: Wednesday, August 2, 2017 5:24:12 AM
