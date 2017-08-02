@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson concedes Russia ties are sour, but holds out hope"
-date: 2017-08-02 00:22:41Z
+date: 2017-08-02 00:49:47Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The top American diplomat put the onus on Russia Tuesday to 
 
 Full story on F3News: [Tillerson concedes Russia ties are sour, but holds out hope](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 2, 2017 12:22:41 AM
+> Posted on: Wednesday, August 2, 2017 12:49:47 AM
