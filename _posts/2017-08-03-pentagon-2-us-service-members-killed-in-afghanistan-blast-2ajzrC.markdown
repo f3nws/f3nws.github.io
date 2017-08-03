@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pentagon: 2 US service members killed in Afghanistan blast"
-date: 2017-08-03 01:25:26Z
+date: 2017-08-03 01:53:13Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ KABUL, Afghanistan (AP) — A suicide bombing attack on a NATO convoy in souther
 
 Full story on F3News: [Pentagon: 2 US service members killed in Afghanistan blast](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 1:25:26 AM
+> Posted on: Thursday, August 3, 2017 1:53:13 AM

@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Affirmative Action Battle Has a New Focus: Asian-Americans - New York Times"
+date: 2017-08-03 01:17:00Z
+categories: google-news-top-stories
+---
+
+![Affirmative Action Battle Has a New Focus: Asian-Americans - New York Times](https://static01.nyt.com/images/2017/08/03/us/03jpHARVARD-sub/03jpHARVARD-sub-facebookJumbo.jpg)
+
+New York Times Affirmative Action Battle Has a New Focus: Asian-Americans New York Times Rowers along the Charles River passed the Harvard College campus in Cambridge, Mass., this year. A lawsuit accuses Harvard of discriminating against Asian-Americans in admissions. Credit Charles Krupa/Associated Press. By most standards, Austin Jia ... Actually, we still need affirmative action for African Americans in college admissions. Here's why. Washington Post Justice Department calls for review of race-based college admissions, alarming civil rights groups Los Angeles Times Sessions' move to take on affirmative action energizes Trump's base Chicago Tribune BBC News - The Hill - The Boston Globe - The Atlantic all 251 news articles »
+
+
+Full story on F3News: [Affirmative Action Battle Has a New Focus: Asian-Americans - New York Times](http://www.f3nws.com/n/dR2VsD)
+
+> Posted on: Thursday, August 3, 2017 1:17:00 AM
