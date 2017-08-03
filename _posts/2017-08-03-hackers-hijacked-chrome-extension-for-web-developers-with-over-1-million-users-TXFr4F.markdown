@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hackers Hijacked Chrome Extension for Web Developers With Over 1 Million Users"
-date: 2017-08-03 09:16:49Z
+date: 2017-08-03 09:27:40Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ From past few years, spammers and cyber criminals were buying web extensions fro
 
 Full story on F3News: [Hackers Hijacked Chrome Extension for Web Developers With Over 1 Million Users](http://www.f3nws.com/n/TXFr4F)
 
-> Posted on: Thursday, August 3, 2017 9:16:49 AM
+> Posted on: Thursday, August 3, 2017 9:27:40 AM
