@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI Arrests Researcher Who Found 'Kill-Switch' to Stop Wannacry Ransomware"
-date: 2017-08-03 18:07:24Z
+date: 2017-08-03 18:54:48Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The 22-year-old British security researcher who gained fame for discovering the 
 
 Full story on F3News: [FBI Arrests Researcher Who Found 'Kill-Switch' to Stop Wannacry Ransomware](http://www.f3nws.com/n/jMBaWE)
 
-> Posted on: Thursday, August 3, 2017 6:07:24 PM
+> Posted on: Thursday, August 3, 2017 6:54:48 PM
