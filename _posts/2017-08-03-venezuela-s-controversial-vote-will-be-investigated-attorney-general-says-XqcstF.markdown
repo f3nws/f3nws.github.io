@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's controversial vote will be investigated, attorney general says"
-date: 2017-08-03 05:53:04Z
+date: 2017-08-03 09:09:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The newly elected Venezuelan legislative body will meet for the first time Frida
 
 Full story on F3News: [Venezuela's controversial vote will be investigated, attorney general says](http://www.f3nws.com/n/XqcstF)
 
-> Posted on: Thursday, August 3, 2017 5:53:04 AM
+> Posted on: Thursday, August 3, 2017 9:09:32 AM
