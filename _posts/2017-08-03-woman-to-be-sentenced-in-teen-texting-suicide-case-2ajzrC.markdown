@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman to be sentenced in teen texting suicide case"
-date: 2017-08-03 17:23:13Z
+date: 2017-08-03 17:51:43Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TAUNTON, Mass. (AP) — A Massachusetts woman who encouraged her boyfriend to ki
 
 Full story on F3News: [Woman to be sentenced in teen texting suicide case](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 5:23:13 PM
+> Posted on: Thursday, August 3, 2017 5:51:43 PM
