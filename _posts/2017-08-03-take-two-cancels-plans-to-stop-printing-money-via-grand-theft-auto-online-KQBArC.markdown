@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Take Two cancels plans to stop printing money via Grand Theft Auto Online](https://cdn.arstechnica.net/wp-content/uploads/2016/01/grand-theft-auto-v-3123-640x215.jpg)
 
-Take Two's "better-than-expected" Q1 2018 driven primarily by paid GTA Online DLC.
+Take Two’s “better-than-expected” Q1 2018 driven primarily by paid GTA Online DLC.
 
 
 Full story on F3News: [Take Two cancels plans to stop printing money via Grand Theft Auto Online](http://www.f3nws.com/n/KQBArC)
