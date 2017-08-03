@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former heavyweight world champion Wladimir Klitschko retires"
-date: 2017-08-03 10:19:17Z
+date: 2017-08-03 10:45:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BERLIN (AP) — Former heavyweight world champion Wladimir Klitschko announced h
 
 Full story on F3News: [Former heavyweight world champion Wladimir Klitschko retires](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 10:19:17 AM
+> Posted on: Thursday, August 3, 2017 10:45:44 AM
