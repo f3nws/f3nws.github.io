@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texting suicide case girlfriend facing 20 years"
-date: 2017-08-03 18:43:47Z
+date: 2017-08-03 19:21:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Michelle Carter's own words helped seal her involuntary manslaughter conviction 
 
 Full story on F3News: [Texting suicide case girlfriend facing 20 years](http://www.f3nws.com/n/PS2qgF)
 
-> Posted on: Thursday, August 3, 2017 6:43:47 PM
+> Posted on: Thursday, August 3, 2017 7:21:32 PM
