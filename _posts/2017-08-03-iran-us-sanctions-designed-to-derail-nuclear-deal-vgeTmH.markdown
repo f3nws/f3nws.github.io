@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran: US sanctions designed to derail nuclear deal"
-date: 2017-08-03 07:40:50Z
+date: 2017-08-03 08:35:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US is undermining the Iran nuclear deal by imposing sanctions on the country
 
 Full story on F3News: [Iran: US sanctions designed to derail nuclear deal](http://www.f3nws.com/n/vgeTmH)
 
-> Posted on: Thursday, August 3, 2017 7:40:50 AM
+> Posted on: Thursday, August 3, 2017 8:35:13 AM
