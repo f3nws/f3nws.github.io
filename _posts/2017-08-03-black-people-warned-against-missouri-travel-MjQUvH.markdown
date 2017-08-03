@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Black people warned against Missouri travel"
-date: 2017-08-03 01:08:32Z
+date: 2017-08-03 16:11:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The NAACP is sending a strong message to people of color traveling through Misso
 
 Full story on F3News: [Black people warned against Missouri travel](http://www.f3nws.com/n/MjQUvH)
 
-> Posted on: Thursday, August 3, 2017 1:08:32 AM
+> Posted on: Thursday, August 3, 2017 4:11:53 PM
