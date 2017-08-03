@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazil's president dodges bribery charge, but risks remain"
-date: 2017-08-03 06:53:37Z
+date: 2017-08-03 07:21:39Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRASILIA, Brazil (AP) — With his job on the line, President Michel Temer eked 
 
 Full story on F3News: [Brazil's president dodges bribery charge, but risks remain](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 6:53:37 AM
+> Posted on: Thursday, August 3, 2017 7:21:39 AM
