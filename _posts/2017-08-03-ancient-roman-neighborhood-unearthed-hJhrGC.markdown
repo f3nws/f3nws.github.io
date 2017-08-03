@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ancient Roman neighborhood unearthed"
-date: 2017-08-03 15:25:18Z
+date: 2017-08-03 15:27:46Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Archaeologists have unearthed a well-preserved ancient Roman neighborhood comple
 
 Full story on F3News: [Ancient Roman neighborhood unearthed](http://www.f3nws.com/n/hJhrGC)
 
-> Posted on: Thursday, August 3, 2017 3:25:18 PM
+> Posted on: Thursday, August 3, 2017 3:27:46 PM
