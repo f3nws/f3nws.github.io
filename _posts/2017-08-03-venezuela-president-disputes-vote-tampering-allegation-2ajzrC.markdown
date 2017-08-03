@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela president disputes vote tampering allegation"
-date: 2017-08-03 19:53:20Z
+date: 2017-08-03 20:20:31Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Venezuela's president defiantly dismissed allegation
 
 Full story on F3News: [Venezuela president disputes vote tampering allegation](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 7:53:20 PM
+> Posted on: Thursday, August 3, 2017 8:20:31 PM

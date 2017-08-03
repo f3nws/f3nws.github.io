@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Dolphins QB Ryan Tannehill suffers apparent knee injury during fall - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F1023%2Fr143898_1296x729_16%2D9.jpg)
 
-ESPN Dolphins QB Ryan Tannehill suffers apparent knee injury during fall ESPN DAVIE, Fla. -- Miami Dolphins starting quarterback Ryan Tannehill suffered what appeared to be a left knee injury Thursday. A source told ESPN NFL Insider Adam Schefter that the team is "concerned" as they await results of an MRI. Tannehill, who ... Miami Dolphins QB Ryan Tannehill reinjures knee FOXSports.com Ryan Tannehill and the Dolphins anxiously await results of MRI on his left knee Washington Post Colin Kaepernick Reportedly Discussed by Dolphins After Ryan Tannehill Injury Bleacher Report WEEI.com - New York Post - Miami Herald (blog) - CBSSports.com all 138 news articles »
+ESPN Dolphins QB Ryan Tannehill suffers apparent knee injury during fall ESPN DAVIE, Fla. -- Miami Dolphins starting quarterback Ryan Tannehill suffered what appeared to be a left knee injury Thursday. A source told ESPN NFL Insider Adam Schefter that the team is "concerned" as they await results of an MRI. Tannehill, who ... Ryan Tannehill suffers no structural damage to knee NFL.com Florida Midday Minute: Rays with chance to take series from Astros FOXSports.com Dolphins' Ryan Tannehill hyperextended his knee, source says Sun Sentinel Washington Post - Bleacher Report - SB Nation - WEEI.com all 146 news articles »
 
 
 Full story on F3News: [Dolphins QB Ryan Tannehill suffers apparent knee injury during fall - ESPN](http://www.f3nws.com/n/ctzN2B)
