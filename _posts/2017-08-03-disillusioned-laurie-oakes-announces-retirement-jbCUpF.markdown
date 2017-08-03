@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['Disillusioned' Laurie Oakes announces retirement](http://www.abc.net.au/news/image/2700228-1x1-700x700.jpg)
 
-Channel Nine political editor and three-time Walkley Award-winner Laurie Oakes says he will retire later this month after more that 50 years in journalism with concerns about the state of politics.
+Channel Nine political editor and three-time Walkley Award-winner Laurie Oakes says he will retire later this month after more than 50 years in journalism with concerns about the state of politics.
 
 
 Full story on F3News: ['Disillusioned' Laurie Oakes announces retirement](http://www.f3nws.com/n/jbCUpF)

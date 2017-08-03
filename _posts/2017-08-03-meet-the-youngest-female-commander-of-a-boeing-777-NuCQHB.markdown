@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meet the youngest female commander of a Boeing 777"
-date: 2017-08-03 07:46:00Z
+date: 2017-08-03 08:11:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Becoming a pilot is far from easy, but challenging gender stereotypes and becomi
 
 Full story on F3News: [Meet the youngest female commander of a Boeing 777](http://www.f3nws.com/n/NuCQHB)
 
-> Posted on: Thursday, August 3, 2017 7:46:00 AM
+> Posted on: Thursday, August 3, 2017 8:11:15 AM
