@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Some US lawmakers support direct talks with North Korea"
-date: 2017-08-03 01:49:17Z
+date: 2017-08-03 05:01:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has long indicated that he'd be willing to meet face-to-f
 
 Full story on F3News: [Some US lawmakers support direct talks with North Korea](http://www.f3nws.com/n/HnZqeG)
 
-> Posted on: Thursday, August 3, 2017 1:49:17 AM
+> Posted on: Thursday, August 3, 2017 5:01:45 AM
