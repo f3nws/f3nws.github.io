@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "35 Russian tourists among dozens injured in munition depot blast in Abkhazia (VIDEOS)"
-date: 2017-08-03 01:48:58Z
+date: 2017-08-03 01:48:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Dozens of people have been injured by explosions and the resultant fire at an am
 
 Full story on F3News: [35 Russian tourists among dozens injured in munition depot blast in Abkhazia (VIDEOS)](http://www.f3nws.com/n/ajagu)
 
-> Posted on: Thursday, August 3, 2017 1:48:58 AM
+> Posted on: Thursday, August 3, 2017 1:48:00 AM

@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Grandmaster Flash & the Furious Five's Kidd Creole Arrested for Murder - RollingStone.com](http://img.wennermedia.com/social/gettyimages-115331290-f6e49172-f512-44a4-88f2-ac925afb1efb.jpg)
 
-RollingStone.com Grandmaster Flash & the Furious Five's Kidd Creole Arrested for Murder RollingStone.com Nathaniel Glover, who performed as Kidd Creole in Grandmaster Flash & the Furious Five, has been arrested for the murder of a homeless man in New York. Credit: Kevin Kane/Getty. By Althea Legaspi. 50 minutes ago ... Grandmaster Flash & The Furious Five's The Kidd Creole Charged With Murder, Rahiem Speaks Out HipHopDX Rap Legend Charged with Murder TMZ.com Kidd Creole of Grandmaster Flash and the Furious Five Is Charged With Murder New York Times The BoomBox - Complex - CBS News - PEOPLE.com all 50 news articles »
+RollingStone.com Grandmaster Flash & the Furious Five's Kidd Creole Arrested for Murder RollingStone.com Nathaniel Glover, who performed as Kidd Creole in Grandmaster Flash & the Furious Five, has been arrested for the murder of a homeless man in New York. Credit: Kevin Kane/Getty. By Althea Legaspi. 2 hours ago ... Grandmaster Flash & The Furious Five's The Kidd Creole Charged With Murder, Rahiem Speaks Out HipHopDX Rap Legend Charged with Murder TMZ.com Kidd Creole of Grandmaster Flash and the Furious Five Is Charged With Murder New York Times The BoomBox - CBS News - Complex - Fox News all 55 news articles »
 
 
 Full story on F3News: [Grandmaster Flash & the Furious Five's Kidd Creole Arrested for Murder - RollingStone.com](http://www.f3nws.com/n/KQXdQC)

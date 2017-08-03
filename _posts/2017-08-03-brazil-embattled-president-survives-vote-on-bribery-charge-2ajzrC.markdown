@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazil embattled president survives vote on bribery charge"
-date: 2017-08-03 03:55:45Z
+date: 2017-08-03 04:51:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRASILIA, Brazil (AP) — Brazil's embattled president survived a key congressio
 
 Full story on F3News: [Brazil embattled president survives vote on bribery charge](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 3:55:45 AM
+> Posted on: Thursday, August 3, 2017 4:51:17 AM

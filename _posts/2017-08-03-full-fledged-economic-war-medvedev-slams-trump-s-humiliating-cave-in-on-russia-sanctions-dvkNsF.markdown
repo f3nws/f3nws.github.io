@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Full-fledged economic war’: Medvedev slams Trump’s ‘humiliating’ cave-in on Russia sanctions"
-date: 2017-08-03 00:11:39Z
+date: 2017-08-03 00:11:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The US establishment has fully outwitted Donald Trump and used his administratio
 
 Full story on F3News: [‘Full-fledged economic war’: Medvedev slams Trump’s ‘humiliating’ cave-in on Russia sanctions](http://www.f3nws.com/n/dvkNsF)
 
-> Posted on: Thursday, August 3, 2017 12:11:39 AM
+> Posted on: Thursday, August 3, 2017 12:11:00 AM
