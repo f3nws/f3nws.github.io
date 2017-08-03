@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci memo shows ambitious plans for press office"
-date: 2017-08-03 05:17:45Z
+date: 2017-08-03 06:27:06Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Ousted White House communications director Anthony Scaramucc
 
 Full story on F3News: [Scaramucci memo shows ambitious plans for press office](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 3, 2017 5:17:45 AM
+> Posted on: Thursday, August 3, 2017 6:27:06 AM
