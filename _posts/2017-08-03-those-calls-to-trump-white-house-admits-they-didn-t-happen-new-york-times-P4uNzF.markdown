@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Those Calls to Trump? White House Admits They Didn't Happen - New York Times](https://static01.nyt.com/images/2017/08/03/us/03DC-TRUMP-01/03DC-TRUMP-01-facebookJumbo.jpg)
 
-New York Times Those Calls to Trump? White House Admits They Didn't Happen New York Times President Trump addressed the Boy Scouts of America's national jamboree last month in Glen Jean, W.Va. Credit Doug Mills/The New York Times. WASHINGTON — Has President Trump told you about the time the head of the Boy Scouts called to say his ... White House: Two phone calls, claimed by Trump but disputed by others, were actually in-person conversations Washington Post Trump's Boy Scout Lie Makes It Harder For America To Trust Him On Anything Else HuffPost The president and the Boy Scouts: Was there really a phone call? PolitiFact CBS News - The Boston Globe - TIME - U.S. News & World Report all 315 news articles »
+New York Times Those Calls to Trump? White House Admits They Didn't Happen New York Times President Trump addressed the Boy Scouts of America's national jamboree last month in Glen Jean, W.Va. Credit Doug Mills/The New York Times. WASHINGTON — Has President Trump told you about the time the head of the Boy Scouts called to say his ... Trump's Boy Scout Lie Makes It Harder For America To Trust Him On Anything Else HuffPost White House: Two phone calls, claimed by Trump but disputed by others, were actually in-person conversations Washington Post The president and the Boy Scouts: Was there really a phone call? PolitiFact CBS News - U.S. News & World Report - TIME - The Boston Globe all 276 news articles »
 
 
 Full story on F3News: [Those Calls to Trump? White House Admits They Didn't Happen - New York Times](http://www.f3nws.com/n/P4uNzF)
