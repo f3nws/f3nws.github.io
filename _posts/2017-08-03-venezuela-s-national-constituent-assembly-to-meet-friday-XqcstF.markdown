@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela's National Constituent Assembly to meet Friday"
-date: 2017-08-03 02:47:41Z
+date: 2017-08-03 04:22:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The newly elected Venezuelan legislative body will meet for the first time Frida
 
 Full story on F3News: [Venezuela's National Constituent Assembly to meet Friday](http://www.f3nws.com/n/XqcstF)
 
-> Posted on: Thursday, August 3, 2017 2:47:41 AM
+> Posted on: Thursday, August 3, 2017 4:22:14 AM

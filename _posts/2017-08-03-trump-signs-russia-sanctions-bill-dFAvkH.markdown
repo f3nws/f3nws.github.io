@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump signs Russia sanctions bill"
-date: 2017-08-03 02:29:16Z
+date: 2017-08-03 03:33:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump signed into law Wednesday morning legislation that levies
 
 Full story on F3News: [Trump signs Russia sanctions bill](http://www.f3nws.com/n/dFAvkH)
 
-> Posted on: Thursday, August 3, 2017 2:29:16 AM
+> Posted on: Thursday, August 3, 2017 3:33:37 AM
