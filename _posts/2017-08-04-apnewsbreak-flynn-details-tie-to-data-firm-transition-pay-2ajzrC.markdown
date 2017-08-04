@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: Flynn details tie to data firm, transition pay"
-date: 2017-08-04 04:48:54Z
+date: 2017-08-04 05:56:19Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's former national security adviser, M
 
 Full story on F3News: [APNewsBreak: Flynn details tie to data firm, transition pay](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 4:48:54 AM
+> Posted on: Friday, August 4, 2017 5:56:19 AM
