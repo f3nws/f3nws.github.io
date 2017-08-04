@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best PC game recording software: 5 freeware capture tools compared"
-date: 2017-08-04 06:17:00Z
+date: 2017-08-04 12:28:00Z
 categories: pcworld
 ---
 
@@ -12,4 +12,4 @@ Whether you’re an emerging Twitch broadcaster or simply a gamer who wants to s
 
 Full story on F3News: [The best PC game recording software: 5 freeware capture tools compared](http://www.f3nws.com/n/ysPvsE)
 
-> Posted on: Friday, August 4, 2017 6:17:00 AM
+> Posted on: Friday, August 4, 2017 12:28:00 PM
