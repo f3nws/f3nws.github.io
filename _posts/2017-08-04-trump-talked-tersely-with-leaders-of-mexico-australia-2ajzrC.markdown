@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump talked tersely with leaders of Mexico, Australia"
-date: 2017-08-04 06:51:04Z
+date: 2017-08-04 07:59:07Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Transcripts of President Donald Trump's conversations with t
 
 Full story on F3News: [Trump talked tersely with leaders of Mexico, Australia](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 6:51:04 AM
+> Posted on: Friday, August 4, 2017 7:59:07 AM
