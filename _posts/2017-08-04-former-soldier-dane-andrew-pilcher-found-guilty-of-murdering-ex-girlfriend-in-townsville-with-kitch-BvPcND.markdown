@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former soldier Dane Andrew Pilcher found guilty of murdering ex-girlfriend in Townsville with kitchen knife - ABC Online"
-date: 2017-08-04 07:23:24Z
+date: 2017-08-04 08:48:01Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Former soldier Dane Andrew Pilcher found guilty of murdering ex-girlf
 
 Full story on F3News: [Former soldier Dane Andrew Pilcher found guilty of murdering ex-girlfriend in Townsville with kitchen knife - ABC Online](http://www.f3nws.com/n/BvPcND)
 
-> Posted on: Friday, August 4, 2017 7:23:24 AM
+> Posted on: Friday, August 4, 2017 8:48:01 AM
