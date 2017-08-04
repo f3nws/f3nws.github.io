@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amanda Knox: Woman in texting suicide case deserves sympathy"
-date: 2017-08-04 17:58:00Z
+date: 2017-08-04 18:28:08Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — Amanda Knox, the American exchange student convicted and la
 
 Full story on F3News: [Amanda Knox: Woman in texting suicide case deserves sympathy](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 5:58:00 PM
+> Posted on: Friday, August 4, 2017 6:28:08 PM
