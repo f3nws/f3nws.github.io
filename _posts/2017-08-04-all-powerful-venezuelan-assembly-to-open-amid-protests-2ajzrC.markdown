@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All-powerful Venezuelan assembly to open amid protests"
-date: 2017-08-04 07:18:10Z
+date: 2017-08-04 10:28:46Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Venezuelan President Nicolas Maduro is heading towar
 
 Full story on F3News: [All-powerful Venezuelan assembly to open amid protests](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 7:18:10 AM
+> Posted on: Friday, August 4, 2017 10:28:46 AM
