@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Neymar: Leaving Barcelona 'one of the toughest' decisions"
-date: 2017-08-04 20:09:18Z
+date: 2017-08-04 21:34:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Neymar says the decision to leave Barcelona was "one of the toughest" of his lif
 
 Full story on F3News: [Neymar: Leaving Barcelona 'one of the toughest' decisions](http://www.f3nws.com/n/HmbYb)
 
-> Posted on: Friday, August 4, 2017 8:09:18 PM
+> Posted on: Friday, August 4, 2017 9:34:55 PM

@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Leak Investigations Triple Under Trump, Sessions Says - New York Times"
-date: 2017-08-04 18:18:00Z
+date: 2017-08-04 18:25:46Z
 categories: google-news-top-stories
 ---
 
 ![Leak Investigations Triple Under Trump, Sessions Says - New York Times](https://static01.nyt.com/images/2017/08/05/us/05sessions2_hp/05sessions2_hp-facebookJumbo.jpg)
 
-New York Times Leak Investigations Triple Under Trump, Sessions Says New York Times Attorney General Jeff Sessions said the administration was increasing its effort to end intelligence leaks. By THE ASSOCIATED PRESS. Photo by Zach Gibson for The New York Times. Watch in Times Video ». embed. Washington — Attorney General Jeff ... Attorney general says Justice Dept. has tripled the number of leak probes Washington Post DOJ warns the media could be targeted in crackdown on leaks The Hill Sessions: DOJ reviewing policies on media subpoenas Politico Los Angeles Times - Fox News - NPR - Bloomberg all 788 news articles »
+New York Times Leak Investigations Triple Under Trump, Sessions Says New York Times Attorney General Jeff Sessions said the administration was increasing its effort to end intelligence leaks. By THE ASSOCIATED PRESS. Photo by Zach Gibson for The New York Times. Watch in Times Video ». embed. WASHINGTON — Attorney General Jeff ... Attorney general says Justice Dept. has tripled the number of leak probes Washington Post DOJ warns the media could be targeted in crackdown on leaks The Hill Sessions plans increased investigations on unauthorized leaks to media Los Angeles Times ABC News - NPR - HuffPost - Bloomberg all 800 news articles »
 
 
 Full story on F3News: [Leak Investigations Triple Under Trump, Sessions Says - New York Times](http://www.f3nws.com/n/yCUsJC)
 
-> Posted on: Friday, August 4, 2017 6:18:00 PM
+> Posted on: Friday, August 4, 2017 6:25:46 PM
