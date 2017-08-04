@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Jays could do with more of Josh Donaldson: DiManno"
-date: 2017-08-04 02:58:51Z
+date: 2017-08-04 02:58:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Blue Jays should think about how they can build around the Bringer of Rain, not 
 
 Full story on F3News: [The Jays could do with more of Josh Donaldson: DiManno](http://www.f3nws.com/n/NQznD)
 
-> Posted on: Friday, August 4, 2017 2:58:51 AM
+> Posted on: Friday, August 4, 2017 2:58:00 AM
