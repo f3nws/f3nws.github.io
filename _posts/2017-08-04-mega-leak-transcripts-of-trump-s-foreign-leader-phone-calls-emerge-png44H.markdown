@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mega-Leak: Transcripts Of Trump's Foreign Leader Phone Calls Emerge"
-date: 2017-08-04 00:30:03Z
+date: 2017-08-04 00:32:20Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Mega-Leak: Transcripts Of Trump's Foreign Leader Phone Calls Emerge](http://www.f3nws.com/n/png44H)
 
-> Posted on: Friday, August 4, 2017 12:30:03 AM
+> Posted on: Friday, August 4, 2017 12:32:20 AM
