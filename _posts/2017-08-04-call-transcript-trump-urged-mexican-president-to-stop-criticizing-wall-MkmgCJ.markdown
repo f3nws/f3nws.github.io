@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Call transcript: Trump urged Mexican president to stop criticizing wall"
-date: 2017-08-04 00:57:07Z
+date: 2017-08-04 01:33:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump boasted about his election victory, pressured his Mexican
 
 Full story on F3News: [Call transcript: Trump urged Mexican president to stop criticizing wall](http://www.f3nws.com/n/MkmgCJ)
 
-> Posted on: Friday, August 4, 2017 12:57:07 AM
+> Posted on: Friday, August 4, 2017 1:33:25 AM
