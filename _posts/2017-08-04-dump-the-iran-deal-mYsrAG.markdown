@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dump the Iran deal"
-date: 2017-08-04 04:00:02Z
+date: 2017-08-04 06:30:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump has reluctantly followed the advice of his national security adv
 
 Full story on F3News: [Dump the Iran deal](http://www.f3nws.com/n/mYsrAG)
 
-> Posted on: Friday, August 4, 2017 4:00:02 AM
+> Posted on: Friday, August 4, 2017 6:30:01 AM
