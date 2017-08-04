@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fire put out at 86-story residential skyscraper in Dubai"
-date: 2017-08-04 13:54:45Z
+date: 2017-08-04 14:21:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DUBAI, United Arab Emirates (AP) — Police in Dubai have reopened the streets a
 
 Full story on F3News: [Fire put out at 86-story residential skyscraper in Dubai](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 1:54:45 PM
+> Posted on: Friday, August 4, 2017 2:21:15 PM
