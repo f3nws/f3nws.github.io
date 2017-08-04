@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Style Watch: Who wore short shorts?"
-date: 2017-08-04 08:30:03Z
+date: 2017-08-04 09:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Daisy Dukes were everywhere this summer.
 
 Full story on F3News: [Style Watch: Who wore short shorts?](http://www.f3nws.com/n/P3yRCB)
 
-> Posted on: Friday, August 4, 2017 8:30:03 AM
+> Posted on: Friday, August 4, 2017 9:00:00 AM
