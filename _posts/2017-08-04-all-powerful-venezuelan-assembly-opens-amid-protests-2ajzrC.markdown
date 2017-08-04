@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All-powerful Venezuelan assembly opens amid protests"
-date: 2017-08-04 19:50:05Z
+date: 2017-08-04 20:17:49Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Defying criticism from Washington to the Vatican, Ve
 
 Full story on F3News: [All-powerful Venezuelan assembly opens amid protests](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 7:50:05 PM
+> Posted on: Friday, August 4, 2017 8:17:49 PM
