@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Special Counsel Mueller Impanels Washington Grand Jury in Russia Probe"
-date: 2017-08-04 01:30:02Z
+date: 2017-08-04 03:36:49Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Special Counsel Mueller Impanels Washington Grand Jury in Russia Probe](http://www.f3nws.com/n/bbUuGH)
 
-> Posted on: Friday, August 4, 2017 1:30:02 AM
+> Posted on: Friday, August 4, 2017 3:36:49 AM
