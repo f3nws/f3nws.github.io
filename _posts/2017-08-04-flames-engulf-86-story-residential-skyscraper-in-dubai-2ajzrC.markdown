@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flames engulf 86-story residential skyscraper in Dubai"
-date: 2017-08-04 02:17:50Z
+date: 2017-08-04 02:58:34Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DUBAI, United Arab Emirates (AP) — A fire broke out after midnight in one of t
 
 Full story on F3News: [Flames engulf 86-story residential skyscraper in Dubai](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 4, 2017 2:17:50 AM
+> Posted on: Friday, August 4, 2017 2:58:34 AM
