@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Catholic bishop of Phoenix accused of sex abuse of boy"
-date: 2017-08-04 00:14:42Z
+date: 2017-08-04 00:47:16Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A former head of the Catholic church in Phoenix has been accused of molesting a 
 
 Full story on F3News: [Ex-Catholic bishop of Phoenix accused of sex abuse of boy](http://www.f3nws.com/n/ESe3CJ)
 
-> Posted on: Friday, August 4, 2017 12:14:42 AM
+> Posted on: Friday, August 4, 2017 12:47:16 AM
