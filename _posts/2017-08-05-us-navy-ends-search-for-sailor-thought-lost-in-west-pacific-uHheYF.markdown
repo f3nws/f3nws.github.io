@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy ends search for sailor thought lost in west Pacific"
-date: 2017-08-05 01:31:43Z
+date: 2017-08-05 03:14:09Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The U.S. Navy has ended a three-day search for a sailor who is believed to have 
 
 Full story on F3News: [US Navy ends search for sailor thought lost in west Pacific](http://www.f3nws.com/n/uHheYF)
 
-> Posted on: Saturday, August 5, 2017 1:31:43 AM
+> Posted on: Saturday, August 5, 2017 3:14:09 AM

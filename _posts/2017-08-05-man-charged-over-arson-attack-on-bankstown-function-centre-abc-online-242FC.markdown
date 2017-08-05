@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man charged over arson attack on Bankstown function centre - ABC Online"
-date: 2017-08-05 00:19:35Z
+date: 2017-08-05 00:13:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Man charged over arson attack on Bankstown function centre ABC Online
 
 Full story on F3News: [Man charged over arson attack on Bankstown function centre - ABC Online](http://www.f3nws.com/n/242FC)
 
-> Posted on: Saturday, August 5, 2017 12:19:35 AM
+> Posted on: Saturday, August 5, 2017 12:13:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flynn files new financial form reporting ties to data firm"
-date: 2017-08-05 03:20:38Z
+date: 2017-08-05 03:48:07Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's former national security adviser, M
 
 Full story on F3News: [Flynn files new financial form reporting ties to data firm](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 5, 2017 3:20:38 AM
+> Posted on: Saturday, August 5, 2017 3:48:07 AM
