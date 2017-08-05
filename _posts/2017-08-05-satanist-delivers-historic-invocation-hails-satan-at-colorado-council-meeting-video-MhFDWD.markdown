@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Satanist delivers historic invocation, hails Satan at Colorado council meeting (VIDEO)"
-date: 2017-08-05 00:29:37Z
+date: 2017-08-05 00:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ In a move that both attracted and scared away attendees from a Colorado council 
 
 Full story on F3News: [Satanist delivers historic invocation, hails Satan at Colorado council meeting (VIDEO)](http://www.f3nws.com/n/MhFDWD)
 
-> Posted on: Saturday, August 5, 2017 12:29:37 AM
+> Posted on: Saturday, August 5, 2017 12:29:00 AM
