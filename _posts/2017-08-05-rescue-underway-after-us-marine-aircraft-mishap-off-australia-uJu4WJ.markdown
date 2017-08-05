@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rescue underway after US Marine aircraft 'mishap' off Australia"
-date: 2017-08-05 13:52:21Z
+date: 2017-08-05 14:35:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US military aircraft and boats are scouring waters off Australia's east coast Sa
 
 Full story on F3News: [Rescue underway after US Marine aircraft 'mishap' off Australia](http://www.f3nws.com/n/uJu4WJ)
 
-> Posted on: Saturday, August 5, 2017 1:52:21 PM
+> Posted on: Saturday, August 5, 2017 2:35:42 PM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![US Marines feared dead after aircraft 'mishap' off Queensland coast](http://www.abc.net.au/news/image/8778212-1x1-700x700.jpg)
 
-Three crew members are still missing after a United States Marine Corps aircraft was involved in a "mishap" off Queensland's coast.
+Three crew members are still missing after a United States Marine Corps aircraft "entered the water" during regularly scheduled operations off the Queensland coast, while 23 others have been rescued.
 
 
 Full story on F3News: [US Marines feared dead after aircraft 'mishap' off Queensland coast](http://www.f3nws.com/n/gUUcuF)
