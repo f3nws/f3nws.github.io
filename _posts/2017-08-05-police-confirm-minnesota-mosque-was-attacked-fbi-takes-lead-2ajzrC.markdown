@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police confirm Minnesota mosque was attacked, FBI takes lead"
-date: 2017-08-05 19:54:57Z
+date: 2017-08-05 20:22:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BLOOMINGTON, Minn. (AP) — Someone apparently threw a bomb through the window o
 
 Full story on F3News: [Police confirm Minnesota mosque was attacked, FBI takes lead](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 5, 2017 7:54:57 PM
+> Posted on: Saturday, August 5, 2017 8:22:36 PM
