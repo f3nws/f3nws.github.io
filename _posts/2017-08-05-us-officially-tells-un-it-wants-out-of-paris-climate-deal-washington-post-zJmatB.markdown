@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US officially tells UN it wants out of Paris climate deal - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-08-05/AP/Images/Climate_Withdrawal_19022.jpg-577a1.jpg?t=20170517)
 
-Washington Post US officially tells UN it wants out of Paris climate deal Washington Post WASHINGTON — The Trump administration on Friday officially told the United Nations that the U.S. intends to pull out of the 2015 Paris climate pact. But the State Department's announcement doesn't formally start the process of the U.S. getting out of ... Trump administration delivers notice US intends to withdraw from Paris climate deal Politico US notifies UN of intent to pull out of climate deal CNN Trump and the Paris Agreement: What Just Happened? The Atlantic The Hill - BBC News - Washington Examiner - New York Times all 78 news articles »
+Washington Post US officially tells UN it wants out of Paris climate deal Washington Post WASHINGTON — The Trump administration on Friday officially told the United Nations that the U.S. intends to pull out of the 2015 Paris climate pact. But the State Department's announcement doesn't formally start the process of the U.S. getting out of ... Trump administration delivers notice US intends to withdraw from Paris climate deal Politico US notifies UN of intent to pull out of climate deal CNN Trump and the Paris Agreement: What Just Happened? The Atlantic The Hill - BBC News - Washington Examiner - U.S. News & World Report all 78 news articles »
 
 
 Full story on F3News: [US officially tells UN it wants out of Paris climate deal - Washington Post](http://www.f3nws.com/n/zJmatB)
