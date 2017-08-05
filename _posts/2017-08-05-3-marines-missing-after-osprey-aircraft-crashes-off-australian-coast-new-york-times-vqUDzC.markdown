@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![3 Marines Missing After Osprey Aircraft Crashes Off Australian Coast - New York Times](https://static01.nyt.com/images/2017/08/06/us/06xp-marines/06xp-marines-facebookJumbo.jpg)
 
-New York Times 3 Marines Missing After Osprey Aircraft Crashes Off Australian Coast New York Times A United States Marines MV-22 Osprey approached the deck of the U.S.S. Bonhomme Richard off the Australian coast in June. Credit Jason Reed/Reuters. Three United States Marines are missing after an MV-22 Osprey, a hybrid aircraft, entered the water off ... US military searches for three Marines in sea after aircraft crashes off Australia Reuters Search Underway for 3 Marines After V-22 Crashes Off Australia Military.com Three people missing after Marine Corps aircraft crash near Australia Washington Post ABC News - NPR - CBS News - WJLA all 128 news articles »
+New York Times 3 Marines Missing After Osprey Aircraft Crashes Off Australian Coast New York Times A United States Marines MV-22 Osprey approached the deck of the U.S.S. Bonhomme Richard off the Australian coast in June. Credit Jason Reed/Reuters. Three United States Marines are missing after an MV-22 Osprey, a hybrid aircraft, entered the water off ... US Marines MV-22 Osprey Heli-Plane Crashes off Australian Coast NBCNews.com US military searches for three Marines in sea after aircraft crashes off Australia Reuters Three people missing after Marine Corps aircraft crash near Australia Washington Post The Boston Globe - CBS News - WOWT - Newsweek all 131 news articles »
 
 
 Full story on F3News: [3 Marines Missing After Osprey Aircraft Crashes Off Australian Coast - New York Times](http://www.f3nws.com/n/vqUDzC)
