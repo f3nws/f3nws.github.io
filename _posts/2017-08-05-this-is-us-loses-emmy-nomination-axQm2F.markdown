@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'This Is Us' loses Emmy nomination"
-date: 2017-08-05 02:36:53Z
+date: 2017-08-05 08:47:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['This Is Us' loses Emmy nomination](http://www.f3nws.com/n/axQm2F)
 
-> Posted on: Saturday, August 5, 2017 2:36:53 AM
+> Posted on: Saturday, August 5, 2017 8:47:54 AM
