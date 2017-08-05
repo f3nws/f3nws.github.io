@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Turnbull defers Government decision on Indigenous recognition](http://www.abc.net.au/news/image/8777596-1x1-700x700.jpg)
 
-Prime Minister Malcolm Turnbull uses his speech at Garma to further defer any official response to the Referendum Council's recommendation of constitutionally enshrining a voice for Aboriginal Australians in Parliament.
+The Prime Minister tells the crowd at Garma "many people talk about referendums, but few people have knowledge in running one", further deferring any official response to the recommendation of constitutional recognition for Indigenous Australians.
 
 
 Full story on F3News: [Turnbull defers Government decision on Indigenous recognition](http://www.f3nws.com/n/bjDcCJ)
