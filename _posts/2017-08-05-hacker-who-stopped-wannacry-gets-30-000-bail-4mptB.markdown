@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hacker who stopped WannaCry gets $30,000 bail"
-date: 2017-08-05 08:09:20Z
+date: 2017-08-05 08:09:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Bail has been set at $30,000 by a judge in Las Vegas for Marcus Hutchins, a cybe
 
 Full story on F3News: [Hacker who stopped WannaCry gets $30,000 bail](http://www.f3nws.com/n/4mptB)
 
-> Posted on: Saturday, August 5, 2017 8:09:20 AM
+> Posted on: Saturday, August 5, 2017 8:09:00 AM
