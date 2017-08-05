@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump-endorsed immigration bill divides Syrian, Iraqi refugee activists"
-date: 2017-08-05 01:00:03Z
+date: 2017-08-05 02:00:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A congressional proposal backed by President Trump to cut legal immigration to t
 
 Full story on F3News: [Trump-endorsed immigration bill divides Syrian, Iraqi refugee activists](http://www.f3nws.com/n/EQXsMD)
 
-> Posted on: Saturday, August 5, 2017 1:00:03 AM
+> Posted on: Saturday, August 5, 2017 2:00:01 AM
