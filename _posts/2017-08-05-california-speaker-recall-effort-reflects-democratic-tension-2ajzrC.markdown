@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California speaker recall effort reflects Democratic tension"
-date: 2017-08-05 16:58:41Z
+date: 2017-08-05 18:47:49Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SACRAMENTO, Calif. (AP) — Democrats control every lever of power in California
 
 Full story on F3News: [California speaker recall effort reflects Democratic tension](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 5, 2017 4:58:41 PM
+> Posted on: Saturday, August 5, 2017 6:47:49 PM
