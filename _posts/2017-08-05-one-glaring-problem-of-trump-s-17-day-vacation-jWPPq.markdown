@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "One glaring problem of Trump's 17-day vacation..."
-date: 2017-08-05 02:42:03Z
+date: 2017-08-05 13:26:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is set to depart the White House later today for a 17-day
 
 Full story on F3News: [One glaring problem of Trump's 17-day vacation...](http://www.f3nws.com/n/jWPPq)
 
-> Posted on: Saturday, August 5, 2017 2:42:03 AM
+> Posted on: Saturday, August 5, 2017 1:26:53 PM
