@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Meet Alex, the Russian Casino Hacker Who Makes Millions Targeting Slot Machines"
+date: 2017-08-05 14:00:00Z
+categories: wired-top-stories
+---
+
+![Meet Alex, the Russian Casino Hacker Who Makes Millions Targeting Slot Machines](https://media.wired.com/photos/5984109996a2643d64f302f6/191:100/pass/slot-scammer-opener.jpg)
+
+This Russian mathematician-turned-hacker has cracked slot machines worldwide. His secret: seeing through pseudo-random numbers.
+
+
+Full story on F3News: [Meet Alex, the Russian Casino Hacker Who Makes Millions Targeting Slot Machines](http://www.f3nws.com/n/VdSGjC)
+
+> Posted on: Saturday, August 5, 2017 2:00:00 PM
