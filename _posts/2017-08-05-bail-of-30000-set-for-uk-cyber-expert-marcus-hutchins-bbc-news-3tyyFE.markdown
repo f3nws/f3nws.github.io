@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Bail of $30000 set for UK cyber expert Marcus Hutchins - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/2D25/production/_97175511_p055py47.jpg)
 
-BBC News Bail of $30000 set for UK cyber expert Marcus Hutchins BBC News A judge in the US state of Nevada has recommended the release on $30,000 (£23,000) bail of a UK computer expert. Prosecutors told the court that Marcus Hutchins had admitted to writing and selling malware code designed to steal banking details. Judge sets $30K bail for UK researcher in malware case Washington Post Security researcher who neutralized WCry to be released on $30000 bond Ars Technica Las Vegas judge grants English hacker's release on bond Las Vegas Review-Journal Daily Mail - NBCNews.com - The Guardian - Engadget all 105 news articles »
+BBC News Bail of $30000 set for UK cyber expert Marcus Hutchins BBC News US prosecutors say a British computer expert has admitted to creating software that harvests bank details. But Marcus Hutchins' own lawyer says he denies six charges of creating and distributing the Kronos malware. The 23-year-old from Ilfracombe ... Arrest of WannaCry researcher sends chill through security community The Hill Judge sets $30K bail for UK researcher in malware case Washington Post Kronos Malware Dealer On WannaCry Killer Charges: What Charges? Forbes NBCNews.com - Ars Technica - Chicago Tribune - The Boston Globe all 124 news articles »
 
 
 Full story on F3News: [Bail of $30000 set for UK cyber expert Marcus Hutchins - BBC News](http://www.f3nws.com/n/3tyyFE)
