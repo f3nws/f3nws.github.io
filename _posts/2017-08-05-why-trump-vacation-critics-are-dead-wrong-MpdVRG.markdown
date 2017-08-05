@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Trump vacation critics are dead wrong"
-date: 2017-08-05 02:00:16Z
+date: 2017-08-05 22:50:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Within moments of Donald Trump announcing his 17-day vacation -- at his golf clu
 
 Full story on F3News: [Why Trump vacation critics are dead wrong](http://www.f3nws.com/n/MpdVRG)
 
-> Posted on: Saturday, August 5, 2017 2:00:16 AM
+> Posted on: Saturday, August 5, 2017 10:50:10 PM

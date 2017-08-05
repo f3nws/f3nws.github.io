@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justin Gatlin beats Usain Bolt on Jamaican's last solo race"
-date: 2017-08-05 22:12:47Z
+date: 2017-08-05 22:51:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There was to be no triumphant end to Usain Bolt's final individual race.
 
 Full story on F3News: [Justin Gatlin beats Usain Bolt on Jamaican's last solo race](http://www.f3nws.com/n/RSykaF)
 
-> Posted on: Saturday, August 5, 2017 10:12:47 PM
+> Posted on: Saturday, August 5, 2017 10:51:54 PM
