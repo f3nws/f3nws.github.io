@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Do you live in the path of the solar eclipse? video     - CNET"
-date: 2017-08-05 00:07:01Z
+date: 2017-08-05 01:47:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ On Aug. 21, the United States will witness a total solar eclipse. NASA has relea
 
 Full story on F3News: [Do you live in the path of the solar eclipse? video     - CNET](http://www.f3nws.com/n/2MNWBF)
 
-> Posted on: Saturday, August 5, 2017 12:07:01 AM
+> Posted on: Saturday, August 5, 2017 1:47:52 AM

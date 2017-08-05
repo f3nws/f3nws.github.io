@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Convicted 'Pharma Bro' has an image problem, lawyer concedes"
-date: 2017-08-05 01:58:48Z
+date: 2017-08-05 02:25:59Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Martin Shkreli, the eccentric former pharmaceutical CEO notori
 
 Full story on F3News: [Convicted 'Pharma Bro' has an image problem, lawyer concedes](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 5, 2017 1:58:48 AM
+> Posted on: Saturday, August 5, 2017 2:25:59 AM
