@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Gay divorce ban violates human rights: UN - Sky News Australia](http://www.skynews.com.au/content/dam/skynews/news/politics/national/2017/08/05/skynews_856625109.jpg/_jcr_content/renditions/skynews.img.1200.1006.jpeg)
 
-Sky News Australia Gay divorce ban violates human rights: UN Sky News Australia Australian laws stopping same-sex couples who married overseas from getting divorced violate international human rights obligations, the United Nations has found. In a decision released overnight, the UN Human Rights Committee ruled an Australian ... Marriage equality: UN criticises Australia for refusing same-sex divorce The Guardian A UN Committee Has Found Australia's Ban On Same-Sex Divorce Violates Human Rights BuzzFeed News all 4 news articles »
+Sky News Australia Gay divorce ban violates human rights: UN Sky News Australia Australian laws stopping same-sex couples who married overseas from getting divorced violate international human rights obligations, the United Nations has found. In a decision released overnight, the UN Human Rights Committee ruled an Australian ... Marriage equality: UN criticises Australia for refusing same-sex divorce The Guardian A UN Committee Has Found Australia's Ban On Same-Sex Divorce Violates Human Rights BuzzFeed News UN rules Australia's ban on gay couples who marry overseas from getting divorced is in breach of international human ... Daily Mail all 5 news articles »
 
 
 Full story on F3News: [Gay divorce ban violates human rights: UN - Sky News Australia](http://www.f3nws.com/n/jSeTkF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huff, puff, pass? AG's pot fury not echoed by task force"
-date: 2017-08-05 05:51:22Z
+date: 2017-08-05 06:58:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The betting was that law-and-order Attorney General Jeff Ses
 
 Full story on F3News: [Huff, puff, pass? AG's pot fury not echoed by task force](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 5, 2017 5:51:22 AM
+> Posted on: Saturday, August 5, 2017 6:58:44 AM
