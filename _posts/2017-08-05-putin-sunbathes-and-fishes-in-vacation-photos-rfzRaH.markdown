@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin sunbathes and fishes in vacation photos"
-date: 2017-08-05 15:22:44Z
+date: 2017-08-05 18:07:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a week dominated by talk of sanctions, the American and Russian Presidents
 
 Full story on F3News: [Putin sunbathes and fishes in vacation photos](http://www.f3nws.com/n/rfzRaH)
 
-> Posted on: Saturday, August 5, 2017 3:22:44 PM
+> Posted on: Saturday, August 5, 2017 6:07:46 PM
