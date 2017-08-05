@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German police tried to recruit Hamburg attacker as informant – report"
-date: 2017-08-05 00:05:57Z
+date: 2017-08-05 00:05:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ German authorities were allegedly aware of Ahmad A.’s extremist tendencies for
 
 Full story on F3News: [German police tried to recruit Hamburg attacker as informant – report](http://www.f3nws.com/n/G4TvPB)
 
-> Posted on: Saturday, August 5, 2017 12:05:57 AM
+> Posted on: Saturday, August 5, 2017 12:05:00 AM

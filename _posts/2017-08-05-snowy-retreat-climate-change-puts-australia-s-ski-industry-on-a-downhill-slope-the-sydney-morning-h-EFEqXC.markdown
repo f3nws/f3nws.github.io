@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snowy retreat: Climate change puts Australia's ski industry on a downhill slope - The Sydney Morning Herald"
-date: 2017-08-05 03:06:00Z
+date: 2017-08-05 03:09:18Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Snowy retreat: Climate change puts Australia's ski ind
 
 Full story on F3News: [Snowy retreat: Climate change puts Australia's ski industry on a downhill slope - The Sydney Morning Herald](http://www.f3nws.com/n/EFEqXC)
 
-> Posted on: Saturday, August 5, 2017 3:06:00 AM
+> Posted on: Saturday, August 5, 2017 3:09:18 AM
