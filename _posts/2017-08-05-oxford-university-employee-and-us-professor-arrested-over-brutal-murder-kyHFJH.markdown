@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oxford University employee and US professor arrested over brutal murder"
-date: 2017-08-05 07:12:03Z
+date: 2017-08-05 11:38:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Northwestern professor and an Oxford University employee were arrested Friday 
 
 Full story on F3News: [Oxford University employee and US professor arrested over brutal murder](http://www.f3nws.com/n/kyHFJH)
 
-> Posted on: Saturday, August 5, 2017 7:12:03 AM
+> Posted on: Saturday, August 5, 2017 11:38:59 AM
