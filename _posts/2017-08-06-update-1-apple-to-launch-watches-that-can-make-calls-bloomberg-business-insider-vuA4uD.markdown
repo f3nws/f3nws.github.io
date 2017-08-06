@@ -5,7 +5,7 @@ date: 2017-08-06 04:13:33Z
 categories: google-news-technology
 ---
 
-CNET UPDATE 1-Apple to launch watches that can make calls - Bloomberg Business Insider Aug 4 (Reuters) - Apple Inc plans to release a version of its smartwatch later this year that can connect directly to cellular networks, Bloomberg reported on Friday, citing people familiar with the matter. Some of the new models for the Apple Watch ... Intel Corporation Scores Another Major Design Win at Apple Inc. Motley Fool All the major cases where an LTE-enabled Apple Watch would be great TechCrunch An "all-new form factor" is just what Apple Watch needs PhoneDog Fortune - Phone Arena - MarketWatch - Macworld all 130 news articles »
+CNET UPDATE 1-Apple to launch watches that can make calls - Bloomberg Business Insider Aug 4 (Reuters) - Apple Inc plans to release a version of its smartwatch later this year that can connect directly to cellular networks, Bloomberg reported on Friday, citing people familiar with the matter. Some of the new models for the Apple Watch ... Intel Corporation Scores Another Major Design Win at Apple Inc. Motley Fool All the major cases where an LTE-enabled Apple Watch would be great TechCrunch An "all-new form factor" is just what Apple Watch needs PhoneDog AppleInsider (press release) (blog) - Phone Arena - Fortune - MarketWatch all 132 news articles »
 
 
 Full story on F3News: [UPDATE 1-Apple to launch watches that can make calls - Bloomberg - Business Insider](http://www.f3nws.com/n/vuA4uD)

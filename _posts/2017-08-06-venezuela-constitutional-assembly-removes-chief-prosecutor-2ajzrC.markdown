@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela constitutional assembly removes chief prosecutor"
-date: 2017-08-06 06:50:17Z
+date: 2017-08-06 07:18:06Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — A newly installed constitutional assembly ousted Ven
 
 Full story on F3News: [Venezuela constitutional assembly removes chief prosecutor](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 6:50:17 AM
+> Posted on: Sunday, August 6, 2017 7:18:06 AM
