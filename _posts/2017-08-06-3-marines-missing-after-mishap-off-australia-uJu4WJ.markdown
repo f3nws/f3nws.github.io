@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 Marines missing after mishap off Australia"
-date: 2017-08-06 01:05:46Z
+date: 2017-08-06 01:33:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US military aircraft and boats are scouring waters off Australia's east coast Sa
 
 Full story on F3News: [3 Marines missing after mishap off Australia](http://www.f3nws.com/n/uJu4WJ)
 
-> Posted on: Sunday, August 6, 2017 1:05:46 AM
+> Posted on: Sunday, August 6, 2017 1:33:35 AM
