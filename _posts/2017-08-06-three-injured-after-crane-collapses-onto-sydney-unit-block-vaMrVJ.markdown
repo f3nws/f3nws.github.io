@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Three injured after crane collapses onto Sydney unit block](http://www.abc.net.au/news/image/8779052-1x1-700x700.jpg)
 
-Two unit blocks in Sydney's south are evacuated after a crane collapses onto one of them, injuring three people.
+A crane collapses onto a unit block in Sydney's south, injuring three workers in an incident the construction union is condemning as "not good enough".
 
 
 Full story on F3News: [Three injured after crane collapses onto Sydney unit block](http://www.f3nws.com/n/vaMrVJ)
