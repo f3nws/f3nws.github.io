@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Police charge third man arrested in Sydney terror raids](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Police from the Joint Counter-Terrorism taskforce charge a third man arrested in last weekend’s terror raids in Sydney.
+Khaled Merhi, who was arrested after a series of terror raids in Sydney last weekend, is charged with possessing a prohibited weapon.
 
 
 Full story on F3News: [Police charge third man arrested in Sydney terror raids](http://www.f3nws.com/n/SExutB)
