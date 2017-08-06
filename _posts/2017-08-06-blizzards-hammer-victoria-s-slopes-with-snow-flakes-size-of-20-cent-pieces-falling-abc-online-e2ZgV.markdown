@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Blizzards hammer Victoria's slopes, with snow flakes 'size of 20-cent pieces' falling - ABC Online](http://www.abc.net.au/news/image/8778718-1x1-700x700.jpg)
 
-ABC Online Blizzards hammer Victoria's slopes, with snow flakes 'size of 20-cent pieces' falling ABC Online Victoria's alpine areas are being pummelled by blizzard conditions, with the heaviest snowfalls of the season, as a powerful cold front makes its way across the state. The front began battering the south-west Saturday evening and peaked in Melbourne in ... Melbourne weather: Winter storm to hit city Herald Sun Blizzards to hit Vic, flood warnings in SA The Australian Blizzards, storms and hail expected to batter Victoria 9news.com.au The Age - Sky News Australia - SBS - SmoothFM (registration) all 17 news articles »
+ABC Online Blizzards hammer Victoria's slopes, with snow flakes 'size of 20-cent pieces' falling ABC Online Victoria's alpine areas are being pummelled by blizzard conditions, with the heaviest snowfalls of the season, as a powerful cold front makes its way across the state. The front began battering the south-west Saturday evening and peaked in Melbourne in ... Snow falls ahead of winter storm Herald Sun Blizzards to hit Vic, flood warnings in SA The Australian Blizzards, storms and hail expected to batter Victoria 9news.com.au The Age - Sky News Australia - SBS - SmoothFM (registration) all 17 news articles »
 
 
 Full story on F3News: [Blizzards hammer Victoria's slopes, with snow flakes 'size of 20-cent pieces' falling - ABC Online](http://www.f3nws.com/n/e2ZgV)
