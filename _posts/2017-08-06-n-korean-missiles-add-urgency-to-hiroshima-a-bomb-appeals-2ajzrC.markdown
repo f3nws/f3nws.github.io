@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korean missiles add urgency to Hiroshima A-bomb appeals"
-date: 2017-08-06 16:26:52Z
+date: 2017-08-06 16:51:33Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HIROSHIMA, Japan (AP) — Hiroshima's appeal of "never again" on the 72nd annive
 
 Full story on F3News: [N. Korean missiles add urgency to Hiroshima A-bomb appeals](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 4:26:52 PM
+> Posted on: Sunday, August 6, 2017 4:51:33 PM
