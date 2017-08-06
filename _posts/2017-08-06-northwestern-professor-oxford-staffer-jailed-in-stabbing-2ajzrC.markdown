@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Northwestern professor, Oxford staffer jailed in stabbing"
-date: 2017-08-06 14:21:11Z
+date: 2017-08-06 14:48:58Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — Far from their prestigious campuses, a Northwestern Unive
 
 Full story on F3News: [Northwestern professor, Oxford staffer jailed in stabbing](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 2:21:11 PM
+> Posted on: Sunday, August 6, 2017 2:48:58 PM

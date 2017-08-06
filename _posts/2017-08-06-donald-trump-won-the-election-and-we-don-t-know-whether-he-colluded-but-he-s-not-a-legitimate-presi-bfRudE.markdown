@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump won the election, and we don't know whether he colluded — but he's not a legitimate president - Salon](http://media.salon.com/2017/08/donald-trump51.jpg)
 
-Salon Donald Trump won the election, and we don't know whether he colluded — but he's not a legitimate president Salon Here's the biggest problem in discussing President Donald Trump's ongoing Russia scandal: Everyone has a bias, and there's no such thing as a neutral party. For many Democrats, there is the bias of wanting to retroactively vindicate Hillary Clinton's ... Democrats fear Russia probe blowback Politico AP source: Mueller using grand jury in DC in Russia probe Business Insider Is Mueller's Grand Jury Impeachment Step One? National Review San Francisco Chronicle - Washington Post - HuffPost - Yakima Herald-Republic all 3,050 news articles »
+Salon Donald Trump won the election, and we don't know whether he colluded — but he's not a legitimate president Salon Here's the biggest problem in discussing President Donald Trump's ongoing Russia scandal: Everyone has a bias, and there's no such thing as a neutral party. For many Democrats, there is the bias of wanting to retroactively vindicate Hillary Clinton's ... Democrats fear Russia probe blowback Politico AP source: Mueller using grand jury in DC in Russia probe Business Insider Mueller's grand jury an important step News & Observer National Review - Washington Post - HuffPost - The Moscow Times all 3,192 news articles »
 
 
 Full story on F3News: [Donald Trump won the election, and we don't know whether he colluded — but he's not a legitimate president - Salon](http://www.f3nws.com/n/bfRudE)
