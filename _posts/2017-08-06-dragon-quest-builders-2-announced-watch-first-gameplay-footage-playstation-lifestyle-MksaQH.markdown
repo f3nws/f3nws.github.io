@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Dragon Quest Builders 2 Announced, Watch First Gameplay Footage - PlayStation LifeStyle](http://cdn3-www.playstationlifestyle.net/assets/uploads/2017/08/dragon-quest-builders-2.jpg)
 
-PlayStation LifeStyle Dragon Quest Builders 2 Announced, Watch First Gameplay Footage PlayStation LifeStyle Square Enix announced today that Dragon Quest Builders 2 is in the works, and is coming to PlayStation 4 and Nintendo Switch. Details are currently scarce, but we do know that the sequel to last year's Dragon Quest-themed building game will feature ... Dragon Quest X logs off the Wii this November [Update] Destructoid Dragon Quest XI shipments and digital sales top three million in Japan Gematsu Square Enix Reveals Dragon Quest Builders 2, Coming to PS4 and Switch RPGFan Eurogamer.net - DualShockers - Christian Post - RPG Site all 40 news articles »
+PlayStation LifeStyle Dragon Quest Builders 2 Announced, Watch First Gameplay Footage PlayStation LifeStyle Square Enix announced today that Dragon Quest Builders 2 is in the works, and is coming to PlayStation 4 and Nintendo Switch. Details are currently scarce, but we do know that the sequel to last year's Dragon Quest-themed building game will feature ... Dragon Quest X logs off the Wii this November [Update] Destructoid Dragon Quest X early demo for Dragon Quest XI PS4 owners launches August 10 Gematsu Square Enix Reveals Dragon Quest Builders 2, Coming to PS4 and Switch RPGFan I4U News - Eurogamer.net - DualShockers - Christian Post all 41 news articles »
 
 
 Full story on F3News: [Dragon Quest Builders 2 Announced, Watch First Gameplay Footage - PlayStation LifeStyle](http://www.f3nws.com/n/MksaQH)
