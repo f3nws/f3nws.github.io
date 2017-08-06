@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Search called off for 3 US Marines who crashed off Australia"
-date: 2017-08-06 02:04:32Z
+date: 2017-08-06 04:49:18Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ U.S. Marine officials say a search and rescue operation is underway for service 
 
 Full story on F3News: [Search called off for 3 US Marines who crashed off Australia](http://www.f3nws.com/n/QPUMXH)
 
-> Posted on: Sunday, August 6, 2017 2:04:32 AM
+> Posted on: Sunday, August 6, 2017 4:49:18 AM
