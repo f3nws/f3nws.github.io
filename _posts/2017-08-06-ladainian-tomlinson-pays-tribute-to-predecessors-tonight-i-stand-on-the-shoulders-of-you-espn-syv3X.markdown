@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![LaDainian Tomlinson pays tribute to predecessors: 'Tonight I stand on the shoulders of you' - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0805%2Fr240488_1296x729_16%2D9.jpg)
 
-ESPN LaDainian Tomlinson pays tribute to predecessors: 'Tonight I stand on the shoulders of you' ESPN CANTON, Ohio -- As he so often did on the field, LaDainian Tomlinson stole the show. With a powerful speech calling for "Team America" to be a place for inclusion and opportunity, the great running back of the San Diego Chargers was inducted into the ... Hall of Fame recap: LT inspires with American story NFL.com LaDainian Tomlinson, remembering his roots, calls for change NBCSports.com 2017 Pro Football Hall of Fame induction: Tomlinson moving, Jerry Jones thankful CBSSports.com New York Times - Dallas News (blog) - Sporting News - Bleacher Report all 77 news articles »
+ESPN LaDainian Tomlinson pays tribute to predecessors: 'Tonight I stand on the shoulders of you' ESPN CANTON, Ohio -- As he so often did on the field, LaDainian Tomlinson stole the show. With a powerful speech calling for "Team America" to be a place for inclusion and opportunity, the great running back of the San Diego Chargers was inducted into the ... Hall of Fame recap: LT inspires with American story NFL.com LaDainian Tomlinson, remembering his roots, calls for change NBCSports.com LaDainian Tomlinson's stirring Hall of Fame speech on unity is one America needs to hear USA TODAY New York Times - Dallas News (blog) - Sporting News - Bleacher Report all 69 news articles »
 
 
 Full story on F3News: [LaDainian Tomlinson pays tribute to predecessors: 'Tonight I stand on the shoulders of you' - ESPN](http://www.f3nws.com/n/syv3X)
