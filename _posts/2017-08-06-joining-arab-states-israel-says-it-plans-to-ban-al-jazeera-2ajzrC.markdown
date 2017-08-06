@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Joining Arab states, Israel says it plans to ban Al-Jazeera"
-date: 2017-08-06 20:50:53Z
+date: 2017-08-06 21:28:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ JERUSALEM (AP) — Israel said Sunday it plans to ban Qatar's flagship Al-Jazeer
 
 Full story on F3News: [Joining Arab states, Israel says it plans to ban Al-Jazeera](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 8:50:53 PM
+> Posted on: Sunday, August 6, 2017 9:28:10 PM
