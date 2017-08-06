@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taylor Swift expected to testify in groping case in Denver"
-date: 2017-08-06 17:21:51Z
+date: 2017-08-06 17:46:01Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DENVER (AP) — A few moments at a backstage photo session four years ago are ab
 
 Full story on F3News: [Taylor Swift expected to testify in groping case in Denver](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 5:21:51 PM
+> Posted on: Sunday, August 6, 2017 5:46:01 PM
