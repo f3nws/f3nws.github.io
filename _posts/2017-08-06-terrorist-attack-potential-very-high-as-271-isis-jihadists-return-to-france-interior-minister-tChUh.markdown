@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terrorist attack potential ‘very high’ as 271 ISIS jihadists return to France – interior minister"
-date: 2017-08-06 02:35:49Z
+date: 2017-08-06 02:35:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ French authorities have detained “some” and are investigating the rest of th
 
 Full story on F3News: [Terrorist attack potential ‘very high’ as 271 ISIS jihadists return to France – interior minister](http://www.f3nws.com/n/tChUh)
 
-> Posted on: Sunday, August 6, 2017 2:35:49 AM
+> Posted on: Sunday, August 6, 2017 2:35:00 AM

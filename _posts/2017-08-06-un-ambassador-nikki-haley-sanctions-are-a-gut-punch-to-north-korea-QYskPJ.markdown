@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN Ambassador Nikki Haley: Sanctions are a 'gut punch' to North Korea"
-date: 2017-08-06 10:36:51Z
+date: 2017-08-06 14:10:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to the United Nations Nikki Haley called newly approved sanctions 
 
 Full story on F3News: [UN Ambassador Nikki Haley: Sanctions are a 'gut punch' to North Korea](http://www.f3nws.com/n/QYskPJ)
 
-> Posted on: Sunday, August 6, 2017 10:36:51 AM
+> Posted on: Sunday, August 6, 2017 2:10:31 PM

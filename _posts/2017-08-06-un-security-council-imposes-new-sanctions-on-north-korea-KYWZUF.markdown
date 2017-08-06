@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN Security Council imposes new sanctions on North Korea"
-date: 2017-08-06 10:49:59Z
+date: 2017-08-06 14:09:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United Nations Security Council on Saturday passed a resolution imposing new
 
 Full story on F3News: [UN Security Council imposes new sanctions on North Korea](http://www.f3nws.com/n/KYWZUF)
 
-> Posted on: Sunday, August 6, 2017 10:49:59 AM
+> Posted on: Sunday, August 6, 2017 2:09:12 PM
