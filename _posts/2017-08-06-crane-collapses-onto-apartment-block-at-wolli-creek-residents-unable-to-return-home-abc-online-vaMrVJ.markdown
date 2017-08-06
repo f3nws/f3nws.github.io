@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Crane collapses onto apartment block at Wolli Creek; residents unable to return home - ABC Online](http://www.abc.net.au/news/image/8779052-1x1-700x700.jpg)
 
-ABC Online Crane collapses onto apartment block at Wolli Creek; residents unable to return home ABC Online Up to 200 people will not be able to return home tonight while emergency services work to secure a crane that collapsed into an apartment complex at Wolli Creek in Sydney's south. Three workers were injured when the crane fell, with the construction ... Sydney Airport travel warning after crane collapse in Wolli Creek The Sydney Morning Herald Crane collapse to bar residents from Sydney apartment for at least two days 9news.com.au Crane collapses on Sydney building The Australian The New Daily - Yahoo7 News - Whitsunday Times - Huffington Post Australia all 21 news articles »
+ABC Online Crane collapses onto apartment block at Wolli Creek; residents unable to return home ABC Online Up to 200 people will not be able to return home tonight while emergency services work to secure a crane that collapsed into an apartment complex at Wolli Creek in Sydney's south. Three workers were injured when the crane fell, with the construction ... Sydney Airport travel warning after crane collapse in Wolli Creek The Sydney Morning Herald Crane collapse to bar residents from Sydney apartment for at least two days 9news.com.au Residents left homeless after crane collapse Sky News Australia The Australian - The New Daily - The Sunshine Coast Daily - Yahoo7 News all 21 news articles »
 
 
 Full story on F3News: [Crane collapses onto apartment block at Wolli Creek; residents unable to return home - ABC Online](http://www.f3nws.com/n/vaMrVJ)
