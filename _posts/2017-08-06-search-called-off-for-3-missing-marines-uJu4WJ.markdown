@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Search called off for 3 missing Marines"
-date: 2017-08-06 01:33:35Z
+date: 2017-08-06 06:51:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US military aircraft and boats are scouring waters off Australia's east coast Sa
 
 Full story on F3News: [Search called off for 3 missing Marines](http://www.f3nws.com/n/uJu4WJ)
 
-> Posted on: Sunday, August 6, 2017 1:33:35 AM
+> Posted on: Sunday, August 6, 2017 6:51:27 AM
