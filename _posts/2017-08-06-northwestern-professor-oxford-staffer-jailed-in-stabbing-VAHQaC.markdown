@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Northwestern professor, Oxford staffer jailed in stabbing"
-date: 2017-08-06 01:28:39Z
+date: 2017-08-06 03:18:47Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A Northwestern University professor and a University of Oxford employee wanted i
 
 Full story on F3News: [Northwestern professor, Oxford staffer jailed in stabbing](http://www.f3nws.com/n/VAHQaC)
 
-> Posted on: Sunday, August 6, 2017 1:28:39 AM
+> Posted on: Sunday, August 6, 2017 3:18:47 AM

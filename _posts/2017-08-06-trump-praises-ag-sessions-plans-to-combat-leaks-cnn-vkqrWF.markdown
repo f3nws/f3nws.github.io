@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump praises AG Sessions' plans to combat leaks - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170720093324-07-jeff-sessions-lead-image-super-tease.jpg)
 
-CNN Trump praises AG Sessions' plans to combat leaks CNN (CNN) President Donald Trump on Saturday praised Attorney General Jeff Sessions' plan to combat leaks of classified information — a rare show of support for the man Trump recently called "beleaguered." "After many years of LEAKS going on in Washington ... Jeff Sessions' Attack on the Media Is Worse Than You Think Politico AP News in Brief at 11:04 pm EDT Washington Post Trump defends trip to Bedminster: 'This is not a vacation' Los Angeles Times The Hill - U.S. News & World Report - New York Daily News - Salon all 1,175 news articles »
+CNN Trump praises AG Sessions' plans to combat leaks CNN (CNN) President Donald Trump on Saturday praised Attorney General Jeff Sessions' plan to combat leaks of classified information — a rare show of support for the man Trump recently called "beleaguered." "After many years of LEAKS going on in Washington ... Trump praises Sessions for 'taking action' against leaks Politico Trump praises Sessions for crackdown on leaks The Hill Trump praises Sessions for cracking down on leaks, following weeks of public criticism Business Insider Miami Herald - New York Times - New York Post - Washington Post all 1,182 news articles »
 
 
 Full story on F3News: [Trump praises AG Sessions' plans to combat leaks - CNN](http://www.f3nws.com/n/vkqrWF)
