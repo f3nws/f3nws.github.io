@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing skinny dipper's body found by off-duty lifeguard"
-date: 2017-08-06 14:30:02Z
+date: 2017-08-06 16:00:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The body of a skinny dipping woman who vanished while swimming on the Jersey Sh
 
 Full story on F3News: [Missing skinny dipper's body found by off-duty lifeguard](http://www.f3nws.com/n/RWAG4)
 
-> Posted on: Sunday, August 6, 2017 2:30:02 PM
+> Posted on: Sunday, August 6, 2017 4:00:01 PM
