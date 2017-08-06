@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Teachers need more training to deal with problematic sexual behaviour - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/q/x/f/w/4/image.related.articleLeadwide.620x349.gxov5h.png/1502009999691.jpg)
 
-The Sydney Morning Herald Teachers need more training to deal with problematic sexual behaviour The Sydney Morning Herald Children as young as five are displaying worrying sexual behaviour at school, prompting concerns that teachers are ill-equipped to differentiate between whether students are victims of sexual abuse or are imitating what they see in music videos or ... and more »
+The Sydney Morning Herald Teachers need more training to deal with problematic sexual behaviour The Sydney Morning Herald Children as young as five are displaying worrying sexual behaviour at school, prompting concerns that teachers are ill-equipped to differentiate between whether students are victims of sexual abuse or are imitating what they see in music videos or ... Teachers need more training to identify worrying sexual behaviour in children 9news.com.au all 2 news articles »
 
 
 Full story on F3News: [Teachers need more training to deal with problematic sexual behaviour - The Sydney Morning Herald](http://www.f3nws.com/n/rCcjaH)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "From respected at elite universities to wanted for murder"
-date: 2017-08-06 19:51:15Z
+date: 2017-08-06 20:23:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CHICAGO (AP) — After a cross-country manhunt, a Northwestern University profes
 
 Full story on F3News: [From respected at elite universities to wanted for murder](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 6, 2017 7:51:15 PM
+> Posted on: Sunday, August 6, 2017 8:23:36 PM
