@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hooked: America's heroin addicts"
-date: 2017-08-07 06:16:24Z
+date: 2017-08-07 07:36:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Robert Leahy was sitting on his couch, watching TV, when his wife, Gretchen, wal
 
 Full story on F3News: [Hooked: America's heroin addicts](http://www.f3nws.com/n/bAuGgH)
 
-> Posted on: Monday, August 7, 2017 6:16:24 AM
+> Posted on: Monday, August 7, 2017 7:36:18 AM
