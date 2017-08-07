@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Game of Thrones': MLB Pitcher Noah Syndergaard Scores Battle Scene Cameo - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/08/lannister.jpg)
 
-Hollywood Reporter 'Game of Thrones': MLB Pitcher Noah Syndergaard Scores Battle Scene Cameo Hollywood Reporter The Mets pitcher is the latest celebrity outside the acting world to appear on 'Thrones' this season. [Warning: This story contains spoilers for the fourth episode of Game of Thrones' seventh season, "The Spoils of War."] It wasn't hard to miss Ed ... LOOK: Mets pitcher Noah Syndergaard appears in 'Game of Thrones' 247Sports all 11 news articles »
+Hollywood Reporter 'Game of Thrones': MLB Pitcher Noah Syndergaard Scores Battle Scene Cameo Hollywood Reporter The Mets pitcher is the latest celebrity outside the acting world to appear on 'Thrones' this season. [Warning: This story contains spoilers for the fourth episode of Game of Thrones' seventh season, "The Spoils of War."] It wasn't hard to miss Ed ... Mets Pitcher Noah Syndergaard Cameos in 'Game of Thrones' Battle Inverse LOOK: Mets pitcher Noah Syndergaard appears in 'Game of Thrones' 247Sports all 11 news articles »
 
 
 Full story on F3News: ['Game of Thrones': MLB Pitcher Noah Syndergaard Scores Battle Scene Cameo - Hollywood Reporter](http://www.f3nws.com/n/ZrudQF)

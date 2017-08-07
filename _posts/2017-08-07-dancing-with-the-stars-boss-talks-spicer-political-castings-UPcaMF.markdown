@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dancing With the Stars' boss talks Spicer, political castings"
-date: 2017-08-07 05:18:52Z
+date: 2017-08-07 07:58:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The cast of "Dancing With the Stars" Season 25 is still taking shape, and while 
 
 Full story on F3News: ['Dancing With the Stars' boss talks Spicer, political castings](http://www.f3nws.com/n/UPcaMF)
 
-> Posted on: Monday, August 7, 2017 5:18:52 AM
+> Posted on: Monday, August 7, 2017 7:58:20 AM

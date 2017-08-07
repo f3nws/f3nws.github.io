@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson: Election meddling 'created serious mistrust'"
-date: 2017-08-07 07:52:19Z
+date: 2017-08-07 08:12:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tillerson: Election meddling 'created serious mistrust'](http://www.f3nws.com/n/gFW2fB)
 
-> Posted on: Monday, August 7, 2017 7:52:19 AM
+> Posted on: Monday, August 7, 2017 8:12:28 AM
