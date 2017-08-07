@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippine's leader on human rights: 'Don't go there'"
-date: 2017-08-07 14:47:27Z
+date: 2017-08-07 15:28:46Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MANILA, Philippines (AP) — Philippine President Rodrigo Duterte met Monday wit
 
 Full story on F3News: [Philippine's leader on human rights: "Don't go there"](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 7, 2017 2:47:27 PM
+> Posted on: Monday, August 7, 2017 3:28:46 PM
