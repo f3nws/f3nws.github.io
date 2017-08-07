@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Osprey mishap: US Marines aircraft located at Shoalwater Bay off Rockhampton - ABC Online](http://www.abc.net.au/news/image/8779446-1x1-700x700.jpg)
 
-ABC Online Osprey mishap: US Marines aircraft located at Shoalwater Bay off Rockhampton ABC Online The submerged remains of a US military aircraft that crashed off Queensland's coast, leaving three marines presumed dead, has been found. Key points: Osprey located in Shoalwater Bay last night by HMAS Melville; Two of the three missing marines have ... Navy finds wreckage of downed US military aircraft off Queensland coast 9news.com.au Osprey final resting place spotted Central Telegraph Japan says 'many concerns' over Osprey flight after crash Yahoo7 News The Guardian - The Australian - The Sydney Morning Herald - NBCNews.com all 85 news articles »
+ABC Online Osprey mishap: US Marines aircraft located at Shoalwater Bay off Rockhampton ABC Online The submerged remains of a US military aircraft that crashed off Queensland's coast, leaving three marines presumed dead, has been found. Key points: Osprey located in Shoalwater Bay last night by HMAS Melville; Two of the three missing marines have ... US Osprey located following crash off north Queensland Courier Mail Recovery of submerged US Osprey begins The Australian Wreckage of US Marines Corp MV-22 Osprey found off Queensland The Sydney Morning Herald 9news.com.au - Yahoo7 News - CNN - WJLA all 91 news articles »
 
 
 Full story on F3News: [Osprey mishap: US Marines aircraft located at Shoalwater Bay off Rockhampton - ABC Online](http://www.f3nws.com/n/Ws2dXB)

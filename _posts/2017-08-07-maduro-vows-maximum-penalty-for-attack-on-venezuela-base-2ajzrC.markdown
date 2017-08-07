@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maduro vows 'maximum penalty' for attack on Venezuela base"
-date: 2017-08-07 10:54:51Z
+date: 2017-08-07 11:24:04Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ VALENCIA, Venezuela (AP) — President Nicolas Maduro vowed that a band of anti-
 
 Full story on F3News: [Maduro vows 'maximum penalty' for attack on Venezuela base](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 7, 2017 10:54:51 AM
+> Posted on: Monday, August 7, 2017 11:24:04 AM
