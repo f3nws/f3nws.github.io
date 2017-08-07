@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Asylum seeker found dead on Manus Island](http://www.abc.net.au/news/image/8445868-1x1-700x700.jpg)
 
-Manus Island authorities confirm an Iranian asylum seeker has died at the immigration detention centre.
+Amnesty International is calling for an independent and impartial review into the death of an Iranian asylum seeker on Manus Island as police investigate the circumstances of the man's death.
 
 
 Full story on F3News: [Asylum seeker found dead on Manus Island](http://www.f3nws.com/n/hJquuB)
