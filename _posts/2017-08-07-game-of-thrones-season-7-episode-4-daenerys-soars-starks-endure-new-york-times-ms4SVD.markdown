@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure - New York Times](https://static01.nyt.com/images/2017/08/06/arts/television/thrones-1/thrones-1-facebookJumbo.jpg)
 
-New York Times 'Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure New York Times Sunday's “Game of Thrones” spent its first chunk unfolding through a series of tense meetings and reunions. Arya and Sansa's was tender, but with signs of trouble. Arya and Bran's was awkward, because that's kind of Bran's thing now. Bran and ... Game of Thrones: Nikolaj Coster-Waldau on Jaime's uncertain fate EW.com (blog) 'Game Of Thrones' Season 7, Episode 4: 'Enough With The Clever Plans' NPR Game of Thrones, The Spoils of War: a breakdown of the 5 most memorable scenes The Verge The New Yorker - ABC News - Vanity Fair - Washington Post all 1,358 news articles »
+New York Times 'Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure New York Times Sunday's “Game of Thrones” spent its first chunk unfolding through a series of tense meetings and reunions. Arya and Sansa's was tender, but with signs of trouble. Arya and Bran's was awkward, because that's kind of Bran's thing now. Bran and ... Game of Thrones: Nikolaj Coster-Waldau on Jaime's uncertain fate EW.com (blog) Game Of Thrones: Behind the Scenes of That Record-Breaking Fire Battle Vanity Fair 'Game of Thrones' Season 7 Halftime Report: Who's Dead, Who's Alive RollingStone.com The Verge - The New Yorker - ABC News - Washington Post all 1,383 news articles »
 
 
 Full story on F3News: ['Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure - New York Times](http://www.f3nws.com/n/ms4SVD)
