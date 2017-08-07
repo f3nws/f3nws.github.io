@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![On managing outrage in Silicon Valley - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2017/03/gettyimages-621853914.jpg?w=763&h=400&crop=1)
 
-TechCrunch On managing outrage in Silicon Valley TechCrunch Yet a newer form of discrimination is starting to greatly alarm me, and that's discrimination against anyone with a point of view that's deemed offensive to the tech majority. You know already what I'm talking about: people are upset about a Google ... Google Employee's Anti-Diversity Memo Prompts Company Rebuke HuffPost Google employee anti-diversity memo causes row BBC News Google diversity push attacked by one of its own The Mercury News PBS NewsHour - Sacramento Bee - Android Headlines - 5newsonline.com all 105 news articles »
+TechCrunch On managing outrage in Silicon Valley TechCrunch Yet a newer form of discrimination is starting to greatly alarm me, and that's discrimination against anyone with a point of view that's deemed offensive to the tech majority. You know already what I'm talking about: people are upset about a Google ... Google diversity push attacked by one of its own The Mercury News Memo On 'Google's Ideological Echo Chamber' Sparks Outrage Android Headlines Google Employee's Anti-Diversity Memo Prompts Company Rebuke NDTV The Verge - KGO-TV - Motherboard - The Atlantic all 106 news articles »
 
 
 Full story on F3News: [On managing outrage in Silicon Valley - TechCrunch](http://www.f3nws.com/n/HdYHYF)
