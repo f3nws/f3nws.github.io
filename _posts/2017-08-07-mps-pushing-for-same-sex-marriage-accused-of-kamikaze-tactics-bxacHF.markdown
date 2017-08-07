@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![MPs pushing for same-sex marriage accused of 'kamikaze tactics'](http://www.abc.net.au/news/image/8780496-1x1-700x700.jpg)
 
-Liberal MP Ian Goodenough says Cabinet ministers told him they were concerned about the tactics used to push through a private member's bill on same-sex marriage.
+Liberal MPs have raised concerns about the tactics Dean Smith and four of his colleagues have used to push through a private member's bill on same-sex marriage.
 
 
 Full story on F3News: [MPs pushing for same-sex marriage accused of 'kamikaze tactics'](http://www.f3nws.com/n/bxacHF)
