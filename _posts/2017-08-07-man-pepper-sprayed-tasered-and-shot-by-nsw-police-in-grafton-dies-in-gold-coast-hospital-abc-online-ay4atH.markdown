@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man pepper sprayed, Tasered and shot by NSW Police in Grafton dies in Gold Coast hospital - ABC Online](http://www.abc.net.au/news/image/8780538-1x1-700x700.jpg)
 
-ABC Online Man pepper sprayed, Tasered and shot by NSW Police in Grafton dies in Gold Coast hospital ABC Online The actions of police who pepper sprayed, Tasered and then shot a man dead in New South Wales yesterday were "textbook", according to a senior officer. The man died in hospital on the Gold Coast after police said he confronted them with a knife at a ... Knife-wielding man shot dead by police in Grafton dailytelegraph.com.au Police defend officers after man shot dead Sky News Australia Knife-wielding Grafton man dies in hospital Ten Eyewitness News The Sydney Morning Herald - Clarence Valley Daily Examiner - Triple M - Echonetdaily all 17 news articles »
+ABC Online Man pepper sprayed, Tasered and shot by NSW Police in Grafton dies in Gold Coast hospital ABC Online The actions of police who pepper sprayed, Tasered and then shot a man dead in New South Wales yesterday were "textbook", according to a senior officer. The man died in hospital on the Gold Coast after police said he confronted them with a knife at a ... NSW Police defend officers after man's death at Grafton The Sydney Morning Herald Knife-wielding man shot dead by police in Grafton dailytelegraph.com.au Man shot by police identified as Grafton man Clarence Valley Daily Examiner Ten Eyewitness News - Triple M - Echonetdaily - Hit 107 all 22 news articles »
 
 
 Full story on F3News: [Man pepper sprayed, Tasered and shot by NSW Police in Grafton dies in Gold Coast hospital - ABC Online](http://www.f3nws.com/n/ay4atH)
