@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3rd Boy Scout dies after sailboat strikes power line on lake"
-date: 2017-08-07 20:57:24Z
+date: 2017-08-07 21:25:05Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ AVINGER, Texas (AP) — A third Boy Scout has died from injuries suffered when a
 
 Full story on F3News: [3rd Boy Scout dies after sailboat strikes power line on lake](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 7, 2017 8:57:24 PM
+> Posted on: Monday, August 7, 2017 9:25:05 PM
