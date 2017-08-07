@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Humpback whale sends Whitsundays fishing charter boat flying, injuring tourist - ABC Online](http://www.abc.net.au/news/image/8780708-1x1-700x700.jpg)
 
-ABC Online Humpback whale sends Whitsundays fishing charter boat flying, injuring tourist ABC Online Six men are lucky to be alive after a whale threw their boat metres into the air in the Whitsundays. WARNING: This story contains graphic images that may disturb some readers. The group was returning from a reef fishing trip on Saturday afternoon, when ... Fishing boat gets airborne in head-on with a humpback whale The Australian Whale and charter boat collide, knocking passengers unconscious Brisbane Times Tourists' horror injuries as whale slams boat in Queensland Perth Now Yahoo7 News - Triple M - NDTV - New Zealand Herald all 17 news articles »
+ABC Online Humpback whale sends Whitsundays fishing charter boat flying, injuring tourist ABC Online Six men are lucky to be alive after a whale threw their boat metres into the air in the Whitsundays. WARNING: This story contains graphic images that may disturb some readers. The group was returning from a reef fishing trip on Saturday afternoon, when ... Fishing boat gets airborne in head-on with a humpback whale The Australian Whale and charter boat collide, knocking passengers unconscious Brisbane Times Tourists' horror injuries as whale slams boat in Queensland Perth Now Yahoo7 News - NDTV - New Zealand Herald - Xinhua all 17 news articles »
 
 
 Full story on F3News: [Humpback whale sends Whitsundays fishing charter boat flying, injuring tourist - ABC Online](http://www.f3nws.com/n/jmPT4)

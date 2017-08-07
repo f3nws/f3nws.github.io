@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence: Story on possible 2020 presidential run 'disgraceful'"
-date: 2017-08-07 08:50:15Z
+date: 2017-08-07 09:19:29Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRIDGEWATER, N.J. (AP) — Vice President Mike Pence has pushed back against a n
 
 Full story on F3News: [Pence: Story on possible 2020 presidential run 'disgraceful'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 7, 2017 8:50:15 AM
+> Posted on: Monday, August 7, 2017 9:19:29 AM
