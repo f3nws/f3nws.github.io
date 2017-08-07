@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "Betty Cuthbert: 1956 Olympic 'Golden Girl' dies aged 79 - ABC Online"
-date: 2017-08-07 00:17:41Z
+title:  "Betty Cuthbert: 1956 Olympic 'golden girl' dies aged 79 - ABC Online"
+date: 2017-08-07 03:04:00Z
 categories: abc-top-stories
 ---
 
-![Betty Cuthbert: 1956 Olympic 'Golden Girl' dies aged 79 - ABC Online](http://www.abc.net.au/news/image/8780344-1x1-700x700.jpg)
+![Betty Cuthbert: 1956 Olympic 'golden girl' dies aged 79 - ABC Online](http://www.abc.net.au/news/image/8780344-1x1-700x700.jpg)
 
-ABC Online Betty Cuthbert: 1956 Olympic 'Golden Girl' dies aged 79 ABC Online Four-time Olympic gold medallist Betty Cuthbert has died aged 79, after a career which saw the sprinter set world records in several track events. She was dubbed the "Golden Girl" by the media after her performance at the 1956 Melbourne Olympics ... Tributes flow for Olympian Betty Cuthbert The Australian Betty Cuthbert : The original Golden Girl, and the best SBS Jon Anderson: Golden Girl tag never more suited to an athlete than Betty Cuthbert Herald Sun Sky News Australia - Community Newspaper Group - The Roar - The Sydney Morning Herald all 53 news articles »
+ABC Online Betty Cuthbert: 1956 Olympic 'golden girl' dies aged 79 ABC Online Four-time Olympic gold medallist Betty Cuthbert has died aged 79, after a career which saw the sprinter set world records in several track events. She was dubbed the "golden girl" by the media after her performance at the 1956 Melbourne Olympics ... Australia's golden girl of athletics was ahead of her time, as modern results show Courier Mail Happy and contented: Betty Cuthbert's humility outpaced her greatness The Sydney Morning Herald WA offers state funeral to Cuthbert family The Australian Australian Olympic Committee - Ten Eyewitness News - Community Newspaper Group - The Roar all 59 news articles »
 
 
-Full story on F3News: [Betty Cuthbert: 1956 Olympic 'Golden Girl' dies aged 79 - ABC Online](http://www.f3nws.com/n/44bDhH)
+Full story on F3News: [Betty Cuthbert: 1956 Olympic 'golden girl' dies aged 79 - ABC Online](http://www.f3nws.com/n/44bDhH)
 
-> Posted on: Monday, August 7, 2017 12:17:41 AM
+> Posted on: Monday, August 7, 2017 3:04:00 AM
