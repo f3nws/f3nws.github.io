@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure - New York Times](https://static01.nyt.com/images/2017/08/06/arts/television/thrones-1/thrones-1-facebookJumbo.jpg)
 
-New York Times 'Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure New York Times Sunday's “Game of Thrones” spent its first chunk unfolding through a series of tense meetings and reunions. Arya and Sansa's was tender, but with signs of trouble. Arya and Bran's was awkward, because that's kind of Bran's thing now. Bran and ... Game of Thrones Episode 704 Recap: Here Be Dragons Vanity Fair Game of Thrones, The Spoils of War: a breakdown of the 5 most memorable scenes The Verge On Game of Thrones, Brienne and Arya Are Forging a Beautiful Friendship Slate Magazine (blog) The New Yorker - ABC News - USA TODAY - Gizmodo all 1,354 news articles »
+New York Times 'Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure New York Times Sunday's “Game of Thrones” spent its first chunk unfolding through a series of tense meetings and reunions. Arya and Sansa's was tender, but with signs of trouble. Arya and Bran's was awkward, because that's kind of Bran's thing now. Bran and ... Game of Thrones showrunners, director on that epic dragon battle EW.com 'Game of Thrones' Season 7 Halftime Report: Who's Dead, Who's Alive RollingStone.com Game of Thrones Episode 704 Recap: Here Be Dragons Vanity Fair NPR - Slate Magazine (blog) - The Verge - The New Yorker all 1,312 news articles »
 
 
 Full story on F3News: ['Game of Thrones' Season 7, Episode 4: Daenerys Soars, Starks Endure - New York Times](http://www.f3nws.com/n/ms4SVD)
