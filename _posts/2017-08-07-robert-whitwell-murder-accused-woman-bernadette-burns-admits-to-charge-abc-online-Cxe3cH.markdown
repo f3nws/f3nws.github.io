@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Robert Whitwell murder: Accused woman Bernadette Burns admits to charge - ABC Online](http://www.abc.net.au/news/image/8781070-1x1-700x700.jpg)
 
-ABC Online Robert Whitwell murder: Accused woman Bernadette Burns admits to charge ABC Online A Brisbane woman has admitted to murder at an Adelaide court hearing, so will not proceed to trial over the killing of her friend's grandfather. Bernadette Burns, 22, of Redbank Plains, pleaded guilty in the South Australian Supreme Court to murdering ... Qld woman admits murdering Adelaide pensioner Sky News Australia Qld woman admits to murdering grandfather during robbery The Sunshine Coast Daily Second young woman admits to murdering Adelaide grandpa Robert Whitwell 9news.com.au all 5 news articles »
+ABC Online Robert Whitwell murder: Accused woman Bernadette Burns admits to charge ABC Online A Queensland woman has admitted to murder at an Adelaide court hearing, so will not proceed to trial over the killing of her friend's grandfather. Bernadette Burns, 22, of Redbank Plains, pleaded guilty in the South Australian Supreme Court to ... Qld woman admits murdering Adelaide pensioner Sky News Australia Qld woman admits to murdering grandfather during robbery The Sunshine Coast Daily Second young woman admits to murdering Adelaide grandpa Robert Whitwell 9news.com.au all 5 news articles »
 
 
 Full story on F3News: [Robert Whitwell murder: Accused woman Bernadette Burns admits to charge - ABC Online](http://www.f3nws.com/n/Cxe3cH)
