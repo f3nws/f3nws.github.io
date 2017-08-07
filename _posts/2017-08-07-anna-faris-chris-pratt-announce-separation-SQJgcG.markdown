@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anna Faris, Chris Pratt announce separation"
-date: 2017-08-07 03:55:31Z
+date: 2017-08-07 05:58:44Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actors Anna Faris and Chris Pratt have filed for separation, according to statem
 
 Full story on F3News: [Anna Faris, Chris Pratt announce separation](http://www.f3nws.com/n/SQJgcG)
 
-> Posted on: Monday, August 7, 2017 3:55:31 AM
+> Posted on: Monday, August 7, 2017 5:58:44 AM
