@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British model reveals kidnap ordeal"
-date: 2017-08-07 13:07:27Z
+date: 2017-08-07 14:00:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A British model who was allegedly kidnapped and detained for six days in Italy w
 
 Full story on F3News: [British model reveals kidnap ordeal](http://www.f3nws.com/n/bJvDjC)
 
-> Posted on: Monday, August 7, 2017 1:07:27 PM
+> Posted on: Monday, August 7, 2017 2:00:58 PM
