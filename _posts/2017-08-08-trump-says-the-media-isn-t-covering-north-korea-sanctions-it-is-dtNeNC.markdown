@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says the media isn't covering North Korea sanctions. It is"
-date: 2017-08-08 01:00:57Z
+date: 2017-08-08 02:42:51Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Trump says the media isn't covering North Korea sanctions. It is](http://www.f3nws.com/n/dtNeNC)
 
-> Posted on: Tuesday, August 8, 2017 1:00:57 AM
+> Posted on: Tuesday, August 8, 2017 2:42:51 AM

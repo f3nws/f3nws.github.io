@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Google employee behind 'echo chamber' diversity memo fired"
+date: 2017-08-08 02:27:00Z
+categories: engadget
+---
+
+![Google employee behind 'echo chamber' diversity memo fired](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D5892%252C3933%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1068%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252Ff5e434318ae1057096dde9eb88460c49%252F205418108%252Fbikes-at-googleplex-google-headquarters-picture-id675079800%26client%3Da1acac3e1b3290917d92%26signature%3D1e9a325b7927c7b75da99ab720ee6e44637b8fbd&client=cbc79c14efcebee57402&signature=cb8fb5156aa990f74bf2981f14036c7708bfaa71)
+
+Over the weekend, a Google employee's internally-shared 10-page document attacking a supposed "echo chamber" around diversity and inclusion went viral . Now, Bloomberg reports -- based on an email from the employee himself -- that the author of the memo has been fired. Recode has published a note sent to employees by CEO Sundar Pichai, which maintains that while "People must feel free to express dissent," "To suggest a group of our colleagues have traits that make them less biologically suited to that work is offensive and not OK. It is contrary to our basic values and our Code of Conduct." Pichai closed the note by saying he is returning early from a planned family vacation for a company town hall meeting Thursday to discuss issues including "how we create a more inclusive environment for all." Source: Bloomberg , Recode , CNN
+
+
+Full story on F3News: [Google employee behind 'echo chamber' diversity memo fired](http://www.f3nws.com/n/J3eGy)
+
+> Posted on: Tuesday, August 8, 2017 2:27:00 AM

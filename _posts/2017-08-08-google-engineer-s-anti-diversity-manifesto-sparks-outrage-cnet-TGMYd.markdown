@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google engineer's anti-diversity manifesto sparks outrage     - CNET"
-date: 2017-08-08 01:22:33Z
+date: 2017-08-08 02:50:04Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The document, originally posted on an internal network, argues that women make u
 
 Full story on F3News: [Google engineer's anti-diversity manifesto sparks outrage     - CNET](http://www.f3nws.com/n/TGMYd)
 
-> Posted on: Tuesday, August 8, 2017 1:22:33 AM
+> Posted on: Tuesday, August 8, 2017 2:50:04 AM
