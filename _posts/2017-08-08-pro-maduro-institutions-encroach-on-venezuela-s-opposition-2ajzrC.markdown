@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pro-Maduro institutions encroach on Venezuela's opposition"
-date: 2017-08-08 21:24:01Z
+date: 2017-08-08 21:47:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Institutions loyal to Venezuelan President Nicolas M
 
 Full story on F3News: [Pro-Maduro institutions encroach on Venezuela's opposition](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 9:24:01 PM
+> Posted on: Tuesday, August 8, 2017 9:47:48 PM
