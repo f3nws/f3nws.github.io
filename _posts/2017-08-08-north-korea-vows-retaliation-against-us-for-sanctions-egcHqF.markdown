@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea vows retaliation against US for sanctions"
-date: 2017-08-08 03:19:49Z
+date: 2017-08-08 08:52:02Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean state media has slammed the latest round of sanctions approved by t
 
 Full story on F3News: [North Korea vows retaliation against US for sanctions](http://www.f3nws.com/n/egcHqF)
 
-> Posted on: Tuesday, August 8, 2017 3:19:49 AM
+> Posted on: Tuesday, August 8, 2017 8:52:02 AM
