@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenyans choose next president in fiercely contested vote"
-date: 2017-08-08 11:58:30Z
+date: 2017-08-08 12:26:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — Kenyans on Tuesday voted in large numbers in an election
 
 Full story on F3News: [Kenyans choose next president in fiercely contested vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 11:58:30 AM
+> Posted on: Tuesday, August 8, 2017 12:26:03 PM

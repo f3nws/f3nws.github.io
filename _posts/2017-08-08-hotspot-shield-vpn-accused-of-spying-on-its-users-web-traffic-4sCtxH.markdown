@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hotspot Shield VPN Accused of Spying On Its Users' Web Traffic"
-date: 2017-08-08 10:31:02Z
+date: 2017-08-08 12:26:57Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ categories: the-hacker-news
 
 Full story on F3News: [Hotspot Shield VPN Accused of Spying On Its Users' Web Traffic](http://www.f3nws.com/n/4sCtxH)
 
-> Posted on: Tuesday, August 8, 2017 10:31:02 AM
+> Posted on: Tuesday, August 8, 2017 12:26:57 PM

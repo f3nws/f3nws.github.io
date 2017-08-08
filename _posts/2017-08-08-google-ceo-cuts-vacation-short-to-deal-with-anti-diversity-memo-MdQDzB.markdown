@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google CEO cuts vacation short to deal with anti-diversity memo"
-date: 2017-08-08 09:03:28Z
+date: 2017-08-08 12:17:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Google CEO Sundar Pichai has condemned portions of a controversial memo sent by 
 
 Full story on F3News: [Google CEO cuts vacation short to deal with anti-diversity memo](http://www.f3nws.com/n/MdQDzB)
 
-> Posted on: Tuesday, August 8, 2017 9:03:28 AM
+> Posted on: Tuesday, August 8, 2017 12:17:33 PM
