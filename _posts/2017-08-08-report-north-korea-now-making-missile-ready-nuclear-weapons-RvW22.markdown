@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: North Korea now making missile-ready nuclear weapons"
-date: 2017-08-08 21:44:08Z
+date: 2017-08-08 22:06:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea has taken a major step forward in realizing its goal of becoming a n
 
 Full story on F3News: [Report: North Korea now making missile-ready nuclear weapons](http://www.f3nws.com/n/RvW22)
 
-> Posted on: Tuesday, August 8, 2017 9:44:08 PM
+> Posted on: Tuesday, August 8, 2017 10:06:40 PM
