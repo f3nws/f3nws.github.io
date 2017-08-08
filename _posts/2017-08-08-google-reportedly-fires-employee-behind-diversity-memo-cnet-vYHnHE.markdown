@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google reportedly fires employee behind diversity memo     - CNET"
-date: 2017-08-08 04:12:15Z
+date: 2017-08-08 04:42:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The author of a memo criticizing the company's diversity efforts has been fired,
 
 Full story on F3News: [Google reportedly fires employee behind diversity memo     - CNET](http://www.f3nws.com/n/vYHnHE)
 
-> Posted on: Tuesday, August 8, 2017 4:12:15 AM
+> Posted on: Tuesday, August 8, 2017 4:42:23 AM

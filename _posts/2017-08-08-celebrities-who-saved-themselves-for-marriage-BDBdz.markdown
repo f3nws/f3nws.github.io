@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrities who saved themselves for marriage"
-date: 2017-08-08 04:30:03Z
+date: 2017-08-08 06:00:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ These celebrities say they waited until their wedding night to seal the deal.
 
 Full story on F3News: [Celebrities who saved themselves for marriage](http://www.f3nws.com/n/BDBdz)
 
-> Posted on: Tuesday, August 8, 2017 4:30:03 AM
+> Posted on: Tuesday, August 8, 2017 6:00:02 AM
