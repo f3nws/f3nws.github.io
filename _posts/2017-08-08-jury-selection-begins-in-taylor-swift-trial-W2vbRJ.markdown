@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jury selection begins in Taylor Swift trial"
-date: 2017-08-08 00:12:34Z
+date: 2017-08-08 00:54:56Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Taylor Swift's star power took center stage Monday as jury selection began in a 
 
 Full story on F3News: [Jury selection begins in Taylor Swift trial](http://www.f3nws.com/n/W2vbRJ)
 
-> Posted on: Tuesday, August 8, 2017 12:12:34 AM
+> Posted on: Tuesday, August 8, 2017 12:54:56 AM
