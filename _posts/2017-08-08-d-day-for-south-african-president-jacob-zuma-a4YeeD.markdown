@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "D-Day for South African President Jacob Zuma"
-date: 2017-08-08 09:03:57Z
+date: 2017-08-08 10:55:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [D-Day for South African President Jacob Zuma](http://www.f3nws.com/n/a4YeeD)
 
-> Posted on: Tuesday, August 8, 2017 9:03:57 AM
+> Posted on: Tuesday, August 8, 2017 10:55:32 AM
