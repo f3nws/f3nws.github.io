@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Government Report Finds Drastic Impact of Climate Change on US - New York Times](https://static01.nyt.com/images/2017/08/08/us/08dc-climate-1/08dc-climate-1-facebookJumbo.jpg)
 
-New York Times Government Report Finds Drastic Impact of Climate Change on US New York Times A draft report by government scientists concludes that Americans are feeling the effects of climate change right now. Credit Branden Camp/Associated Press. WASHINGTON — The average temperature in the United States has risen rapidly and drastically ... White House reviewing new report that finds strong link between climate change, human activity Washington Post Federal Scientists' Startling Climate Report Released Before Trump Can Bury It HuffPost Government scientists fear Trump will suppress climate change study: report The Hill New York Magazine - New York Daily News - Slate Magazine (blog) - Gizmodo all 90 news articles »
+New York Times Government Report Finds Drastic Impact of Climate Change on US New York Times A draft report by government scientists concludes that Americans are feeling the effects of climate change right now. Credit Branden Camp/Associated Press. WASHINGTON — The average temperature in the United States has risen rapidly and drastically ... Federal Scientists' Startling Climate Report Released Before Trump Can Bury It HuffPost Government scientists fear Trump will suppress climate change study: report The Hill Climate Change Study Leaked Over Fears That Trump Will Suppress It New York Magazine New York Daily News - Slate Magazine (blog) - Gizmodo - TPM all 91 news articles »
 
 
 Full story on F3News: [Government Report Finds Drastic Impact of Climate Change on US - New York Times](http://www.f3nws.com/n/yVCK4)

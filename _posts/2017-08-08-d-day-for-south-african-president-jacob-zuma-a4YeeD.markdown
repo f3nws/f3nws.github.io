@@ -5,7 +5,7 @@ date: 2017-08-08 10:55:32Z
 categories: cnn-com-top-stories
 ---
 
-![D-Day for South African President Jacob Zuma](http://i2.cdn.cnn.com/cnnnext/dam/assets/161102093023-01-jacob-zuma-file-super-tease.jpg)
+![D-Day for South African President Jacob Zuma](http://i2.cdn.cnn.com/cnnnext/dam/assets/170808113913-02-jacob-zuma-file-super-tease.jpg)
 
 
 
