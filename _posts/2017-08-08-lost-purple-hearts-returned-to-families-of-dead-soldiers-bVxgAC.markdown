@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lost Purple Hearts returned to families of dead soldiers"
-date: 2017-08-08 00:19:26Z
+date: 2017-08-08 01:46:19Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The families of seven dead U.S servicemen have gathered in New York to receive l
 
 Full story on F3News: [Lost Purple Hearts returned to families of dead soldiers](http://www.f3nws.com/n/bVxgAC)
 
-> Posted on: Tuesday, August 8, 2017 12:19:26 AM
+> Posted on: Tuesday, August 8, 2017 1:46:19 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Google has fired the employee who penned a controversial memo on women and tech - Recode](https://cdn.vox-cdn.com/thumbor/8CRkH03oe79sf_hmDRQsP0LP0vM=/0x130:2479x1524/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56095087/shutterstock_552493603.0.jpg)
 
-Recode Google has fired the employee who penned a controversial memo on women and tech Recode In a memo to employees, CEO Sundar Pichai said the employee who penned a controversial memo that claimed that women had biological issues that prevented them from being as successful as men in tech had violated its Code of Conduct and that the post ... Google fires employee who wrote anti-diversity memo The Verge Google employee's memo triggers another crisis for a tech industry struggling to diversify Los Angeles Times A Googler's manifesto is the HR department's worst nightmare Washington Post WIRED - The Mercury News - Ars Technica - Forbes all 363 news articles »
+Recode Google has fired the employee who penned a controversial memo on women and tech Recode In a memo to employees, Google CEO Sundar Pichai said the employee who penned a controversial memo that claimed that women had biological issues that prevented them from being as successful as men in tech had violated its Code of Conduct, and that ... Google fires employee who wrote anti-diversity memo The Verge Google employee's memo triggers another crisis for a tech industry struggling to diversify Los Angeles Times That Google Manifesto Really Put Executives In a Bind WIRED Washington Post - Chicago Tribune - Business Insider - CNET all 397 news articles »
 
 
 Full story on F3News: [Google has fired the employee who penned a controversial memo on women and tech - Recode](http://www.f3nws.com/n/uSZvxH)

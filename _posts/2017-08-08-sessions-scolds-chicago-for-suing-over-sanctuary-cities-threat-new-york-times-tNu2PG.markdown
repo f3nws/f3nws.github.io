@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Sessions Scolds Chicago for Suing Over 'Sanctuary Cities' Threat - New York Times](https://static01.nyt.com/images/2017/08/08/us/08sanctuary/08sanctuary-facebookJumbo.jpg)
 
-New York Times Sessions Scolds Chicago for Suing Over 'Sanctuary Cities' Threat New York Times Mayor Rahm Emanuel says that the Trump administration's immigration policy asks Chicago to make “a false choice, and a wrong choice.” Credit Joshua Lott/Agence France-Presse — Getty Images. CHICAGO — Mayor Rahm Emanuel sued the Justice ... Chicago sues Justice Department over new police grant rules targeting sanctuary cities Washington Post Chicago mayor defends lawsuit against DOJ over sanctuary city status CNN Jeff Sessions Fires Back After Chicago Sues Over Sanctuary City Threat TIME Chicago Tribune - Politico - Fox News - The Hill all 271 news articles »
+New York Times Sessions Scolds Chicago for Suing Over 'Sanctuary Cities' Threat New York Times Mayor Rahm Emanuel says that the Trump administration's immigration policy asks Chicago to make “a false choice, and a wrong choice.” Credit Joshua Lott/Agence France-Presse — Getty Images. CHICAGO — Mayor Rahm Emanuel sued the Justice ... Chicago sues Justice Department over new police grant rules targeting sanctuary cities Washington Post Chicago mayor defends lawsuit against DOJ over sanctuary city status CNN Jeff Sessions Fires Back After Chicago Sues Over Sanctuary City Threat TIME Chicago Tribune - Politico - The Hill - Fox News all 278 news articles »
 
 
 Full story on F3News: [Sessions Scolds Chicago for Suing Over 'Sanctuary Cities' Threat - New York Times](http://www.f3nws.com/n/tNu2PG)
