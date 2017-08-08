@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Is this Laos' most responsible elephant retreat?"
-date: 2017-08-08 01:24:49Z
+date: 2017-08-08 02:19:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A trip to MandaLao elephant camp is a different experience to visiting a typical
 
 Full story on F3News: [Is this Laos' most responsible elephant retreat?](http://www.f3nws.com/n/agBMpC)
 
-> Posted on: Tuesday, August 8, 2017 1:24:49 AM
+> Posted on: Tuesday, August 8, 2017 2:19:06 AM
