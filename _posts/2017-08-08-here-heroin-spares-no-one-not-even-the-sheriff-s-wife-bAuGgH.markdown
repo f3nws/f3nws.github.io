@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Here, heroin spares no one, not even the sheriff's wife"
-date: 2017-08-08 02:05:03Z
+date: 2017-08-08 05:18:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Robert Leahy was sitting on his couch, watching TV, when his wife, Gretchen, wal
 
 Full story on F3News: [Here, heroin spares no one, not even the sheriff's wife](http://www.f3nws.com/n/bAuGgH)
 
-> Posted on: Tuesday, August 8, 2017 2:05:03 AM
+> Posted on: Tuesday, August 8, 2017 5:18:03 AM
