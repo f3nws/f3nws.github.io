@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vote count begins in Kenya's fiercely contested election"
-date: 2017-08-08 22:29:08Z
+date: 2017-08-08 22:56:29Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — Polls closed across Kenya after millions voted peacefull
 
 Full story on F3News: [Vote count begins in Kenya's fiercely contested election](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 10:29:08 PM
+> Posted on: Tuesday, August 8, 2017 10:56:29 PM
