@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Iowa school uses full-body wraps, denies mental care"
-date: 2017-08-08 01:17:54Z
+date: 2017-08-08 01:58:24Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DES MOINES, Iowa (AP) — An Iowa school for juvenile offenders subjects the boy
 
 Full story on F3News: [Report: Iowa school uses full-body wraps, denies mental care](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 1:17:54 AM
+> Posted on: Tuesday, August 8, 2017 1:58:24 AM

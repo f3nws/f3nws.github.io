@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "That Google Manifesto Really Puts Executives In a Bind"
-date: 2017-08-08 00:56:14Z
+date: 2017-08-08 01:39:00Z
 categories: wired-top-stories
 ---
 
@@ -12,4 +12,4 @@ Memo challenges company's training on unconscious bias
 
 Full story on F3News: [That Google Manifesto Really Puts Executives In a Bind](http://www.f3nws.com/n/3kz3QC)
 
-> Posted on: Tuesday, August 8, 2017 12:56:14 AM
+> Posted on: Tuesday, August 8, 2017 1:39:00 AM
