@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bachelorette' finale: Rachel Lindsay picked..."
-date: 2017-08-08 03:35:05Z
+date: 2017-08-08 04:03:33Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Rachel Lindsay's season of "The Bachelorette" may have been a first for the fran
 
 Full story on F3News: ['Bachelorette' finale: Rachel Lindsay picked...](http://www.f3nws.com/n/JGcAPE)
 
-> Posted on: Tuesday, August 8, 2017 3:35:05 AM
+> Posted on: Tuesday, August 8, 2017 4:03:33 AM
