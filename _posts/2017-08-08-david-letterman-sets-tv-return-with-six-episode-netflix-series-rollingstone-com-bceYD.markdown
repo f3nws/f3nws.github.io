@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![David Letterman Sets TV Return With Six-Episode Netflix Series - RollingStone.com](http://img.wennermedia.com/social/david-letterman-returns-to-tv-7c16cdad-f90f-4586-81b9-cc6686a49d86.jpg)
 
-RollingStone.com David Letterman Sets TV Return With Six-Episode Netflix Series RollingStone.com A little over two years after David Letterman commenced his retirement, the talk-show host has announced his return to the small screen for a limited Netflix series. Premiering in 2018, the as-yet-untitled program, which will come out as six, hour-long ... David Letterman will do a six-episode talk show for Netflix Los Angeles Times David Letterman Returning to TV With Netflix Talk Show Hollywood Reporter David Letterman's return: Why the TV landscape needs its master of the interview USA TODAY Deadline - New York Times - Variety - Vanity Fair all 326 news articles »
+RollingStone.com David Letterman Sets TV Return With Six-Episode Netflix Series RollingStone.com A little over two years after David Letterman commenced his retirement, the talk-show host has announced his return to the small screen for a limited Netflix series. Premiering in 2018, the as-yet-untitled program, which will come out as six, hour-long ... David Letterman's return: Why the TV landscape needs its master of the interview USA TODAY David Letterman Will Return to TV in a New Netflix Series New York Times David Letterman will do a six-episode talk show for Netflix Los Angeles Times Hollywood Reporter - Deadline - Variety - Vanity Fair all 344 news articles »
 
 
 Full story on F3News: [David Letterman Sets TV Return With Six-Episode Netflix Series - RollingStone.com](http://www.f3nws.com/n/bceYD)
