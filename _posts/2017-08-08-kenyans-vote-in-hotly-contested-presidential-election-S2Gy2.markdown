@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenyans vote in hotly contested presidential election"
-date: 2017-08-08 05:43:55Z
+date: 2017-08-08 06:18:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kenyans head to the polls Tuesday in a hotly contested election that pits incumb
 
 Full story on F3News: [Kenyans vote in hotly contested presidential election](http://www.f3nws.com/n/S2Gy2)
 
-> Posted on: Tuesday, August 8, 2017 5:43:55 AM
+> Posted on: Tuesday, August 8, 2017 6:18:10 AM
