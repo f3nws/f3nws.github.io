@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela court orders opponent's arrest as pressure mounts"
-date: 2017-08-08 16:18:22Z
+date: 2017-08-08 16:46:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — Venezuela's supreme court ordered the removal and ar
 
 Full story on F3News: [Venezuela court orders opponent's arrest as pressure mounts](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 4:18:22 PM
+> Posted on: Tuesday, August 8, 2017 4:46:15 PM
