@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian Navy locates missing US aircraft"
-date: 2017-08-08 07:44:35Z
+date: 2017-08-08 10:14:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Australian Navy has located a missing US military aircraft that crashed off 
 
 Full story on F3News: [Australian Navy locates missing US aircraft](http://www.f3nws.com/n/VraMJD)
 
-> Posted on: Tuesday, August 8, 2017 7:44:35 AM
+> Posted on: Tuesday, August 8, 2017 10:14:23 AM
