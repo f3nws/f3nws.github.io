@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenyans choose next president in fiercely contested vote"
-date: 2017-08-08 13:48:41Z
+date: 2017-08-08 14:15:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — From the Indian Ocean coast to Rift Valley towns to Nair
 
 Full story on F3News: [Kenyans choose next president in fiercely contested vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 1:48:41 PM
+> Posted on: Tuesday, August 8, 2017 2:15:48 PM
