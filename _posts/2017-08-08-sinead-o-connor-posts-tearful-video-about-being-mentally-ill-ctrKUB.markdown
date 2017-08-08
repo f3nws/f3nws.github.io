@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sinead O'Connor posts tearful video about being mentally ill"
-date: 2017-08-08 13:51:02Z
+date: 2017-08-08 19:44:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A tearful, profanity-laced video of Sinead O'Connor discussing her mental illnes
 
 Full story on F3News: [Sinead O'Connor posts tearful video about being mentally ill](http://www.f3nws.com/n/ctrKUB)
 
-> Posted on: Tuesday, August 8, 2017 1:51:02 PM
+> Posted on: Tuesday, August 8, 2017 7:44:38 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Africa's president survives no-confidence motion again"
-date: 2017-08-08 19:16:01Z
+date: 2017-08-08 19:56:41Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ JOHANNESBURG (AP) — President Jacob Zuma survived a no-confidence vote Tuesday
 
 Full story on F3News: [South Africa's president survives no-confidence motion again](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 8, 2017 7:16:01 PM
+> Posted on: Tuesday, August 8, 2017 7:56:41 PM
