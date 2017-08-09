@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asian markets wobble after Trump warns N. Korea of 'fire and fury'"
-date: 2017-08-09 05:43:26Z
+date: 2017-08-09 08:15:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Asian markets wobble after Trump warns N. Korea of 'fire and fury'](http://www.f3nws.com/n/ZYHjTG)
 
-> Posted on: Wednesday, August 9, 2017 5:43:26 AM
+> Posted on: Wednesday, August 9, 2017 8:15:47 AM

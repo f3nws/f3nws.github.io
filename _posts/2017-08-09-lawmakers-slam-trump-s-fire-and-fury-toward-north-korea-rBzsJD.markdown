@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawmakers slam Trump's 'fire and fury' toward North Korea"
-date: 2017-08-09 01:58:07Z
+date: 2017-08-09 08:09:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump faced criticism from lawmakers in both parties on Tuesday
 
 Full story on F3News: [Lawmakers slam Trump's 'fire and fury' toward North Korea](http://www.f3nws.com/n/rBzsJD)
 
-> Posted on: Wednesday, August 9, 2017 1:58:07 AM
+> Posted on: Wednesday, August 9, 2017 8:09:54 AM

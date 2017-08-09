@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN Poll: Two-thirds see North Korea as a very serious threat"
-date: 2017-08-09 04:37:08Z
+date: 2017-08-09 08:07:14Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Americans have grown increasingly concerned that North Korea poses a very seriou
 
 Full story on F3News: [CNN Poll: Two-thirds see North Korea as a very serious threat](http://www.f3nws.com/n/Hmzyf)
 
-> Posted on: Wednesday, August 9, 2017 4:37:08 AM
+> Posted on: Wednesday, August 9, 2017 8:07:14 AM

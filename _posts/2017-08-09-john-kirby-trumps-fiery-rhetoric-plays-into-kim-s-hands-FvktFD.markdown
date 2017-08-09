@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Kirby: Trumps fiery rhetoric plays into Kim's hands"
-date: 2017-08-09 03:15:26Z
+date: 2017-08-09 08:09:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Today, President Trump promised North Korea a "fire and fury like the world has 
 
 Full story on F3News: [John Kirby: Trumps fiery rhetoric plays into Kim's hands](http://www.f3nws.com/n/FvktFD)
 
-> Posted on: Wednesday, August 9, 2017 3:15:26 AM
+> Posted on: Wednesday, August 9, 2017 8:09:17 AM
