@@ -7,7 +7,7 @@ categories: fox-news
 
 ![France vehicle attack leaves at least six soldiers injured](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-Six French soldiers were injured Wednesday after a vehicle hit a group of service members leaving their barracks outside Paris.
+Six French soldiers were injured Wednesday in a vehicle attack while they were leaving their barracks outside Paris.
 
 
 Full story on F3News: [France vehicle attack leaves at least six soldiers injured](http://www.f3nws.com/n/f2gAF)

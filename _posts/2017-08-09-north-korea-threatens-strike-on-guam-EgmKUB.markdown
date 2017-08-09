@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea threatens strike on Guam"
-date: 2017-08-09 09:10:45Z
+date: 2017-08-09 09:50:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's military is "examining the operational plan" to strike areas aroun
 
 Full story on F3News: [North Korea threatens strike on Guam](http://www.f3nws.com/n/EgmKUB)
 
-> Posted on: Wednesday, August 9, 2017 9:10:45 AM
+> Posted on: Wednesday, August 9, 2017 9:50:35 AM
