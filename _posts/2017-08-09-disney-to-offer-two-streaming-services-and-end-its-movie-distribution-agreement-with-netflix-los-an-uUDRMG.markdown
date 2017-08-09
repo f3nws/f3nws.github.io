@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Disney to offer two streaming services and end its movie distribution agreement with Netflix - Los Angeles Times](http://www.trbimg.com/img-598a37be/turbine/la-fi-ct-disney-earnings-20170808)
 
-Los Angeles Times Disney to offer two streaming services and end its movie distribution agreement with Netflix Los Angeles Times Walt Disney Co. will launch two Netflix-like streaming services — one for sports and another for films and television shows — in one of the boldest moves by an entertainment company to address the changing media landscape. The stand-alone ... Quick! Stream these 10 Disney movies on Netflix while you can USA TODAY How Disney Wants to Take On Netflix With Its Own Streaming Services New York Times John Mayer honors Glen Campbell at Nashville concert The Tennessean Bloomberg - Variety - CNBC - Washington Post all 457 news articles »
+Los Angeles Times Disney to offer two streaming services and end its movie distribution agreement with Netflix Los Angeles Times Walt Disney Co. will launch two Netflix-like streaming services — one for sports and another for films and television shows — in one of the boldest moves by an entertainment company to address the changing media landscape. The stand-alone ... Disney to launch streaming services for movies, live sports Washington Post Netflix's Disney problem points to a huge headache for customers everywhere Business Insider Disney to pull movies from Netflix, plans own streaming service New York Daily News Recode - MarketWatch - The Denver Post - Quartz all 473 news articles »
 
 
 Full story on F3News: [Disney to offer two streaming services and end its movie distribution agreement with Netflix - Los Angeles Times](http://www.f3nws.com/n/uUDRMG)
