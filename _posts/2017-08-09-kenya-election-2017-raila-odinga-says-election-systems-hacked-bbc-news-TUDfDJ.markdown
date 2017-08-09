@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kenya election 2017: Raila Odinga says election systems hacked - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/F2C2/production/_97264126_040999630-1.jpg)
 
-BBC News Kenya election 2017: Raila Odinga says election systems hacked BBC News Kenya opposition presidential candidate Raila Odinga has said the electoral commission's IT system has been hacked to manipulate the election results. He rejected early results from Tuesday's vote indicating a strong lead for President Uhuru Kenyatta. Kenyan Presidential Election Is Peaceful; Violence Feared Over Results New York Times Kenyan opposition leader Odinga alleges fraud Washington Post Kenya Election Was Hacked, Says Opposition Leader Raila Odinga, Raising Fears of Violence Newsweek Bloomberg - Quartz - The Guardian - U.S. News & World Report all 979 news articles »
+BBC News Kenya election 2017: Raila Odinga says election systems hacked BBC News Kenya opposition presidential candidate Raila Odinga has said the electoral commission's IT system has been hacked to manipulate the election results. He rejected early results from Tuesday's vote indicating a strong lead for President Uhuru Kenyatta. Kenya president takes strong lead in elections but opposition says results hacked Washington Post Kenya Braces for Trouble as Opposition Rejects Vote Results Bloomberg The Latest: Rioters in Kisumu Protest Kenya Election Results U.S. News & World Report Newsweek - USA TODAY - The Guardian - Yahoo News all 919 news articles »
 
 
 Full story on F3News: [Kenya election 2017: Raila Odinga says election systems hacked - BBC News](http://www.f3nws.com/n/TUDfDJ)
