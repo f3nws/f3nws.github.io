@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bringing China's former capital back to life"
-date: 2017-08-09 01:10:43Z
+date: 2017-08-09 03:14:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Outside China, architect Zhou Qi is best known for the People's Daily headquarte
 
 Full story on F3News: [Bringing China's former capital back to life](http://www.f3nws.com/n/UNSFHJ)
 
-> Posted on: Wednesday, August 9, 2017 1:10:43 AM
+> Posted on: Wednesday, August 9, 2017 3:14:32 AM

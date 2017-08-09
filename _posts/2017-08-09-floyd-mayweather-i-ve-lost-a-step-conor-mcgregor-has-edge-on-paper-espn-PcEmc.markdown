@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Floyd Mayweather: I've 'lost a step'; Conor McGregor has edge on paper - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0717%2Fr232138_1296x729_16%2D9.jpg)
 
-ESPN Floyd Mayweather: I've 'lost a step'; Conor McGregor has edge on paper ESPN Floyd Mayweather spent much of his promotional tour last month mocking Conor McGregor's skills and confidently predicting he would dominate their Aug. 26 boxing match, but he struck a more deferential tone Tuesday, acknowledging that he has "lost a ... Tweet of the day: Vasyl Lomachenko offers to be sparring partner for Conor McGregor Bloody Elbow Malignaggi says he asked McGregor to stop photos and he laughed Boxing News 24 Adonis Stevenson: McGregor a Good Salesman, Has No Chance BoxingScene.com Yahoo Sports - MMA Fighting - FanSided - OregonLive.com all 376 news articles »
+ESPN Floyd Mayweather: I've 'lost a step'; Conor McGregor has edge on paper ESPN Floyd Mayweather spent much of his promotional tour last month mocking Conor McGregor's skills and confidently predicting he would dominate their Aug. 26 boxing match, but he struck a more deferential tone Tuesday, acknowledging that he has "lost a ... Crossing Crumlin Road ABC News Tweet of the day: Vasyl Lomachenko offers to be sparring partner for Conor McGregor Bloody Elbow Malignaggi says he asked McGregor to stop photos and he laughed Boxing News 24 Sporting News - For The Win - Forbes - BoxingScene.com all 387 news articles »
 
 
 Full story on F3News: [Floyd Mayweather: I've 'lost a step'; Conor McGregor has edge on paper - ESPN](http://www.f3nws.com/n/PcEmc)
