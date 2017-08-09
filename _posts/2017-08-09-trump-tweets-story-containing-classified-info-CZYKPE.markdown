@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets story containing classified info"
-date: 2017-08-09 02:22:12Z
+date: 2017-08-09 14:00:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's retweet of a Fox News story claiming US satellites dete
 
 Full story on F3News: [Trump tweets story containing classified info](http://www.f3nws.com/n/CZYKPE)
 
-> Posted on: Wednesday, August 9, 2017 2:22:12 AM
+> Posted on: Wednesday, August 9, 2017 2:00:04 PM

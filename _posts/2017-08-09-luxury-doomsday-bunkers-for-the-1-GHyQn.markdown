@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Luxury doomsday bunkers for the 1%"
-date: 2017-08-09 08:42:16Z
+date: 2017-08-09 14:00:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Say "doomsday bunker" and most people would imagine a concrete room filled with 
 
 Full story on F3News: [Luxury doomsday bunkers for the 1%](http://www.f3nws.com/n/GHyQn)
 
-> Posted on: Wednesday, August 9, 2017 8:42:16 AM
+> Posted on: Wednesday, August 9, 2017 2:00:04 PM
