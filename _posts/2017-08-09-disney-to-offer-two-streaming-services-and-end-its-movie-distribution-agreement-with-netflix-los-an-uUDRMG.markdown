@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Disney to offer two streaming services and end its movie distribution agreement with Netflix - Los Angeles Times](http://www.trbimg.com/img-598a37be/turbine/la-fi-ct-disney-earnings-20170808)
 
-Los Angeles Times Disney to offer two streaming services and end its movie distribution agreement with Netflix Los Angeles Times Walt Disney Co. will launch two Netflix-like streaming services — one for sports and another for films and television shows — in one of the boldest moves by an entertainment company to address the changing media landscape. The stand-alone ... 'Rhinestone Cowboy' Glen Campbell dies at 81 after Alzheimer's battle Milwaukee Journal Sentinel Disney to pull movies from Netflix, plans own streaming service New York Daily News Disney to launch streaming services for movies, live sports Washington Post Business Insider - Recode - MarketWatch - Quartz all 434 news articles »
+Los Angeles Times Disney to offer two streaming services and end its movie distribution agreement with Netflix Los Angeles Times Walt Disney Co. will launch two Netflix-like streaming services — one for sports and another for films and television shows — in one of the boldest moves by an entertainment company to address the changing media landscape. The stand-alone ... How Disney Wants to Take On Netflix With Its Own Streaming Services New York Times Quick! Stream these 10 Disney movies on Netflix while you can USA TODAY John Mayer honors Glen Campbell at Nashville concert The Tennessean Bloomberg - Variety - CNBC - New York Daily News all 444 news articles »
 
 
 Full story on F3News: [Disney to offer two streaming services and end its movie distribution agreement with Netflix - Los Angeles Times](http://www.f3nws.com/n/uUDRMG)

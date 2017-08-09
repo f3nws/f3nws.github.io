@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Quake in China's Sichuan kills 13, injures 175](http://timesofindia.indiatimes.com/photo/msid-59980598/59980598.jpg?124358)
 
-Thirteen people, including six tourists, were killed and 175 injured when a 7.0 magnitude earthquake struck a remote, mountainous part Sichuan in China's southwest, the provincial government and official media said on Wednesday.
+Thirteen people, including six tourists, were killed and 175 injured when a 7.0 magnitude earthquake struck a remote, mountainous part Sichuan in China's southwest, the provincial government and official media said on Wednesday
 
 
 Full story on F3News: [Quake in China's Sichuan kills 13, injures 175](http://www.f3nws.com/n/rQcfFJ)
