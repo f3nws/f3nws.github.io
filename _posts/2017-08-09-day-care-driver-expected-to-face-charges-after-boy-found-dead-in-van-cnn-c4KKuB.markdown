@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Day care driver expected to face charges after boy found dead in van - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/120515051101-police-car-lights-story-top.jpg)
 
-CNN Day care driver expected to face charges after boy found dead in van CNN (CNN) A Florida day care center employee is expected to face charges after a 3-year-old boy was found dead in a parked van, police in Orlando said Tuesday. Myles Hill was found on the floor at the back of the van parked at the Little Miracles Academy ... A day-care driver didn't count the children, police say. Hours later, one was found dead. Washington Post Orlando daycare where 3-year-old died in hot van was written up during two recent state inspections New York Daily News 3-year-old died after being left all day in hot van outside day care New York Post HuffPost - USA TODAY - PEOPLE.com - BET all 143 news articles »
+CNN Day care driver expected to face charges after boy found dead in van CNN (CNN) A Florida day care center employee is expected to face charges after a 3-year-old boy was found dead in a parked van, police in Orlando said Tuesday. Myles Hill was found on the floor at the back of the van parked at the Little Miracles Academy ... A day-care driver didn't count the children, police say. Hours later, one was found dead. Washington Post 3-year-old died after being left all day in hot van outside day care New York Post Boy Found Dead In Day Care Van Had Been Left In Vehicle All Day: Cops HuffPost USA TODAY - PEOPLE.com - WESH Orlando - WFTV Orlando all 154 news articles »
 
 
 Full story on F3News: [Day care driver expected to face charges after boy found dead in van - CNN](http://www.f3nws.com/n/c4KKuB)

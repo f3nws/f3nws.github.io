@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump touts US nuclear arsenal amid standoff with North Korea"
-date: 2017-08-09 16:17:51Z
+date: 2017-08-09 18:43:31Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A day after an incendiary rebuke of North Korea, President Donald Trump touted U
 
 Full story on F3News: [Trump touts US nuclear arsenal amid standoff with North Korea](http://www.f3nws.com/n/ytkWFJ)
 
-> Posted on: Wednesday, August 9, 2017 4:17:51 PM
+> Posted on: Wednesday, August 9, 2017 6:43:31 PM
