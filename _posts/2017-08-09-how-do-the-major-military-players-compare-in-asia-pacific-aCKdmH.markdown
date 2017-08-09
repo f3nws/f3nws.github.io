@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How do the major military players compare in Asia Pacific?"
-date: 2017-08-09 03:19:50Z
+date: 2017-08-09 04:16:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tensions in Asia Pacific have reached ominous new levels. Flashpoints in the Sou
 
 Full story on F3News: [How do the major military players compare in Asia Pacific?](http://www.f3nws.com/n/aCKdmH)
 
-> Posted on: Wednesday, August 9, 2017 3:19:50 AM
+> Posted on: Wednesday, August 9, 2017 4:16:03 AM
