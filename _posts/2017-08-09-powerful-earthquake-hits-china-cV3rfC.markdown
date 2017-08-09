@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powerful earthquake hits China"
-date: 2017-08-09 14:00:03Z
+date: 2017-08-09 09:43:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least four people were killed and 30 more injured late Tuesday when a powerfu
 
 Full story on F3News: [Powerful earthquake hits China](http://www.f3nws.com/n/cV3rfC)
 
-> Posted on: Wednesday, August 9, 2017 2:00:03 PM
+> Posted on: Wednesday, August 9, 2017 9:43:58 AM

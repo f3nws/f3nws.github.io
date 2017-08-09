@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Is Kim supposed to take Trump's threat literally or figuratively?"
-date: 2017-08-09 14:00:03Z
+date: 2017-08-09 14:03:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Following Donald Trump's massive upset last November, conventional wisdom settle
 
 Full story on F3News: [Analysis: Is Kim supposed to take Trump's threat literally or figuratively?](http://www.f3nws.com/n/ry4FYG)
 
-> Posted on: Wednesday, August 9, 2017 2:00:03 PM
+> Posted on: Wednesday, August 9, 2017 2:03:54 PM

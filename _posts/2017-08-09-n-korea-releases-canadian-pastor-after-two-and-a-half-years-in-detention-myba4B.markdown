@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea releases Canadian pastor after two and a half years in detention"
-date: 2017-08-09 14:00:03Z
+date: 2017-08-09 11:12:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Canadian pastor imprisoned in North Korea has been freed after two and a half 
 
 Full story on F3News: [N. Korea releases Canadian pastor after two and a half years in detention](http://www.f3nws.com/n/myba4B)
 
-> Posted on: Wednesday, August 9, 2017 2:00:03 PM
+> Posted on: Wednesday, August 9, 2017 11:12:01 AM

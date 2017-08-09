@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President issues extraordinary warning to North Korea"
-date: 2017-08-09 14:00:03Z
+date: 2017-08-09 08:06:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump issued an extraordinary ultimatum to North Korea on Tuesd
 
 Full story on F3News: [President issues extraordinary warning to North Korea](http://www.f3nws.com/n/RvW22)
 
-> Posted on: Wednesday, August 9, 2017 2:00:03 PM
+> Posted on: Wednesday, August 9, 2017 8:06:05 AM

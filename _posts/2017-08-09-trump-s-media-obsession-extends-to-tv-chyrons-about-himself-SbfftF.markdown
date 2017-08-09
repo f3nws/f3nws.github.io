@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's media obsession extends to TV chyrons about himself"
-date: 2017-08-09 01:40:33Z
+date: 2017-08-09 13:56:05Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Trump's media obsession extends to TV chyrons about himself](http://www.f3nws.com/n/SbfftF)
 
-> Posted on: Wednesday, August 9, 2017 1:40:33 AM
+> Posted on: Wednesday, August 9, 2017 1:56:05 PM
