@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['Shocked' Irish vet denied visa after failing oral English test - SBS](http://www.sbs.com.au/news/sites/sbs.com.au.news/files/vet.jpg)
 
-SBS 'Shocked' Irish vet denied visa after failing oral English test SBS Dr Louise Kennedy has been refused a skilled migrant visa after not passing the English oral test despite being a native English speaker and holding multiple degrees. Source: SBS World News. 1 HOUR AGO ... Machine leaves Irish vet in visa limbo The Australian Radio news reader flunks English test 9news.com.au Voice Recognition Software Flunks Irish Visa Applicant's Australian English Proficiency Test Gizmodo Australia BBC News - Irish Times - Irish Mirror - JOE all 15 news articles »
+SBS 'Shocked' Irish vet denied visa after failing oral English test SBS Dr Louise Kennedy has been refused a skilled migrant visa after not passing the English oral test despite being a native English speaker and holding multiple degrees. Source: SBS World News. 1 HOUR AGO ... Machine leaves Irish vet in visa limbo The Australian Radio news reader flunks English test 9news.com.au Voice Recognition Software Flunks Irish Visa Applicant's Australian English Proficiency Test Gizmodo Australia BBC News - Irish Times - Irish Mirror - JOE all 16 news articles »
 
 
 Full story on F3News: ['Shocked' Irish vet denied visa after failing oral English test - SBS](http://www.f3nws.com/n/emhTJH)

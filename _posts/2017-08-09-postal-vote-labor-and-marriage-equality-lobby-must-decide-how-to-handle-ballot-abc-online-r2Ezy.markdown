@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Postal vote: Labor and marriage equality lobby must decide how to handle ballot - ABC Online](http://www.abc.net.au/news/image/8784590-1x1-700x700.jpg)
 
-ABC Online Postal vote: Labor and marriage equality lobby must decide how to handle ballot ABC Online When it comes to the Liberals and same-sex marriage, each "solution" seems to lead to a new problem. Tony Abbott's plebiscite became bad news for Malcolm Turnbull; now Mr Turnbull's postal vote — to ask people: "Should the law be changed to allow ... Politics live as Parliament debates plebiscite on same-sex marriage The Sydney Morning Herald Penny Wong arguing against democracy, Julie Bishop says The Australian Gay marriage debate: Tony Abbott urges Australia to vote 'No' NEWS.com.au 9news.com.au - SBS - Sky News Australia - dailytelegraph.com.au all 121 news articles »
+ABC Online Postal vote: Labor and marriage equality lobby must decide how to handle ballot ABC Online When it comes to the Liberals and same-sex marriage, each "solution" seems to lead to a new problem. Tony Abbott's plebiscite became bad news for Malcolm Turnbull; now Mr Turnbull's postal vote — to ask people: "Should the law be changed to allow ... Politics live as Parliament debates plebiscite on same-sex marriage The Sydney Morning Herald Gay marriage debate: Tony Abbott urges Australia to vote 'No' NEWS.com.au Same-sex marriage postal vote to be challenged in the High Court 9news.com.au The Australian Financial Review - Herald Sun - The Australian - SBS all 127 news articles »
 
 
 Full story on F3News: [Postal vote: Labor and marriage equality lobby must decide how to handle ballot - ABC Online](http://www.f3nws.com/n/r2Ezy)
