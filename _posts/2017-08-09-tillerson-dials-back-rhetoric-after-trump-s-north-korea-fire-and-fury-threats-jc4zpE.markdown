@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson dials back rhetoric after Trump's North Korea 'fire and fury' threats"
-date: 2017-08-09 14:44:07Z
+date: 2017-08-09 21:41:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Secretary of State Rex Tillerson has sought to allay fears of a military conf
 
 Full story on F3News: [Tillerson dials back rhetoric after Trump's North Korea 'fire and fury' threats](http://www.f3nws.com/n/jc4zpE)
 
-> Posted on: Wednesday, August 9, 2017 2:44:07 PM
+> Posted on: Wednesday, August 9, 2017 9:41:36 PM

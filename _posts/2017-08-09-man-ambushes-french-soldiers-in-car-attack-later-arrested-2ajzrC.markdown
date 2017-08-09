@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man ambushes French soldiers in car attack, later arrested"
-date: 2017-08-09 21:21:37Z
+date: 2017-08-09 21:55:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LEVALLOIS-PERRET, France (AP) — A man rammed his car into a group of soldiers 
 
 Full story on F3News: [Man ambushes French soldiers in car attack, later arrested](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 9, 2017 9:21:37 PM
+> Posted on: Wednesday, August 9, 2017 9:55:27 PM
