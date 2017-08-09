@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung Galaxy Note 8 release date, news and rumors"
-date: 2017-08-09 09:50:25Z
+date: 2017-08-09 19:45:25Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We now know when the Note 8 will arrive thanks to a confirmed launch event by Sa
 
 Full story on F3News: [Samsung Galaxy Note 8 release date, news and rumors](http://www.f3nws.com/n/4gnzPE)
 
-> Posted on: Wednesday, August 9, 2017 9:50:25 AM
+> Posted on: Wednesday, August 9, 2017 7:45:25 PM
