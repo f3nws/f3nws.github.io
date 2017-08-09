@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Is Google's 'Don't Be Evil' motto still relevant?"
-date: 2017-08-09 01:30:02Z
+date: 2017-08-09 02:00:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ In the wake of its firing of a 28-year-old employee for expressing dissatisfacti
 
 Full story on F3News: [Is Google's 'Don't Be Evil' motto still relevant?](http://www.f3nws.com/n/sUezYC)
 
-> Posted on: Wednesday, August 9, 2017 1:30:02 AM
+> Posted on: Wednesday, August 9, 2017 2:00:05 AM
