@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya opposition says election system hacked"
-date: 2017-08-09 14:47:49Z
+date: 2017-08-09 16:41:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kenyan opposition leader Raila Odinga is disputing early results in the country'
 
 Full story on F3News: [Kenya opposition says election system hacked](http://www.f3nws.com/n/VH3nMF)
 
-> Posted on: Wednesday, August 9, 2017 2:47:49 PM
+> Posted on: Wednesday, August 9, 2017 4:41:19 PM
