@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenyan opposition leader Odinga alleges fraud"
-date: 2017-08-09 10:18:08Z
+date: 2017-08-09 10:54:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — Kenyan opposition leader Raila Odinga on Wednesday alleg
 
 Full story on F3News: [Kenyan opposition leader Odinga alleges fraud](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 9, 2017 10:18:08 AM
+> Posted on: Wednesday, August 9, 2017 10:54:10 AM
