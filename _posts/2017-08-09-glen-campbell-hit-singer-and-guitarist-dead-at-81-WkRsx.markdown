@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Glen Campbell, hit singer and guitarist, dead at 81"
-date: 2017-08-09 00:44:02Z
+date: 2017-08-09 02:19:07Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Glen Campbell, the upbeat guitarist from Delight, Arkansas, whose smooth vocals 
 
 Full story on F3News: [Glen Campbell, hit singer and guitarist, dead at 81](http://www.f3nws.com/n/WkRsx)
 
-> Posted on: Wednesday, August 9, 2017 12:44:02 AM
+> Posted on: Wednesday, August 9, 2017 2:19:07 AM

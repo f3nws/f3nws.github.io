@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DJ in groping case says he may have touched Swift's ribs"
-date: 2017-08-09 01:53:34Z
+date: 2017-08-09 02:20:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DENVER (AP) — A former radio disc jockey accused of groping Taylor Swift befor
 
 Full story on F3News: [DJ in groping case says he may have touched Swift's ribs](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 9, 2017 1:53:34 AM
+> Posted on: Wednesday, August 9, 2017 2:20:48 AM

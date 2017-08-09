@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man found dead after shooting in Roxburgh Park street - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-ABC Online Man found dead after shooting in Roxburgh Park street ABC Online A man has been found dead in a suburban street in Melbourne's north following a shooting. The 21-year-old victim's body outside a house in Coronet Avenue, Roxburgh Park after shots were heard about 12:30am. Police said a number of men were seen on ... Young man shot dead on suburban street in Melbourne 9news.com.au Man, 21, dead, another injured in two shootings in Melbourne's north overnight The Age Men visit scene of Melbourne shooting Yahoo7 News Daily Mail all 8 news articles »
+ABC Online Man found dead after shooting in Roxburgh Park street ABC Online A man has been found dead in a suburban street in Melbourne's north following a shooting. The 21-year-old victim's body outside a house in Coronet Avenue, Roxburgh Park after shots were heard about 12:30am. Police said a number of men were seen on ... Men visit scene of Melbourne shooting The Australian Young man shot dead on suburban street in Melbourne 9news.com.au Man, 21, dead, another injured in two shootings in Melbourne's north overnight The Age Daily Mail all 8 news articles »
 
 
 Full story on F3News: [Man found dead after shooting in Roxburgh Park street - ABC Online](http://www.f3nws.com/n/2VtUDG)
