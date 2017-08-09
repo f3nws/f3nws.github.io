@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mattis to North Korea: Stop actions that could lead to 'destruction of its people'"
-date: 2017-08-09 17:55:52Z
+date: 2017-08-09 19:09:39Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ US Defense Secretary James Mattis issued a dramatic ultimatum to North Korea on 
 
 Full story on F3News: [Mattis to North Korea: Stop actions that could lead to 'destruction of its people'](http://www.f3nws.com/n/jdafKJ)
 
-> Posted on: Wednesday, August 9, 2017 5:55:52 PM
+> Posted on: Wednesday, August 9, 2017 7:09:39 PM
