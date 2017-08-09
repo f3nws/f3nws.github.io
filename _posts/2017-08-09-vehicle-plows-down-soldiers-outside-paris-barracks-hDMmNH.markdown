@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vehicle plows down soldiers outside Paris barracks"
-date: 2017-08-09 09:29:33Z
+date: 2017-08-09 10:23:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Six soldiers have been injured, two seriously, after being hit by a vehicle outs
 
 Full story on F3News: [Vehicle plows down soldiers outside Paris barracks](http://www.f3nws.com/n/hDMmNH)
 
-> Posted on: Wednesday, August 9, 2017 9:29:33 AM
+> Posted on: Wednesday, August 9, 2017 10:23:28 AM
