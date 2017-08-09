@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House: Trump was winging it with..."
-date: 2017-08-09 19:31:18Z
+date: 2017-08-09 19:31:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ When a sitting president doesn't necessarily speak for his own administration, i
 
 Full story on F3News: [White House: Trump was winging it with...](http://www.f3nws.com/n/eeZTN)
 
-> Posted on: Wednesday, August 9, 2017 7:31:18 PM
+> Posted on: Wednesday, August 9, 2017 7:31:00 PM

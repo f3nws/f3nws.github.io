@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP senator suggests brain tumor affected McCain vote"
-date: 2017-08-09 20:19:52Z
+date: 2017-08-09 20:47:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Sen. Ron Johnson suggested that fellow Republican Sen. John 
 
 Full story on F3News: [GOP senator suggests brain tumor affected McCain vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 9, 2017 8:19:52 PM
+> Posted on: Wednesday, August 9, 2017 8:47:03 PM

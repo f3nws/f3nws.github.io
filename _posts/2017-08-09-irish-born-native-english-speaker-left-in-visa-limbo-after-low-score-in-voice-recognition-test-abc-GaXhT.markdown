@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Irish-born native English speaker left in visa limbo after low score in voice recognition test - ABC Online](http://www.abc.net.au/news/image/8789306-1x1-700x700.jpg)
 
-ABC Online Irish-born native English speaker left in visa limbo after low score in voice recognition test ABC Online An Irish vet with degrees in history and politics has been unable to convince a machine she can speak English well enough to stay in Australia. Louise Kennedy is a native English speaker, has excellent grammar and a broad vocabulary. She holds two ... 'Shocked' Irish vet denied visa after failing oral English test SBS Automated English test for visa applicants fails native speakers The New Daily English test company defends product 9news.com.au Gizmodo Australia - New York Post - Yahoo7 News - Independent.ie all 34 news articles »
+ABC Online Irish-born native English speaker left in visa limbo after low score in voice recognition test ABC Online An Irish vet with degrees in history and politics has been unable to convince a machine she can speak English well enough to stay in Australia. Louise Kennedy is a native English speaker, has excellent grammar and a broad vocabulary. She holds two ... Outsmarting the computer: the secret to passing Australia's English-proficiency test The Guardian Automated English test for visa applicants fails native speakers The New Daily Australian ex-news reader with English degree fails robot's English test The Sydney Morning Herald CNET - Yahoo7 News - New York Post - Mashable all 38 news articles »
 
 
 Full story on F3News: [Irish-born native English speaker left in visa limbo after low score in voice recognition test - ABC Online](http://www.f3nws.com/n/GaXhT)
