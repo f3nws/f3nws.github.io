@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Before a North Korea war, we'd see this"
-date: 2017-08-09 08:03:53Z
+date: 2017-08-09 09:20:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Despite bellicose rhetoric coming from US President Donald Trump and North Korea
 
 Full story on F3News: [Before a North Korea war, we'd see this](http://www.f3nws.com/n/eXMbBH)
 
-> Posted on: Wednesday, August 9, 2017 8:03:53 AM
+> Posted on: Wednesday, August 9, 2017 9:20:21 AM

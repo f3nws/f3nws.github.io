@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President issues extraordinary threat as Kim says he'll strike US troops in Guam"
-date: 2017-08-09 07:08:41Z
+date: 2017-08-09 09:07:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea is threatening to launch preemptive military strikes against the Uni
 
 Full story on F3News: [President issues extraordinary threat as Kim says he'll strike US troops in Guam](http://www.f3nws.com/n/jc4zpE)
 
-> Posted on: Wednesday, August 9, 2017 7:08:41 AM
+> Posted on: Wednesday, August 9, 2017 9:07:57 AM
