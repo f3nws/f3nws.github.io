@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House aide, Fox News host criticize Senate GOP leader"
-date: 2017-08-09 16:54:43Z
+date: 2017-08-09 17:22:19Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — A top White House aide and a Fox News host lashed out at Sen
 
 Full story on F3News: [White House aide, Fox News host criticize Senate GOP leader](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 9, 2017 4:54:43 PM
+> Posted on: Wednesday, August 9, 2017 5:22:19 PM
