@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Glen Campbell, Whose Hit Songs Bridged Country and Pop, Dies at 81 - New York Times](https://static01.nyt.com/images/2017/08/08/multimedia/08campbell-obit/08campbell-obit-facebookJumbo-v2.jpg)
 
-New York Times Glen Campbell, Whose Hit Songs Bridged Country and Pop, Dies at 81 New York Times Glen Campbell playing guitar as host of the NBC television show “The Midnight Special” in 1975. Credit NBC, via Getty Images. Glen Campbell, the sweet-voiced, guitar-picking son of a sharecropper who became a recording, television and movie star in the ... See Glen Campbell's Daughter Ashley's Poignant Tribute to Her Late Dad RollingStone.com Jimmy Webb Remembers Glen Campbell: 'When it Came to Friendship, Glen Was the Real Deal' Billboard Reaction to the death of superstar entertainer Glen Campbell Washington Post USA TODAY - ABC News - Variety - New York Daily News all 481 news articles »
+New York Times Glen Campbell, Whose Hit Songs Bridged Country and Pop, Dies at 81 New York Times Glen Campbell playing guitar as host of the NBC television show “The Midnight Special” in 1975. Credit NBC, via Getty Images. Glen Campbell, the sweet-voiced, guitar-picking son of a sharecropper who became a recording, television and movie star in the ... Glen Campbell's public Alzheimer's battle set his legacy ABC News Reaction to the death of superstar entertainer Glen Campbell Washington Post Jimmy Webb Remembers Glen Campbell: 'When it Came to Friendship, Glen Was the Real Deal' Billboard Variety - New York Daily News - SFGate - Heavy.com all 478 news articles »
 
 
 Full story on F3News: [Glen Campbell, Whose Hit Songs Bridged Country and Pop, Dies at 81 - New York Times](http://www.f3nws.com/n/UxmAT)
