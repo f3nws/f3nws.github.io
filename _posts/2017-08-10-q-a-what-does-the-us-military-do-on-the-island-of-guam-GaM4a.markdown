@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Q&A: What does the US military do on the island of Guam?"
-date: 2017-08-10 00:10:16Z
+date: 2017-08-10 01:35:15Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The small U.S. territory of Guam has become a focal point after North Korea's ar
 
 Full story on F3News: [Q&A: What does the US military do on the island of Guam?](http://www.f3nws.com/n/GaM4a)
 
-> Posted on: Thursday, August 10, 2017 12:10:16 AM
+> Posted on: Thursday, August 10, 2017 1:35:15 AM

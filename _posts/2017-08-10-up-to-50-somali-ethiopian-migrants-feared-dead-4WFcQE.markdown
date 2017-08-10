@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Up to 50 Somali, Ethiopian migrants feared dead"
-date: 2017-08-10 00:33:46Z
+date: 2017-08-10 02:43:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Up to 50 Somalis and Ethiopians are feared dead after a smuggler taking dozens o
 
 Full story on F3News: [Up to 50 Somali, Ethiopian migrants feared dead](http://www.f3nws.com/n/4WFcQE)
 
-> Posted on: Thursday, August 10, 2017 12:33:46 AM
+> Posted on: Thursday, August 10, 2017 2:43:59 AM

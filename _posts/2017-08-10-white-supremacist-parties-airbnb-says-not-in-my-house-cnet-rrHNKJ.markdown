@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White supremacist parties? Airbnb says not in my house     - CNET"
-date: 2017-08-10 00:48:46Z
+date: 2017-08-10 01:24:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The home rental site deactivates users involved in planning the "Unite the Right
 
 Full story on F3News: [White supremacist parties? Airbnb says not in my house     - CNET](http://www.f3nws.com/n/rrHNKJ)
 
-> Posted on: Thursday, August 10, 2017 12:48:46 AM
+> Posted on: Thursday, August 10, 2017 1:24:02 AM
