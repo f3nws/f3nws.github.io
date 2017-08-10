@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Britain won't stop putting animal fat in its cash"
-date: 2017-08-10 12:21:15Z
+date: 2017-08-10 20:15:58Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A campaign to stop the Bank of England from using animal fat to make its plastic
 
 Full story on F3News: [Britain won't stop putting animal fat in its cash](http://www.f3nws.com/n/mJMUBB)
 
-> Posted on: Thursday, August 10, 2017 12:21:15 PM
+> Posted on: Thursday, August 10, 2017 8:15:58 PM
