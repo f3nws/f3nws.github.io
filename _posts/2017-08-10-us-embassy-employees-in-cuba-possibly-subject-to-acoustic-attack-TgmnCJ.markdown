@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US embassy employees in Cuba possibly subject to 'acoustic attack'"
-date: 2017-08-10 01:40:56Z
+date: 2017-08-10 05:49:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US believes several State Department employees at the US embassy in Havana w
 
 Full story on F3News: [US embassy employees in Cuba possibly subject to 'acoustic attack'](http://www.f3nws.com/n/TgmnCJ)
 
-> Posted on: Thursday, August 10, 2017 1:40:56 AM
+> Posted on: Thursday, August 10, 2017 5:49:56 AM

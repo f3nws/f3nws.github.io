@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI agents searched former Trump campaign chair's home"
-date: 2017-08-10 05:28:08Z
+date: 2017-08-10 06:22:49Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — FBI agents looking for financial documents have searched one
 
 Full story on F3News: [FBI agents searched former Trump campaign chair's home](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 10, 2017 5:28:08 AM
+> Posted on: Thursday, August 10, 2017 6:22:49 AM

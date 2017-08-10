@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guam's residents feel US patriotism but growing concern"
-date: 2017-08-10 03:09:51Z
+date: 2017-08-10 05:35:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Residents of the tiny Pacific island of Guam say they're afraid of being caught 
 
 Full story on F3News: [Guam's residents feel US patriotism but growing concern](http://www.f3nws.com/n/gmKfEC)
 
-> Posted on: Thursday, August 10, 2017 3:09:51 AM
+> Posted on: Thursday, August 10, 2017 5:35:00 AM
