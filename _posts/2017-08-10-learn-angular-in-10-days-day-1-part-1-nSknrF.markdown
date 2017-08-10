@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Learn Angular in 10 days – Day 1 – Part 1"
-date: 2017-08-10 06:11:00Z
+date: 2017-08-10 06:44:00Z
 categories: codeproject
 ---
 
@@ -12,4 +12,4 @@ A 10 Days series on Latest version of Angular - Day 1 will be very basic and mos
 
 Full story on F3News: [Learn Angular in 10 days – Day 1 – Part 1](http://www.f3nws.com/n/nSknrF)
 
-> Posted on: Thursday, August 10, 2017 6:11:00 AM
+> Posted on: Thursday, August 10, 2017 6:44:00 AM

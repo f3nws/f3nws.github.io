@@ -7,7 +7,7 @@ categories: techradar
 
 ![Facebook launches Watch, its new platform for original TV shows](http://cdn.mos.cms.futurecdn.net/dg9zFYmhV53R9jytkAnUga-1200-80.jpg)
 
-Facebook is ready to take on traditional TV with video content from a variety of publishers, plus some funded by the social network itself.
+Facebook is ready to take on traditional TV with video content from a variety of publishers, plus shows funded by the social network itself.
 
 
 Full story on F3News: [Facebook launches Watch, its new platform for original TV shows](http://www.f3nws.com/n/kCeEUD)
