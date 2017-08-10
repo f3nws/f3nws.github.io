@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guam residents stoic in face of missile threat"
-date: 2017-08-10 08:51:11Z
+date: 2017-08-10 10:27:23Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ It's the tiny island in the eye of a geopolitical storm.
 
 Full story on F3News: [Guam residents stoic in face of missile threat](http://www.f3nws.com/n/rgsHPE)
 
-> Posted on: Thursday, August 10, 2017 8:51:11 AM
+> Posted on: Thursday, August 10, 2017 10:27:23 AM
