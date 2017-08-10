@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US staff in Cuba suffer hearing loss in suspected sonic attack"
-date: 2017-08-10 12:28:25Z
+date: 2017-08-10 14:01:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US believes several State Department employees at the US embassy in Havana w
 
 Full story on F3News: [US staff in Cuba suffer hearing loss in suspected sonic attack](http://www.f3nws.com/n/TgmnCJ)
 
-> Posted on: Thursday, August 10, 2017 12:28:25 PM
+> Posted on: Thursday, August 10, 2017 2:01:50 PM
