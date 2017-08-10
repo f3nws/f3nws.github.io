@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DJ: Photo of me with Taylor Swift appears 'awkward'"
-date: 2017-08-10 08:52:44Z
+date: 2017-08-10 13:21:01Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The ex-radio disc jockey suing Taylor Swift vehemently denied under oath that he
 
 Full story on F3News: [DJ: Photo of me with Taylor Swift appears 'awkward'](http://www.f3nws.com/n/QGufsE)
 
-> Posted on: Thursday, August 10, 2017 8:52:44 AM
+> Posted on: Thursday, August 10, 2017 1:21:01 PM

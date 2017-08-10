@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Poll: Trump finances fair game in Russia investigation"
-date: 2017-08-10 10:00:54Z
+date: 2017-08-10 12:03:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seventy percent of Americans believe the federal investigation into Russia's eff
 
 Full story on F3News: [Poll: Trump finances fair game in Russia investigation](http://www.f3nws.com/n/fyrKxF)
 
-> Posted on: Thursday, August 10, 2017 10:00:54 AM
+> Posted on: Thursday, August 10, 2017 12:03:18 PM
