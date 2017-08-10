@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![‘Relief and disbelief’ as Mississauga pastor’s ordeal ends in North Korea](https://www.thestar.com/content/dam/thestar/news/canada/2017/08/09/relief-and-disbelief-as-mississauga-pastors-ordeal-ends-in-north-korea/hyeon-soo-lim.jpg)
 
-Hyeon Soo Lim was expected to fly on a Canadian government charter directly from Pyongyang, North Korea, to Ottawa, where he will reunite with his family.
+Hyeon Soo Lim is expected to fly home this week on a Canadian government charter from Pyongyang, North Korea, to be reunited with his family.
 
 
 Full story on F3News: [‘Relief and disbelief’ as Mississauga pastor’s ordeal ends in North Korea](http://www.f3nws.com/n/ArZUVD)
