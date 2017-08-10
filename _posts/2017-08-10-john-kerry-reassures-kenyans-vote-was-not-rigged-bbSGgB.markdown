@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Kerry reassures Kenyans vote was not rigged"
-date: 2017-08-10 11:45:37Z
+date: 2017-08-10 14:33:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former US Secretary of State John Kerry said he was confident in the "overall in
 
 Full story on F3News: [John Kerry reassures Kenyans vote was not rigged](http://www.f3nws.com/n/bbSGgB)
 
-> Posted on: Thursday, August 10, 2017 11:45:37 AM
+> Posted on: Thursday, August 10, 2017 2:33:02 PM
