@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taylor Swift takes the stand to testify in groping trial"
-date: 2017-08-10 16:44:52Z
+date: 2017-08-10 18:04:49Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Taylor Swift was called to take the stand Thursday in a civil trial to testify a
 
 Full story on F3News: [Taylor Swift takes the stand to testify in groping trial](http://www.f3nws.com/n/3rWdqF)
 
-> Posted on: Thursday, August 10, 2017 4:44:52 PM
+> Posted on: Thursday, August 10, 2017 6:04:49 PM
