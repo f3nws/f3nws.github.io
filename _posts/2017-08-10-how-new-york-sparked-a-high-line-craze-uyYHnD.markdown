@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How New York sparked a high line craze"
-date: 2017-08-10 03:10:13Z
+date: 2017-08-10 03:42:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The creators of the New York High Line are, in many ways, the Steve Jobs of the 
 
 Full story on F3News: [How New York sparked a high line craze](http://www.f3nws.com/n/uyYHnD)
 
-> Posted on: Thursday, August 10, 2017 3:10:13 AM
+> Posted on: Thursday, August 10, 2017 3:42:46 AM
