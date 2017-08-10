@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya opposition rejects preliminary results"
-date: 2017-08-10 03:58:07Z
+date: 2017-08-10 08:47:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kenya's opposition leader Raila Odinga has claimed the country's election system
 
 Full story on F3News: [Kenya opposition rejects preliminary results](http://www.f3nws.com/n/VH3nMF)
 
-> Posted on: Thursday, August 10, 2017 3:58:07 AM
+> Posted on: Thursday, August 10, 2017 8:47:01 AM
