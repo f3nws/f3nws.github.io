@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London jogger: Man arrested after woman pushed in front of bus"
-date: 2017-08-10 14:24:05Z
+date: 2017-08-10 16:16:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in London have arrested a man on suspicion of pushing a woman into the pa
 
 Full story on F3News: [London jogger: Man arrested after woman pushed in front of bus](http://www.f3nws.com/n/TS4dmG)
 
-> Posted on: Thursday, August 10, 2017 2:24:05 PM
+> Posted on: Thursday, August 10, 2017 4:16:06 PM
