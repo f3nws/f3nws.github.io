@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Trump's ad-libbed North Korean missile crisis - CNN"
+date: 2017-08-10 05:04:49Z
+categories: google-news-top-stories
+---
+
+![Trump's ad-libbed North Korean missile crisis - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170613154614-north-korea-flag-super-tease.jpg)
+
+CNN Trump's ad-libbed North Korean missile crisis CNN (CNN) President Donald Trump effectively ad-libbed his way into a test of wills with North Korean leader Kim Jong Un and an unpredictable cycle of escalation -- largely due to both men's propensity for white-hot rhetoric and a desire to project strong ... Trump's saber-rattling at North Korea sparks fears and puts China in a bind Washington Post Deep Divisions Emerge in Trump Administration as North Korea Threatens War New York Times Asia stocks snap back into the red on simmering North Korea tensions Reuters The Atlantic - CNN International - Daily Beast - Miami Herald all 8,182 news articles »
+
+
+Full story on F3News: [Trump's ad-libbed North Korean missile crisis - CNN](http://www.f3nws.com/n/tGvZm)
+
+> Posted on: Thursday, August 10, 2017 5:04:49 AM
