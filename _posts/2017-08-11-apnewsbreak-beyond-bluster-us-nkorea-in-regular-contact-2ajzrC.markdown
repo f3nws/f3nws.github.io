@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: Beyond bluster, US, NKorea in regular contact"
-date: 2017-08-11 15:15:00Z
+date: 2017-08-11 16:45:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Beyond the bluster, the Trump administration has been quietl
 
 Full story on F3News: [APNewsBreak: Beyond bluster, US, NKorea in regular contact](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 11, 2017 3:15:00 PM
+> Posted on: Friday, August 11, 2017 4:45:00 PM
