@@ -7,7 +7,7 @@ categories: techradar
 
 ![Asus ZenFone 4 and ZenFone 4 Selfie shown off in new leak](http://cdn.mos.cms.futurecdn.net/iokLdmuVgWg7zAUyAyFGK5-1200-80.jpg)
 
-It appears the Taiwanese phone maker has let slip two upcoming devices in the ZenFone 4 family.
+It appears Asus has let slip two upcoming devices in the ZenFone 4 family.
 
 
 Full story on F3News: [Asus ZenFone 4 and ZenFone 4 Selfie shown off in new leak](http://www.f3nws.com/n/SDkzBC)
