@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bodies of missing students may be in car"
-date: 2017-08-11 03:50:26Z
+date: 2017-08-11 07:15:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A car which plunged 500 feet (152 meters) off a cliff into a raging river may co
 
 Full story on F3News: [Bodies of missing students may be in car](http://www.f3nws.com/n/QMbbvG)
 
-> Posted on: Friday, August 11, 2017 3:50:26 AM
+> Posted on: Friday, August 11, 2017 7:15:23 AM
