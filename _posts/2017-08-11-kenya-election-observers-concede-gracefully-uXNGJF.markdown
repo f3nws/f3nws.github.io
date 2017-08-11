@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya election observers: Concede gracefully"
-date: 2017-08-11 09:20:52Z
+date: 2017-08-11 14:42:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ International observers urged candidates in Kenya's tense presidential elections
 
 Full story on F3News: [Kenya election observers: Concede gracefully](http://www.f3nws.com/n/uXNGJF)
 
-> Posted on: Friday, August 11, 2017 9:20:52 AM
+> Posted on: Friday, August 11, 2017 2:42:50 PM
