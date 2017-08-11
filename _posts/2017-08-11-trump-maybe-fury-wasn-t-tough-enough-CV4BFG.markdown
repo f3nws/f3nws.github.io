@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: Maybe 'fury' wasn't tough enough"
-date: 2017-08-11 11:40:50Z
+date: 2017-08-11 12:08:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump: Maybe 'fury' wasn't tough enough](http://www.f3nws.com/n/CV4BFG)
 
-> Posted on: Friday, August 11, 2017 11:40:50 AM
+> Posted on: Friday, August 11, 2017 12:08:21 PM
