@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Google Cancels Employee Meeting Because of Harassment Fears - New York Times](https://static01.nyt.com/images/2017/08/11/business/11GOOGLE1/11GOOGLE1-facebookJumbo.jpg)
 
-New York Times Google Cancels Employee Meeting Because of Harassment Fears New York Times Sundar Pichai, Google's chief executive, in May. Mr. Pichai cut short a vacation to address the fallout from a worker's memo questioning the company's diversity efforts. Credit Eric Risberg/Associated Press. SAN FRANCISCO — Google on Thursday canceled ... That Google memo about women in tech wasn't wrong Chicago Tribune Google cancels all-staff diversity meeting BBC News Google CEO Pichai calls off staff diversity meeting after Googlers voice safety fears ZDNet The Mercury News - Investor's Business Daily - ABC News - National Review all 433 news articles »
+New York Times Google Cancels Employee Meeting Because of Harassment Fears New York Times Sundar Pichai, Google's chief executive, in May. Mr. Pichai cut short a vacation to address the fallout from a worker's memo questioning the company's diversity efforts. Credit Eric Risberg/Associated Press. SAN FRANCISCO — Google on Thursday canceled ... Google cancels all-staff diversity meeting BBC News Google CEO Pichai calls off staff diversity meeting after Googlers voice safety fears ZDNet What the Google gender 'manifesto' really says about Silicon Valley Phys.Org Chicago Tribune - Los Angeles Times - Investor's Business Daily - Hot Air all 446 news articles »
 
 
 Full story on F3News: [Google Cancels Employee Meeting Because of Harassment Fears - New York Times](http://www.f3nws.com/n/EbfePE)
