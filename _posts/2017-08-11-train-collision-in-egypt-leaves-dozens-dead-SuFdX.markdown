@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Train collision in Egypt leaves dozens dead"
-date: 2017-08-11 17:51:09Z
+date: 2017-08-11 21:22:32Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Two trains collided in Alexandria on Friday, leaving 37 dead and 123 injured, ac
 
 Full story on F3News: [Train collision in Egypt leaves dozens dead](http://www.f3nws.com/n/SuFdX)
 
-> Posted on: Friday, August 11, 2017 5:51:09 PM
+> Posted on: Friday, August 11, 2017 9:22:32 PM
