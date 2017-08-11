@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man arrested after woman pushed in front of London bus"
-date: 2017-08-11 05:28:07Z
+date: 2017-08-11 12:36:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in London arrested a man on suspicion of pushing a woman into the path of
 
 Full story on F3News: [Man arrested after woman pushed in front of London bus](http://www.f3nws.com/n/TS4dmG)
 
-> Posted on: Friday, August 11, 2017 5:28:07 AM
+> Posted on: Friday, August 11, 2017 12:36:20 PM
