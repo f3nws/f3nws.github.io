@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Gone tomorrow': Life in North Korea's crosshairs"
-date: 2017-08-11 13:47:45Z
+date: 2017-08-11 19:00:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ With rough, calloused hands, Guam local Marco Martinez steadily trims his fishin
 
 Full story on F3News: ['Gone tomorrow': Life in North Korea's crosshairs](http://www.f3nws.com/n/pfDeVC)
 
-> Posted on: Friday, August 11, 2017 1:47:45 PM
+> Posted on: Friday, August 11, 2017 7:00:37 PM
