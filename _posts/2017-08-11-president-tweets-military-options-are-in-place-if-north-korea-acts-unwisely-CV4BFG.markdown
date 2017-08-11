@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President tweets military options are 'in place' if North Korea 'acts unwisely'"
-date: 2017-08-11 12:44:08Z
+date: 2017-08-11 14:20:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [President tweets military options are 'in place' if North Korea 'acts unwisely'](http://www.f3nws.com/n/CV4BFG)
 
-> Posted on: Friday, August 11, 2017 12:44:08 PM
+> Posted on: Friday, August 11, 2017 2:20:57 PM
