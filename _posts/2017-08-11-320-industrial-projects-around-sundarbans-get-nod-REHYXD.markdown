@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "320 industrial projects around Sundarbans get nod"
-date: 2017-08-11 05:55:16Z
+date: 2017-08-11 06:40:31Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [320 industrial projects around Sundarbans get nod](http://www.f3nws.com/n/REHYXD)
 
-> Posted on: Friday, August 11, 2017 5:55:16 AM
+> Posted on: Friday, August 11, 2017 6:40:31 AM

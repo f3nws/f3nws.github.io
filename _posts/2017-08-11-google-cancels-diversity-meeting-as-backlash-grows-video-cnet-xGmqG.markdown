@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google cancels diversity meeting as backlash grows video     - CNET"
-date: 2017-08-11 03:41:31Z
+date: 2017-08-11 06:06:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Google staff raised safety concerns with CEO Sundar Pichai after details of the 
 
 Full story on F3News: [Google cancels diversity meeting as backlash grows video     - CNET](http://www.f3nws.com/n/xGmqG)
 
-> Posted on: Friday, August 11, 2017 3:41:31 AM
+> Posted on: Friday, August 11, 2017 6:06:56 AM
