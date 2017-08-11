@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Saudi artist 'swimming against the currents'"
-date: 2017-08-11 00:56:45Z
+date: 2017-08-11 04:28:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When the Saudi Arabian artist Abdulnasser Gharem arrived in Los Angeles earlier 
 
 Full story on F3News: [The Saudi artist 'swimming against the currents'](http://www.f3nws.com/n/QQHvzG)
 
-> Posted on: Friday, August 11, 2017 12:56:45 AM
+> Posted on: Friday, August 11, 2017 4:28:28 AM
