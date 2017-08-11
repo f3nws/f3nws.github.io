@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google CEO cancels diversity all-hands meeting due to leaks     - CNET"
-date: 2017-08-11 03:39:31Z
+date: 2017-08-11 03:43:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The cancellation comes after employees express concern about their safety and on
 
 Full story on F3News: [Google CEO cancels diversity all-hands meeting due to leaks     - CNET](http://www.f3nws.com/n/njbRsE)
 
-> Posted on: Friday, August 11, 2017 3:39:31 AM
+> Posted on: Friday, August 11, 2017 3:43:55 AM
