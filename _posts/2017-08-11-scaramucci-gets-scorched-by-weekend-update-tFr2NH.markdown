@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scaramucci gets scorched by 'Weekend Update'"
-date: 2017-08-11 04:16:34Z
+date: 2017-08-11 06:15:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Scaramucci gets scorched by 'Weekend Update'](http://www.f3nws.com/n/tFr2NH)
 
-> Posted on: Friday, August 11, 2017 4:16:34 AM
+> Posted on: Friday, August 11, 2017 6:15:11 AM

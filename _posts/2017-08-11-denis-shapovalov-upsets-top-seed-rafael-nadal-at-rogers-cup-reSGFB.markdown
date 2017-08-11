@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Denis Shapovalov upsets top seed Rafael Nadal at Rogers Cup"
-date: 2017-08-11 03:18:16Z
+date: 2017-08-11 03:18:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ The Canadian teen shocked Nadal 3-6, 6-4,7-6 (4) to advance to the quarter-final
 
 Full story on F3News: [Denis Shapovalov upsets top seed Rafael Nadal at Rogers Cup](http://www.f3nws.com/n/reSGFB)
 
-> Posted on: Friday, August 11, 2017 3:18:16 AM
+> Posted on: Friday, August 11, 2017 3:18:00 AM
