@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Ex-Hells Angel runs for One Nation in Logan](http://www.abc.net.au/news/image/8797224-1x1-700x700.jpg)
 
-Queensland's One Nation leader says he knows their new candidate was a member of the Hells Angels motorcycle gang, which has been outlawed in the state.
+Queensland's One Nation leader says he knows their new candidate was once a member of the Hells Angels motorcycle gang, which has been outlawed in the state.
 
 
 Full story on F3News: [Ex-Hells Angel runs for One Nation in Logan](http://www.f3nws.com/n/UejJFF)
