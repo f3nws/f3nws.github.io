@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "When is the Perseid Meteor shower and how can I see it?"
-date: 2017-08-11 10:38:09Z
+date: 2017-08-11 12:48:15Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ The Perseids meteor shower is an annual event that peaks around mid-August,wit
 
 Full story on F3News: [When is the Perseid Meteor shower and how can I see it?](http://www.f3nws.com/n/uRpQv)
 
-> Posted on: Friday, August 11, 2017 10:38:09 AM
+> Posted on: Friday, August 11, 2017 12:48:15 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What's Merkel's big secret? Being Angela Merkel"
-date: 2017-08-11 11:20:35Z
+date: 2017-08-11 12:58:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Political upset and change -- the twin themes dominating Western politics of lat
 
 Full story on F3News: [What's Merkel's big secret? Being Angela Merkel](http://www.f3nws.com/n/UzskBB)
 
-> Posted on: Friday, August 11, 2017 11:20:35 AM
+> Posted on: Friday, August 11, 2017 12:58:25 PM
