@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mattis: War with North Korea would be 'catastrophic'"
-date: 2017-08-11 00:15:00Z
+date: 2017-08-11 02:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Defense Secretary Jim Mattis said Thursday that war with North Korea would be â€
 
 Full story on F3News: [Mattis: War with North Korea would be 'catastrophic'](http://www.f3nws.com/n/ghVEkD)
 
-> Posted on: Friday, August 11, 2017 12:15:00 AM
+> Posted on: Friday, August 11, 2017 2:00:00 AM
