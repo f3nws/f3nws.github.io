@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump again warns North Korean leader"
-date: 2017-08-12 06:38:50Z
+date: 2017-08-12 08:18:46Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Friday North Korean leader Kim Jong Un "will truly r
 
 Full story on F3News: [Trump again warns North Korean leader](http://www.f3nws.com/n/VaGUvE)
 
-> Posted on: Saturday, August 12, 2017 6:38:50 AM
+> Posted on: Saturday, August 12, 2017 8:18:46 AM
