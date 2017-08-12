@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chinese President Xi calls for restraint over North Korea - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170405172841-xi-jinping-donald-trump-super-tease.jpg)
 
-CNN Chinese President Xi calls for restraint over North Korea CNN Beijing (CNN) Chinese President Xi Jinping called for restraint during a phone call Saturday with President Donald Trump, following a dramatic exchange of threats between the US President and North Korea. Xi made clear in the call he was asking both ... China's president urges Trump to use restraint over North Korea Washington Post Chinese leader asks Trump for 'restraint' on North Korea The Hill Minutes from missiles, Guam islanders get to grips with uncertain fate Reuters USA TODAY - BBC News - Miami Herald - New Republic all 16,241 news articles »
+CNN Chinese President Xi calls for restraint over North Korea CNN Beijing (CNN) Chinese President Xi Jinping called for restraint during a phone call Saturday with President Donald Trump, following a dramatic exchange of threats between the US President and North Korea. Xi made clear in the call he was asking both ... China's president urges Trump to use restraint over North Korea Washington Post Chinese leader asks Trump for 'restraint' on North Korea The Hill Nuclear Anxiety Returns to America The Atlantic Reuters - USA TODAY - BBC News - Bloomberg all 16,947 news articles »
 
 
 Full story on F3News: [Chinese President Xi calls for restraint over North Korea - CNN](http://www.f3nws.com/n/hEtrg)
