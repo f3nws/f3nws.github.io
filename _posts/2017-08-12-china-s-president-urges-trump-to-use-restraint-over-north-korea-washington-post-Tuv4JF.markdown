@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![China's president urges Trump to use restraint over North Korea - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/12/Foreign/Images/China_Military_03891-f5588.jpg?t=20170517)
 
-Washington Post China's president urges Trump to use restraint over North Korea Washington Post BEIJING — Chinese President Xi Jinping urged President Trump to exercise restraint over tensions with North Korea during a phone call Friday night, Chinese state media reported. After a week of threats and counter-threats between Washington and ... Chinese President Xi calls for restraint over North Korea CNN In call with Trump, China's Xi urges restraint over North Korea Reuters No changes in US and North Korean military posture despite war-like talk USA TODAY Yahoo News - Bloomberg - ABC News - New York Post all 16,296 news articles »
+Washington Post China's president urges Trump to use restraint over North Korea Washington Post BEIJING — Chinese President Xi Jinping urged President Trump to exercise restraint over tensions with North Korea during a phone call Friday night, Chinese state media reported. After a week of threats and counter-threats between Washington and ... Chinese leader asks Trump for 'restraint' on North Korea The Hill No changes in US and North Korean military posture despite war-like talk USA TODAY Trump administration's mixed messages on North Korea BBC News Newsweek - New Republic - Los Angeles Times - Bloomberg all 14,332 news articles »
 
 
 Full story on F3News: [China's president urges Trump to use restraint over North Korea - Washington Post](http://www.f3nws.com/n/Tuv4JF)

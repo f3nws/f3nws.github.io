@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Death toll rises amid Kenya's rioting over disputed vote"
-date: 2017-08-12 08:54:00Z
+date: 2017-08-12 09:11:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — Kenya's post-election violence worsened Saturday as poli
 
 Full story on F3News: [Death toll rises amid Kenya's rioting over disputed vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 12, 2017 8:54:00 AM
+> Posted on: Saturday, August 12, 2017 9:11:00 AM

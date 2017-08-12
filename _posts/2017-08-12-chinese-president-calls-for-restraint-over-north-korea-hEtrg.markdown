@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese President calls for restraint over North Korea"
-date: 2017-08-12 09:58:45Z
+date: 2017-08-12 12:19:48Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chinese President Xi Jinping called for restraint during a phone call Saturday w
 
 Full story on F3News: [Chinese President calls for restraint over North Korea](http://www.f3nws.com/n/hEtrg)
 
-> Posted on: Saturday, August 12, 2017 9:58:45 AM
+> Posted on: Saturday, August 12, 2017 12:19:48 PM
