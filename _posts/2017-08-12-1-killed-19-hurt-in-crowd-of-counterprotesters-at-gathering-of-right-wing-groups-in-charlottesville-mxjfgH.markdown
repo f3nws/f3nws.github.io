@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1 killed 19 hurt in crowd of counterprotesters at gathering of right-wing groups in Charlottesville"
-date: 2017-08-12 20:58:28Z
+date: 2017-08-12 21:41:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN State of emergency declared amid violence at Charlottesville's 'Unite the Ri
 
 Full story on F3News: [1 killed 19 hurt in crowd of counterprotesters at gathering of right-wing groups in Charlottesville](http://www.f3nws.com/n/mxjfgH)
 
-> Posted on: Saturday, August 12, 2017 8:58:28 PM
+> Posted on: Saturday, August 12, 2017 9:41:23 PM
