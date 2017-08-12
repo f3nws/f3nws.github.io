@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taylor Swift's trial in Colorado DJ alleged groping case explained"
-date: 2017-08-12 00:00:00Z
+date: 2017-08-12 00:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A judge threw out a Denver radio host's case against Taylor Swift in a trial tha
 
 Full story on F3News: [Taylor Swift's trial in Colorado DJ alleged groping case explained](http://www.f3nws.com/n/tCqSMG)
 
-> Posted on: Saturday, August 12, 2017 12:00:00 AM
+> Posted on: Saturday, August 12, 2017 12:45:00 AM
