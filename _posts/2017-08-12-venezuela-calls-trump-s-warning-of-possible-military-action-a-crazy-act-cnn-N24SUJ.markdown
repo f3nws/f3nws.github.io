@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Venezuela calls Trump's warning of possible military action a 'crazy act' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170811180148-01-trump-haley-0811-super-tease.jpg)
 
-CNN Venezuela calls Trump's warning of possible military action a 'crazy act' CNN (CNN) US President Donald Trump said Friday he would not rule out the possibility of a military intervention in Venezuela. He has accused the regime of being led by a dictator. Asked about the possibility of a military intervention in response to the ... Trump says he won't rule out military response to Venezuela Washington Post Trump threatens Venezuela with unspecified 'military option' Reuters Trump does not rule out military response to Venezuela crisis BBC News NBCNews.com - U.S. News & World Report - Business Insider - Miami Herald all 458 news articles »
+CNN Venezuela calls Trump's warning of possible military action a 'crazy act' CNN (CNN) US President Donald Trump said Friday he would not rule out the possibility of a military intervention in Venezuela. He has accused the regime of being led by a dictator. Asked about the possibility of a military intervention in response to the ... Trump says he won't rule out military response to Venezuela Washington Post Trump threatens Venezuela with unspecified 'military option' Reuters Trump Says 'Military Option' Possibility in Venezuela NBCNews.com BBC News - Business Insider - U.S. News & World Report - Miami Herald all 454 news articles »
 
 
 Full story on F3News: [Venezuela calls Trump's warning of possible military action a 'crazy act' - CNN](http://www.f3nws.com/n/N24SUJ)
