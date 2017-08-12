@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Father: Woman killed by officer was 'ripped from our arms'"
-date: 2017-08-12 01:56:30Z
+date: 2017-08-12 03:48:55Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ MINNEAPOLIS (AP) — The father and the fiance of an Australian woman shot to de
 
 Full story on F3News: [Father: Woman killed by officer was 'ripped from our arms'](http://www.f3nws.com/n/D3bVQG)
 
-> Posted on: Saturday, August 12, 2017 1:56:30 AM
+> Posted on: Saturday, August 12, 2017 3:48:55 AM
