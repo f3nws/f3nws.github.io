@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Torch-bearing white nationalists march on US university"
-date: 2017-08-12 08:18:16Z
+date: 2017-08-12 11:48:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Torch-bearing white nationalists march ahead of alt-right rally CNN (CNN) Al
 
 Full story on F3News: [Torch-bearing white nationalists march on US university](http://www.f3nws.com/n/mxjfgH)
 
-> Posted on: Saturday, August 12, 2017 8:18:16 AM
+> Posted on: Saturday, August 12, 2017 11:48:35 AM

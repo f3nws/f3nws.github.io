@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "One shot dead in Kenya election protests, police say"
-date: 2017-08-12 08:44:23Z
+date: 2017-08-12 11:45:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One person was shot dead after protests broke out in Kisumu following the re-ele
 
 Full story on F3News: [One shot dead in Kenya election protests, police say](http://www.f3nws.com/n/CxHd3F)
 
-> Posted on: Saturday, August 12, 2017 8:44:23 AM
+> Posted on: Saturday, August 12, 2017 11:45:16 AM
