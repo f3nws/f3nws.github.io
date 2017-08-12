@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opinion: The thing 'SNL' does to Trump"
-date: 2017-08-12 03:00:34Z
+date: 2017-08-12 04:07:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Trump's "locked and loaded" standoff with North Korea has Americans in high anxi
 
 Full story on F3News: [Opinion: The thing 'SNL' does to Trump](http://www.f3nws.com/n/xDMnPG)
 
-> Posted on: Saturday, August 12, 2017 3:00:34 AM
+> Posted on: Saturday, August 12, 2017 4:07:34 AM
