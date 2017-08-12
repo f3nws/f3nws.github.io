@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![How The Next Terminator Movie May Use Arnold Schwarzenegger - Cinema Blend](https://img.cinemablend.com/quill/6/8/2/d/8/e/682d8e6293aa784f5909398bf25f955494bda489.jpg)
 
-Cinema Blend How The Next Terminator Movie May Use Arnold Schwarzenegger Cinema Blend The Terminator franchise has been in rough shape over the past decade. Setting the action fully in the near future in Terminator Salvation didn't pay off, and Terminator Genisys failed to effectively reboot the series Star Trek-style two years ago. But ... James Cameron Is Coming Back to Terminator Because the World Caught Up To His Ideas Gizmodo James Cameron says 'Terminator 2' as 'timely as it ever was' ABC News Why James Cameron Decided to Return to the Terminator Franchise Screen Rant Fox News - MovieWeb - TooFab - Gazette Review all 84 news articles »
+Cinema Blend How The Next Terminator Movie May Use Arnold Schwarzenegger Cinema Blend The Terminator franchise has been in rough shape over the past decade. Setting the action fully in the near future in Terminator Salvation didn't pay off, and Terminator Genisys failed to effectively reboot the series Star Trek-style two years ago. But ... James Cameron says 'Terminator 2' as 'timely as it ever was' ABC News James Cameron Is Coming Back to Terminator Because the World Caught Up To His Ideas Gizmodo Arnold Schwarzenegger confirms role in 'Terminator 6,' but not as T-800 Fox News ComingSoon.net - Screen Rant - MovieWeb - Gazette Review all 84 news articles »
 
 
 Full story on F3News: [How The Next Terminator Movie May Use Arnold Schwarzenegger - Cinema Blend](http://www.f3nws.com/n/SyTWeB)
