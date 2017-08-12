@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![One dead after car ploughs into protesters at US white nationalist rally](http://www.abc.net.au/news/image/8801574-1x1-700x700.jpg)
 
-A car ploughs into a crowd of people peacefully protesting a white nationalist rally in a college town in Virginia in the US, killing one person, sending at least 26 others to hospitals and ratcheting up tension in an increasingly violent confrontation.
+Donald Trump condemns "hatred, bigotry and violence on many sides" after one person dies when a car ploughs into a group of anti-racism protesters at a white nationalist rally in Charlottesville, Virginia.
 
 
 Full story on F3News: [One dead after car ploughs into protesters at US white nationalist rally](http://www.f3nws.com/n/EQvx2)
