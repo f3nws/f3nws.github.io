@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anti-Google street art pops up near Google offices in response to firing of diversity memo author"
-date: 2017-08-12 02:08:07Z
+date: 2017-08-12 02:08:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Spoof ads are appearing all around Google offices in California after the tech g
 
 Full story on F3News: [Anti-Google street art pops up near Google offices in response to firing of diversity memo author](http://www.f3nws.com/n/RhjzkD)
 
-> Posted on: Saturday, August 12, 2017 2:08:07 AM
+> Posted on: Saturday, August 12, 2017 2:08:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Battle to free Raqqa puts coalition up against booby-traps, car bombs and mines"
-date: 2017-08-12 01:00:03Z
+date: 2017-08-12 02:07:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The operation to liberate the de facto ISIS capital of Raqqa in Syria has entere
 
 Full story on F3News: [Battle to free Raqqa puts coalition up against booby-traps, car bombs and mines](http://www.f3nws.com/n/XhJyG)
 
-> Posted on: Saturday, August 12, 2017 1:00:03 AM
+> Posted on: Saturday, August 12, 2017 2:07:00 AM
