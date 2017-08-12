@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Android O rumored for August 21st release - androidandme.com](http://androidandme.com/wp-content/uploads/2017/08/androidonexus6paam.jpg)
 
-androidandme.com Android O rumored for August 21st release androidandme.com After going through four developer previews, Android O may be just days away from an official release. Google is planning to launch Android O the week of August 21st. That's according to Evan Blass, who adds that the launch is “most likely” going to ... Android O "most likely" to be released on August 21 Phone Arena Android O may be released the week of August 21st PhoneDog Android O's final name might be announced on the day of the solar eclipse Mashable LinuxGizmos.com - iTWire - International Business Times - BGR all 37 news articles »
+androidandme.com Android O rumored for August 21st release androidandme.com After going through four developer previews, Android O may be just days away from an official release. Google is planning to launch Android O the week of August 21st. That's according to Evan Blass, who adds that the launch is “most likely” going to ... Android O "most likely" to be released on August 21 Phone Arena Android O may be released the week of August 21st PhoneDog Report: Android O Update For Google Pixel (XL) Gets Delayed Android Headlines Mashable - LinuxGizmos.com - India Today - International Business Times all 39 news articles »
 
 
 Full story on F3News: [Android O rumored for August 21st release - androidandme.com](http://www.f3nws.com/n/b4pmGG)

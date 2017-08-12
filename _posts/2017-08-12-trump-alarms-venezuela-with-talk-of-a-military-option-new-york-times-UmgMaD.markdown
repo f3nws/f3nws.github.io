@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Alarms Venezuela With Talk of a 'Military Option' - New York Times](https://static01.nyt.com/images/2017/08/12/world/12trump-venezuela-video/12trump-venezuela-video-facebookJumbo.jpg)
 
-New York Times Trump Alarms Venezuela With Talk of a 'Military Option' New York Times After days of bellicose language directed toward North Korea, President Trump also raised the possibility of military action in response to a power grab by President Nicolás Maduro of Venezuela. By ASSOCIATED PRESS. Photo by Al Drago for The New York ... Trump threatens Venezuela with unspecified 'military option' Reuters The Latest: White House rejects Maduro phone call Washington Post Trump refused phone call with Venezuelan president The Hill BBC News - NPR - U.S. News & World Report - CNN International all 512 news articles »
+New York Times Trump Alarms Venezuela With Talk of a 'Military Option' New York Times After days of bellicose language directed toward North Korea, President Trump also raised the possibility of military action in response to a power grab by President Nicolás Maduro of Venezuela. By ASSOCIATED PRESS. Photo by Al Drago for The New York ... Trump threatens Venezuela with unspecified 'military option' Reuters The Latest: White House rejects Maduro phone call Washington Post Trump does not rule out military response to Venezuela crisis BBC News NPR - New York Daily News - CNN International - CNBC all 517 news articles »
 
 
 Full story on F3News: [Trump Alarms Venezuela With Talk of a 'Military Option' - New York Times](http://www.f3nws.com/n/UmgMaD)
