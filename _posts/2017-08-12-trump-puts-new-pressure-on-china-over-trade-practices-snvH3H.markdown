@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump puts new pressure on China over trade practices"
-date: 2017-08-12 12:24:47Z
+date: 2017-08-12 18:32:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Trump on Friday night informed China's leader that he's preparing to o
 
 Full story on F3News: [Trump puts new pressure on China over trade practices](http://www.f3nws.com/n/snvH3H)
 
-> Posted on: Saturday, August 12, 2017 12:24:47 PM
+> Posted on: Saturday, August 12, 2017 6:32:48 PM

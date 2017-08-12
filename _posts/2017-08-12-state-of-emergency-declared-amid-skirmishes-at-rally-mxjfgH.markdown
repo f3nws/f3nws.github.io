@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "State of emergency declared amid skirmishes at rally"
-date: 2017-08-12 18:09:58Z
+date: 2017-08-12 18:42:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN State of emergency declared amid violence at Charlottesville's 'Unite the Ri
 
 Full story on F3News: [State of emergency declared amid skirmishes at rally](http://www.f3nws.com/n/mxjfgH)
 
-> Posted on: Saturday, August 12, 2017 6:09:58 PM
+> Posted on: Saturday, August 12, 2017 6:42:32 PM
