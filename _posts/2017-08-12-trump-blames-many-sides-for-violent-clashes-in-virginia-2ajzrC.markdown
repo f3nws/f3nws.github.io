@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump blames 'many sides' for violent clashes in Virginia"
-date: 2017-08-12 17:41:00Z
+date: 2017-08-12 17:51:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BEDMINSTER, N.J. (AP) — President Donald Trump on Saturday blamed "many sides"
 
 Full story on F3News: [Trump blames 'many sides' for violent clashes in Virginia](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 12, 2017 5:41:00 PM
+> Posted on: Saturday, August 12, 2017 5:51:00 PM

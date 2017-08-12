@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Advocates: Taylor Swift's trial sends a powerful message to young fans"
-date: 2017-08-12 01:58:35Z
+date: 2017-08-12 22:02:49Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Taylor Swift has shared her side of the story in court against a former DJ who s
 
 Full story on F3News: [Advocates: Taylor Swift's trial sends a powerful message to young fans](http://www.f3nws.com/n/jCjYTJ)
 
-> Posted on: Saturday, August 12, 2017 1:58:35 AM
+> Posted on: Saturday, August 12, 2017 10:02:49 PM
