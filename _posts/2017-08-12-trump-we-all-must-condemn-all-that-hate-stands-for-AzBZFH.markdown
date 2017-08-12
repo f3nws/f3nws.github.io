@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: We all must 'condemn all that hate stands for'"
-date: 2017-08-12 20:37:34Z
+date: 2017-08-12 20:51:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump urged unity and condemned hate in response to violent whi
 
 Full story on F3News: [Trump: We all must 'condemn all that hate stands for'](http://www.f3nws.com/n/AzBZFH)
 
-> Posted on: Saturday, August 12, 2017 8:37:34 PM
+> Posted on: Saturday, August 12, 2017 8:51:32 PM
