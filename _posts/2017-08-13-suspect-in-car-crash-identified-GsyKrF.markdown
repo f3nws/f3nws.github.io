@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect in car crash identified"
-date: 2017-08-13 01:17:33Z
+date: 2017-08-13 02:48:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The suspect being held in a Virginia jail in connection with a deadly crash near
 
 Full story on F3News: [Suspect in car crash identified](http://www.f3nws.com/n/GsyKrF)
 
-> Posted on: Sunday, August 13, 2017 1:17:33 AM
+> Posted on: Sunday, August 13, 2017 2:48:22 AM
