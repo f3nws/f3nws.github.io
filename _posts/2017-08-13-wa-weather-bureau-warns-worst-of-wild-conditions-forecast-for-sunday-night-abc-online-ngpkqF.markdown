@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WA weather: Bureau warns worst of wild conditions forecast for Sunday night - ABC Online"
-date: 2017-08-13 07:12:00Z
+date: 2017-08-13 07:17:59Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online WA weather: Bureau warns worst of wild conditions forecast for Sunday
 
 Full story on F3News: [WA weather: Bureau warns worst of wild conditions forecast for Sunday night - ABC Online](http://www.f3nws.com/n/ngpkqF)
 
-> Posted on: Sunday, August 13, 2017 7:12:00 AM
+> Posted on: Sunday, August 13, 2017 7:17:59 AM
