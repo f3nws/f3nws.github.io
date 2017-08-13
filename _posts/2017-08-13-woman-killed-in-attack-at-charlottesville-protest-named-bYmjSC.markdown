@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman killed in attack at Charlottesville protest named"
-date: 2017-08-13 18:01:43Z
+date: 2017-08-13 19:10:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Virginia leaders rally at black church after hate-filled event turns deadly 
 
 Full story on F3News: [Woman killed in attack at Charlottesville protest named](http://www.f3nws.com/n/bYmjSC)
 
-> Posted on: Sunday, August 13, 2017 6:01:43 PM
+> Posted on: Sunday, August 13, 2017 7:10:12 PM
