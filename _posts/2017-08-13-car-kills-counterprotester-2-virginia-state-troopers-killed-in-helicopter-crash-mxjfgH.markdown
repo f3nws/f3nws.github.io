@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car kills counterprotester; 2 Virginia state troopers killed in helicopter crash"
-date: 2017-08-13 04:08:19Z
+date: 2017-08-13 04:42:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Alt-right activists held torches and marched late Friday through the University 
 
 Full story on F3News: [Car kills counterprotester; 2 Virginia state troopers killed in helicopter crash](http://www.f3nws.com/n/mxjfgH)
 
-> Posted on: Sunday, August 13, 2017 4:08:19 AM
+> Posted on: Sunday, August 13, 2017 4:42:59 AM
