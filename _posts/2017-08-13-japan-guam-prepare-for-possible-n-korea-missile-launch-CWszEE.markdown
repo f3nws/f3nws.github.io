@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Japan, Guam prepare for possible N Korea missile launch"
+date: 2017-08-13 05:50:12Z
+categories: cnn-com-top-stories
+---
+
+![Japan, Guam prepare for possible N Korea missile launch](http://i2.cdn.cnn.com/cnnnext/dam/assets/170812153725-01-guam-aerial-0812-super-tease.jpg)
+
+North Korean military figures are putting the final touches on a plan to fire four missiles into the waters around the US-territory of Guam, to be presented to leader Kim Jong Un within days.
+
+
+Full story on F3News: [Japan, Guam prepare for possible N Korea missile launch](http://www.f3nws.com/n/CWszEE)
+
+> Posted on: Sunday, August 13, 2017 5:50:12 AM
