@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump fails to condemn 'alt-right,' white supremacists"
-date: 2017-08-13 05:34:51Z
+date: 2017-08-13 20:34:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, a man known for his bluntness, was anything but on Satur
 
 Full story on F3News: [Trump fails to condemn 'alt-right,' white supremacists](http://www.f3nws.com/n/kGeVxD)
 
-> Posted on: Sunday, August 13, 2017 5:34:51 AM
+> Posted on: Sunday, August 13, 2017 8:34:28 PM

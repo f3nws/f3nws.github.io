@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump advisers signal the knives are out for Bannon - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170809122720-01-mcmaster-bannon-split-super-tease.jpg)
 
-CNN Trump advisers signal the knives are out for Bannon CNN Bridgewater, New Jersey (CNN) Two senior Trump advisers -- one inside the White House and another who recently departed -- signaled Sunday that the knives are out for Steve Bannon, President Donald Trump's controversial chief strategist. The comments ... Scaramucci criticizes Trump's Charlottesville statement: 'I think he needed to be much harsher' Washington Post Scaramucci criticizes Trump's Charlottesville response and blames Bannon Politico 'This Week' Transcript 8-13-17: Lt. Gen. HR McMaster, Anthony Scaramucci ABC News NBCNews.com - The Hill - Fox News - USA TODAY all 175 news articles »
+CNN Trump advisers signal the knives are out for Bannon CNN Bridgewater, New Jersey (CNN) Two senior Trump advisers -- one inside the White House and another who recently departed -- signaled Sunday that the knives are out for Steve Bannon, President Donald Trump's controversial chief strategist. The comments ... Scaramucci criticizes Trump's Charlottesville statement: 'I think he needed to be much harsher' Washington Post The Scaramucci Show Continues: Anthony Blows Whatever Was Left of his Credibility With Trump's Base Breitbart News Scaramucci Says Bannon a 'Snag' on Trump's White House Agenda Bloomberg Orlando Sentinel - Washington Examiner - SFGate - Mediaite all 169 news articles »
 
 
 Full story on F3News: [Trump advisers signal the knives are out for Bannon - CNN](http://www.f3nws.com/n/AnjczG)
