@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran lawmakers raise missile, Guard spending to challenge US"
-date: 2017-08-13 05:08:00Z
+date: 2017-08-13 05:48:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — Iran's parliament voted overwhelmingly Sunday to increase 
 
 Full story on F3News: [Iran lawmakers raise missile, Guard spending to challenge US](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 13, 2017 5:08:00 AM
+> Posted on: Sunday, August 13, 2017 5:48:00 AM
