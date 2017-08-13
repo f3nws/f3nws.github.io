@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House scrambles to explain Trump's response to clashes"
-date: 2017-08-13 16:44:00Z
+date: 2017-08-13 18:30:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BEDMINSTER, N.J. (AP) — The White House scrambled Sunday to elaborate on Presi
 
 Full story on F3News: [White House scrambles to explain Trump's response to clashes](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 13, 2017 4:44:00 PM
+> Posted on: Sunday, August 13, 2017 6:30:00 PM
