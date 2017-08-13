@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Go home’: Virginia governor lashes out at white supremacists after Charlottesville violence"
-date: 2017-08-13 02:39:49Z
+date: 2017-08-13 02:39:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Virginia Governor Terry R. McAuliffe blamed “white supremacists and the Nazis�
 
 Full story on F3News: [‘Go home’: Virginia governor lashes out at white supremacists after Charlottesville violence](http://www.f3nws.com/n/Vaj2KE)
 
-> Posted on: Sunday, August 13, 2017 2:39:49 AM
+> Posted on: Sunday, August 13, 2017 2:39:00 AM

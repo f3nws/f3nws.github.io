@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "20yo Ohio man charged with murder after ramming car into Charlottesville protesters & killing woman"
-date: 2017-08-13 02:59:44Z
+date: 2017-08-13 02:59:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Police have identified James Alex Fields as the driver of the car that smashed i
 
 Full story on F3News: [20yo Ohio man charged with murder after ramming car into Charlottesville protesters & killing woman](http://www.f3nws.com/n/FEvk3F)
 
-> Posted on: Sunday, August 13, 2017 2:59:44 AM
+> Posted on: Sunday, August 13, 2017 2:59:00 AM
