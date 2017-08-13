@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "4th rice grower Bangladesh now major importer"
-date: 2017-08-13 02:36:17Z
+date: 2017-08-13 03:09:41Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [4th rice grower Bangladesh now major importer](http://www.f3nws.com/n/DvfgF)
 
-> Posted on: Sunday, August 13, 2017 2:36:17 AM
+> Posted on: Sunday, August 13, 2017 3:09:41 AM
