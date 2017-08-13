@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Car crash suspect charged with murder"
-date: 2017-08-13 02:48:22Z
+date: 2017-08-13 08:50:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The suspect being held in a Virginia jail in connection with a deadly crash near
 
 Full story on F3News: [Car crash suspect charged with murder](http://www.f3nws.com/n/GsyKrF)
 
-> Posted on: Sunday, August 13, 2017 2:48:22 AM
+> Posted on: Sunday, August 13, 2017 8:50:27 AM

@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Seven dead in horror weekend on Queensland roads, several more injured - ABC Online](http://www.abc.net.au/news/image/8802208-1x1-700x700.jpg)
 
-ABC Online Seven dead in horror weekend on Queensland roads, several more injured ABC Online Two people have died in a three-vehicle car crash south of Brisbane — the latest in a string of horror incidents on Queensland roads that have claimed the lives of seven people since Friday afternoon. Three vehicles were involved in the crash at the ... Two dead, one cut from wreckage after horror Logan crash Brisbane Times Update – Serious traffic crash, Buccan myPolice (press release) (blog) all 4 news articles »
+ABC Online Seven dead in horror weekend on Queensland roads, several more injured ABC Online Two people have died in a three-vehicle car crash south of Brisbane — the latest in a string of horror incidents on Queensland roads that have claimed the lives of seven people since Friday afternoon. Three vehicles were involved in the crash at the ... Two dead, one cut from wreckage after horror Logan crash Brisbane Times Two dead, two critical after crash at Clothiers Creek, Tweed Shire Gold Coast Bulletin Update – Serious traffic crash, Buccan myPolice (press release) (blog) all 5 news articles »
 
 
 Full story on F3News: [Seven dead in horror weekend on Queensland roads, several more injured - ABC Online](http://www.f3nws.com/n/FzGmg)
