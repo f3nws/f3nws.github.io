@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela: President's son in threat to seize White House"
-date: 2017-08-13 13:40:53Z
+date: 2017-08-13 16:25:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Venezuela: President's son in threat to seize White House](http://www.f3nws.com/n/U3KCAE)
 
-> Posted on: Sunday, August 13, 2017 1:40:53 PM
+> Posted on: Sunday, August 13, 2017 4:25:49 PM
