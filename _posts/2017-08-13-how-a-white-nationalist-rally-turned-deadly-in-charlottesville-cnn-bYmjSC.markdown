@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![How a white nationalist rally turned deadly in Charlottesville - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170813002022-34-charlottesville-white-nationalist-protest-0812-super-tease.jpg)
 
-CNN How a white nationalist rally turned deadly in Charlottesville CNN CHARLOTTESVILLE, Virginia (CNN) One person died when a car plowed into a crowd following a dispersed gathering of white nationalists and counterprotesters in Charlottesville. Shortly before the attack Saturday, fistfights and screaming matches erupted ... Charlottesville Faces its Own Past After Rally Turns Deadly NBCNews.com AP News in Brief at 6:04 am EDT Washington Post A reckoning in Charlottesville BBC News New York Daily News - ABC News - USA TODAY - U.S. News & World Report all 2,208 news articles »
+CNN How a white nationalist rally turned deadly in Charlottesville CNN CHARLOTTESVILLE, Virginia (CNN) One person died when a car plowed into a crowd following a dispersed gathering of white nationalists and counterprotesters in Charlottesville. Shortly before the attack Saturday, fistfights and screaming matches erupted ... Trump Is Criticized for Not Calling Out White Supremacists New York Times Ohio Man Charged With Murder In Virginia Car Attack Following White Nationalist Rally NPR Charlottesville Faces its Own Past After Rally Turns Deadly NBCNews.com The Hill - Washington Post - ABC News - New York Daily News all 2,332 news articles »
 
 
 Full story on F3News: [How a white nationalist rally turned deadly in Charlottesville - CNN](http://www.f3nws.com/n/bYmjSC)
