@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Guam, Japan prepare for possible North Korea missile launch - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170812153725-01-guam-aerial-0812-super-tease.jpg)
 
-CNN Guam, Japan prepare for possible North Korea missile launch CNN Hagatña, Guam (CNN) North Korean military figures are putting the final touches on a plan to fire four missiles into the waters around the US territory of Guam, to be presented to leader Kim Jong Un within days. In a statement last week, Gen. Kim Rak ... Who is Kim Jong Un and what will he decide to do? Washington Post Trump Eyes China Sanctions While Seeking Its Help on North Korea New York Times Nuclear War With North Korea Isn't Imminent, US Officials Say Bloomberg The Hill (blog) - BBC News - USA TODAY - Slate Magazine (blog) all 18,896 news articles »
+CNN Guam, Japan prepare for possible North Korea missile launch CNN Hagatña, Guam (CNN) North Korean military figures are putting the final touches on a plan to fire four missiles into the waters around the US territory of Guam, to be presented to leader Kim Jong Un within days. In a statement last week, Gen. Kim Rak ... Who is Kim Jong Un and what will he decide to do? Washington Post Trump Eyes China Sanctions While Seeking Its Help on North Korea New York Times Back Channel to North Korea The Atlantic The Hill (blog) - Bloomberg - Politico - BBC News all 18,809 news articles »
 
 
 Full story on F3News: [Guam, Japan prepare for possible North Korea missile launch - CNN](http://www.f3nws.com/n/CWszEE)
