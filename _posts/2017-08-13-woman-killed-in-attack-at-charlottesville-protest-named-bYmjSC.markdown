@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Woman killed in attack at Charlottesville protest named"
-date: 2017-08-13 14:56:15Z
+date: 2017-08-13 18:01:43Z
 categories: cnn-com-top-stories
 ---
 
 ![Woman killed in attack at Charlottesville protest named](http://i2.cdn.cnn.com/cnnnext/dam/assets/170813002022-34-charlottesville-white-nationalist-protest-0812-super-tease.jpg)
 
-CNN Woman killed Charlottesville crash identified CNN CHARLOTTESVILLE, Virginia (CNN) [Breaking news update at 10:55 a.m. ET]. The 32-year old woman killed in Charlottesville on Saturday has been identified as Heather Heyer, Virginia Gov. Terry McAuliffe said Sunday. Heyer was killed after a car rammed ... White House: Trump's condemnation includes 'white supremacists, KKK, neo-Nazi and all extremist groups' Washington Post Sessions opens federal probe on Charlottesville Politico What We Know About James Alex Fields, Driver Charged in Charlottesville Killing New York Times NBCNews.com - U.S. News & World Report - ABC News - CBS News all 33 news articles »
+CNN Virginia leaders rally at black church after hate-filled event turns deadly CNN CHARLOTTESVILLE, Virginia (CNN) As Virginians grappled Sunday with the deadly aftermath of a white nationalist protest, state leaders didn't preach about unity from their offices or on TV -- they went to a historically black church in Charlottesville ... Alleged driver of car that plowed into Charlottesville crowd was a Nazi sympathizer, former teacher says Washington Post White House Acts to Stem Fallout From Trump's First Charlottesville Remarks New York Times Charlottesville Faces its Own Past After Rally Turns Deadly NBCNews.com Politico - The Hill - Slate Magazine - ABC News all 3,389 news articles »
 
 
 Full story on F3News: [Woman killed in attack at Charlottesville protest named](http://www.f3nws.com/n/bYmjSC)
 
-> Posted on: Sunday, August 13, 2017 2:56:15 PM
+> Posted on: Sunday, August 13, 2017 6:01:43 PM
