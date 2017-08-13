@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "HC defers N’ganj 7-murder verdict till 22 Aug"
-date: 2017-08-13 05:25:23Z
+date: 2017-08-13 05:52:07Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [HC defers N’ganj 7-murder verdict till 22 Aug](http://www.f3nws.com/n/vSrsPC)
 
-> Posted on: Sunday, August 13, 2017 5:25:23 AM
+> Posted on: Sunday, August 13, 2017 5:52:07 AM
