@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guam, Japan prepare for possible North Korea missile launch"
-date: 2017-08-13 05:03:38Z
+date: 2017-08-13 08:46:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean military figures are putting the final touches on a plan to fire fo
 
 Full story on F3News: [Guam, Japan prepare for possible North Korea missile launch](http://www.f3nws.com/n/CWszEE)
 
-> Posted on: Sunday, August 13, 2017 5:03:38 AM
+> Posted on: Sunday, August 13, 2017 8:46:03 AM
