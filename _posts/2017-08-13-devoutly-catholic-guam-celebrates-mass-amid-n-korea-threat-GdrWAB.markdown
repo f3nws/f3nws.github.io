@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Devoutly Catholic Guam celebrates Mass amid N. Korea threat"
-date: 2017-08-13 01:04:51Z
+date: 2017-08-13 02:07:48Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Across Guam — where nearly everyone is Roman Catholic — priests prayed for p
 
 Full story on F3News: [Devoutly Catholic Guam celebrates Mass amid N. Korea threat](http://www.f3nws.com/n/GdrWAB)
 
-> Posted on: Sunday, August 13, 2017 1:04:51 AM
+> Posted on: Sunday, August 13, 2017 2:07:48 AM

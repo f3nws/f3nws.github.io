@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump condemns ‘display of hatred, bigotry & violence on many sides’ after Charlottesville clashes"
-date: 2017-08-13 01:04:30Z
+date: 2017-08-13 01:04:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ President Trump has condemned the violent clashes and a car ramming incident in 
 
 Full story on F3News: [Trump condemns ‘display of hatred, bigotry & violence on many sides’ after Charlottesville clashes](http://www.f3nws.com/n/ynPFD)
 
-> Posted on: Sunday, August 13, 2017 1:04:30 AM
+> Posted on: Sunday, August 13, 2017 1:04:00 AM
