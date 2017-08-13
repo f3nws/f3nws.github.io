@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Redcliffe teenager Joshua Waite speaks for the first time after 16 days in a coma - 9news.com.au"
-date: 2017-08-13 08:40:00Z
+date: 2017-08-13 08:44:32Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ categories: google-news-australia
 
 Full story on F3News: [Redcliffe teenager Joshua Waite speaks for the first time after 16 days in a coma - 9news.com.au](http://www.f3nws.com/n/QDnPTH)
 
-> Posted on: Sunday, August 13, 2017 8:40:00 AM
+> Posted on: Sunday, August 13, 2017 8:44:32 AM

@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Bruno Mars Donates $1 Million to Flint Water Crisis Aid - RollingStone.com](http://img.wennermedia.com/social/gettyimages-635009706-4842069c-5d77-4b36-ad1e-91fbddd3382d.jpg)
 
-RollingStone.com Bruno Mars Donates $1 Million to Flint Water Crisis Aid RollingStone.com Bruno Mars revealed during his Saturday concert in Auburn Hills, Michigan that he had donated $1 million to aid victims of the water crisis in Flint. Credit: Kevin Mazur/Getty Images Entertainment. By Daniel Kreps. 24 minutes ago ... Bruno Mars Donates $1 Million to Flint Water Crisis Effords at Michigan Concert Billboard Bruno Mars donates $1M from concert to Flint water crisis Page Six Bruno Mars Donates $1 Million to Aid Victims of Flint Water Crisis Variety MLive.com - ABC News - BET - Detroit Free Press all 34 news articles »
+RollingStone.com Bruno Mars Donates $1 Million to Flint Water Crisis Aid RollingStone.com Bruno Mars revealed during his Saturday concert in Auburn Hills, Michigan that he had donated $1 million to aid victims of the water crisis in Flint. Credit: Kevin Mazur/Getty Images Entertainment. By Daniel Kreps. 1 hour ago ... Bruno Mars Donates $1 Million to Flint Water Crisis Efforts at Michigan Concert Billboard Bruno Mars donates $1M from concert to Flint water crisis Page Six Singer Bruno Mars donates $1 million to victims of Flint water crisis ABC News Variety - Vibe - BET - UPI.com all 36 news articles »
 
 
 Full story on F3News: [Bruno Mars Donates $1 Million to Flint Water Crisis Aid - RollingStone.com](http://www.f3nws.com/n/qqydrB)
