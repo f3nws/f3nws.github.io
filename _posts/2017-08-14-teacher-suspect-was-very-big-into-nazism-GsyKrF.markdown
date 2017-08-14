@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teacher: Suspect 'was very big into Nazism'"
-date: 2017-08-14 09:22:38Z
+date: 2017-08-14 11:14:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The suspect being held in a Virginia jail in connection with a deadly crash near
 
 Full story on F3News: [Teacher: Suspect 'was very big into Nazism'](http://www.f3nws.com/n/GsyKrF)
 
-> Posted on: Monday, August 14, 2017 9:22:38 AM
+> Posted on: Monday, August 14, 2017 11:14:26 AM
