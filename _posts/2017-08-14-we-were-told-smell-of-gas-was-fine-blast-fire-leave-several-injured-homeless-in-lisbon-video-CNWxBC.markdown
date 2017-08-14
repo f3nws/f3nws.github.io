@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘We were told smell of gas was fine’: Blast & fire leave several injured, homeless in Lisbon (VIDEO)"
-date: 2017-08-14 02:04:26Z
+date: 2017-08-14 02:04:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Six people were injured, including two seriously after an explosion rocked an ap
 
 Full story on F3News: [‘We were told smell of gas was fine’: Blast & fire leave several injured, homeless in Lisbon (VIDEO)](http://www.f3nws.com/n/CNWxBC)
 
-> Posted on: Monday, August 14, 2017 2:04:26 AM
+> Posted on: Monday, August 14, 2017 2:04:00 AM
