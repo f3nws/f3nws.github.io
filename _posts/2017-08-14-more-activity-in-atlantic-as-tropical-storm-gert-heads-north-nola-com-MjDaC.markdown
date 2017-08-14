@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![More activity in Atlantic as Tropical Storm Gert heads north - NOLA.com](http://image.nola.com/home/nola-media/width620/img/crime_impact/photo/23228289-standard.jpg)
 
-NOLA.com More activity in Atlantic as Tropical Storm Gert heads north NOLA.com On Sunday, Aug. 12, 2017, the National Hurricane Center predicted a 40 percent chance of the development of a tropical cyclone within the next five days in the Atlantic Ocean near Africa. On Sunday, Aug. 12, 2017, the National Hurricane Center ... Tropical Storm Gert forms in the Atlantic Ocean Sun Sentinel Tropical Depression Eight strengthens to Tropical Storm Gert Wink News all 136 news articles »
+NOLA.com More activity in Atlantic as Tropical Storm Gert heads north NOLA.com On Sunday, Aug. 12, 2017, the National Hurricane Center predicted a 40 percent chance of the development of a tropical cyclone within the next five days in the Atlantic Ocean near Africa. On Sunday, Aug. 12, 2017, the National Hurricane Center ... Tropical Storm Gert forms in the Atlantic WZVN-TV Tropical Storm Gert forms in the Atlantic Ocean Washington Post Tropical storm forms west of Mexico, but quickly weakens CT Post WEAR - The Outer Banks Voice all 139 news articles »
 
 
 Full story on F3News: [More activity in Atlantic as Tropical Storm Gert heads north - NOLA.com](http://www.f3nws.com/n/MjDaC)
