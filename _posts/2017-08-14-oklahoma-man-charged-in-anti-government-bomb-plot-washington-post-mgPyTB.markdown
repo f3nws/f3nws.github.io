@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Oklahoma man charged in anti-government bomb plot - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2016/06/12/Interactivity/Images/fbibuilding.jpg?t=20170517)
 
-Washington Post Oklahoma man charged in anti-government bomb plot Washington Post The FBI has arrested an Oklahoma man on charges that he tried to detonate what he thought was a 1,000-pound bomb, acting out of a hatred for the U.S. government and an admiration for Oklahoma City bomber Timothy McVeigh, according to court papers. FBI: Oklahoma City bank explosion plot foiled by undercover operation CBS News Man charged with car-bomb plot on Oklahoma City bank BBC News Anti-Government Extremist Arrested After Trying To Blow Up Fake Bomb HuffPost ABC News - News On 6 - Heavy.com - The Daily Caller all 47 news articles »
+Washington Post Oklahoma man charged in anti-government bomb plot Washington Post The FBI has arrested an Oklahoma man on charges that he tried to detonate what he thought was a 1,000-pound bomb, acting out of a hatred for the U.S. government and an admiration for Oklahoma City bomber Timothy McVeigh, according to court papers. Man charged with car-bomb plot on Oklahoma City bank BBC News Man tries to detonate fake bomb in honor of terrorist New York Post FBI: Oklahoma City bank explosion plot foiled by undercover operation CBS News New York Times - Heavy.com - HuffPost - ABC News all 50 news articles »
 
 
 Full story on F3News: [Oklahoma man charged in anti-government bomb plot - Washington Post](http://www.f3nws.com/n/mgPyTB)
