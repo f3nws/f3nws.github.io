@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Has 'Game of Thrones' gotten too confusing?     - CNET"
-date: 2017-08-14 12:32:14Z
+date: 2017-08-14 12:54:50Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: A land of seven kingdoms, a war of five kings, a queen with three dr
 
 Full story on F3News: [Has 'Game of Thrones' gotten too confusing?     - CNET](http://www.f3nws.com/n/r2SJkH)
 
-> Posted on: Monday, August 14, 2017 12:32:14 PM
+> Posted on: Monday, August 14, 2017 12:54:50 PM

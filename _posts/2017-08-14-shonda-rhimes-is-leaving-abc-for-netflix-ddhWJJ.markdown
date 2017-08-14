@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shonda Rhimes is leaving ABC for Netflix"
-date: 2017-08-14 09:43:03Z
+date: 2017-08-14 12:56:33Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Rhimes' existing hit shows like "Grey's Anatomy" will keep airing on ABC. But sh
 
 Full story on F3News: [Shonda Rhimes is leaving ABC for Netflix](http://www.f3nws.com/n/ddhWJJ)
 
-> Posted on: Monday, August 14, 2017 9:43:03 AM
+> Posted on: Monday, August 14, 2017 12:56:33 PM
