@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yes, You're Racist: Twitter user names Virginia protesters     - CNET"
-date: 2017-08-14 14:17:25Z
+date: 2017-08-14 16:33:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The account identifies at least nine people who joined the Unite the Right rally
 
 Full story on F3News: [Yes, You're Racist: Twitter user names Virginia protesters     - CNET](http://www.f3nws.com/n/4NEYED)
 
-> Posted on: Monday, August 14, 2017 2:17:25 PM
+> Posted on: Monday, August 14, 2017 4:33:28 PM
