@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Big Brother recap: The Kathy Hillis Strategy - EW.com](http://i2.wp.com/ewedit.files.wordpress.com/2017/08/110665_1612.jpg?crop=0px%2C61px%2C2700px%2C1418px&resize=1200%2C630&ssl=1)
 
-EW.com Big Brother recap: The Kathy Hillis Strategy EW.com August feels long, doesn't it? Just a monster month with the hottest temperatures that make you feel like it's never going to end. And it doesn't help that out of the 17 people who started this season, 11 still remain. ELEVEN. It's honestly absurd how ... Why Isn't Anyone Talking To Cody On 'Big Brother 19'? Paul Is Asserting His Influence Bustle Big Brother 19 BuddyTV (blog) Big Brother 19 Live Feeds Week 7: Sunday Daytime Highlights Big Brother Network Goldderby - Hollywood Reporter all 78 news articles »
+EW.com Big Brother recap: The Kathy Hillis Strategy EW.com August feels long, doesn't it? Just a monster month with the hottest temperatures that make you feel like it's never going to end. And it doesn't help that out of the 17 people who started this season, 11 still remain. ELEVEN. It's honestly absurd how ... Why Isn't Anyone Talking To Cody On 'Big Brother 19'? Paul Is Asserting His Influence Bustle Big Brother 19 BuddyTV (blog) 'Big Brother' episode 22 recap: Who did Alex Ow nominate and who won final Temptation Competition? Goldderby Hollywood Reporter - International Business Times all 78 news articles »
 
 
 Full story on F3News: [Big Brother recap: The Kathy Hillis Strategy - EW.com](http://www.f3nws.com/n/eGFtZC)
