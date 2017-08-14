@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson, Mattis: 'No desire' to harm North Koreans"
-date: 2017-08-14 10:06:44Z
+date: 2017-08-14 10:37:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As America's top military official arrived in South Korea, two of the Trump admi
 
 Full story on F3News: [Tillerson, Mattis: 'No desire' to harm North Koreans](http://www.f3nws.com/n/W2ajqF)
 
-> Posted on: Monday, August 14, 2017 10:06:44 AM
+> Posted on: Monday, August 14, 2017 10:37:59 AM

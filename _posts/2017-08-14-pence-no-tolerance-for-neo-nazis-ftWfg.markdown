@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence: No tolerance for neo-Nazis"
-date: 2017-08-14 10:16:05Z
+date: 2017-08-14 10:48:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A series of White House aides on Sunday looked to explain President Donald Trump
 
 Full story on F3News: [Pence: No tolerance for neo-Nazis](http://www.f3nws.com/n/ftWfg)
 
-> Posted on: Monday, August 14, 2017 10:16:05 AM
+> Posted on: Monday, August 14, 2017 10:48:09 AM
