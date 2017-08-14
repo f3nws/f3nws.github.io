@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merck CEO quits Trump council over Charlottesville"
-date: 2017-08-14 18:32:02Z
+date: 2017-08-14 22:33:25Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Merck CEO Kenneth Frazier quit President Trump's manufacturing council on Monday
 
 Full story on F3News: [Merck CEO quits Trump council over Charlottesville](http://www.f3nws.com/n/Zse2fF)
 
-> Posted on: Monday, August 14, 2017 6:32:02 PM
+> Posted on: Monday, August 14, 2017 10:33:25 PM
