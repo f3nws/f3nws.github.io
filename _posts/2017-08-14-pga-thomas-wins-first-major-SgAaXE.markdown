@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PGA: Thomas wins first major"
-date: 2017-08-14 09:01:29Z
+date: 2017-08-14 09:34:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Justin Thomas kept his nerve on Quail Hollow's notorious Green Mile finishing st
 
 Full story on F3News: [PGA: Thomas wins first major](http://www.f3nws.com/n/SgAaXE)
 
-> Posted on: Monday, August 14, 2017 9:01:29 AM
+> Posted on: Monday, August 14, 2017 9:34:21 AM
