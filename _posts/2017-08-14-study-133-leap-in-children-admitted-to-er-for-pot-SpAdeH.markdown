@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Study: 133% leap in children admitted to ER for pot"
-date: 2017-08-14 12:54:08Z
+date: 2017-08-14 14:27:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As attitudes about marijuana shift around the world, researchers are warning par
 
 Full story on F3News: [Study: 133% leap in children admitted to ER for pot](http://www.f3nws.com/n/SpAdeH)
 
-> Posted on: Monday, August 14, 2017 12:54:08 PM
+> Posted on: Monday, August 14, 2017 2:27:44 PM
