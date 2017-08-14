@@ -7,7 +7,7 @@ categories: the-verge
 
 ![I just caught Mewtwo at Japan's Pokémon Go Stadium](https://cdn.vox-cdn.com/thumbor/yE96yXKRbSTI006IHdnIjt8bUAU=/0x6:2040x1154/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56177611/DSCF5354.0.jpg)
 
-The Verge I just caught Mewtwo at Japan's Pokémon Go Stadium The Verge When Pokémon Go was first announced nearly two years ago, Niantic and Nintendo sold players on the concept with a trailer depicting trainers taking on Mewtwo in Times Square. Tonight in Yokohama, Japan, Pokémon Go more or less delivered on that ... Mewtwo Revealed In 'Pokémon GO,' Players Catching It Now Forbes Mewtwo Just Released In Japan For Pokémon Go Kotaku Legendary pokémon Mewtwo appeared for the first time to 'Pokémon GO' players Business Insider Destructoid - Daily Star - Mirror.co.uk - International Business Times UK all 33 news articles »
+The Verge I just caught Mewtwo at Japan's Pokémon Go Stadium The Verge When Pokémon Go was first announced nearly two years ago, Niantic and Nintendo sold players on the concept with a trailer depicting trainers taking on Mewtwo in Times Square. Tonight in Yokohama, Japan, Pokémon Go more or less delivered on that ... Mewtwo Revealed In 'Pokémon GO,' Players Catching It Now Forbes Mewtwo arrives in Pokémon Go as its newest legendary surprise Polygon Pokemon GO Introduces Exclusive Raids Game Rant Comicbook.com - Business Insider - Daily Star - Mirror.co.uk all 29 news articles »
 
 
 Full story on F3News: [I just caught Mewtwo at Japan's Pokémon Go Stadium](http://www.f3nws.com/n/yvSmZC)

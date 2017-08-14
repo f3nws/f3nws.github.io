@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yes, You're Racist: Twitter user names Virginia protesters     - CNET"
-date: 2017-08-14 07:49:53Z
+date: 2017-08-14 13:54:46Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Twitter account has identified at least nine white supremacist protesters, i
 
 Full story on F3News: [Yes, You're Racist: Twitter user names Virginia protesters     - CNET](http://www.f3nws.com/n/4NEYED)
 
-> Posted on: Monday, August 14, 2017 7:49:53 AM
+> Posted on: Monday, August 14, 2017 1:54:46 PM
