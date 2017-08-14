@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Trump's omissions matter"
-date: 2017-08-14 05:07:11Z
+date: 2017-08-14 10:17:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ From time to time, in moments of tragedy or international peril, a president is 
 
 Full story on F3News: [Why Trump's omissions matter](http://www.f3nws.com/n/3YksYE)
 
-> Posted on: Monday, August 14, 2017 5:07:11 AM
+> Posted on: Monday, August 14, 2017 10:17:22 AM

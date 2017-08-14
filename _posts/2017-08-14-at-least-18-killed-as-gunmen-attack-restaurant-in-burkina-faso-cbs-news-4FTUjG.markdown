@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![At least 18 killed as gunmen attack restaurant in Burkina Faso - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2017/08/14/1a0b8e30-c0f5-470f-8d41-67ea9f11c348/170813-bbcnews-burkina-faso-map.jpg)
 
-CBS News At least 18 killed as gunmen attack restaurant in Burkina Faso CBS News Last Updated Aug 14, 2017 5:03 AM EDT. OUAGADOUGOU, Burkina Faso -- Suspected Islamic extremists opened fire at a Turkish restaurant in the capital of Burkina Faso late Sunday, killing 18 people in the second such attack on a restaurant popular with ... Gunmen attack Turkish restaurant in Burkina Faso, killing 18 Washington Post Burkina Faso terror attack kills 20, government says BBC News At least 18 killed in Burkina Faso restaurant terror attack CNN Reuters - Newsweek - Minneapolis Star Tribune - New York Times all 137 news articles »
+CBS News At least 18 killed as gunmen attack restaurant in Burkina Faso CBS News Last Updated Aug 14, 2017 5:03 AM EDT. OUAGADOUGOU, Burkina Faso -- Suspected Islamic extremists opened fire at a Turkish restaurant in the capital of Burkina Faso late Sunday, killing 18 people in the second such attack on a restaurant popular with ... Gunmen on motorcycles attack Turkish restaurant in Burkina Faso, killing 18 Washington Post Burkina Faso terror attack kills 20, government says BBC News Suspected Islamist militants kill 18 in attack on Burkina Faso restaurant Reuters Newsweek - WTOP - International Business Times - New York Times all 147 news articles »
 
 
 Full story on F3News: [At least 18 killed as gunmen attack restaurant in Burkina Faso - CBS News](http://www.f3nws.com/n/4FTUjG)

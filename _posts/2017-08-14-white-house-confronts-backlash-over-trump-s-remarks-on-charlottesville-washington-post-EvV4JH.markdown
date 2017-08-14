@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House confronts backlash over Trump's remarks on Charlottesville - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/13/National-Politics/Images/Trump_89377-4123c.jpg?t=20170517)
 
-Washington Post White House confronts backlash over Trump's remarks on Charlottesville Washington Post BEDMINSTER, N.J. — The White House on Sunday sought to quell criticism of President Trump's failure to denounce by name the white supremacists behind a spate of violence in Charlottesville, a response that associates said was based largely on Trump's ... Heather Heyer, Charlottesville Victim, Is Recalled as 'a Strong Woman' New York Times Why Trump's words -- and omissions -- matter CNN Former Teacher of Suspect Who Plowed His Car Into Protesters Says He Idolized Hitler, Nazism TIME Fox News - Los Angeles Times - NPR - U.S. News & World Report all 4,941 news articles »
+Washington Post White House confronts backlash over Trump's remarks on Charlottesville Washington Post BEDMINSTER, N.J. — The White House on Sunday sought to quell criticism of President Trump's failure to denounce by name the white supremacists behind a spate of violence in Charlottesville, a response that associates said was based largely on Trump's ... Heather Heyer, Charlottesville Victim, Is Recalled as 'a Strong Woman' New York Times Stung by Criticism, White House Says Trump Abhors Neo-Nazis Bloomberg Protests, vigils around US decry Charlottesville rally CBS News TIME - USA TODAY - Los Angeles Times - U.S. News & World Report all 4,359 news articles »
 
 
 Full story on F3News: [White House confronts backlash over Trump's remarks on Charlottesville - Washington Post](http://www.f3nws.com/n/EvV4JH)
