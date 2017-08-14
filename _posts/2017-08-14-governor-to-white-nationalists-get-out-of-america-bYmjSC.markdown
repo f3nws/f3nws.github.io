@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Governor to white nationalists: Get out of America"
-date: 2017-08-14 01:14:31Z
+date: 2017-08-14 01:42:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Virginia leaders rally at black church after hate-filled event turns deadly 
 
 Full story on F3News: [Governor to white nationalists: Get out of America](http://www.f3nws.com/n/bYmjSC)
 
-> Posted on: Monday, August 14, 2017 1:14:31 AM
+> Posted on: Monday, August 14, 2017 1:42:24 AM
