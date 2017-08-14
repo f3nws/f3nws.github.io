@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Deadpool 2' Stunt Person Dies on Set; Police Investigating - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2016/02/deadpool_still_2.jpg)
 
-Hollywood Reporter 'Deadpool 2' Stunt Person Dies on Set; Police Investigating Hollywood Reporter A stunt person was killed on the set of Deadpool 2 on Monday, according to Vancouver Police. "Vancouver Police can confirm that a female stunt driver has died on the set of Deadpool during a stunt on a motorcycle," police said in a statement. No ... 'Deadpool 2' Stunt Person Dies on Set in Motorcycle Accident Variety Deadpool 2 Stunt Person Killed, Tom Cruise Injured in M:I 6 Stunt Gone Wrong ComingSoon.net 'Deadpool 2' Stunt Driver Killed In Crash Was Doing Her First Film – Update Deadline Cinema Blend - Page Six - Bleeding Cool News - USA TODAY all 149 news articles »
+Hollywood Reporter 'Deadpool 2' Stunt Person Dies on Set; Police Investigating Hollywood Reporter A stunt person was killed on the set of Deadpool 2 on Monday, according to Vancouver Police. "Vancouver Police can confirm that a female stunt driver has died on the set of Deadpool during a stunt on a motorcycle," police said in a statement. No ... 'Deadpool 2' stunt person dead after on-set accident CNN 'Deadpool 2' Stunt Driver Killed In Crash Was Doing Her First Film – Update Deadline Deadpool 2 Stunt Person Killed, Tom Cruise Injured in M:I 6 Stunt Gone Wrong ComingSoon.net RollingStone.com - Cinema Blend - Variety - USA TODAY all 165 news articles »
 
 
 Full story on F3News: ['Deadpool 2' Stunt Person Dies on Set; Police Investigating - Hollywood Reporter](http://www.f3nws.com/n/kNVxuB)
