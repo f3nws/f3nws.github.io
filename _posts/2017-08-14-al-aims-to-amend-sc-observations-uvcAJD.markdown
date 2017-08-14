@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AL aims to ‘amend’ SC observations"
-date: 2017-08-14 04:38:14Z
+date: 2017-08-14 06:16:26Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [AL aims to ‘amend’ SC observations](http://www.f3nws.com/n/uvcAJD)
 
-> Posted on: Monday, August 14, 2017 4:38:14 AM
+> Posted on: Monday, August 14, 2017 6:16:26 AM
