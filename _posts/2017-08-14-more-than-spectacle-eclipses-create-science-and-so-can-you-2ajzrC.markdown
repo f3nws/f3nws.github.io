@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More than spectacle: Eclipses create science and so can you"
-date: 2017-08-14 04:01:00Z
+date: 2017-08-14 08:18:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The sun is about to spill some of its secrets, maybe even re
 
 Full story on F3News: [More than spectacle: Eclipses create science and so can you](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 14, 2017 4:01:00 AM
+> Posted on: Monday, August 14, 2017 8:18:00 AM
