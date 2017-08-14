@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "17 killed in Burkina Faso cafe attack"
-date: 2017-08-14 06:47:49Z
+date: 2017-08-14 08:14:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Seventeen people were killed and nine others wounded after a number of assailant
 
 Full story on F3News: [17 killed in Burkina Faso cafe attack](http://www.f3nws.com/n/hKUtgB)
 
-> Posted on: Monday, August 14, 2017 6:47:49 AM
+> Posted on: Monday, August 14, 2017 8:14:02 AM
