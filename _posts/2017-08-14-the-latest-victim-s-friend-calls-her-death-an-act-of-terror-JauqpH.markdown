@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Latest: Victim's friend calls her death an act of terror"
-date: 2017-08-14 05:15:51Z
+date: 2017-08-14 06:52:52Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Latest on incidents related to violent clashes between white supremacist gro
 
 Full story on F3News: [The Latest: Victim's friend calls her death an act of terror](http://www.f3nws.com/n/JauqpH)
 
-> Posted on: Monday, August 14, 2017 5:15:51 AM
+> Posted on: Monday, August 14, 2017 6:52:52 AM
