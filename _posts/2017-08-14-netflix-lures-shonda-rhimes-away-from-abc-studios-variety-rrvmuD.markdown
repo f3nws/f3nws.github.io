@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Netflix Lures Shonda Rhimes Away From ABC Studios - Variety](https://pmcvariety.files.wordpress.com/2017/05/shonda-rhimes.png?w=1000&h=563&crop=1)
 
-Variety Netflix Lures Shonda Rhimes Away From ABC Studios Variety Netflix has signed Shonda Rhimes to a multi-year production deal, ending a 15-year relationship with ABC Studios that yielded hits from “Grey's Anatomy” to “Scandal.” Her shingle, Shondaland, will begin producing new series for Netflix while she ... Shonda Rhimes Inks Deal With Netflix, Leaving Longtime ABC Studios Home Deadline Shonda Rhimes Moves to Netflix From ABC With Huge Overall Deal Hollywood Reporter Netflix Signs Shonda Rhimes in Counterpunch to ABC and Disney New York Times IndieWire - Los Angeles Times - BuzzFeed News - CBS 8 San Diego all 42 news articles »
+Variety Netflix Lures Shonda Rhimes Away From ABC Studios Variety Netflix has signed Shonda Rhimes to a multi-year production deal, ending a 15-year relationship with ABC Studios that yielded hits from “Grey's Anatomy” to “Scandal.” Her shingle, Shondaland, will begin producing new series for Netflix while she ... Shonda Rhimes Inks Deal With Netflix, Leaving Longtime ABC Studios Home Deadline Netflix Signs Shonda Rhimes in Counterpunch to ABC and Disney New York Times Shonda Rhimes Heads to Netflix in Another Big Blow to Broadcast TV IndieWire Los Angeles Times - The Verge - BuzzFeed News - CBS 8 San Diego all 47 news articles »
 
 
 Full story on F3News: [Netflix Lures Shonda Rhimes Away From ABC Studios - Variety](http://www.f3nws.com/n/rrvmuD)
