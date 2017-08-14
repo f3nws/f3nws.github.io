@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President Donald Trump calls KKK, neo-Nazis, white supremacists 'repugnant'"
-date: 2017-08-14 17:18:14Z
+date: 2017-08-14 17:46:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump directly condemned white supremacists and neo-Nazis in a 
 
 Full story on F3News: [US President Donald Trump calls KKK, neo-Nazis, white supremacists 'repugnant'](http://www.f3nws.com/n/MXEASJ)
 
-> Posted on: Monday, August 14, 2017 5:18:14 PM
+> Posted on: Monday, August 14, 2017 5:46:00 PM
