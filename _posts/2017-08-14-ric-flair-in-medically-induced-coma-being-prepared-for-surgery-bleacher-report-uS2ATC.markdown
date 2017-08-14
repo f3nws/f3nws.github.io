@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ric Flair in Medically Induced Coma, Being Prepared for Surgery - Bleacher Report](https://img.bleacherreport.net/img/images/photos/003/689/115/hi-res-90b539a3f8b0431d9c02f9f6af23e199_crop_exact.jpg?w=1200&h=1200&q=75)
 
-Bleacher Report Ric Flair in Medically Induced Coma, Being Prepared for Surgery Bleacher Report Former wrestling superstar Ric Flair is heading to surgery after being placed in a medically induced coma, a WWE representative told TMZ Sports. The 68-year-old was initially taken to the hospital Saturday, but his condition reportedly worsened over ... Ric Flair In Medically Induced Coma, Preparing For Surgery Wrestling Inc. Ric Flair Is Still Hospitalized And It May Be More Serious Than Originally Thought UPROXX Pro wrestler Ric Flair grappling 'tough medical issues' Tribune-Review Cageside Seats (blog) - RollingStone.com - Heavy.com - Atlanta Journal Constitution all 167 news articles »
+Bleacher Report Ric Flair in Medically Induced Coma, Being Prepared for Surgery Bleacher Report Former wrestling superstar Ric Flair is heading to surgery after being placed in a medically induced coma, a WWE representative told TMZ Sports. The 68-year-old was initially taken to the hospital Saturday, but his condition reportedly worsened over ... Wrestling legend Ric Flair reportedly in ICU with 'tough medical issues' Washington Post Ric Flair In Medically Induced Coma, Preparing For Surgery Wrestling Inc. Ric Flair, professional wrestling legend, hospitalized Asbury Park Press TMZ.com - UPROXX - Sports Illustrated - Tribune-Review all 180 news articles »
 
 
 Full story on F3News: [Ric Flair in Medically Induced Coma, Being Prepared for Surgery - Bleacher Report](http://www.f3nws.com/n/uS2ATC)
