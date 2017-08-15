@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CEOs turn against Trump after Charlottesville"
-date: 2017-08-15 13:15:41Z
+date: 2017-08-15 15:31:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [CEOs turn against Trump after Charlottesville](http://www.f3nws.com/n/VV4BUG)
 
-> Posted on: Tuesday, August 15, 2017 1:15:41 PM
+> Posted on: Tuesday, August 15, 2017 3:31:32 PM
