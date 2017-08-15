@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best and worst celebrity beach bodies (okay mostly best)"
-date: 2017-08-15 07:30:03Z
+date: 2017-08-15 09:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ It is very hard to find stars with bad bodies who frequent beaches. But we still
 
 Full story on F3News: [Best and worst celebrity beach bodies (okay mostly best)](http://www.f3nws.com/n/EDeZbG)
 
-> Posted on: Tuesday, August 15, 2017 7:30:03 AM
+> Posted on: Tuesday, August 15, 2017 9:00:00 AM
