@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Holocaust Memorial in Boston vandalized"
-date: 2017-08-15 07:14:46Z
+date: 2017-08-15 10:24:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A 17-year-old has been charged with willful and malicious destruction of propert
 
 Full story on F3News: [Holocaust Memorial in Boston vandalized](http://www.f3nws.com/n/dkgESD)
 
-> Posted on: Tuesday, August 15, 2017 7:14:46 AM
+> Posted on: Tuesday, August 15, 2017 10:24:45 AM
