@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince honored with his own Pantone purple shade"
-date: 2017-08-15 15:17:50Z
+date: 2017-08-15 19:31:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The Purple One now has a new shade to call his own.
 
 Full story on F3News: [Prince honored with his own Pantone purple shade](http://www.f3nws.com/n/bK2ADF)
 
-> Posted on: Tuesday, August 15, 2017 3:17:50 PM
+> Posted on: Tuesday, August 15, 2017 7:31:47 PM
