@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jury rules in favor of Taylor Swift in groping case"
-date: 2017-08-15 00:40:30Z
+date: 2017-08-15 01:53:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ After nearly four hours of deliberation, a jury ruled in favor of pop star Taylo
 
 Full story on F3News: [Jury rules in favor of Taylor Swift in groping case](http://www.f3nws.com/n/JtAzg)
 
-> Posted on: Tuesday, August 15, 2017 12:40:30 AM
+> Posted on: Tuesday, August 15, 2017 1:53:54 AM

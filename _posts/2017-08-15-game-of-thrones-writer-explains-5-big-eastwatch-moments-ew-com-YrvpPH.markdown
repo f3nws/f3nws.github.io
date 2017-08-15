@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Game of Thrones writer explains 5 big 'Eastwatch' moments - EW.com](http://i1.wp.com/ewedit.files.wordpress.com/2017/08/macall-b-polay-hbo-photo-22.jpg?crop=0px%2C71px%2C2700px%2C1419px&resize=1200%2C630&ssl=1)
 
-EW.com Game of Thrones writer explains 5 big 'Eastwatch' moments EW.com On Dany executing the Tarlys: “At least Dany offers them a choice. Every conqueror offers the choice of 'bend the knee or die.' These lords disobeyed her and disrespected her in rebellion against the rightful queen. Then she gives them a way out and ... 'Game of Thrones': Nikolaj Coster-Waldau on Jaime's Emotional News Hollywood Reporter Joe Dempsie on 'Game of Thrones,' Gendry and Shirtless Scenes New York Times 'Game of Thrones'' Gendry talks birther fan theories and the big drama behind the wall Los Angeles Times Vanity Fair - Vulture - USA TODAY - The Verge all 992 news articles »
+EW.com Game of Thrones writer explains 5 big 'Eastwatch' moments EW.com On Dany executing the Tarlys: “At least Dany offers them a choice. Every conqueror offers the choice of 'bend the knee or die.' These lords disobeyed her and disrespected her in rebellion against the rightful queen. Then she gives them a way out and ... 'Game of Thrones': Nikolaj Coster-Waldau on Jaime's Emotional News Hollywood Reporter Joe Dempsie on 'Game of Thrones,' Gendry and Shirtless Scenes New York Times 'Game of Thrones'' Gendry talks birther fan theories and the big drama behind the wall Los Angeles Times USA TODAY - Vanity Fair - The Verge - Den of Geek US all 1,035 news articles »
 
 
 Full story on F3News: [Game of Thrones writer explains 5 big 'Eastwatch' moments - EW.com](http://www.f3nws.com/n/YrvpPH)
