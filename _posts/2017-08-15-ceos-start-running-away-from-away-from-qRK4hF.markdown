@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CEOs start running away from away from..."
-date: 2017-08-15 12:00:09Z
+date: 2017-08-15 12:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ In the wake of Charlottesville, a growing number of CEOs have made an important 
 
 Full story on F3News: [CEOs start running away from away from...](http://www.f3nws.com/n/qRK4hF)
 
-> Posted on: Tuesday, August 15, 2017 12:00:09 PM
+> Posted on: Tuesday, August 15, 2017 12:00:00 PM
