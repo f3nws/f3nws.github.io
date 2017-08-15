@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Colbert presses Scaramucci: 'Does [Trump] order his spine on Amazon Prime?'"
-date: 2017-08-15 06:04:50Z
+date: 2017-08-15 08:08:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Colbert presses Scaramucci: "Does [Trump] order his spine on Amazon Prime?"](http://www.f3nws.com/n/EqdqmE)
 
-> Posted on: Tuesday, August 15, 2017 6:04:50 AM
+> Posted on: Tuesday, August 15, 2017 8:08:29 AM

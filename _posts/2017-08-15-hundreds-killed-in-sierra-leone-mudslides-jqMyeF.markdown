@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hundreds killed in Sierra Leone mudslides"
-date: 2017-08-15 07:03:03Z
+date: 2017-08-15 08:02:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hundreds of people are feared dead following massive mudslides near Freetown, th
 
 Full story on F3News: [Hundreds killed in Sierra Leone mudslides](http://www.f3nws.com/n/jqMyeF)
 
-> Posted on: Tuesday, August 15, 2017 7:03:03 AM
+> Posted on: Tuesday, August 15, 2017 8:02:37 AM
