@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump retweets Fox News story on potential Arpaio pardon - CNN"
-date: 2017-08-15 13:00:35Z
+date: 2017-08-15 14:21:20Z
 categories: google-news-top-stories
 ---
 
 ![Trump retweets Fox News story on potential Arpaio pardon - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170814185050-trump-arpaio-split-super-tease.jpg)
 
-CNN Trump retweets Fox News story on potential Arpaio pardon CNN (CNN) President Donald Trump on Tuesday retweeted a Fox News story saying he was "seriously considering" pardoning former Arizona sheriff Joe Arpaio, a controversial figure who was recently convicted of criminal contempt by a federal judge. First Read's Morning Clips: CEOs Resign From Trump Council NBCNews.com Trump retweets then deletes post calling him a fascist Politico Trump retweets Twitter user calling him a fascist The Hill Washington Post - New York Post - HuffPost - mySanAntonio.com all 150 news articles »
+CNN Trump retweets Fox News story on potential Arpaio pardon CNN CNN Special Report "Twitter and Trump" with Bill Weir explores the President's fraught relationship with the social media platform Friday at 9 p.m. ET. (CNN) President Donald Trump on Tuesday retweeted a Fox News story saying he was "seriously ... Trump retweets then deletes post calling him a fascist Politico Trump considers Arpaio pardon; critics call out president Washington Post President Trump Just Retweeted a Critic Who Called Him a 'Facist.' He Quickly Deleted It TIME New York Post - Newsweek - HuffPost - New York Daily News all 162 news articles »
 
 
 Full story on F3News: [Trump retweets Fox News story on potential Arpaio pardon - CNN](http://www.f3nws.com/n/mRdbXD)
 
-> Posted on: Tuesday, August 15, 2017 1:00:35 PM
+> Posted on: Tuesday, August 15, 2017 2:21:20 PM

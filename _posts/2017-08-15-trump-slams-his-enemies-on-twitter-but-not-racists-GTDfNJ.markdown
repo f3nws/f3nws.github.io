@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump slams his enemies on Twitter. But not racists"
-date: 2017-08-15 11:12:44Z
+date: 2017-08-15 14:54:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The racists had been on parade for parts of two days, but it was only around 20 
 
 Full story on F3News: [Trump slams his enemies on Twitter. But not racists](http://www.f3nws.com/n/GTDfNJ)
 
-> Posted on: Tuesday, August 15, 2017 11:12:44 AM
+> Posted on: Tuesday, August 15, 2017 2:54:06 PM
