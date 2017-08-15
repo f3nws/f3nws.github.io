@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump comments please, anger, then please hate group leaders"
-date: 2017-08-15 18:19:00Z
+date: 2017-08-15 18:21:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ White nationalists have been parsing President Donald Trump's words since a dead
 
 Full story on F3News: [Trump comments please, anger, then please hate group leaders](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 15, 2017 6:19:00 PM
+> Posted on: Tuesday, August 15, 2017 6:21:00 PM
