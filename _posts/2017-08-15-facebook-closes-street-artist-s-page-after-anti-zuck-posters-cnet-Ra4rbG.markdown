@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook closes street artist’s page after anti-Zuck posters     - CNET"
-date: 2017-08-15 01:35:11Z
+date: 2017-08-15 02:09:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Sabo, known for skewering liberal celebrities, loses his account after circulati
 
 Full story on F3News: [Facebook closes street artist’s page after anti-Zuck posters     - CNET](http://www.f3nws.com/n/Ra4rbG)
 
-> Posted on: Tuesday, August 15, 2017 1:35:11 AM
+> Posted on: Tuesday, August 15, 2017 2:09:16 AM
