@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fourth CEO walks away from Trump after Charlottesville"
-date: 2017-08-15 16:25:48Z
+date: 2017-08-15 18:16:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Fourth CEO walks away from Trump after Charlottesville](http://www.f3nws.com/n/VV4BUG)
 
-> Posted on: Tuesday, August 15, 2017 4:25:48 PM
+> Posted on: Tuesday, August 15, 2017 6:16:16 PM
