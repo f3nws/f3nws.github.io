@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Militant' killed in Panthapath raid"
-date: 2017-08-15 07:35:59Z
+date: 2017-08-15 10:47:43Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: ['Militant' killed in Panthapath raid](http://www.f3nws.com/n/2JYQHH)
 
-> Posted on: Tuesday, August 15, 2017 7:35:59 AM
+> Posted on: Tuesday, August 15, 2017 10:47:43 AM

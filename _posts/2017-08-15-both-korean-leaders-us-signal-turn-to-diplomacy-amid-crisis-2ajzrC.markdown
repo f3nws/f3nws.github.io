@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Both Korean leaders, US signal turn to diplomacy amid crisis"
-date: 2017-08-15 01:40:00Z
+date: 2017-08-15 06:36:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — North Korea's military on Tuesday presented leader K
 
 Full story on F3News: [Both Korean leaders, US signal turn to diplomacy amid crisis](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 15, 2017 1:40:00 AM
+> Posted on: Tuesday, August 15, 2017 6:36:00 AM
