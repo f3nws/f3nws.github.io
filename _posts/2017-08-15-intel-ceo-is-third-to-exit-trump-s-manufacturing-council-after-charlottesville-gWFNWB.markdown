@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Intel CEO is third to exit Trump's manufacturing council after Charlottesville"
-date: 2017-08-15 14:00:05Z
+date: 2017-08-15 14:30:06Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Brian Krzanich, the CEO of Intel, is leaving President Trump’s manufacturing c
 
 Full story on F3News: [Intel CEO is third to exit Trump's manufacturing council after Charlottesville](http://www.f3nws.com/n/gWFNWB)
 
-> Posted on: Tuesday, August 15, 2017 2:00:05 PM
+> Posted on: Tuesday, August 15, 2017 2:30:06 PM
