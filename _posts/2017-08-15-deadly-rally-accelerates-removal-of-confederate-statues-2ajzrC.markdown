@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly rally accelerates removal of Confederate statues"
-date: 2017-08-15 11:21:00Z
+date: 2017-08-15 12:38:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ In Gainesville, Florida, workers hired by the Daughters of the Confederacy chipp
 
 Full story on F3News: [Deadly rally accelerates removal of Confederate statues](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 15, 2017 11:21:00 AM
+> Posted on: Tuesday, August 15, 2017 12:38:00 PM
