@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Blizzard revives Battle.net and admits it made a mistake with rebranding](https://cdn.vox-cdn.com/thumbor/AyprNdzvkakCr14AuuEkkwoasGc=/0x0:2560x1440/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56191955/Origins_Lineup_001_png_jpgcopy.0.0.jpg)
 
-The Verge Blizzard revives Battle.net and admits it made a mistake with rebranding The Verge Blizzard Entertainment's meandering approach to rebranding its well-known Battle.net service has taken another turn, as the company now plans to revive the name and attach the word “Blizzard” to it. Yes, that's right — the game company's storied ... Blizzard Is Bringing Back Battle.net Basically Forbes Blizzard Battle.net Replaces Blizzard App, Which Had Replaced Battle.net Shacknews Blizzard renames battle.net again, for some reason App Trigger Polygon - PC Gamer - PCGamesN - Eurogamer.net all 24 news articles »
+The Verge Blizzard revives Battle.net and admits it made a mistake with rebranding The Verge Blizzard Entertainment's meandering approach to rebranding its well-known Battle.net service has taken another turn, as the company now plans to revive the name and attach the word “Blizzard” to it. Yes, that's right — the game company's storied ... Blizzard Is Bringing Back Battle.net Basically Forbes Blizzard Battle.net Replaces Blizzard App, Which Had Replaced Battle.net Shacknews Blizzard renames battle.net again, for some reason App Trigger Polygon - PC Gamer - Eurogamer.net - Comicbook.com all 25 news articles »
 
 
 Full story on F3News: [Blizzard revives Battle.net and admits it made a mistake with rebranding](http://www.f3nws.com/n/RaNCkH)
