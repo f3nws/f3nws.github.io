@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Neo-Nazi site The Daily Stormer down after losing domain     - CNET"
-date: 2017-08-15 06:23:27Z
+date: 2017-08-15 06:58:11Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Both Google and GoDaddy say the white supremacist site had violated their terms 
 
 Full story on F3News: [Neo-Nazi site The Daily Stormer down after losing domain     - CNET](http://www.f3nws.com/n/hVjNVD)
 
-> Posted on: Tuesday, August 15, 2017 6:23:27 AM
+> Posted on: Tuesday, August 15, 2017 6:58:11 AM
