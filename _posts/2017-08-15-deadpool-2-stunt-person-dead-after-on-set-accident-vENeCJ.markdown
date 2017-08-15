@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Deadpool 2' stunt person dead after on-set accident"
-date: 2017-08-15 04:53:04Z
+date: 2017-08-15 07:30:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A female stunt person has died while performing a motorcycle stunt on the set of
 
 Full story on F3News: ['Deadpool 2' stunt person dead after on-set accident](http://www.f3nws.com/n/vENeCJ)
 
-> Posted on: Tuesday, August 15, 2017 4:53:04 AM
+> Posted on: Tuesday, August 15, 2017 7:30:16 AM
