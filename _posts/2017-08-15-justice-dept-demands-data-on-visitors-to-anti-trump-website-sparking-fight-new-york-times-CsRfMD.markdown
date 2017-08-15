@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Justice Dept. Demands Data on Visitors to Anti-Trump Website, Sparking Fight - New York Times](https://static01.nyt.com/images/2017/08/16/us/16dc-dreamhost/16dc-dreamhost-facebookJumbo.jpg)
 
-New York Times Justice Dept. Demands Data on Visitors to Anti-Trump Website, Sparking Fight New York Times The Justice Department demanded that Dreamhost, a web hosting company, turn over records about a website used to organize protests of President Trump's inauguration. Credit Drew Angerer/Getty Images. WASHINGTON — The Justice Department is ... Prosecutors seek records related to Inauguration Day protest Washington Post Federal prosecutors pursue information on Trump opponents CNN The Department of Justice Demands Records on Every Visit to Anti-Trump Protest Site DisruptJ20 Slate Magazine (blog) The Atlantic - Fox News - Los Angeles Times - U.S. News & World Report all 185 news articles »
+New York Times Justice Dept. Demands Data on Visitors to Anti-Trump Website, Sparking Fight New York Times The Justice Department demanded that Dreamhost, a web hosting company, turn over records about a website used to organize protests of President Trump's inauguration. Credit Drew Angerer/Getty Images. WASHINGTON — The Justice Department is ... Google, GoDaddy boot neo-Nazi site that mocked rally victim WHIO Prosecutors seek records related to Inauguration Day protest Washington Post Federal prosecutors pursue information on Trump opponents CNN Slate Magazine (blog) - The Atlantic - Fox News - Los Angeles Times all 188 news articles »
 
 
 Full story on F3News: [Justice Dept. Demands Data on Visitors to Anti-Trump Website, Sparking Fight - New York Times](http://www.f3nws.com/n/CsRfMD)
