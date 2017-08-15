@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top business leaders are turning on Trump"
-date: 2017-08-15 03:35:47Z
+date: 2017-08-15 04:23:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Top business leaders are turning on Trump](http://www.f3nws.com/n/RHnYzG)
 
-> Posted on: Tuesday, August 15, 2017 3:35:47 AM
+> Posted on: Tuesday, August 15, 2017 4:23:37 AM
