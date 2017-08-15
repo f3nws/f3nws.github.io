@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Latest: NC protesters pull down Confederate statue - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-08-14/AP/Confederate_Monument_Protest_29853-9468d.jpg?t=20170517)
 
-Washington Post The Latest: NC protesters pull down Confederate statue Washington Post CHARLOTTESVILLE, Va. — The Latest on violent protests connected to a white nationalist rally in Virginia (all times local):. 8:05 p.m.. Protesters in North Carolina have toppled a long-standing statue of a Confederate soldier. Activists on Monday ... Demonstrators Pull Down Confederate Monument In Durham HuffPost VIDEO: Protesters in North Carolina topple a statue of a Confederate soldier Business Insider SEE IT: Crowd pulls down Confederate statue in North Carolina rally New York Daily News U.S. News & World Report - TIME - Atlanta Journal Constitution (blog) - Fox News all 114 news articles »
+Washington Post The Latest: NC protesters pull down Confederate statue Washington Post CHARLOTTESVILLE, Va. — The Latest on violent protests connected to a white nationalist rally in Virginia (all times local):. 8:05 p.m.. Protesters in North Carolina have toppled a long-standing statue of a Confederate soldier. Activists on Monday ... Demonstrators Pull Down Confederate Monument In Durham HuffPost Protesters topple Confederate statue in North Carolina ABC News VIDEO: Protesters in North Carolina topple a statue of a Confederate soldier Business Insider New York Daily News - TIME - Atlanta Journal Constitution (blog) - Fox News all 131 news articles »
 
 
 Full story on F3News: [The Latest: NC protesters pull down Confederate statue - Washington Post](http://www.f3nws.com/n/HjVKhG)

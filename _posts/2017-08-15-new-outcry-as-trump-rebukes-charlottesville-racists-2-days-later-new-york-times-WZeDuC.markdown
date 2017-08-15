@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![New Outcry as Trump Rebukes Charlottesville Racists 2 Days Later - New York Times](https://static01.nyt.com/images/2017/08/15/us/15dc-trump-statement/15dc-trump-statement-facebookJumbo.jpg)
 
-New York Times New Outcry as Trump Rebukes Charlottesville Racists 2 Days Later New York Times After blaming violence from protests on “many sides” in Charlottesville, Va., on Saturday, President Trump condemned the K.K.K., neo-Nazis and white supremacists during a White House speech on Monday. By ASSOCIATED PRESS. Photo by Tom ... Trump's words matter, on the stump and in court CNN Donald Trump's despicable words Washington Post Trump's 'John Wayne' presidency struggles with tragedy Politico The Hill - Reuters - NBCNews.com - National Review all 2,341 news articles »
+New York Times New Outcry as Trump Rebukes Charlottesville Racists 2 Days Later New York Times After blaming violence from protests on “many sides” in Charlottesville, Va., on Saturday, President Trump condemned the K.K.K., neo-Nazis and white supremacists during a White House speech on Monday. By ASSOCIATED PRESS. Photo by Tom ... Donald Trump's despicable words Washington Post Trump's 'John Wayne' presidency struggles with tragedy Politico 48 hours of turmoil for the Trump White House CNN The Hill - Reuters - NBCNews.com - National Review all 1,922 news articles »
 
 
 Full story on F3News: [New Outcry as Trump Rebukes Charlottesville Racists 2 Days Later - New York Times](http://www.f3nws.com/n/WZeDuC)

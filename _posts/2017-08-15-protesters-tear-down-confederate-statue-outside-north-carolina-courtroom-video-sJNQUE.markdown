@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters tear down Confederate statue outside North Carolina courtroom (VIDEO)"
-date: 2017-08-15 01:54:21Z
+date: 2017-08-15 01:54:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Around 100 protesters in Durham, North Carolina, have toppled a Civil War memori
 
 Full story on F3News: [Protesters tear down Confederate statue outside North Carolina courtroom (VIDEO)](http://www.f3nws.com/n/sJNQUE)
 
-> Posted on: Tuesday, August 15, 2017 1:54:21 AM
+> Posted on: Tuesday, August 15, 2017 1:54:00 AM
