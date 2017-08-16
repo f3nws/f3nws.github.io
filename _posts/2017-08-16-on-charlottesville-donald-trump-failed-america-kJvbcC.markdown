@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On Charlottesville, Donald Trump failed America"
-date: 2017-08-16 01:27:24Z
+date: 2017-08-16 02:12:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump is who we thought he was.
 
 Full story on F3News: [On Charlottesville, Donald Trump failed America](http://www.f3nws.com/n/kJvbcC)
 
-> Posted on: Wednesday, August 16, 2017 1:27:24 AM
+> Posted on: Wednesday, August 16, 2017 2:12:52 AM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Wild wind gusts blamed for deadly wall collapse in Sydney](http://www.abc.net.au/news/image/8812456-1x1-700x700.jpg)
 
-Paramedics are unable to save a man after a wall, which was under construction, was blown over in the wind in Sydney's north-west.
+A man is dead following a wall collapse on a building site in Sydney's north-west as wild wind gusts bring down trees and power lines across parts of the city.
 
 
 Full story on F3News: [Wild wind gusts blamed for deadly wall collapse in Sydney](http://www.f3nws.com/n/FJghVD)
