@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Corporate chiefs flee Trump; he disbands WH advisory panels"
-date: 2017-08-16 17:46:00Z
+date: 2017-08-16 18:31:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — With corporate chieftains fleeing, President Donald Trump abru
 
 Full story on F3News: [Corporate chiefs flee Trump; he disbands WH advisory panels](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 16, 2017 5:46:00 PM
+> Posted on: Wednesday, August 16, 2017 6:31:00 PM

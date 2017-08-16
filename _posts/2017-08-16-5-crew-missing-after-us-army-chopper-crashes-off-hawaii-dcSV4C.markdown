@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 crew missing after US Army chopper crashes off Hawaii"
-date: 2017-08-16 14:18:32Z
+date: 2017-08-16 19:52:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Army UH-60 Black Hawk helicopter went down Tuesday night during a training ex
 
 Full story on F3News: [5 crew missing after US Army chopper crashes off Hawaii](http://www.f3nws.com/n/dcSV4C)
 
-> Posted on: Wednesday, August 16, 2017 2:18:32 PM
+> Posted on: Wednesday, August 16, 2017 7:52:10 PM
