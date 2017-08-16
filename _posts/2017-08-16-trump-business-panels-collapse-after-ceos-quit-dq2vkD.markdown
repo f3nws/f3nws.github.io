@@ -5,7 +5,7 @@ date: 2017-08-16 21:09:13Z
 categories: cnn-com-top-stories
 ---
 
-![Trump business panels collapse after CEOs quit](http://i2.cdn.turner.com/money/dam/assets/170816014416-split-trump-ceos-780x439.jpg)
+![Trump business panels collapse after CEOs quit](http://i2.cdn.turner.com/money/dam/assets/170815114140-ceos-trump-pressure-780x439.jpg)
 
 
 
