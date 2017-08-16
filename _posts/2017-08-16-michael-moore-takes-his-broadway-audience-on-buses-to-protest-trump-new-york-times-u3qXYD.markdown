@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Michael Moore Takes His Broadway Audience on Buses to Protest Trump - New York Times](https://static01.nyt.com/images/2017/08/16/arts/17MOOREa/17MOOREa-facebookJumbo.jpg)
 
-New York Times Michael Moore Takes His Broadway Audience on Buses to Protest Trump New York Times Michael Moore in his new Broadway show, “The Terms of My Surrender.” Credit Sara Krulwich/The New York Times. About an hour and a half into his Broadway performance on Tuesday night, Michael Moore paused his rumpled, moralistic ire to offer the ... Michael Moore leads audience of Broadway play to Trump Tower Washington Post Mark Ruffalo, Michael Moore Lead Protest Vigil Outside Trump Tower Variety Michael Moore Leads Audience In Trump Tower Protest After His Broadway Show Deadline Hollywood Reporter - PEOPLE.com - Daily Beast - Vulture all 21 news articles »
+New York Times Michael Moore Takes His Broadway Audience on Buses to Protest Trump New York Times Michael Moore in his new Broadway show, “The Terms of My Surrender.” Credit Sara Krulwich/The New York Times. About an hour and a half into his Broadway performance on Tuesday night, Michael Moore paused his rumpled, moralistic ire to offer the ... Michael Moore leads audience of Broadway play to Trump Tower Washington Post Mark Ruffalo and Michael Moore Protest Heather Heyer's Death at Trump Tower: 'We Want Him To Hear Us' PEOPLE.com Mark Ruffalo, Michael Moore Lead Protest Vigil Outside Trump Tower Variety Deadline - Daily Beast - Hollywood Reporter - Vulture all 21 news articles »
 
 
 Full story on F3News: [Michael Moore Takes His Broadway Audience on Buses to Protest Trump - New York Times](http://www.f3nws.com/n/u3qXYD)
