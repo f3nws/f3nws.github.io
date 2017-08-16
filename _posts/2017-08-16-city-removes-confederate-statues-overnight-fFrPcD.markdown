@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "City removes Confederate statues overnight"
-date: 2017-08-16 12:37:30Z
+date: 2017-08-16 14:23:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Baltimore removed four Confederate monuments early Wednesday after a white natio
 
 Full story on F3News: [City removes Confederate statues overnight](http://www.f3nws.com/n/fFrPcD)
 
-> Posted on: Wednesday, August 16, 2017 12:37:30 PM
+> Posted on: Wednesday, August 16, 2017 2:23:49 PM

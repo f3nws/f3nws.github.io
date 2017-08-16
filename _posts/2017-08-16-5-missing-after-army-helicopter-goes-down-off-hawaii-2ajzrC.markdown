@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 missing after Army helicopter goes down off Hawaii"
-date: 2017-08-16 09:44:00Z
+date: 2017-08-16 10:16:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HONOLULU (AP) — U.S. Coast Guard and military crews are searching the ocean of
 
 Full story on F3News: [5 missing after Army helicopter goes down off Hawaii](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 16, 2017 9:44:00 AM
+> Posted on: Wednesday, August 16, 2017 10:16:00 AM
