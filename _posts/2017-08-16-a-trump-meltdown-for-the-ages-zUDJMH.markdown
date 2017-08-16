@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A Trump meltdown for the ages"
-date: 2017-08-16 00:18:54Z
+date: 2017-08-16 01:48:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It was like watching a human Twitter feed.
 
 Full story on F3News: [A Trump meltdown for the ages](http://www.f3nws.com/n/zUDJMH)
 
-> Posted on: Wednesday, August 16, 2017 12:18:54 AM
+> Posted on: Wednesday, August 16, 2017 1:48:52 AM
