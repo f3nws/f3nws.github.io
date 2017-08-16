@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man recounts pushing fiancee away from car during protest"
-date: 2017-08-16 09:15:00Z
+date: 2017-08-16 11:03:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CHARLOTTESVILLE, Va. (AP) — With tires screeching and bodies flying, Marcus Ma
 
 Full story on F3News: [Man recounts pushing fiancee away from car during protest](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 16, 2017 9:15:00 AM
+> Posted on: Wednesday, August 16, 2017 11:03:00 AM
