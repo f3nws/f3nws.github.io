@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's failure of leadership on Charlottesville violence is another sign of a presidency in peril"
-date: 2017-08-16 14:49:02Z
+date: 2017-08-16 18:39:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump's insistence Tuesday that "both sides" were responsible for the vio
 
 Full story on F3News: [Trump's failure of leadership on Charlottesville violence is another sign of a presidency in peril](http://www.f3nws.com/n/BYecQC)
 
-> Posted on: Wednesday, August 16, 2017 2:49:02 PM
+> Posted on: Wednesday, August 16, 2017 6:39:37 PM
