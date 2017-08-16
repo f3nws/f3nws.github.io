@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cillizza: 'What Trump's doing is dangerous'"
-date: 2017-08-16 12:54:21Z
+date: 2017-08-16 14:52:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump is who we thought he was.
 
 Full story on F3News: [Cillizza: 'What Trump's doing is dangerous'](http://www.f3nws.com/n/kJvbcC)
 
-> Posted on: Wednesday, August 16, 2017 12:54:21 PM
+> Posted on: Wednesday, August 16, 2017 2:52:01 PM
