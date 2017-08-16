@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House names new communications chief"
-date: 2017-08-16 15:29:17Z
+date: 2017-08-16 17:27:57Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senior communications adviser Hope Hicks has been named as the interim White Hou
 
 Full story on F3News: [White House names new communications chief](http://www.f3nws.com/n/ajSUBE)
 
-> Posted on: Wednesday, August 16, 2017 3:29:17 PM
+> Posted on: Wednesday, August 16, 2017 5:27:57 PM
