@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump business panels collapse after CEOs quit"
-date: 2017-08-16 19:54:38Z
+date: 2017-08-16 21:09:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump business panels collapse after CEOs quit](http://www.f3nws.com/n/dq2vkD)
 
-> Posted on: Wednesday, August 16, 2017 7:54:38 PM
+> Posted on: Wednesday, August 16, 2017 9:09:13 PM
