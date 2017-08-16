@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Bush Presidents denounce racism"
-date: 2017-08-16 15:59:57Z
+date: 2017-08-16 20:27:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ BREAKING NEWS: Former Presidents George H.W. Bush and George W. Bush released a 
 
 Full story on F3News: [Former Bush Presidents denounce racism](http://www.f3nws.com/n/KYDV4F)
 
-> Posted on: Wednesday, August 16, 2017 3:59:57 PM
+> Posted on: Wednesday, August 16, 2017 8:27:47 PM
