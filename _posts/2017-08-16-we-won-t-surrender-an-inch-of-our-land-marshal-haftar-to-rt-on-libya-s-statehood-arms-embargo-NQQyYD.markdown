@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘We won’t surrender an inch of our land’: Marshal Haftar to RT on Libya’s statehood & arms embargo"
-date: 2017-08-16 02:52:37Z
+date: 2017-08-16 02:52:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The head of the Libyan National Army, Field Marshal Khalifa Haftar, has told RT 
 
 Full story on F3News: [‘We won’t surrender an inch of our land’: Marshal Haftar to RT on Libya’s statehood & arms embargo](http://www.f3nws.com/n/NQQyYD)
 
-> Posted on: Wednesday, August 16, 2017 2:52:37 AM
+> Posted on: Wednesday, August 16, 2017 2:52:00 AM
