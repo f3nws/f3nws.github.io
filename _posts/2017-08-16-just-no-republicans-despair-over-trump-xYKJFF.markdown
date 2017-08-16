@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Just no': Republicans despair over Trump"
-date: 2017-08-16 01:48:48Z
+date: 2017-08-16 19:42:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Members of Congress in President Donald Trump's own party were among those lawma
 
 Full story on F3News: ['Just no': Republicans despair over Trump](http://www.f3nws.com/n/xYKJFF)
 
-> Posted on: Wednesday, August 16, 2017 1:48:48 AM
+> Posted on: Wednesday, August 16, 2017 7:42:21 PM
