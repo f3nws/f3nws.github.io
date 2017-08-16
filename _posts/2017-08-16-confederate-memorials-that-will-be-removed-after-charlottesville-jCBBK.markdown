@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Confederate memorials that will be removed after Charlottesville"
-date: 2017-08-16 04:46:56Z
+date: 2017-08-16 09:53:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 150 years after the Civil War ended, the Confederacy is memorialized w
 
 Full story on F3News: [Confederate memorials that will be removed after Charlottesville](http://www.f3nws.com/n/jCBBK)
 
-> Posted on: Wednesday, August 16, 2017 4:46:56 AM
+> Posted on: Wednesday, August 16, 2017 9:53:47 AM

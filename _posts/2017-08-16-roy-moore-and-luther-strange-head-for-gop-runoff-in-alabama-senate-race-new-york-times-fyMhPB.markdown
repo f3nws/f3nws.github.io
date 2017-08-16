@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Roy Moore and Luther Strange Head for GOP Runoff in Alabama Senate Race - New York Times](https://static01.nyt.com/images/2017/08/16/us/16ALABAMA-01-moore/16ALABAMA-01-moore-facebookJumbo.jpg)
 
-New York Times Roy Moore and Luther Strange Head for GOP Runoff in Alabama Senate Race New York Times Roy S. Moore, a former chief justice of the Alabama Supreme Court, and his wife, Kayla Moore, appeared at a campaign event in Montgomery, Ala., on Tuesday night. Credit Brynn Anderson/Associated Press. HOMEWOOD, Ala. — Roy S. Moore, a former ... Winners and losers in the races to succeed Jeff Sessions and Jason Chaffetz Washington Post Three Takeaways From Alabama's Trump-Dominated Special Primary NBCNews.com Moore, Strange advance to GOP runoff in Alabama special election Politico Daily Beast - Los Angeles Times - USA TODAY - AL.com all 415 news articles »
+New York Times Roy Moore and Luther Strange Head for GOP Runoff in Alabama Senate Race New York Times Roy S. Moore, a former chief justice of the Alabama Supreme Court, and his wife, Kayla Moore, appeared at a campaign event in Montgomery, Ala., on Tuesday night. Credit Brynn Anderson/Associated Press. HOMEWOOD, Ala. — Roy S. Moore, a former ... Three Takeaways From Alabama's Trump-Dominated Special Primary NBCNews.com Moore, Strange Advance To Alabama GOP Senate Primary Runoff NPR 'Trump-McConnell Partnership Dodged a Bullet' in Alabama GOP Primary Daily Beast Fox News - Los Angeles Times - The Weekly Standard - USA TODAY all 445 news articles »
 
 
 Full story on F3News: [Roy Moore and Luther Strange Head for GOP Runoff in Alabama Senate Race - New York Times](http://www.f3nws.com/n/fyMhPB)
