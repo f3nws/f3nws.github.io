@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dozens killed in northern Nigeria triple suicide attack"
-date: 2017-08-16 02:25:35Z
+date: 2017-08-16 03:30:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 30 people were killed and more than 80 others injured in a triple suici
 
 Full story on F3News: [Dozens killed in northern Nigeria triple suicide attack](http://www.f3nws.com/n/A2vxXE)
 
-> Posted on: Wednesday, August 16, 2017 2:25:35 AM
+> Posted on: Wednesday, August 16, 2017 3:30:20 AM
