@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Another Game of Thrones episode has leaked online](https://cdn.vox-cdn.com/thumbor/dUcwLT10Vst-X1FpA_u-lwHX3y4=/0x53:1020x627/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56215139/gameofthrones_s04e05_3_1020.0.jpg)
 
-The Verge Another Game of Thrones episode has leaked online The Verge An unaired episode of Game of Thrones has appeared on the internet this morning. Episode six, due to be aired on Sunday, appeared first on file sharing sites and a Reddit post. Some Reddit users claim the episode was accidentally aired by HBO Nordic in ... Could Another Bastard Also Be A Legitimate Heir In 'Game Of Thrones'? moviepilot.com Indian company regrets leak of 'Game of Thrones' episode Washington Post Game of Thrones Episode 706 leaks—Discuss it here Winter Is Coming Daily Mail - A.V. Club - Mirror.co.uk - Firstpost all 1,408 news articles »
+The Verge Another Game of Thrones episode has leaked online The Verge An unaired episode of Game of Thrones has appeared on the internet this morning. Episode six, due to be aired on Sunday, appeared first on file sharing sites and a Reddit post. Some Reddit users claim the episode was accidentally aired by HBO Nordic in ... 'Sobbing uncontrollably!' Game Of Thrones fans go wild over leaked sixth episode after HBO Spain makes ... Daily Mail HBO somehow still thinks Confederate is a good idea A.V. Club Another Game of Thrones episode leaks online after Spanish broadcaster error Telegraph.co.uk The Independent all 140 news articles »
 
 
 Full story on F3News: [Another Game of Thrones episode has leaked online](http://www.f3nws.com/n/XqfHAF)
