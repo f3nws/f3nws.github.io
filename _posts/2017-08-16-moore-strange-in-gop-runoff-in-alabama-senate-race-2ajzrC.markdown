@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moore, Strange in GOP runoff in Alabama Senate race"
-date: 2017-08-16 00:16:00Z
+date: 2017-08-16 01:27:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MONTGOMERY, Ala. (AP) — Former Alabama Chief Justice Roy Moore, who was twice 
 
 Full story on F3News: [Moore, Strange in GOP runoff in Alabama Senate race](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 16, 2017 12:16:00 AM
+> Posted on: Wednesday, August 16, 2017 1:27:00 AM
