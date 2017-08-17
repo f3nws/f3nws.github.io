@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liberties group under fire for backing white supremacist group"
-date: 2017-08-17 02:09:01Z
+date: 2017-08-17 09:28:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Last weekend's deadly violence in Charlottesville, Virginia, has put the America
 
 Full story on F3News: [Liberties group under fire for backing white supremacist group](http://www.f3nws.com/n/jFVN2C)
 
-> Posted on: Thursday, August 17, 2017 2:09:01 AM
+> Posted on: Thursday, August 17, 2017 9:28:14 AM

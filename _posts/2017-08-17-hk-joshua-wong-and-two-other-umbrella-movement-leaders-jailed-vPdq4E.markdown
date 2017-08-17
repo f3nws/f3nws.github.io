@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "HK: Joshua Wong and two other Umbrella Movement leaders jailed"
-date: 2017-08-17 08:48:37Z
+date: 2017-08-17 09:40:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Hong Kong court has jailed Joshua Wong and two other leaders of the 2014 "Umbr
 
 Full story on F3News: [HK: Joshua Wong and two other Umbrella Movement leaders jailed](http://www.f3nws.com/n/vPdq4E)
 
-> Posted on: Thursday, August 17, 2017 8:48:37 AM
+> Posted on: Thursday, August 17, 2017 9:40:11 AM

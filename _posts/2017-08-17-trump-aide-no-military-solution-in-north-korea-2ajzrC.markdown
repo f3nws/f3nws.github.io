@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump aide: No military solution in North Korea"
-date: 2017-08-17 04:12:00Z
+date: 2017-08-17 05:39:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRIDGEWATER, N.J. (AP) — President Donald Trump's chief strategist Steve Banno
 
 Full story on F3News: [Trump aide: No military solution in North Korea](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 17, 2017 4:12:00 AM
+> Posted on: Thursday, August 17, 2017 5:39:00 AM
