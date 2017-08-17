@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Here's how MoviePass works     - CNET"
-date: 2017-08-17 00:17:51Z
+date: 2017-08-17 00:41:36Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ What does your $10-per-month subscription fee buy you, and what can you expect o
 
 Full story on F3News: [Here's how MoviePass works     - CNET](http://www.f3nws.com/n/gyeKrH)
 
-> Posted on: Thursday, August 17, 2017 12:17:51 AM
+> Posted on: Thursday, August 17, 2017 12:41:36 AM
