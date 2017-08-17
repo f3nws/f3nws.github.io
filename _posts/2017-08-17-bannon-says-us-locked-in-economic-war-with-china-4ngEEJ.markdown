@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon says US locked in 'economic war' with China"
-date: 2017-08-17 01:11:20Z
+date: 2017-08-17 02:37:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Embattled White House chief strategist Steve Bannon declared in an interview pub
 
 Full story on F3News: [Bannon says US locked in 'economic war' with China](http://www.f3nws.com/n/4ngEEJ)
 
-> Posted on: Thursday, August 17, 2017 1:11:20 AM
+> Posted on: Thursday, August 17, 2017 2:37:36 AM

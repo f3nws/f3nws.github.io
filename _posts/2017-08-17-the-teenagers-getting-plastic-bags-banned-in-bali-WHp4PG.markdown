@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The teenagers getting plastic bags banned in Bali"
-date: 2017-08-17 01:46:26Z
+date: 2017-08-17 02:38:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The teenagers getting plastic bags banned in Bali](http://www.f3nws.com/n/WHp4PG)
 
-> Posted on: Thursday, August 17, 2017 1:46:26 AM
+> Posted on: Thursday, August 17, 2017 2:38:17 AM

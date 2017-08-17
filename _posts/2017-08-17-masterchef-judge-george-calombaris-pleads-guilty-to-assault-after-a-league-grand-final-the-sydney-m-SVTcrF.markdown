@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![MasterChef judge George Calombaris pleads guilty to assault after A-League grand final - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/0/x/m/o/image.related.articleLeadwide.620x349.gxy10l.png/1502928932043.jpg)
 
-The Sydney Morning Herald MasterChef judge George Calombaris pleads guilty to assault after A-League grand final The Sydney Morning Herald MasterChef judge George Calombaris has pleaded guilty to assaulting a teenager after the A-League grand final in Sydney in May. The Network Ten personality was charged in May with assaulting the 19-year-old man at the grand final between Melbourne ... Celebrity chef George Calombaris pleads guilty over A-League grand final altercation ABC Online Calombaris pleads guilty to A-League grand final assualt SBS - The World Game Celebrity chef George Calombaris pleads guilty to assaulting young man at A-League Grand Final 9news.com.au Pedestrian TV - The New Daily - Business Insider Australia - Neos Kosmos all 15 news articles »
+The Sydney Morning Herald MasterChef judge George Calombaris pleads guilty to assault after A-League grand final The Sydney Morning Herald MasterChef judge George Calombaris has pleaded guilty to assaulting a teenager after the A-League grand final in Sydney in May. The Network Ten personality was charged in May with assaulting the 19-year-old man at the grand final between Melbourne ... MasterChef judge Calombaris admits to assaulting teen after A-League final SBS all 16 news articles »
 
 
 Full story on F3News: [MasterChef judge George Calombaris pleads guilty to assault after A-League grand final - The Sydney Morning Herald](http://www.f3nws.com/n/SVTcrF)
