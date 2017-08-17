@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Pauline Hanson's Senate burqa stunt ignites firestorm over religious freedoms - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/y/m/9/b/image.related.socialLead.620x349.gxym22.png/1502958712910.jpg)
 
-The Sydney Morning Herald Pauline Hanson's Senate burqa stunt ignites firestorm over religious freedoms The Sydney Morning Herald One Nation leader Pauline Hanson has triggered a firestorm around religious freedoms, after wearing a burqa into Parliament, a stunt that has united all sides of politics in condemnation. The Queensland senator, accompanied by colleague Brian Burston, ... Hanson denies attempting to mock Islam Sky News Australia Brandis gives Hanson a big burka win The Australian Crazy Hanson moments you forgot about NEWS.com.au SBS - dailytelegraph.com.au - Herald Sun - The Australian Financial Review all 175 news articles »
+The Sydney Morning Herald Pauline Hanson's Senate burqa stunt ignites firestorm over religious freedoms The Sydney Morning Herald One Nation leader Pauline Hanson has triggered a firestorm around religious freedoms, after wearing a burqa into Parliament, a stunt that has united all sides of politics in condemnation. The Queensland senator, accompanied by colleague Brian Burston, ... Malcolm Roberts says burqa is an 'affront to homosexuals' in defending Pauline Hanson's Senate stunt NEWS.com.au Hanson denies attempting to mock Islam Sky News Australia Pauline Hanson goes burka The Australian dailytelegraph.com.au - SBS - Courier Mail - Herald Sun all 182 news articles »
 
 
 Full story on F3News: [Pauline Hanson's Senate burqa stunt ignites firestorm over religious freedoms - The Sydney Morning Herald](http://www.f3nws.com/n/pGXBVE)
