@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Game of Thrones and HBO — Twitter, Facebook Accounts Hacked"
-date: 2017-08-17 08:06:57Z
+date: 2017-08-17 10:12:19Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The Game of Thrones hacking saga continues, but this time it's the HBO's and GOT
 
 Full story on F3News: [Game of Thrones and HBO — Twitter, Facebook Accounts Hacked](http://www.f3nws.com/n/RGaukE)
 
-> Posted on: Thursday, August 17, 2017 8:06:57 AM
+> Posted on: Thursday, August 17, 2017 10:12:19 AM
