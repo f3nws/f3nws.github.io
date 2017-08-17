@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's lack of discipline leaves new chief of staff frustrated and dismayed - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/17/National-Politics/Images/831999062.jpg?t=20170517)
 
-Washington Post Trump's lack of discipline leaves new chief of staff frustrated and dismayed Washington Post BEDMINSTER, N.J. — As the new White House chief of staff, John F. Kelly routes all calls to and from President Trump through the White House switchboard, where he can sign off on them. He stanches the flow of information reaching the president's desk. 'He is stubborn and doesn't realize how bad this is getting' Politico Unlike His Predecessors, Trump Steps Back From a Moral Judgment New York Times Trump Dissolves Business Advisory Councils as CEOs Quit NBCNews.com CNN - The Hill - NPR - Los Angeles Times all 7,446 news articles »
+Washington Post Trump's lack of discipline leaves new chief of staff frustrated and dismayed Washington Post BEDMINSTER, N.J. — As the new White House chief of staff, John F. Kelly routes all calls to and from President Trump through the White House switchboard, where he can sign off on them. He stanches the flow of information reaching the president's desk. 'He is stubborn and doesn't realize how bad this is getting' Politico Bannon says US locked in 'economic war' with China, slams White House colleagues CNN Trump Dissolves Business Advisory Councils as CEOs Quit NBCNews.com ABC News - The Hill (blog) - Bloomberg - Slate Magazine (blog) all 7,356 news articles »
 
 
 Full story on F3News: [Trump's lack of discipline leaves new chief of staff frustrated and dismayed - Washington Post](http://www.f3nws.com/n/PbYrzH)
