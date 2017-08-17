@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump decries monument removals, 'history ripped apart'"
-date: 2017-08-17 10:24:00Z
+date: 2017-08-17 13:42:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump bitingly decried the rising movement 
 
 Full story on F3News: [Trump decries monument removals, 'history ripped apart'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 17, 2017 10:24:00 AM
+> Posted on: Thursday, August 17, 2017 1:42:00 PM
