@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Hoddle Street killer Julian Knight loses High Court fight against laws keeping him in jail - ABC Online](http://www.abc.net.au/news/image/5980550-1x1-700x700.jpg)
 
-ABC Online Hoddle Street killer Julian Knight loses High Court fight against laws keeping him in jail ABC Online Hoddle Street killer Julian Knight, one of Australia's most notorious mass murderers, has lost a last ditch High Court fight to overturn laws specifically designed to keep him in prison indefinitely. Knight killed seven people in Melbourne's Hoddle ... High Court decides if Hoddle Street killer will spend life behind bars The Sydney Morning Herald Hoddle St killer Julian Knight loses final bid for freedom, will rot in jail NEWS.com.au Hoddle St killer appeal continues Sky News Australia ABC Local - 9news.com.au - Starts at 60 all 9 news articles »
+ABC Online Hoddle Street killer Julian Knight loses High Court fight against laws keeping him in jail ABC Online Hoddle Street killer Julian Knight, one of Australia's most notorious mass murderers, has lost a last ditch High Court fight to overturn laws specifically designed to keep him in prison indefinitely. Knight killed seven people in Melbourne's Hoddle ... High Court decides if Hoddle Street killer will spend life behind bars The Sydney Morning Herald Hoddle St killer Julian Knight loses final bid for freedom, will rot in jail NEWS.com.au Hoddle St killer appeal continues Sky News Australia ABC Local - 9news.com.au - Starts at 60 - Shepparton News all 9 news articles »
 
 
 Full story on F3News: [Hoddle Street killer Julian Knight loses High Court fight against laws keeping him in jail - ABC Online](http://www.f3nws.com/n/DQUmnC)
