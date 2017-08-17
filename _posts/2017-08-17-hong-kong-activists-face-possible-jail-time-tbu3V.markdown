@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hong Kong activists face possible jail time"
-date: 2017-08-17 03:08:07Z
+date: 2017-08-17 04:57:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One of Hong Kong's most famous pro-democracy protesters could face years in jail
 
 Full story on F3News: [Hong Kong activists face possible jail time](http://www.f3nws.com/n/tbu3V)
 
-> Posted on: Thursday, August 17, 2017 3:08:07 AM
+> Posted on: Thursday, August 17, 2017 4:57:51 AM
