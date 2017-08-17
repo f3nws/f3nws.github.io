@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US general: S. Korea drills will happen"
-date: 2017-08-17 09:26:42Z
+date: 2017-08-17 10:12:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A top US general says contentious military exercises with South Korea, due to st
 
 Full story on F3News: [US general: S. Korea drills will happen](http://www.f3nws.com/n/cQYrCE)
 
-> Posted on: Thursday, August 17, 2017 9:26:42 AM
+> Posted on: Thursday, August 17, 2017 10:12:43 AM
