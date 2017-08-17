@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oregon abortion law funds procedures for illegal immigrants"
-date: 2017-08-17 09:00:02Z
+date: 2017-08-17 09:30:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Oregon has passed the nation’s most progressive abortion bill, requiring state
 
 Full story on F3News: [Oregon abortion law funds procedures for illegal immigrants](http://www.f3nws.com/n/R2RTG)
 
-> Posted on: Thursday, August 17, 2017 9:00:02 AM
+> Posted on: Thursday, August 17, 2017 9:30:02 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As the President digs in his heels after Charlottesville comments, lawmakers and aides weigh price of loyalty"
-date: 2017-08-17 07:13:22Z
+date: 2017-08-17 09:21:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republican lawmakers and administration aides found themselves again Wednesday w
 
 Full story on F3News: [As the President digs in his heels after Charlottesville comments, lawmakers and aides weigh price of loyalty](http://www.f3nws.com/n/PfqxbH)
 
-> Posted on: Thursday, August 17, 2017 7:13:22 AM
+> Posted on: Thursday, August 17, 2017 9:21:04 AM
