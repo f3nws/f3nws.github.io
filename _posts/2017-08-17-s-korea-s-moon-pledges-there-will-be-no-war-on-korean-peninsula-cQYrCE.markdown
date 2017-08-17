@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S. Korea's Moon pledges there will be 'no war on Korean peninsula'"
-date: 2017-08-17 04:30:30Z
+date: 2017-08-17 05:55:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korean President Moon Jae-in has said US and South Korean policies are ali
 
 Full story on F3News: [S. Korea's Moon pledges there will be 'no war on Korean peninsula'](http://www.f3nws.com/n/cQYrCE)
 
-> Posted on: Thursday, August 17, 2017 4:30:30 AM
+> Posted on: Thursday, August 17, 2017 5:55:50 AM
