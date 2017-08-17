@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Syrian army protects us while we sleep’: Residents of ISIS-besieged Deir ez-Zor to RT"
-date: 2017-08-17 01:39:24Z
+date: 2017-08-17 01:39:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Hopes of returning to normal existence lie with the Syrian army, residents of th
 
 Full story on F3News: [‘Syrian army protects us while we sleep’: Residents of ISIS-besieged Deir ez-Zor to RT](http://www.f3nws.com/n/tqMaHJ)
 
-> Posted on: Thursday, August 17, 2017 1:39:24 AM
+> Posted on: Thursday, August 17, 2017 1:39:00 AM
