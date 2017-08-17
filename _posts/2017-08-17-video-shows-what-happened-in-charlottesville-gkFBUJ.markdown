@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Video shows what happened in Charlottesville"
-date: 2017-08-17 00:17:34Z
+date: 2017-08-17 01:44:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Looking at video captured in Charlottesville, Virginia, we can better understand
 
 Full story on F3News: [Video shows what happened in Charlottesville](http://www.f3nws.com/n/gkFBUJ)
 
-> Posted on: Thursday, August 17, 2017 12:17:34 AM
+> Posted on: Thursday, August 17, 2017 1:44:29 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas football star convicted of sexually assaulting a child may get a new trial"
-date: 2017-08-17 01:30:02Z
+date: 2017-08-17 02:00:07Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Four years ago, then 18-year-old Texas high school football star Greg Kelley was
 
 Full story on F3News: [Texas football star convicted of sexually assaulting a child may get a new trial](http://www.f3nws.com/n/fFVxAD)
 
-> Posted on: Thursday, August 17, 2017 1:30:02 AM
+> Posted on: Thursday, August 17, 2017 2:00:07 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doctor Strange advises Thor in new 'Ragnarok' trailer     - CNET"
-date: 2017-08-17 00:36:24Z
+date: 2017-08-17 01:04:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A new international Marvel trailer shows the two superheroes talking about what 
 
 Full story on F3News: [Doctor Strange advises Thor in new 'Ragnarok' trailer     - CNET](http://www.f3nws.com/n/RAP4WE)
 
-> Posted on: Thursday, August 17, 2017 12:36:24 AM
+> Posted on: Thursday, August 17, 2017 1:04:39 AM

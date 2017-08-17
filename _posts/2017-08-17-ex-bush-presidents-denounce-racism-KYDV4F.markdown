@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Bush Presidents denounce racism"
-date: 2017-08-17 01:03:35Z
+date: 2017-08-17 01:34:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Presidents George H.W. Bush and George W. Bush released a joint statement
 
 Full story on F3News: [Ex-Bush Presidents denounce racism](http://www.f3nws.com/n/KYDV4F)
 
-> Posted on: Thursday, August 17, 2017 1:03:35 AM
+> Posted on: Thursday, August 17, 2017 1:34:22 AM
