@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Powerball jackpot climbs over half-billion dollar mark - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2016/01/14/f45000c3-53c2-499c-9652-a7e1c4881c5e/gettyimages-504808138.jpg)
 
-CBS News Powerball jackpot climbs over half-billion dollar mark CBS News Last Updated Aug 17, 2017 1:47 AM EDT. Powerball's jackpot hit an estimated $510 million early Thursday, the game's website said, after it was determined no winning tickets had been sold for Wednesday night's drawing. The new jackpot's cash value was ... Powerball 8/16/17 winning numbers, live lottery results for Wednesday's $430M drawing NJ.com Powerball winning numbers for 08/16/2017; jackpot $432.5 million cleveland.com No Powerball winners; jackpot jumps to $510 million for Saturday's drawing Chicago Tribune NECN - Patch.com - 10News - Washington Post all 28 news articles »
+CBS News Powerball jackpot climbs over half-billion dollar mark CBS News Last Updated Aug 17, 2017 1:47 AM EDT. Powerball's jackpot reached an estimated $510 million early Thursday, the game's website said, after it was determined no winning tickets had been sold for Wednesday night's drawing. The new jackpot's cash value ... Powerball jackpot jumps to $510 million Local 10 Powerball 8/16/17 winning numbers, live lottery results for Wednesday's $430M drawing NJ.com Powerball winning numbers for 08/16/2017; jackpot $432.5 million cleveland.com Chicago Tribune - NECN - Patch.com - Washington Post all 30 news articles »
 
 
 Full story on F3News: [Powerball jackpot climbs over half-billion dollar mark - CBS News](http://www.f3nws.com/n/pZ3fZF)

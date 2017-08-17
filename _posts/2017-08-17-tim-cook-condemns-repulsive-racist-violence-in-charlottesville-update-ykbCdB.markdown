@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Tim Cook condemns 'repulsive' racist violence in Charlottesville (update)"
+date: 2017-08-17 05:27:00Z
+categories: engadget
+---
+
+![Tim Cook condemns 'repulsive' racist violence in Charlottesville (update)](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D1400%252C826%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C944%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F3733f7a622f8dfe332bd31f676d418e4%252F203483439%252F2016012015.March.tim-cookJT.jpg%26client%3Da1acac3e1b3290917d92%26signature%3Db64a98bc41c76a96e825c07bf4be962eb98f8151&client=cbc79c14efcebee57402&signature=e9bd0f48af626269b7b0894f60cd0e8281c1c77e)
+
+Tim Cook made his stance about Charlottesville clear enough by tweeting out that "violence and racism have no place in America" as the tragic events were unfolding. This internal letter sent to employees that Recode obtained, however, will give you even more insight into where he stands. Apple's head honcho wrote that Americans must unequivocally reject hate and bigotry in the country. It's not about "left or the right, conservative or liberal," but "about human decency and morality." He stressed that he disagrees with the President and other people who "believe that there is a moral equivalence between white supremacists and Nazis, and those who oppose them by standing up for human rights." Cook also revealed that Apple will be donating $1 million each to the Southern Poverty Law Center (SPLC) and the Anti-Defamation League to help both organizations working to get rid of hate. In addition, Apple will match its employees' donations to human rights groups 2-for-1 until September 30th. You can look forward to a new iTunes feature that will make it easy to donate to SPLC, as well. Over the past few days, the President has lost the support of many other high-profile tech personalities due to his actions. Intel CEO Brian Krzanich , Jeff Immelt of GE and a list of other executives from other industries left his manufacturing council and other advisory boards following the events in Charlottesville. (Elon Musk peaced out way back when the administration decided to leave the Paris climate agreement.) Unlike those execs, the Apple CEO never had a close relationship with the President. He worked with Trump when it came to tax reform and used his influence to talk to the President's people about improving LGBTQ+ rights, but he butted heads with the administration over the Muslim immigration ban and its stance on climate change . His position might not be that surprising, but it's good to know where people, especially powerful ones like Cook, stand. Here's the CEO's full letter to his employees: Team, Like so many of you, equality is at the core of my beliefs and valu...
+
+
+Full story on F3News: [Tim Cook condemns 'repulsive' racist violence in Charlottesville (update)](http://www.f3nws.com/n/ykbCdB)
+
+> Posted on: Thursday, August 17, 2017 5:27:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebookers slam Jennifer Lawrence for call to ID neo-Nazis     - CNET"
-date: 2017-08-17 01:40:20Z
+date: 2017-08-17 05:58:20Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: The actress faces criticism for encouraging her Facebook followers t
 
 Full story on F3News: [Facebookers slam Jennifer Lawrence for call to ID neo-Nazis     - CNET](http://www.f3nws.com/n/xcKGgF)
 
-> Posted on: Thursday, August 17, 2017 1:40:20 AM
+> Posted on: Thursday, August 17, 2017 5:58:20 AM
