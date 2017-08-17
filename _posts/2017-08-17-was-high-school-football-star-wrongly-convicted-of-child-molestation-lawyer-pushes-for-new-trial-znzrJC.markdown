@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Was high school football star wrongly convicted of child molestation? Lawyer pushes for new trial"
-date: 2017-08-17 18:00:03Z
+date: 2017-08-17 19:30:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Four years ago, then 18-year-old Texas high school football star Greg Kelley was
 
 Full story on F3News: [Was high school football star wrongly convicted of child molestation? Lawyer pushes for new trial](http://www.f3nws.com/n/znzrJC)
 
-> Posted on: Thursday, August 17, 2017 6:00:03 PM
+> Posted on: Thursday, August 17, 2017 7:30:05 PM
