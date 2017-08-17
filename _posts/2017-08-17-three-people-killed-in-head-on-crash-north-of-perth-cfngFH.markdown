@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Three people killed in head-on crash north of Perth](http://www.abc.net.au/news/image/8816414-1x1-700x700.jpg)
 
-Three people are confirmed dead after two cars collide in a head-on crash on Indian Ocean Drive, a major highway north of Perth.
+Three people are confirmed dead after two cars collide in a head-on crash on Indian Ocean Drive, a major highway north of Perth which has been criticised by locals for its lack of safety.
 
 
 Full story on F3News: [Three people killed in head-on crash north of Perth](http://www.f3nws.com/n/cfngFH)
