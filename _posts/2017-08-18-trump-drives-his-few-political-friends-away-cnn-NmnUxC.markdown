@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump drives his few political friends away - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170817164923-tim-scott-bob-corker-gop-senators-criticize-trump-lead-00000000-super-tease.jpg)
 
-CNN Trump drives his few political friends away CNN (CNN) Donald Trump was never part of the Washington in-crowd. Yet the President is fast losing the few friends he did have in the capital, following a wild period in which he offered cover to white supremacists and ignited a war of words with North ... Defiant, Trump Laments Assault on Culture and Revives a Bogus Pershing Story New York Times Republicans dismayed by Trump's behavior in Charlottesville aftermath Washington Examiner It Is Time for Our Leaders to Lead: Censure the President HuffPost ABC News - The New Yorker - NBCNews.com - New York Magazine all 133 news articles »
+CNN Trump drives his few political friends away CNN (CNN) Donald Trump was never part of the Washington in-crowd. Yet the President is fast losing the few friends he did have in the capital, following a wild period in which he offered cover to white supremacists and ignited a war of words with North ... Defiant Trump digs in as racial, GOP tensions flare Politico GOP fears damage to brand from Charlottesville The Hill Trump Defends Confederate Statues, Berates His Critics U.S. News & World Report ABC News - USA TODAY - Washington Examiner - The New Yorker all 9,086 news articles »
 
 
 Full story on F3News: [Trump drives his few political friends away - CNN](http://www.f3nws.com/n/NmnUxC)
