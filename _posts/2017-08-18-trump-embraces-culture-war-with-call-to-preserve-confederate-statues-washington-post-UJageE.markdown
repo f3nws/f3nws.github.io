@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump embraces culture war with call to preserve Confederate statues - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/17/Editorial-Opinion/Images/2017-08-17T211556Z_895291839_RC19045EF900_RTRMADP_3_USA-TRUMP-SENATE.jpg?t=20170517)
 
-Washington Post Trump embraces culture war with call to preserve Confederate statues Washington Post President Trump on Thursday assumed the role of leading spokesman for the racially charged cause of preserving Confederate statues on public grounds, couching his defense in historical terms that thrilled his core supporters and signaled his intent to ... Trump Defends 'Beauty' Of Confederate Memorials NPR Today in Conservative Media: The Confederate Monument Debate Is a Trap Slate Magazine (blog) Fellow Republicans assail Trump after he defends Confederate monuments Reuters BBC News - USA TODAY - ABC News - New York Times all 2,093 news articles »
+Washington Post Trump embraces culture war with call to preserve Confederate statues Washington Post President Trump on Thursday assumed the role of leading spokesman for the racially charged cause of preserving Confederate statues on public grounds, couching his defense in historical terms that thrilled his core supporters and signaled his intent to ... Defiant Trump digs in as racial, GOP tensions flare Politico Trump Defends 'Beauty' Of Confederate Memorials NPR Several States Have Erected Laws To Protect Confederate Monuments HuffPost Slate Magazine (blog) - Reuters - BBC News - USA TODAY all 2,365 news articles »
 
 
 Full story on F3News: [Trump embraces culture war with call to preserve Confederate statues - Washington Post](http://www.f3nws.com/n/UJageE)

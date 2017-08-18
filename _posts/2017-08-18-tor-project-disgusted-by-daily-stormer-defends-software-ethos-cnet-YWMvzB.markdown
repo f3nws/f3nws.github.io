@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tor Project 'disgusted' by Daily Stormer, defends software ethos     - CNET"
-date: 2017-08-18 00:40:50Z
+date: 2017-08-18 00:54:50Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The organization behind the anonymous browser condemns neo-Nazi site but says it
 
 Full story on F3News: [Tor Project 'disgusted' by Daily Stormer, defends software ethos     - CNET](http://www.f3nws.com/n/YWMvzB)
 
-> Posted on: Friday, August 18, 2017 12:40:50 AM
+> Posted on: Friday, August 18, 2017 12:54:50 AM

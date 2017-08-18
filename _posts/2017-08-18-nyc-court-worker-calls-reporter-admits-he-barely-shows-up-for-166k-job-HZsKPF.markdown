@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC court worker calls reporter, admits he 'barely shows up' for $166K job"
-date: 2017-08-18 01:30:03Z
+date: 2017-08-18 02:00:06Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A longtime spokesman for the state court system accidentally butt-dialed a Post 
 
 Full story on F3News: [NYC court worker calls reporter, admits he 'barely shows up' for $166K job](http://www.f3nws.com/n/HZsKPF)
 
-> Posted on: Friday, August 18, 2017 1:30:03 AM
+> Posted on: Friday, August 18, 2017 2:00:06 AM
