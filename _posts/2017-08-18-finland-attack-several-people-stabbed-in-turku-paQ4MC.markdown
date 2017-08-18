@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Finland attack: Several people stabbed in Turku"
-date: 2017-08-18 19:58:57Z
+date: 2017-08-18 22:12:49Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in Finland have shot and arrested a suspect after several people were inj
 
 Full story on F3News: [Finland attack: Several people stabbed in Turku](http://www.f3nws.com/n/paQ4MC)
 
-> Posted on: Friday, August 18, 2017 7:58:57 PM
+> Posted on: Friday, August 18, 2017 10:12:49 PM

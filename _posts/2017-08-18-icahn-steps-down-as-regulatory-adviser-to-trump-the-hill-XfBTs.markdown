@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Icahn steps down as regulatory adviser to Trump - The Hill](http://thehill.com/sites/default/files/blogs/trumpicahn.png)
 
-The Hill Icahn steps down as regulatory adviser to Trump The Hill Investor Carl Icahn announced Friday that he is stepping down from his role as special adviser to President Trump on issues relating to regulatory reform. Icahn, who owns a substantial stake in the oil and refining company CVR Energy, said in a letter ... Billionaire Carl Icahn drops out of Trump advisory role CBS News Billionaire Carl Icahn has quit advising Trump Business Insider Carl Icahn leaving role as President Trump's adviser New York Daily News Bloomberg - New York Post - TheStreet.com - Reuters all 21 news articles »
+The Hill Icahn steps down as regulatory adviser to Trump The Hill Investor Carl Icahn announced Friday that he is stepping down from his role as special adviser to President Trump on issues relating to regulatory reform. Icahn, who owns a substantial stake in the oil and refining company CVR Energy, said in a letter ... Icahn Quits White House Role After Conflict-of-Interest Questions Bloomberg Billionaire Carl Icahn steps down as adviser to President Trump CNNMoney Icahn cuts official ties with Trump administration Politico CBS News - USA TODAY - Business Insider - New York Times all 30 news articles »
 
 
 Full story on F3News: [Icahn steps down as regulatory adviser to Trump - The Hill](http://www.f3nws.com/n/XfBTs)
