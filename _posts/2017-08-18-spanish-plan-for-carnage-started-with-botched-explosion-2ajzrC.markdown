@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spanish plan for carnage started with botched explosion"
-date: 2017-08-18 17:04:00Z
+date: 2017-08-18 18:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — A cell of at least nine extremists meticulously plotte
 
 Full story on F3News: [Spanish plan for carnage started with botched explosion](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 18, 2017 5:04:00 PM
+> Posted on: Friday, August 18, 2017 6:43:00 PM
