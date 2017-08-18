@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona attack: Five terror suspects 'wearing suicide vests' shot dead in Cambrils after van crashes into crowd at Las Ramblas, killing 13"
-date: 2017-08-18 04:46:44Z
+date: 2017-08-18 04:55:53Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ categories: yahoo-news
 
 Full story on F3News: [Barcelona attack: Five terror suspects 'wearing suicide vests' shot dead in Cambrils after van crashes into crowd at Las Ramblas, killing 13](http://www.f3nws.com/n/Nct2vD)
 
-> Posted on: Friday, August 18, 2017 4:46:44 AM
+> Posted on: Friday, August 18, 2017 4:55:53 AM
