@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AL adamant not to lose to judiciary"
-date: 2017-08-18 05:52:57Z
+date: 2017-08-18 08:51:42Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [AL adamant not to lose to judiciary](http://www.f3nws.com/n/2UVHC)
 
-> Posted on: Friday, August 18, 2017 5:52:57 AM
+> Posted on: Friday, August 18, 2017 8:51:42 AM
