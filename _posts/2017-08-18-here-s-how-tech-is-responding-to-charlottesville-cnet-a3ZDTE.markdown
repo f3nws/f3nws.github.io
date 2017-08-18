@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Here's how tech is responding to Charlottesville     - CNET"
-date: 2017-08-18 01:49:21Z
+date: 2017-08-18 06:16:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The tech industry is speaking out about the violent protests in Charlottesville,
 
 Full story on F3News: [Here's how tech is responding to Charlottesville     - CNET](http://www.f3nws.com/n/a3ZDTE)
 
-> Posted on: Friday, August 18, 2017 1:49:21 AM
+> Posted on: Friday, August 18, 2017 6:16:39 AM
