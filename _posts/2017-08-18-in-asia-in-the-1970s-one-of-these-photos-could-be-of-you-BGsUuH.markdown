@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Asia in the 1970s? One of these photos could be of you"
-date: 2017-08-18 03:05:01Z
+date: 2017-08-18 05:30:06Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A Vietnam veteran is trying to reconnect with his street photography subjects th
 
 Full story on F3News: [In Asia in the 1970s? One of these photos could be of you](http://www.f3nws.com/n/BGsUuH)
 
-> Posted on: Friday, August 18, 2017 3:05:01 AM
+> Posted on: Friday, August 18, 2017 5:30:06 AM

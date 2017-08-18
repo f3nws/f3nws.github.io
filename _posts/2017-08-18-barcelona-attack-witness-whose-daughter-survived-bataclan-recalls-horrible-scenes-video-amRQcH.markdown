@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona attack witness whose daughter survived Bataclan recalls horrible scenes (VIDEO)"
-date: 2017-08-18 00:48:35Z
+date: 2017-08-18 00:48:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A witness to the Barcelona vehicle ramming attack, whose daughter survived the t
 
 Full story on F3News: [Barcelona attack witness whose daughter survived Bataclan recalls horrible scenes (VIDEO)](http://www.f3nws.com/n/amRQcH)
 
-> Posted on: Friday, August 18, 2017 12:48:35 AM
+> Posted on: Friday, August 18, 2017 12:48:00 AM

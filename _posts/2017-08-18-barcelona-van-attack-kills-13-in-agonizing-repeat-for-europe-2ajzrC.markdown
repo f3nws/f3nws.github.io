@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona van attack kills 13 in agonizing repeat for Europe"
-date: 2017-08-18 00:05:00Z
+date: 2017-08-18 01:09:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — A van veered onto a promenade and barreled down the bu
 
 Full story on F3News: [Barcelona van attack kills 13 in agonizing repeat for Europe](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 18, 2017 12:05:00 AM
+> Posted on: Friday, August 18, 2017 1:09:00 AM
