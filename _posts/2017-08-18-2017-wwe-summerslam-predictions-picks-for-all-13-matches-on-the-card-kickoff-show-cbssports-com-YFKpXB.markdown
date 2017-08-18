@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![2017 WWE SummerSlam predictions: Picks for all 13 matches on the card, kickoff show - CBSSports.com](https://sportshub.cbsistatic.com/i/r/2017/08/17/0330e0c7-0641-48cb-b170-79575c5bb106/thumbnail/770x433/1b89220076861dc89a3933be14ec2179/roman-reigns-braun-strowman-summerslam.jpg)
 
-CBSSports.com 2017 WWE SummerSlam predictions: Picks for all 13 matches on the card, kickoff show CBSSports.com BROOKLYN, N.Y. -- SummerSlam is here. WWE's second-biggest show of 2017 is going down Sunday beginning at 7 p.m. ET with a kickoff show starting two hours earlier at 5 p.m. ET. The monstrous card includes matches from both Raw and SmackDown ... SummerSlam cheat sheet: Fatal 4-Way for the Universal championship ESPN all 48 news articles »
+CBSSports.com 2017 WWE SummerSlam predictions: Picks for all 13 matches on the card, kickoff show CBSSports.com BROOKLYN, N.Y. -- SummerSlam is here. WWE's second-biggest show of 2017 is going down Sunday beginning at 7 p.m. ET with a kickoff show starting two hours earlier at 5 p.m. ET. The monstrous card includes matches from both Raw and SmackDown ... SummerSlam cheat sheet: Fatal 4-Way for the Universal championship ESPN SummerSlam: Here's Who I Think Will Leave WWE's Hottest Event With A Win Hollywood Life Six-man tag team match added to WWE SummerSlam 2017 Kickoff show Cageside Seats (blog) Wrestlezone - Mirror.co.uk - 411mania.com - New York Post all 52 news articles »
 
 
 Full story on F3News: [2017 WWE SummerSlam predictions: Picks for all 13 matches on the card, kickoff show - CBSSports.com](http://www.f3nws.com/n/YFKpXB)

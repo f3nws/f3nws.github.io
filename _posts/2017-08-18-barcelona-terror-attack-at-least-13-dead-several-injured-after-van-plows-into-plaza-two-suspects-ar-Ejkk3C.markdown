@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona 'Terror Attack': At Least 13 Dead, Several Injured After Van Plows Into Plaza; Two Suspects Arrested, ISIS Claims Responsibility"
-date: 2017-08-18 02:00:07Z
+date: 2017-08-18 02:04:52Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Barcelona 'Terror Attack': At Least 13 Dead, Several Injured After Van Plows Into Plaza; Two Suspects Arrested, ISIS Claims Responsibility](http://www.f3nws.com/n/Ejkk3C)
 
-> Posted on: Friday, August 18, 2017 2:00:07 AM
+> Posted on: Friday, August 18, 2017 2:04:52 AM
