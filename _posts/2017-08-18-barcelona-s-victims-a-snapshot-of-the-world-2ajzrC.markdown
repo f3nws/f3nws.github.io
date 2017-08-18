@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona's victims: A snapshot of the world"
-date: 2017-08-18 10:47:00Z
+date: 2017-08-18 10:55:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PARIS (AP) â€” The dead and injured in Barcelona were a snapshot of the world â€
 
 Full story on F3News: [Barcelona's victims: A snapshot of the world](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 18, 2017 10:47:00 AM
+> Posted on: Friday, August 18, 2017 10:55:00 AM
