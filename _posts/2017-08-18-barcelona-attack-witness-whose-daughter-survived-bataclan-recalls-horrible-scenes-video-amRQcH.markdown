@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Barcelona attack witness whose daughter survived Bataclan recalls horrible scenes (VIDEO)](https://img.rt.com/files/2017.08/article/599602d7dda4c883238b4567.jpg)
 
-A witness to the Barcelona vehicle ramming attack, whose daughter survived the terror attack at the Bataclan theatre in Paris in 2015, said he felt horrible for the victims and blasted the media for helping the terrorists instill fear in people. Read Full Article at RT.com
+A witness to the Barcelona vehicle ramming attack, whose daughter survived the terrorist attack at the Bataclan Theatre in Paris in 2015, said he felt horrible for the victims and blasted the media for helping the terrorists instill fear in people. Read Full Article at RT.com
 
 
 Full story on F3News: [Barcelona attack witness whose daughter survived Bataclan recalls horrible scenes (VIDEO)](http://www.f3nws.com/n/amRQcH)

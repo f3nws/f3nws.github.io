@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona terror attack: What we know"
-date: 2017-08-18 07:08:06Z
+date: 2017-08-18 07:28:03Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ On Thursday afternoon, a van rammed into a crowd of people in Barcelona, killing
 
 Full story on F3News: [Barcelona terror attack: What we know](http://www.f3nws.com/n/sTqxq)
 
-> Posted on: Friday, August 18, 2017 7:08:06 AM
+> Posted on: Friday, August 18, 2017 7:28:03 AM
