@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump defends Confederate statues, berates his critics"
-date: 2017-08-18 04:13:00Z
+date: 2017-08-18 09:08:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRIDGEWATER, N.J. (AP) — With prominent Republicans openly questioning his com
 
 Full story on F3News: [Trump defends Confederate statues, berates his critics](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 18, 2017 4:13:00 AM
+> Posted on: Friday, August 18, 2017 9:08:00 AM
