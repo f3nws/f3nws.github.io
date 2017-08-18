@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: Attacks in Spain are linked, took long time to plan"
-date: 2017-08-18 11:42:00Z
+date: 2017-08-18 11:58:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — The back-to-back vehicle attacks in Barcelona and a ne
 
 Full story on F3News: [Police: Attacks in Spain are linked, took long time to plan](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 18, 2017 11:42:00 AM
+> Posted on: Friday, August 18, 2017 11:58:00 AM

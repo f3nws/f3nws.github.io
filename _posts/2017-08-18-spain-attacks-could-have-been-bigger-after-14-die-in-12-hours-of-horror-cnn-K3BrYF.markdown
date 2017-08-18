@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Spain attacks 'could have been bigger' after 14 die in 12 hours of horror - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170818004145-02-barcelona-van-aftermath-0818-super-tease.jpg)
 
-CNN Spain attacks 'could have been bigger' after 14 die in 12 hours of horror CNN Barcelona (CNN) The perpetrators of the terror attacks in Barcelona and Cambrils originally planned to use explosive devices to wreak greater devastation but were apparently thwarted because their materials detonated prematurely, police said Friday. Spanish probe points to wider network in attacks; American among dead Washington Post Barcelona and Cambrils: 'Bigger' attacks were prepared BBC News What We Know About the Attacks in Spain New York Times NPR - Chicago Tribune - New York Daily News - Business Insider all 3,945 news articles »
+CNN Spain attacks 'could have been bigger' after 14 die in 12 hours of horror CNN Barcelona (CNN) The perpetrators of the terror attacks in Barcelona and Cambrils originally planned to use explosive devices to wreak greater devastation but were apparently thwarted because their materials detonated prematurely, police said Friday. Spanish probe points to wider network in attacks; American among dead Washington Post 4 Suspects Held in Spain, as Toll Rises to 14 New York Times Barcelona and Cambrils: 'Bigger' attacks were prepared BBC News NPR - Fox News - Sacramento Bee - USA TODAY all 4,007 news articles »
 
 
 Full story on F3News: [Spain attacks 'could have been bigger' after 14 die in 12 hours of horror - CNN](http://www.f3nws.com/n/K3BrYF)

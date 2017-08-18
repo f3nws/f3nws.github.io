@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['There are no good Nazis': James Murdoch takes $1.3 million stand against Trump - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/v/w/h/b/f/image.related.articleLeadwide.620x349.gxz7f8.png/1503030948212.jpg)
 
-The Sydney Morning Herald 'There are no good Nazis': James Murdoch takes $1.3 million stand against Trump The Sydney Morning Herald James Murdoch, the chief executive of Twenty-First Century Fox and the son of a frequent ally of Donald Trump's, condemned the US president's performance after the violence in Charlottesville, Virginia, and pledged to donate $US1 million ($1.3 million ... James Murdoch rebukes Donald Trump over white supremacists The Australian James Murdoch blasts Donald Trump Toowoomba Chronicle James Murdoch criticises Trump on protests SBS Los Angeles Times - The Guardian - Daily Mail - FOX 61 all 103 news articles »
+The Sydney Morning Herald 'There are no good Nazis': James Murdoch takes $1.3 million stand against Trump The Sydney Morning Herald James Murdoch, the chief executive of Twenty-First Century Fox and the son of a frequent ally of Donald Trump's, condemned the US president's performance after the violence in Charlottesville, Virginia, and pledged to donate $US1 million ($1.3 million ... James Murdoch rebukes Donald Trump over white supremacists The Australian James Murdoch slams Trump for failing to condemn Nazi violence The New Daily James Murdoch blasts Donald Trump Toowoomba Chronicle Los Angeles Times - The Guardian - Daily Mail - U.S. News & World Report all 99 news articles »
 
 
 Full story on F3News: ['There are no good Nazis': James Murdoch takes $1.3 million stand against Trump - The Sydney Morning Herald](http://www.f3nws.com/n/UVsGF)

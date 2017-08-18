@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![USS Fitzgerald's leadership removed from their duties over June collision - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170617081913-09-uss-fitzgerald-damaged-0617-super-tease.jpg)
 
-CNN USS Fitzgerald's leadership removed from their duties over June collision CNN (CNN) The commanding officer, executive officer and senior non-commissioned officer of the USS Fitzgerald have been removed from their duties for cause amid the fallout surrounding the deadly collision between the USS Fitzgerald and a cargo ship off ... USS Fitzgerald Leaders Punished; Crew Is Praised After Collision With Cargo Ship NPR Commanding officer of Navy warship in deadly collision relieved of duty Fox News Commander and leadership of stricken destroyer Fitzgerald to be relieved for collision USA TODAY ABC News - Syracuse.com - U.S. News & World Report - USNI News all 88 news articles »
+CNN USS Fitzgerald's leadership removed from their duties over June collision CNN (CNN) The commanding officer, executive officer and senior non-commissioned officer of the USS Fitzgerald have been removed from their duties for cause amid the fallout surrounding the deadly collision between the USS Fitzgerald and a cargo ship off ... USS Fitzgerald Leaders Punished, Crew Is Praised After Collision With Cargo Ship NPR USS Fitzgerald's leadership fired after Navy warship's deadly collision Fox News Navy to relieve USS Fitzgerald leadership for mistakes that led to deadly collision ABC News New York Daily News - BBC News - Los Angeles Times - Daily Press all 97 news articles »
 
 
 Full story on F3News: [USS Fitzgerald's leadership removed from their duties over June collision - CNN](http://www.f3nws.com/n/DXHWFD)
