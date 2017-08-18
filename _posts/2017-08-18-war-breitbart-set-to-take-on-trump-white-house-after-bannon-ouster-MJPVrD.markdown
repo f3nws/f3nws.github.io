@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'#WAR': Breitbart set to take on Trump White House after Bannon ouster"
-date: 2017-08-18 20:05:58Z
+date: 2017-08-18 20:33:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['#WAR': Breitbart set to take on Trump White House after Bannon ouster](http://www.f3nws.com/n/MJPVrD)
 
-> Posted on: Friday, August 18, 2017 8:05:58 PM
+> Posted on: Friday, August 18, 2017 8:33:04 PM
