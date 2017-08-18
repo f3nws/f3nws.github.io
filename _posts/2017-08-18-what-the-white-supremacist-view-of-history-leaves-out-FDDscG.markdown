@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What the white supremacist view of history leaves out"
-date: 2017-08-18 15:56:12Z
+date: 2017-08-18 18:01:11Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Charlottesville is where I learned what history is and isn't, and who I wanted t
 
 Full story on F3News: [What the white supremacist view of history leaves out](http://www.f3nws.com/n/FDDscG)
 
-> Posted on: Friday, August 18, 2017 3:56:12 PM
+> Posted on: Friday, August 18, 2017 6:01:11 PM
