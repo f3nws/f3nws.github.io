@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon was selling Echo Dots for the low, low price of $0     - CNET"
-date: 2017-08-19 13:50:03Z
+date: 2017-08-19 17:10:22Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ For a short window on Friday, Amazon appeared to be giving away these devices th
 
 Full story on F3News: [Amazon was selling Echo Dots for the low, low price of $0     - CNET](http://www.f3nws.com/n/3eXXpF)
 
-> Posted on: Saturday, August 19, 2017 1:50:03 PM
+> Posted on: Saturday, August 19, 2017 5:10:22 PM
