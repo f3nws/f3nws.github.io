@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspects planned bigger attack: Spain police"
-date: 2017-08-19 02:30:04Z
+date: 2017-08-19 02:31:08Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Suspects planned bigger attack: Spain police](http://www.f3nws.com/n/SnSUvC)
 
-> Posted on: Saturday, August 19, 2017 2:30:04 AM
+> Posted on: Saturday, August 19, 2017 2:31:08 AM
