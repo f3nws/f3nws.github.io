@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Stephen Bannon Out at the White House After Turbulent Run - New York Times](https://static01.nyt.com/images/2017/08/18/us/19dc-bannon-alpha/19dc-bannon-alpha-facebookJumbo.jpg)
 
-New York Times Stephen Bannon Out at the White House After Turbulent Run New York Times Stephen K. Bannon, President Trump's outgoing chief strategist, has been criticized as being emblematic of the far-right nationalism that turned violent in Virginia last weekend. By A.J. CHAVAR and CHRIS CIRILLO on Publish Date August 14, 2017. Photo ... The Latest: Steve Bannon returns to Breitbart News site Washington Post Bannon or no Bannon, Trump will be Trump CNN Why Bannon Lost and the Globalists Won Politico The Hill - ABC News - National Review - HuffPost all 2,452 news articles »
+New York Times Stephen Bannon Out at the White House After Turbulent Run New York Times Stephen K. Bannon, President Trump's outgoing chief strategist, has been criticized as being emblematic of the far-right nationalism that turned violent in Virginia last weekend. By A.J. CHAVAR and CHRIS CIRILLO on Publish Date August 14, 2017. Photo ... The Latest: Steve Bannon returns to Breitbart News site Washington Post Bannon or no Bannon, Trump will be Trump CNN Why Bannon Lost and the Globalists Won Politico ABC News - National Review - HuffPost - The Hill all 2,403 news articles »
 
 
 Full story on F3News: [Stephen Bannon Out at the White House After Turbulent Run - New York Times](http://www.f3nws.com/n/UBWeuF)
