@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Confederate monuments go up"
-date: 2017-08-19 07:35:31Z
+date: 2017-08-19 16:36:42Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN New Confederate monuments are going up and these are the people behind them 
 
 Full story on F3News: [New Confederate monuments go up](http://www.f3nws.com/n/MaBRQJ)
 
-> Posted on: Saturday, August 19, 2017 7:35:31 AM
+> Posted on: Saturday, August 19, 2017 4:36:42 PM
