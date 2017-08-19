@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Confederate monuments go up"
-date: 2017-08-19 01:54:20Z
+date: 2017-08-19 07:35:31Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Since 2007, John Culpepper had been anticipating this moment: the unveiling of a
 
 Full story on F3News: [New Confederate monuments go up](http://www.f3nws.com/n/MaBRQJ)
 
-> Posted on: Saturday, August 19, 2017 1:54:20 AM
+> Posted on: Saturday, August 19, 2017 7:35:31 AM

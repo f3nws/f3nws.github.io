@@ -5,7 +5,7 @@ date: 2017-08-19 02:58:13Z
 categories: abc-top-stories
 ---
 
-![Kyrgios puts on a clinic to dismantle Nadal in Cincinnati](http://www.abc.net.au/news/image/8823498-1x1-700x700.jpg)
+![Kyrgios puts on a clinic to dismantle Nadal in Cincinnati](http://www.abc.net.au/news/image/8789178-1x1-700x700.jpg)
 
 Nick Kyrgios shows again that on his day he can beat anybody, demolishing soon-to-be world number one Rafael Nadal in straight sets to reach the Cincinnati Masters last four.
 
