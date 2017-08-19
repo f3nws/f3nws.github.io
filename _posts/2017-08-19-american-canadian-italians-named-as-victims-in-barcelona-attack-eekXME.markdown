@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American, Canadian, Italians named as victims in Barcelona attack"
-date: 2017-08-19 12:33:39Z
+date: 2017-08-19 14:24:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Details of the victims of twin terror attacks in Spain are slowly emerging, with
 
 Full story on F3News: [American, Canadian, Italians named as victims in Barcelona attack](http://www.f3nws.com/n/eekXME)
 
-> Posted on: Saturday, August 19, 2017 12:33:39 PM
+> Posted on: Saturday, August 19, 2017 2:24:24 PM

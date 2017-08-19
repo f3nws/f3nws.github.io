@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Terror cell 'dismantled' as police hunt Moroccan over Barcelona attack](http://www.abc.net.au/news/image/8821792-1x1-700x700.png)
 
-A massive manhunt is underway for the man suspected of driving the van that ploughed into pedestrians in Barcelona, killing 13 people. A young Sydney boy is still missing after the attack.
+A massive manhunt is underway for the 22-year-old Moroccan man suspected of driving the van in the deadly Barcelona attack, but officials say the extremist cell behind the carnage has been "fully dismantled".
 
 
 Full story on F3News: [Terror cell 'dismantled' as police hunt Moroccan over Barcelona attack](http://www.f3nws.com/n/BMf2DF)
