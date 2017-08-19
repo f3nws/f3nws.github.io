@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![The New Mercedes-Maybach Concept Is a 20-Foot-Long Convertible - Bloomberg](https://assets.bwbx.io/images/users/iqjWHBFdfxIU/iVi5pptbksfc/v1/1200x813.jpg)
 
-News18 The New Mercedes-Maybach Concept Is a 20-Foot-Long Convertible Bloomberg The two-seater Vision Mercedes-Maybach 6 Cabriolet pays homage to the “automotive haute couture” of hand-finished, exclusive cabriolets. Photographer: Daimler AG - Global Communications. Tonight, during Monterey Car Week, Mercedes-Benz unveiled ... Mercedes-Maybach just unveiled a stunning convertible concept car to rival Tesla Business Insider Vision Mercedes-Maybach 6 Cabriolet Wows Pebble Beach Crowd Automobile Mercedes uses art deco inspiration for electric car concept Engadget CNET - Digital Trends - Motor Authority - Kelley Blue Book all 34 news articles »
+News18 The New Mercedes-Maybach Concept Is a 20-Foot-Long Convertible Bloomberg The two-seater Vision Mercedes-Maybach 6 Cabriolet pays homage to the “automotive haute couture” of hand-finished, exclusive cabriolets. Photographer: Daimler AG - Global Communications. Tonight, during Monterey Car Week, Mercedes-Benz unveiled ... Mercedes-Maybach just unveiled a stunning convertible concept car to rival Tesla Business Insider Mercedes uses art deco inspiration for electric car concept Engadget Vision Mercedes-Maybach 6 Cabriolet Wows Pebble Beach Crowd Automobile Kelley Blue Book - CNET - Digital Trends - Motor Authority all 35 news articles »
 
 
 Full story on F3News: [The New Mercedes-Maybach Concept Is a 20-Foot-Long Convertible - Bloomberg](http://www.f3nws.com/n/dnTFNB)
