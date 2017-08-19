@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In wake of Charlottesville, Duke University removes Robert E. Lee statue after it was vandalized - Washington Post](https://img.washingtonpost.com/pbox.php?url=http://img.washingtonpost.com/news/grade-point/wp-content/uploads/sites/42/2017/08/lee.defaced.jpeg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post In wake of Charlottesville, Duke University removes Robert E. Lee statue after it was vandalized Washington Post Duke University has decided to remove the statue of Confederate Gen. Robert E. Lee from the campus's chapel entrance, a decision that comes shortly after the statue was vandalized and as the country confronts questions about what Confederacy ... and more »
+Washington Post In wake of Charlottesville, Duke University removes Robert E. Lee statue after it was vandalized Washington Post Duke University has decided to remove the statue of Confederate Gen. Robert E. Lee from the campus's chapel entrance, a decision that comes shortly after the statue was vandalized and as the country confronts questions about what Confederacy ... Duke University removes statue of Robert E. Lee Los Angeles Times Duke University Is Removing The Robert E. Lee Statue From Its Chapel HuffPost Duke Takes Down Lee Statue Inside Higher Ed NPR - Politico - Slate Magazine (blog) - U.S. News & World Report all 240 news articles »
 
 
 Full story on F3News: [In wake of Charlottesville, Duke University removes Robert E. Lee statue after it was vandalized - Washington Post](http://www.f3nws.com/n/dPKDPC)
