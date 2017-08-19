@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: How Christians survive in the world's most anti-Christian nation"
-date: 2017-08-19 00:00:05Z
+date: 2017-08-19 00:30:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ For 16 years, North Korea been ranked the “most oppressive place in the world 
 
 Full story on F3News: [North Korea: How Christians survive in the world's most anti-Christian nation](http://www.f3nws.com/n/KT2smB)
 
-> Posted on: Saturday, August 19, 2017 12:00:05 AM
+> Posted on: Saturday, August 19, 2017 12:30:05 AM
