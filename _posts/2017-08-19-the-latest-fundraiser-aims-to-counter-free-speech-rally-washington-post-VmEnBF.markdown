@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Latest: Fundraiser aims to counter 'free speech' rally - Washington Post](https://img.washingtonpost.com/pbox.php?url=https://img.washingtonpost.com/pb/resources/img/twp-social-share.png&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-TIME The Latest: Fundraiser aims to counter 'free speech' rally Washington Post BOSTON — The Latest on weekend rallies related to last week's Charlottesville, Virginia, protests (all times local):. 8:45 p.m.. A Boston charity is taking a page from opponents of neo-Nazi groups in Germany to counter a so-called free speech rally on ... Connecticut Residents Will Join Counterprotesters At Boston Rally Hartford Courant Would you take kids to protest Saturday's 'free speech' rally? The Boston Globe Boston preps for rally touting free speech in wake of Charlottesville CNN International WCSH-TV - Patch.com - Washington Times - Heavy.com all 202 news articles »
+CNN International The Latest: Fundraiser aims to counter 'free speech' rally Washington Post BOSTON — The Latest on weekend rallies related to last week's Charlottesville, Virginia, protests (all times local):. 8:45 p.m.. A Boston charity is taking a page from opponents of neo-Nazi groups in Germany to counter a so-called free speech rally on ... Roadblocks, weapons bans as Boston braces for 'Free Speech' rally AOL Thousands of Leftists Expected to Torpedo Boston Free Speech Rally Breitbart News Boston preps for rally touting free speech in wake of Charlottesville CNN International The Boston Globe - WCSH-TV - Heavy.com all 204 news articles »
 
 
 Full story on F3News: [The Latest: Fundraiser aims to counter 'free speech' rally - Washington Post](http://www.f3nws.com/n/VmEnBF)
