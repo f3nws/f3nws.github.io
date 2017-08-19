@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paris police evicts 2,500 migrants from makeshift camp under ‘new’ procedures (VIDEOS)"
-date: 2017-08-19 02:19:59Z
+date: 2017-08-19 02:19:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Almost 2,500 migrants of mainly African origin have been evicted from a makeshif
 
 Full story on F3News: [Paris police evicts 2,500 migrants from makeshift camp under ‘new’ procedures (VIDEOS)](http://www.f3nws.com/n/KFGjeG)
 
-> Posted on: Saturday, August 19, 2017 2:19:59 AM
+> Posted on: Saturday, August 19, 2017 2:19:00 AM
