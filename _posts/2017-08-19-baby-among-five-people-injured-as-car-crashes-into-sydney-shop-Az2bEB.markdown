@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Baby among five people injured as car crashes into Sydney shop](http://www.abc.net.au/news/image/8823792-1x1-700x700.jpg)
 
-NSW Police are treating a car crash at Chatswood Mall in Sydney's north shore as an accident with paramedics taking five people, including a baby, to hospital.
+NSW Police are treating a car crash at Chatswood Mall in Sydney's north shore as an accident, with paramedics taking five people, including a baby, to hospital.
 
 
 Full story on F3News: [Baby among five people injured as car crashes into Sydney shop](http://www.f3nws.com/n/Az2bEB)
