@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rubble of Barcelona plotters' hideout searched"
-date: 2017-08-19 11:12:24Z
+date: 2017-08-19 12:43:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Rubble of Barcelona plotters' hideout searched](http://www.f3nws.com/n/4XngtB)
 
-> Posted on: Saturday, August 19, 2017 11:12:24 AM
+> Posted on: Saturday, August 19, 2017 12:43:56 PM

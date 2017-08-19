@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American, Canadian, Italians among victims"
-date: 2017-08-19 12:03:48Z
+date: 2017-08-19 12:33:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Details of the victims of twin terror attacks in Spain are slowly emerging, with
 
 Full story on F3News: [American, Canadian, Italians among victims](http://www.f3nws.com/n/eekXME)
 
-> Posted on: Saturday, August 19, 2017 12:03:48 PM
+> Posted on: Saturday, August 19, 2017 12:33:39 PM

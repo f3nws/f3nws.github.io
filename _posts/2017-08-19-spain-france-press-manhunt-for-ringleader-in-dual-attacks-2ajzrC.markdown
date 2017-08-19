@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain, France press manhunt for ringleader in dual attacks"
-date: 2017-08-19 07:03:00Z
+date: 2017-08-19 08:48:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — Authorities in Spain and France pressed the search Sat
 
 Full story on F3News: [Spain, France press manhunt for ringleader in dual attacks](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 19, 2017 7:03:00 AM
+> Posted on: Saturday, August 19, 2017 8:48:00 AM
