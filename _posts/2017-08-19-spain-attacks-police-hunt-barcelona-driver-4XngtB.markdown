@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain attacks: Police hunt Barcelona driver"
-date: 2017-08-19 21:32:47Z
+date: 2017-08-19 22:20:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An international manhunt was underway Saturday for the driver of a van that kill
 
 Full story on F3News: [Spain attacks: Police hunt Barcelona driver](http://www.f3nws.com/n/4XngtB)
 
-> Posted on: Saturday, August 19, 2017 9:32:47 PM
+> Posted on: Saturday, August 19, 2017 10:20:24 PM
