@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police name fugitive suspected of killing 13 in Barcelona"
-date: 2017-08-19 10:57:54Z
+date: 2017-08-19 11:12:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Police name fugitive suspected of killing 13 in Barcelona](http://www.f3nws.com/n/4XngtB)
 
-> Posted on: Saturday, August 19, 2017 10:57:54 AM
+> Posted on: Saturday, August 19, 2017 11:12:24 AM
