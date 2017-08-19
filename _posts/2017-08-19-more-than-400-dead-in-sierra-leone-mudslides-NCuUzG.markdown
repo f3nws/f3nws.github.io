@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More than 400 dead in Sierra Leone mudslides"
-date: 2017-08-19 12:50:15Z
+date: 2017-08-19 18:19:33Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The death toll from this week's devastating mudslides in Sierra Leone has passed
 
 Full story on F3News: [More than 400 dead in Sierra Leone mudslides](http://www.f3nws.com/n/NCuUzG)
 
-> Posted on: Saturday, August 19, 2017 12:50:15 PM
+> Posted on: Saturday, August 19, 2017 6:19:33 PM
