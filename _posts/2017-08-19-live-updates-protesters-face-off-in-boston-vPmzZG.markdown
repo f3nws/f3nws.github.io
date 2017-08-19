@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Live updates: Protesters face off in Boston"
-date: 2017-08-19 18:06:14Z
+date: 2017-08-19 19:16:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A free speech rally is planned Saturday on Boston Common, a week after protests 
 
 Full story on F3News: [Live updates: Protesters face off in Boston](http://www.f3nws.com/n/vPmzZG)
 
-> Posted on: Saturday, August 19, 2017 6:06:14 PM
+> Posted on: Saturday, August 19, 2017 7:16:33 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US police officers shot in suspected ambush"
-date: 2017-08-19 18:40:42Z
+date: 2017-08-19 19:12:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Man charged in shooting death of Florida police officer CNN (CNN) A 46-year-
 
 Full story on F3News: [US police officers shot in suspected ambush](http://www.f3nws.com/n/WSueXF)
 
-> Posted on: Saturday, August 19, 2017 6:40:42 PM
+> Posted on: Saturday, August 19, 2017 7:12:58 PM
