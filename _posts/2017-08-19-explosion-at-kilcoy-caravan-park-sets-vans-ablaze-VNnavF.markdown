@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Explosion at Kilcoy caravan park sets vans ablaze](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-There has been a large explosion at a caravan park in Kilcoy with four vans on fire, with an emergency service spokesman saying it is unclear if people are missing.
+Six caravans are destroyed in a large explosion at a caravan park in Kilcoy, north - west of Brisbane.
 
 
 Full story on F3News: [Explosion at Kilcoy caravan park sets vans ablaze](http://www.f3nws.com/n/VNnavF)
