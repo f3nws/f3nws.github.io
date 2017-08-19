@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thousands join rival marches over free speech rally in Boston"
-date: 2017-08-19 18:11:31Z
+date: 2017-08-19 19:59:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Thousands join rival marches over free speech rally in Boston](http://www.f3nws.com/n/rbKJjH)
 
-> Posted on: Saturday, August 19, 2017 6:11:31 PM
+> Posted on: Saturday, August 19, 2017 7:59:50 PM
