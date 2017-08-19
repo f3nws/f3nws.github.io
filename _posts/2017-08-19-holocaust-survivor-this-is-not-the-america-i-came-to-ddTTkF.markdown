@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Holocaust survivor: This is not the America I came to"
-date: 2017-08-19 16:34:11Z
+date: 2017-08-19 18:26:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Holocaust survivor: This is not the America I came to](http://www.f3nws.com/n/ddTTkF)
 
-> Posted on: Saturday, August 19, 2017 4:34:11 PM
+> Posted on: Saturday, August 19, 2017 6:26:11 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pastor quits Trump's evangelical advisory board"
-date: 2017-08-19 08:13:17Z
+date: 2017-08-19 18:45:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Pastor quits Trump's evangelical advisory board](http://www.f3nws.com/n/nAFBKC)
 
-> Posted on: Saturday, August 19, 2017 8:13:17 AM
+> Posted on: Saturday, August 19, 2017 6:45:55 PM
