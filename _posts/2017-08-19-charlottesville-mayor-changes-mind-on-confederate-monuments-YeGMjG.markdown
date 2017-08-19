@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charlottesville mayor changes mind on Confederate monuments"
-date: 2017-08-19 15:22:35Z
+date: 2017-08-19 15:30:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Charlottesville mayor changes mind on Confederate monuments](http://www.f3nws.com/n/YeGMjG)
 
-> Posted on: Saturday, August 19, 2017 3:22:35 PM
+> Posted on: Saturday, August 19, 2017 3:30:30 PM

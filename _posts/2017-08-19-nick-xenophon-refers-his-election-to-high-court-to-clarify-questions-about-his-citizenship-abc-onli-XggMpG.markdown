@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Nick Xenophon refers his election to High Court to clarify questions about his citizenship - ABC Online](http://www.abc.net.au/news/image/8813864-1x1-700x700.jpg)
 
-ABC Online Nick Xenophon refers his election to High Court to clarify questions about his citizenship ABC Online Influential crossbench senator Nick Xenophon has announced he will refer his election to the High Court after discovering he has a form of British citizenship. Key points: Senator Xenophon says his father's background makes him a British overseas ... Nick Xenophon confirms British citizenship Sky News Australia South Australian Senator Nick Xenophon confirmed as a dual citizen of the United Kingdom The Advertiser Nick Xenophon joins list, takes aim over citizenship furore The Sydney Morning Herald The Australian - The New Daily - Pedestrian TV - SBS all 141 news articles »
+ABC Online Nick Xenophon refers his election to High Court to clarify questions about his citizenship ABC Online Influential crossbench senator Nick Xenophon has announced he will refer his election to the High Court after discovering he has a form of British citizenship. Key points: Senator Xenophon says his father's background makes him a British overseas ... Nick Xenophon confirms British citizenship Sky News Australia South Australian Senator Nick Xenophon confirmed as a dual citizen of the United Kingdom The Advertiser Nick Xenophon joins list, takes aim over citizenship furore The Sydney Morning Herald The Australian - The New Daily - Pedestrian TV - SBS all 142 news articles »
 
 
 Full story on F3News: [Nick Xenophon refers his election to High Court to clarify questions about his citizenship - ABC Online](http://www.f3nws.com/n/XggMpG)
