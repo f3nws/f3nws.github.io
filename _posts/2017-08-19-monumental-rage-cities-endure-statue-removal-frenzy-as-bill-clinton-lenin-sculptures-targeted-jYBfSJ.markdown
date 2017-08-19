@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Monumental rage: Cities endure statue removal frenzy, as Bill Clinton & Lenin sculptures targeted"
-date: 2017-08-19 02:52:48Z
+date: 2017-08-19 02:52:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ As US cities grapple with a national movement to take down Confederate monuments
 
 Full story on F3News: [Monumental rage: Cities endure statue removal frenzy, as Bill Clinton & Lenin sculptures targeted](http://www.f3nws.com/n/jYBfSJ)
 
-> Posted on: Saturday, August 19, 2017 2:52:48 AM
+> Posted on: Saturday, August 19, 2017 2:52:00 AM
