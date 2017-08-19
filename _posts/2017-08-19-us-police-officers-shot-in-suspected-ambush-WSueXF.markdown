@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "US police officers shot in suspected ambush"
-date: 2017-08-19 09:33:41Z
+date: 2017-08-19 14:47:02Z
 categories: cnn-com-top-stories
 ---
 
 ![US police officers shot in suspected ambush](http://i2.cdn.cnn.com/cnnnext/dam/assets/170819013029-chief-odell-super-tease.jpg)
 
-CNN Florida officer shot dead, another one hurt in possible ambush, police say CNN (CNN) A Florida officer was shot dead and another one critically injured in Kissimmee while two others were hurt by gunfire in a separate incident in the state, authorities said. The incident in the central city of Kissimmee may have been an ambush ... Officer Is Killed and Another Is Gravely Wounded in Kissimmee, Fla., Shooting New York Times Kissimmee officer shot, killed in possible ambush, police say CBS News 1 police officer killed, 3 injured in 2 shootings in Florida Washington Post NPR - New York Daily News - WPXI Pittsburgh - U.S. News & World Report all 137 news articles »
+CNN Man charged in shooting death of Florida police officer CNN (CNN) A 46-year-old man has been charged with first-degree murder in the shooting death of a police officer in the central Florida city of Kissimmee, Police Chief Jeff O'Dell said Saturday. Police charged Everett Glenn Miller in the killing of ... 1 police officer killed, 5 others injured in 3 shootings in Florida and Pennsylvania CBS News Suspect arrested in killing, wounding of Fla. officers Washington Post Suspect charged in slaying of Florida police officer and gravely wounding another New York Daily News NBCNews.com - Politico - New York Post - WSB Atlanta all 188 news articles »
 
 
 Full story on F3News: [US police officers shot in suspected ambush](http://www.f3nws.com/n/WSueXF)
 
-> Posted on: Saturday, August 19, 2017 9:33:41 AM
+> Posted on: Saturday, August 19, 2017 2:47:02 PM
