@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Wreckage of USS Indianapolis, Lost for 72 Years, Is Found in the Pacific - New York Times](https://static01.nyt.com/images/2017/08/21/world/21indianapolis/21indianapolis-facebookJumbo.jpg)
 
-New York Times Wreckage of USS Indianapolis, Lost for 72 Years, Is Found in the Pacific New York Times The cruiser Indianapolis off Mare Island, Calif., on July 10, 1945, weeks before it was sunk by a Japanese torpedo. Researchers have found its wreckage. Credit United States Navy. In the 72 years since the Indianapolis, a United States Navy cruiser ... Microsoft Co-founder's Team Finds Wreckage of WWII-Era USS Indianapolis NBCNews.com Researchers find wreckage of famed Navy cruiser Indianapolis, sunk in 1945 Los Angeles Times Wreckage Of USS Indianapolis, Sunk By Japanese In WWII, Found In Pacific NPR KOMO News - The Verge - HuffPost - whnt.com all 130 news articles »
+New York Times Wreckage of USS Indianapolis, Lost for 72 Years, Is Found in the Pacific New York Times The cruiser Indianapolis off Mare Island, Calif., on July 10, 1945, weeks before it was sunk by a Japanese torpedo. Researchers have found its wreckage. Credit United States Navy. In the 72 years since the Indianapolis, a United States Navy cruiser ... USS Indianapolis discovered 18000 feet below Pacific surface wtkr.com Lost WW2 warship USS Indianapolis found after 72 years BBC News Researchers find wreckage of famed Navy cruiser Indianapolis, sunk in 1945 Los Angeles Times NPR - The Verge - CBS News - HuffPost all 130 news articles »
 
 
 Full story on F3News: [Wreckage of USS Indianapolis, Lost for 72 Years, Is Found in the Pacific - New York Times](http://www.f3nws.com/n/nxAqCF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung Galaxy Note 8 Release Date, Price and Specs     - CNET"
-date: 2017-08-20 12:00:27Z
+date: 2017-08-20 18:45:45Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ The company could not have more riding on the successor to the Note 7, which was
 
 Full story on F3News: [Samsung Galaxy Note 8 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/ygkUeG)
 
-> Posted on: Sunday, August 20, 2017 12:00:27 PM
+> Posted on: Sunday, August 20, 2017 6:45:45 PM
