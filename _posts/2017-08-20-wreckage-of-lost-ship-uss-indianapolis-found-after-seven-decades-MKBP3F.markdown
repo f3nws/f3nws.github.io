@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wreckage of lost ship USS Indianapolis found after seven decades"
-date: 2017-08-20 03:12:03Z
+date: 2017-08-20 06:47:13Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ Researchers announced Saturday they discovered wreckage of the lost warship the 
 
 Full story on F3News: [Wreckage of lost ship USS Indianapolis found after seven decades](http://www.f3nws.com/n/MKBP3F)
 
-> Posted on: Sunday, August 20, 2017 3:12:03 AM
+> Posted on: Sunday, August 20, 2017 6:47:13 AM
