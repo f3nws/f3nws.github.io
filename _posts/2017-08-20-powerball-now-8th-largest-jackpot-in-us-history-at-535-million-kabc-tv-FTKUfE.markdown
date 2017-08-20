@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Powerball now 8th largest jackpot in US history at $535 million - KABC-TV](http://cdn.abclocal.go.com/content/kabc/images/cms/automation/vod/2326399_1280x720.jpg)
 
-KABC-TV Powerball now 8th largest jackpot in US history at $535 million KABC-TV Lotto fever is alive in well in Los Angeles and all over the country as people take a chance at winning the more than half a million Powerball jackpot. (KABC). KABC. By Darsha Philips. Saturday, August 19, 2017 05:16PM. LOS ANGELES (KABC) --. Lotto ... Powerball players have chance at $535 million jackpot Fox News Powerball winning numbers announced for $535 million jackpot WTVM Feeling lucky? There's a $535M Powerball drawing tonight WNEM Saginaw WXYZ - 10News all 160 news articles »
+KABC-TV Powerball now 8th largest jackpot in US history at $535 million KABC-TV Lotto fever is alive in well in Los Angeles and all over the country as people take a chance at winning the more than half a million Powerball jackpot. (KABC). KABC. By Darsha Philips. Saturday, August 19, 2017 06:42PM. LOS ANGELES (KABC) --. Lotto ... Powerball players have chance at $535 million jackpot Fox News Powerball And Mega Millions: What Are The Odds Of winning? WFMY News 2 Powerball jackpot up to $535 million NEWS10 ABC MLive.com - WXYZ - The Inquisitr all 162 news articles »
 
 
 Full story on F3News: [Powerball now 8th largest jackpot in US history at $535 million - KABC-TV](http://www.f3nws.com/n/FTKUfE)
