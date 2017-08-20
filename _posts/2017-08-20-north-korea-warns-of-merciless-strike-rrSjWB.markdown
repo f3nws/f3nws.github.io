@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea warns of 'merciless strike'"
-date: 2017-08-20 08:14:36Z
+date: 2017-08-20 10:03:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea warned Sunday that the upcoming US-South Korea military exercises ar
 
 Full story on F3News: [North Korea warns of 'merciless strike'](http://www.f3nws.com/n/rrSjWB)
 
-> Posted on: Sunday, August 20, 2017 8:14:36 AM
+> Posted on: Sunday, August 20, 2017 10:03:48 AM

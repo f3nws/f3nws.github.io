@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Barcelona attack: Royals attend special Mass for victims - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/BAD1/production/_97452874_041168035-1.jpg)
 
-BBC News Barcelona attack: Royals attend special Mass for victims BBC News King Felipe and Queen Letizia are attending Barcelona's famous Sagrada Familia to mourn the 14 people killed in vehicle attacks in Catalonia. Police are still hunting the driver of a van that killed 13 at Barcelona's Las Ramblas. A 14th victim died in ... The Latest: Solemn Mass for attack victims held in Barcelona Washington Post Spain hunts for driver in van rampage, says Islamist cell dismantled Reuters Spain Looking for Moroccan Man in Barcelona Attack Investigation New York Times CNN - Pittsburgh Post-Gazette - Irish Examiner - Bloomberg all 6,834 news articles »
+BBC News Barcelona attack: Royals attend special Mass for victims BBC News King Felipe and Queen Letizia are attending Barcelona's famous Sagrada Familia to mourn the 14 people killed in vehicle attacks in Catalonia. Police are still hunting the driver of a van that killed 13 at Barcelona's Las Ramblas. A 14th victim died in ... How a dozen young men from a small town secretly plotted the deadliest terrorist attack in Spain in more than a decade Washington Post Australian PM urges developers to design protection from vehicle attacks New York Daily News Spain hunts for driver in van rampage, says Islamist cell dismantled Reuters CNN - New York Times - U.S. News & World Report - Northwest Arkansas Democrat-Gazette all 7,184 news articles »
 
 
 Full story on F3News: [Barcelona attack: Royals attend special Mass for victims - BBC News](http://www.f3nws.com/n/HBcJVE)
