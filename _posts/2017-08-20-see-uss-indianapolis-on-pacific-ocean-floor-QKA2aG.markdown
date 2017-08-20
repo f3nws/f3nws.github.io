@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "See USS Indianapolis on Pacific Ocean floor"
-date: 2017-08-20 00:56:31Z
+date: 2017-08-20 01:59:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The remains of the USS Indianapolis, which delivered parts of the atomic bomb dr
 
 Full story on F3News: [See USS Indianapolis on Pacific Ocean floor](http://www.f3nws.com/n/QKA2aG)
 
-> Posted on: Sunday, August 20, 2017 12:56:31 AM
+> Posted on: Sunday, August 20, 2017 1:59:08 AM
