@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to skip Kennedy Center Honors"
-date: 2017-08-20 14:54:43Z
+date: 2017-08-20 14:57:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump to skip Kennedy Center Honors](http://www.f3nws.com/n/FMtAQC)
 
-> Posted on: Sunday, August 20, 2017 2:54:43 PM
+> Posted on: Sunday, August 20, 2017 2:57:45 PM
