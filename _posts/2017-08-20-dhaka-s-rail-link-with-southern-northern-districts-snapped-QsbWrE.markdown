@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dhaka's rail link with southern, northern districts snapped"
-date: 2017-08-20 04:01:45Z
+date: 2017-08-20 05:41:47Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Dhaka's rail link with southern, northern districts snapped](http://www.f3nws.com/n/QsbWrE)
 
-> Posted on: Sunday, August 20, 2017 4:01:45 AM
+> Posted on: Sunday, August 20, 2017 5:41:47 AM
