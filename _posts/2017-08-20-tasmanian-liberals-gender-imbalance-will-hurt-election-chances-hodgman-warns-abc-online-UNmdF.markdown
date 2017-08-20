@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Tasmanian Liberals' gender imbalance will hurt election chances, Hodgman warns - ABC Online](http://www.abc.net.au/news/image/8824642-1x1-700x700.jpg)
 
-ABC Online Tasmanian Liberals' gender imbalance will hurt election chances, Hodgman warns ABC Online A Tasmanian Liberal Party member who led an internal review of the party's engagement with women says it was "sobering" to see the extent of the gender imbalance, with the Premier warning it will hurt come election day. Party faithful have been ... PM talks up Hobart City Deal and renewable energy dailytelegraph.com.au Lines drawn ahead of Tasmanian election 9news.com.au Turnbull promotes green-powered Tasmania Sky News Australia The Mercury all 6 news articles »
+ABC Online Tasmanian Liberals' gender imbalance will hurt election chances, Hodgman warns ABC Online A Tasmanian Liberal Party member who led an internal review of the party's engagement with women says it was "sobering" to see the extent of the gender imbalance, with the Premier warning it will hurt come election day. Party faithful have been ... Malcolm Turnbull's prime ministership saved by Liberals' shaky grip on power Herald Sun Lines drawn ahead of Tasmanian election 9news.com.au Turnbull promotes green-powered Tasmania Sky News Australia all 14 news articles »
 
 
 Full story on F3News: [Tasmanian Liberals' gender imbalance will hurt election chances, Hodgman warns - ABC Online](http://www.f3nws.com/n/UNmdF)

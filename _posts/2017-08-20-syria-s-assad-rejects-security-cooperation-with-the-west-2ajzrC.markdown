@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria's Assad rejects security cooperation with the West"
-date: 2017-08-20 09:42:00Z
+date: 2017-08-20 10:47:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DAMASCUS, Syria (AP) — Syrian President Bashar Assad on Sunday refused any sec
 
 Full story on F3News: [Syria's Assad rejects security cooperation with the West](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 20, 2017 9:42:00 AM
+> Posted on: Sunday, August 20, 2017 10:47:00 AM
