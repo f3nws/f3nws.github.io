@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona’s iconic Sagrada Familia was prime target of terrorists’ botched bombing plot – report"
-date: 2017-08-20 01:17:53Z
+date: 2017-08-20 01:17:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Catalonian terrorist cell, responsible for the twin attacks in Barcelona and
 
 Full story on F3News: [Barcelona’s iconic Sagrada Familia was prime target of terrorists’ botched bombing plot – report](http://www.f3nws.com/n/XnrNhG)
 
-> Posted on: Sunday, August 20, 2017 1:17:53 AM
+> Posted on: Sunday, August 20, 2017 1:17:00 AM

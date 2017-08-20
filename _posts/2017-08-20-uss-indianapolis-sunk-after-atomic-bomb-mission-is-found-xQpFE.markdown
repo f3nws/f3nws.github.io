@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USS Indianapolis, sunk after atomic bomb mission, is found"
-date: 2017-08-20 04:45:03Z
+date: 2017-08-20 05:02:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's been 72 years since the USS Indianapolis went missing after a Japanese subm
 
 Full story on F3News: [USS Indianapolis, sunk after atomic bomb mission, is found](http://www.f3nws.com/n/xQpFE)
 
-> Posted on: Sunday, August 20, 2017 4:45:03 AM
+> Posted on: Sunday, August 20, 2017 5:02:00 AM

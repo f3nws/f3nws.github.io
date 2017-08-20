@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dick Gregory, activist, comedian, dead at 84"
-date: 2017-08-20 04:36:45Z
+date: 2017-08-20 05:11:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Comedian and civil rights activist Dick Gregory died Saturday at the age of 84, 
 
 Full story on F3News: [Dick Gregory, activist, comedian, dead at 84](http://www.f3nws.com/n/UsEUHC)
 
-> Posted on: Sunday, August 20, 2017 4:36:45 AM
+> Posted on: Sunday, August 20, 2017 5:11:36 AM

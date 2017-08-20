@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two men dead after racing track crash in Queensland - 9news.com.au"
-date: 2017-08-20 04:23:00Z
+date: 2017-08-20 04:26:32Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ categories: google-news-australia
 
 Full story on F3News: [Two men dead after racing track crash in Queensland - 9news.com.au](http://www.f3nws.com/n/h32Uf)
 
-> Posted on: Sunday, August 20, 2017 4:23:00 AM
+> Posted on: Sunday, August 20, 2017 4:26:32 AM
