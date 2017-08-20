@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Surrender or die’: Iraq launches operation to retake ISIS-held Tal Afar near Mosul"
-date: 2017-08-20 00:39:13Z
+date: 2017-08-20 00:39:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Iraq's military have launched an operation to liberate the city of Tal Afar, som
 
 Full story on F3News: [‘Surrender or die’: Iraq launches operation to retake ISIS-held Tal Afar near Mosul](http://www.f3nws.com/n/asJEgG)
 
-> Posted on: Sunday, August 20, 2017 12:39:13 AM
+> Posted on: Sunday, August 20, 2017 12:39:00 AM
