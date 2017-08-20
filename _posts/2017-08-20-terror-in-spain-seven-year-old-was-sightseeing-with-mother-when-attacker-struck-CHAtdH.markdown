@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terror in Spain: Seven-year-old was sightseeing with mother when attacker struck"
-date: 2017-08-20 15:33:44Z
+date: 2017-08-20 18:56:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Terror in Spain: Seven-year-old was sightseeing with mother when attacker struck](http://www.f3nws.com/n/CHAtdH)
 
-> Posted on: Sunday, August 20, 2017 3:33:44 PM
+> Posted on: Sunday, August 20, 2017 6:56:04 PM
