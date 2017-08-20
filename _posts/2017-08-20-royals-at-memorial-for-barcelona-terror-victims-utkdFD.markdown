@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Royals at memorial for Barcelona terror victims"
-date: 2017-08-20 13:00:55Z
+date: 2017-08-20 13:49:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spain united in grief Sunday as hundreds gathered at the famous Sagrada Familia 
 
 Full story on F3News: [Royals at memorial for Barcelona terror victims](http://www.f3nws.com/n/utkdFD)
 
-> Posted on: Sunday, August 20, 2017 1:00:55 PM
+> Posted on: Sunday, August 20, 2017 1:49:47 PM
