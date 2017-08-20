@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Routed Windies to ‘look in the mirror’: Holder"
-date: 2017-08-20 04:50:06Z
+date: 2017-08-20 06:06:49Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Routed Windies to ‘look in the mirror’: Holder](http://www.f3nws.com/n/yBCWuF)
 
-> Posted on: Sunday, August 20, 2017 4:50:06 AM
+> Posted on: Sunday, August 20, 2017 6:06:49 AM
