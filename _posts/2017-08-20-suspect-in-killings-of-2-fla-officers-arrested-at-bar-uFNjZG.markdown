@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect in killings of 2 Fla. officers arrested at bar"
-date: 2017-08-20 00:42:07Z
+date: 2017-08-20 02:23:35Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ KISSIMMEE, Fla. (AP) — A police officer in Florida died from his injuries Satu
 
 Full story on F3News: [Suspect in killings of 2 Fla. officers arrested at bar](http://www.f3nws.com/n/uFNjZG)
 
-> Posted on: Sunday, August 20, 2017 12:42:07 AM
+> Posted on: Sunday, August 20, 2017 2:23:35 AM
