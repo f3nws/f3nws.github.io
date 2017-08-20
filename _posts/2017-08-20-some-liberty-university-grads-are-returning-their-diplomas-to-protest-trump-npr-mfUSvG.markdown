@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Some Liberty University Grads Are Returning Their Diplomas To Protest Trump - NPR"
+date: 2017-08-20 11:02:01Z
+categories: google-news-top-stories
+---
+
+![Some Liberty University Grads Are Returning Their Diplomas To Protest Trump - NPR](https://media.npr.org/assets/img/2017/08/20/gettyimages-682660058_wide-51483c39d61d91bec0c7d8bc300794a373cfa879.jpg?s=1400)
+
+NPR Some Liberty University Grads Are Returning Their Diplomas To Protest Trump NPR A group of alumni from one of the country's most influential evangelical Christian universities is condemning their school's president for his continued alignment with President Trump. A small but growing number of Liberty University graduates are ... Trump has 'inside information' on who protested in Charlottesville, says Falwell Jr. in defense of president ABC News Jerry Falwell Jr. defends Trump's 'many sides' comment New York Post Megachurch Pastor Bails On Trump's Evangelical Advisory Board Citing 'Conflict In Values' The Daily Caller CBN News - Twitter - Twitter - Facebook all 100 news articles »
+
+
+Full story on F3News: [Some Liberty University Grads Are Returning Their Diplomas To Protest Trump - NPR](http://www.f3nws.com/n/mfUSvG)
+
+> Posted on: Sunday, August 20, 2017 11:02:01 AM

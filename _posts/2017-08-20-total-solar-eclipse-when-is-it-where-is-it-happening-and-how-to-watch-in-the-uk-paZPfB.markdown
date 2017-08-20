@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Total solar eclipse: When is it, where is it happening and how to watch in the UK"
-date: 2017-08-20 12:32:41Z
+date: 2017-08-20 16:26:30Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ What's happening? On Monday, August 21, 2017, all of North America will witnessÂ
 
 Full story on F3News: [Total solar eclipse: When is it, where is it happening and how to watch in the UK](http://www.f3nws.com/n/paZPfB)
 
-> Posted on: Sunday, August 20, 2017 12:32:41 PM
+> Posted on: Sunday, August 20, 2017 4:26:30 PM
