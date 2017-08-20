@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Protesters Flood Streets, and Trump Offers a Measure of Praise - New York Times](https://static01.nyt.com/images/2017/08/19/us/19PROTEST-01/19PROTEST-01-facebookJumbo.jpg)
 
-New York Times Protesters Flood Streets, and Trump Offers a Measure of Praise New York Times Demonstrators poured into the nation's streets and parks over the weekend to denounce white supremacy and Nazism, one week after clashes between far-right demonstrators and counterprotesters in Charlottesville, Va., turned deadly. By DAPHNE ... Boston Police Avoid Damage and Injuries During Rallies and Protests NBCNews.com Boston 'free speech' rally overwhelmed by counter-protesters Politico Counterprotesters dwarf controversial rally in Boston CNN Washington Post - Los Angeles Times - The Atlantic - New York Daily News all 708 news articles »
+New York Times Protesters Flood Streets, and Trump Offers a Measure of Praise New York Times Demonstrators poured into the nation's streets and parks over the weekend to denounce white supremacy and Nazism, one week after clashes between far-right demonstrators and counterprotesters in Charlottesville, Va., turned deadly. By DAPHNE ... AP News in Brief at 12:04 am EDT Washington Post Boston Police Avoid Damage and Injuries During Rallies and Protests NBCNews.com Boston 'free speech' rally overwhelmed by counter-protesters Politico CNN - Los Angeles Times - The Atlantic - New York Daily News all 724 news articles »
 
 
 Full story on F3News: [Protesters Flood Streets, and Trump Offers a Measure of Praise - New York Times](http://www.f3nws.com/n/fUT3dC)
