@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![WWE NXT 'Takeover: Brooklyn III' Results - Big Debut, New Champions Crowned, Asuka Retains, More - Wrestling Inc.](http://i1.ytimg.com/vi/AFtwBZOGExY/mqdefault.jpg)
 
-Wrestling Inc. WWE NXT 'Takeover: Brooklyn III' Results - Big Debut, New Champions Crowned, Asuka Retains, More Wrestling Inc. Welcome to our WrestlingINC.com Live WWE NXT "Takeover: Brooklyn III" Viewing Party. We will be providing live ongoing coverage of tonight's Takeover, while you all can chime in with your thoughts throughout the show. Please help spread word of ... Adam Cole Makes NXT Debut at NXT TakeOver: Brooklyn III, Attacks Drew McIntyre Bleacher Report NXT Takeover: Brooklyn 3 results: New champions and new challengers SB Nation NXT TakeOver: Brooklyn III match recaps and ratings ESPN Cageside Seats (blog) - Wrestlezone - CBSSports.com - Daily DDT all 244 news articles »
+Wrestling Inc. WWE NXT 'Takeover: Brooklyn III' Results - Big Debut, New Champions Crowned, Asuka Retains, More Wrestling Inc. Welcome to our WrestlingINC.com Live WWE NXT "Takeover: Brooklyn III" Viewing Party. We will be providing live ongoing coverage of tonight's Takeover, while you all can chime in with your thoughts throughout the show. Please help spread word of ... NXT TakeOver: Brooklyn III: Winners, Grades, Reaction and Highlights Bleacher Report NXT Takeover: Brooklyn 3 results: New champions and new challengers SB Nation NXT TakeOver: Brooklyn III Results UPROXX ESPN - 411mania.com - Cageside Seats (blog) - Wrestlezone all 265 news articles »
 
 
 Full story on F3News: [WWE NXT 'Takeover: Brooklyn III' Results - Big Debut, New Champions Crowned, Asuka Retains, More - Wrestling Inc.](http://www.f3nws.com/n/FHM3ED)
