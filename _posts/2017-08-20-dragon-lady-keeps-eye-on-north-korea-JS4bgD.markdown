@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dragon Lady' keeps eye on North Korea"
-date: 2017-08-20 03:19:45Z
+date: 2017-08-20 11:02:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The first flight takes off from Osan Air Base just after daybreak, ascending hig
 
 Full story on F3News: ['Dragon Lady' keeps eye on North Korea](http://www.f3nws.com/n/JS4bgD)
 
-> Posted on: Sunday, August 20, 2017 3:19:45 AM
+> Posted on: Sunday, August 20, 2017 11:02:59 AM
