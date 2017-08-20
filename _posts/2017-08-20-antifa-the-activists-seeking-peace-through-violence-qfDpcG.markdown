@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Antifa: The activists seeking peace through violence"
-date: 2017-08-20 01:47:03Z
+date: 2017-08-20 15:58:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Antifa: The activists seeking peace through violence](http://www.f3nws.com/n/qfDpcG)
 
-> Posted on: Sunday, August 20, 2017 1:47:03 AM
+> Posted on: Sunday, August 20, 2017 3:58:08 PM

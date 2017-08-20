@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2022 Volkswagen I.D. Buzz Release Date, Price and Specs     - Roadshow"
-date: 2017-08-20 02:24:08Z
+date: 2017-08-20 16:08:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The I.D. Buzz was one of the most widely loved concepts we've seen in years, but
 
 Full story on F3News: [2022 Volkswagen I.D. Buzz Release Date, Price and Specs     - Roadshow](http://www.f3nws.com/n/umYmAG)
 
-> Posted on: Sunday, August 20, 2017 2:24:08 AM
+> Posted on: Sunday, August 20, 2017 4:08:43 PM
