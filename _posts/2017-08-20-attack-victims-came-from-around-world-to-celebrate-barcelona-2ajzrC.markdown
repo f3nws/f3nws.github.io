@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Attack victims came from around world to celebrate Barcelona"
-date: 2017-08-20 08:33:00Z
+date: 2017-08-20 11:48:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — The victims of attacks in Barcelona and a nearby resor
 
 Full story on F3News: [Attack victims came from around world to celebrate Barcelona](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, August 20, 2017 8:33:00 AM
+> Posted on: Sunday, August 20, 2017 11:48:00 AM
