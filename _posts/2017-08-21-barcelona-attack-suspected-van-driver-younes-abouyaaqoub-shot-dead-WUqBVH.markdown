@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona attack: Suspected van driver Younes Abouyaaqoub shot dead"
-date: 2017-08-21 19:23:00Z
+date: 2017-08-21 20:35:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man suspected of killing 13 people and injuring 120 others when he plowed hi
 
 Full story on F3News: [Barcelona attack: Suspected van driver Younes Abouyaaqoub shot dead](http://www.f3nws.com/n/WUqBVH)
 
-> Posted on: Monday, August 21, 2017 7:23:00 PM
+> Posted on: Monday, August 21, 2017 8:35:54 PM
