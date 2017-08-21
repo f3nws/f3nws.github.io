@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing journalist 'died in accident' on submarine, owner says"
-date: 2017-08-21 11:18:44Z
+date: 2017-08-21 12:02:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Swedish journalist Kim Wall, missing since August 11 after boarding a privately 
 
 Full story on F3News: [Missing journalist 'died in accident' on submarine, owner says](http://www.f3nws.com/n/QYQx3D)
 
-> Posted on: Monday, August 21, 2017 11:18:44 AM
+> Posted on: Monday, August 21, 2017 12:02:18 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 Things to Know for Today"
-date: 2017-08-21 07:20:00Z
+date: 2017-08-21 08:05:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Your daily look at late-breaking news, upcoming events and the stories that will
 
 Full story on F3News: [10 Things to Know for Today](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 21, 2017 7:20:00 AM
+> Posted on: Monday, August 21, 2017 8:05:00 AM

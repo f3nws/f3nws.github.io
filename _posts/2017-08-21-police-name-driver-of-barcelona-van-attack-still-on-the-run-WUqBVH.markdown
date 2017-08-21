@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police name driver of Barcelona van attack still on the run"
-date: 2017-08-21 11:49:11Z
+date: 2017-08-21 11:57:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man suspected of killing 13 people and injuring 120 others when he plowed hi
 
 Full story on F3News: [Police name driver of Barcelona van attack still on the run](http://www.f3nws.com/n/WUqBVH)
 
-> Posted on: Monday, August 21, 2017 11:49:11 AM
+> Posted on: Monday, August 21, 2017 11:57:49 AM
