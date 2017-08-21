@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ten sailors missing after US destroyer collision off Singapore"
-date: 2017-08-21 03:40:44Z
+date: 2017-08-21 05:00:47Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ Ten US sailors were missing and five injured Monday after their destroyer collid
 
 Full story on F3News: [Ten sailors missing after US destroyer collision off Singapore](http://www.f3nws.com/n/EMVRdF)
 
-> Posted on: Monday, August 21, 2017 3:40:44 AM
+> Posted on: Monday, August 21, 2017 5:00:47 AM
