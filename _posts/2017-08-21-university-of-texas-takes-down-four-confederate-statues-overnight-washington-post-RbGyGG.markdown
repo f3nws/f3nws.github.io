@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![University of Texas takes down four Confederate statues overnight - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-08-21/AP/APTOPIX_Confederate_Statues_Texas_39768-2383a.jpg?t=20170517)
 
-Washington Post University of Texas takes down four Confederate statues overnight Washington Post The University of Texas removed four Confederate statues from its Austin campus early Monday morning, amid growing pressure to take down such monuments in the wake of racist violence in Charlottesville. University president Gregory L. Fenves ... University of Texas Removes Confederate Statues From Its Main Campus HuffPost University of Texas at Austin Removes Confederate Statues in Overnight Operation New York Times Confederate Statues Come Down At The University Of Texas NPR ABC News - CNN - Texas Tribune - BBC News all 130 news articles »
+Washington Post University of Texas takes down four Confederate statues overnight Washington Post The University of Texas removed four Confederate statues from its Austin campus early Monday morning, amid growing pressure to take down such monuments in the wake of racist violence in Charlottesville. University president Gregory L. Fenves ... University of Texas Removes Confederate Statues From Its Main Campus HuffPost University of Texas at Austin Removes Confederate Statues in Overnight Operation New York Times Confederate Statues Come Down At The University Of Texas NPR Texas Tribune - CBS News - CNN - BBC News all 136 news articles »
 
 
 Full story on F3News: [University of Texas takes down four Confederate statues overnight - Washington Post](http://www.f3nws.com/n/RbGyGG)
