@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea warns of 'merciless strike'"
-date: 2017-08-21 17:26:56Z
+date: 2017-08-21 21:27:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN North Korea warns of 'merciless strike' ahead of US-South Korea drills CNN (
 
 Full story on F3News: [North Korea warns of 'merciless strike'](http://www.f3nws.com/n/rrSjWB)
 
-> Posted on: Monday, August 21, 2017 5:26:56 PM
+> Posted on: Monday, August 21, 2017 9:27:56 PM
