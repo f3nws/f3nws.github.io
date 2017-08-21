@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jerry Lewis dies at 91, publicist says"
-date: 2017-08-21 02:16:21Z
+date: 2017-08-21 03:32:31Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jerry Lewis, the slapstick-loving comedian, innovative filmmaker and generous fu
 
 Full story on F3News: [Jerry Lewis dies at 91, publicist says](http://www.f3nws.com/n/4vCmqF)
 
-> Posted on: Monday, August 21, 2017 2:16:21 AM
+> Posted on: Monday, August 21, 2017 3:32:31 AM

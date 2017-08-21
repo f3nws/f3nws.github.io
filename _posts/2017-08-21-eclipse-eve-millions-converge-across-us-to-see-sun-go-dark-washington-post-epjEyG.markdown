@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eclipse eve: Millions converge across US to see sun go dark - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2017-08-21/AP/Images/Elicpse_Oregon_52944.jpg-21035.jpg?t=20170517)
 
-Washington Post Eclipse eve: Millions converge across US to see sun go dark Washington Post Millions of Americans converged on a narrow corridor stretching from Oregon to South Carolina to watch the moon blot out the midday sun Monday for a wondrous couple of minutes in the first total solar eclipse to sweep coast to coast in 99 years ... In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now SFGate How to photograph the eclipse with your phone CNET Before a Solar Eclipse Crosses 14 States, a Great American Road Trip New York Times The Mercury News - Boston.com - The Advocate - The Tennessean all 1,400 news articles »
+Washington Post Eclipse eve: Millions converge across US to see sun go dark Washington Post Millions of Americans converged on a narrow corridor stretching from Oregon to South Carolina to watch the moon blot out the midday sun Monday for a wondrous couple of minutes in the first total solar eclipse to sweep coast to coast in 99 years ... In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now SFGate Before a Solar Eclipse Crosses 14 States, a Great American Road Trip New York Times How to photograph the eclipse with your phone CNET The Mercury News - Boston.com - USA TODAY - The Tennessean all 1,478 news articles »
 
 
 Full story on F3News: [Eclipse eve: Millions converge across US to see sun go dark - Washington Post](http://www.f3nws.com/n/epjEyG)
