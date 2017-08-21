@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barcelona attacker evaded police capture by ramming through checkpoint"
-date: 2017-08-21 11:57:49Z
+date: 2017-08-21 13:26:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man suspected of killing 13 people and injuring 120 others when he plowed hi
 
 Full story on F3News: [Barcelona attacker evaded police capture by ramming through checkpoint](http://www.f3nws.com/n/WUqBVH)
 
-> Posted on: Monday, August 21, 2017 11:57:49 AM
+> Posted on: Monday, August 21, 2017 1:26:25 PM

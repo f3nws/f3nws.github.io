@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to Americans: Trust me on Afganistan"
-date: 2017-08-21 12:27:16Z
+date: 2017-08-21 13:06:14Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump will ask Americans Monday to trust him on his new Afghanistan strat
 
 Full story on F3News: [Trump to Americans: Trust me on Afganistan](http://www.f3nws.com/n/bcVbMG)
 
-> Posted on: Monday, August 21, 2017 12:27:16 PM
+> Posted on: Monday, August 21, 2017 1:06:14 PM
