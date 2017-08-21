@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now - SFGate](http://ww4.hdnux.com/photos/64/71/25/13866343/3/rawImage.jpg)
 
-SFGate In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now SFGate Ashley Ann Sander, left, and Alexandra Dowling hawk solar eclipse glasses for $10 a pair on the side of the road to tourists approaching Clayton, Ga., Sunday, Aug. 20, 2017. Clayton is in the path of totality ... more. Photo: Curtis Compton, Associated ... Before a Solar Eclipse Crosses 14 States, a Great American Road Trip New York Times Solar Eclipse 2017: Last minute tips on glasses, viewing parties and pictures The Tennessean Traffic still moving as solar eclipse approaches San Francisco Chronicle The Spokesman-Review - Patch.com - Herald-Mail Media - Yahoo News all 1,338 news articles »
+SFGate In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now SFGate Ashley Ann Sander, left, and Alexandra Dowling hawk solar eclipse glasses for $10 a pair on the side of the road to tourists approaching Clayton, Ga., Sunday, Aug. 20, 2017. Clayton is in the path of totality ... more. Photo: Curtis Compton, Associated ... Before a Solar Eclipse Crosses 14 States, a Great American Road Trip New York Times Solar Eclipse 2017: Last minute tips on glasses, viewing parties and pictures The Tennessean Traffic still moving as solar eclipse approaches San Francisco Chronicle Herald-Mail Media - Patch.com - Yahoo News - Madison.com all 1,339 news articles »
 
 
 Full story on F3News: [In totality's path, eclipse mania overshadows fears of Eclipsemageddon - for now - SFGate](http://www.f3nws.com/n/EJTUAJ)
