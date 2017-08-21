@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US and S. Korean troops start drills amid N. Korea standoff"
-date: 2017-08-21 02:16:00Z
+date: 2017-08-21 03:02:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — U.S. and South Korean troops kicked off their annual
 
 Full story on F3News: [US and S. Korean troops start drills amid N. Korea standoff](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 21, 2017 2:16:00 AM
+> Posted on: Monday, August 21, 2017 3:02:00 AM

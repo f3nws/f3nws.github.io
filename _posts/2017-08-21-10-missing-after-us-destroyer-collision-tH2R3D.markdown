@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 missing after US destroyer collision"
-date: 2017-08-21 06:34:38Z
+date: 2017-08-21 07:02:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ten US Navy sailors are missing after a US Navy guided-missile destroyer collide
 
 Full story on F3News: [10 missing after US destroyer collision](http://www.f3nws.com/n/tH2R3D)
 
-> Posted on: Monday, August 21, 2017 6:34:38 AM
+> Posted on: Monday, August 21, 2017 7:02:30 AM
