@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Secret Service can't pay agents to protect Trump and family"
-date: 2017-08-21 13:23:10Z
+date: 2017-08-21 14:45:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Secret Service cannot pay hundreds of agents to protect President Donald Tru
 
 Full story on F3News: [Secret Service can't pay agents to protect Trump and family](http://www.f3nws.com/n/cDaKuE)
 
-> Posted on: Monday, August 21, 2017 1:23:10 PM
+> Posted on: Monday, August 21, 2017 2:45:19 PM
