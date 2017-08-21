@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 sailors missing in collision between US warship, tanker"
-date: 2017-08-21 01:26:00Z
+date: 2017-08-21 02:36:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SINGAPORE (AP) — Ten U.S. sailors are missing after a collision between the US
 
 Full story on F3News: [10 sailors missing in collision between US warship, tanker](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 21, 2017 1:26:00 AM
+> Posted on: Monday, August 21, 2017 2:36:00 AM

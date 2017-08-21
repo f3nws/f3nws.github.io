@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Boy charged with manslaughter after hit-and-run that killed Lucy Paveley at Parafield - ABC Online](http://www.abc.net.au/news/image/8824722-1x1-700x700.jpg)
 
-ABC Online Boy charged with manslaughter after hit-and-run that killed Lucy Paveley at Parafield ABC Online A 14-year-old boy has been charged with manslaughter following a fatal hit-and-run at Parafield in Adelaide's north on Sunday morning. The crash, allegedly involving a stolen Mitsubishi Pajero four-wheel drive which slammed into another car at the ... Fatal hit-and-run: boy, 14 charged over crash that killed Lucy Paveley The Australian Parafield hit-run: Tributes paid to loving mother Lucy Paveley who died in horror Adelaide hit-run The Advertiser 14-Year-Old Charged With Manslaughter After High-Speed Crime Spree Kills Adelaide Woman Huffington Post Australia Ten Eyewitness News - XNewsPress all 8 news articles »
+ABC Online Boy charged with manslaughter after hit-and-run that killed Lucy Paveley at Parafield ABC Online A 14-year-old boy has been charged with manslaughter following a fatal hit-and-run at Parafield in Adelaide's north on Sunday morning. The crash, allegedly involving a stolen Mitsubishi Pajero four-wheel drive which slammed into another car at the ... Fatal hit-and-run: boy, 14 charged The Australian Mawson Lakes woman Lucy Paveley, 40, killed after horror hit-run tragedy at Parafield The Advertiser Teen charged with manslaughter after driver killed in hit-run 9news.com.au Huffington Post Australia - Ten Eyewitness News - Triple M - FiveAA all 21 news articles »
 
 
 Full story on F3News: [Boy charged with manslaughter after hit-and-run that killed Lucy Paveley at Parafield - ABC Online](http://www.f3nws.com/n/Zy2KQG)
