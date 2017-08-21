@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mass protests in Hong Kong after jailing"
-date: 2017-08-21 03:42:54Z
+date: 2017-08-21 04:12:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of people braved blazing summer heat Sunday to join a march in
 
 Full story on F3News: [Mass protests in Hong Kong after jailing](http://www.f3nws.com/n/QuXF)
 
-> Posted on: Monday, August 21, 2017 3:42:54 AM
+> Posted on: Monday, August 21, 2017 4:12:52 AM

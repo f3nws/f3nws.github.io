@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Max Summerfield killed by passing car after fight with friends in Blacktown - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/0/n/h/9/image.related.articleLeadwide.620x349.gy0mgt.png/1503285566160.jpg)
 
-9news.com.au Max Summerfield killed by passing car after fight with friends in Blacktown The Sydney Morning Herald Four work mates from Orange travelled to Sydney on Friday for a night out in the western suburbs. It started with a trip to a brothel and a BP service station for late-night snacks. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Blacktown fatal: Night out ends in tragedy as Max Summerfield staggers onto road and is killed by car dailytelegraph.com.au NSW man hit by car after fight dies The Australian Sydney trip ends in tragedy for bricklayer Max Summerfield 9news.com.au Blacktown Sun - Central Western Daily all 6 news articles »
+The Sydney Morning Herald Max Summerfield killed by passing car after fight with friends in Blacktown The Sydney Morning Herald Four work mates from Orange travelled to Sydney on Friday for a night out in the western suburbs. It started with a trip to a brothel and a BP service station for late-night snacks. SHARE; Share on Facebook SHARE; Share on Twitter TWEET; Link. Blacktown fatal: Night out ends in tragedy as Max Summerfield staggers onto road and is killed by car dailytelegraph.com.au Sydney trip ends in tragedy for bricklayer Max Summerfield 9news.com.au NSW man hit by car after fight dies The Australian Central Western Daily - Blacktown Sun all 7 news articles »
 
 
 Full story on F3News: [Max Summerfield killed by passing car after fight with friends in Blacktown - The Sydney Morning Herald](http://www.f3nws.com/n/4yajfF)
