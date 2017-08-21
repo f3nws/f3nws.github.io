@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Petition to label Antifa as terrorists hits 100k signatures required for White House response"
-date: 2017-08-21 00:12:45Z
+date: 2017-08-21 00:12:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A call on the Donald Trump administration to officially classify the Antifa move
 
 Full story on F3News: [Petition to label Antifa as terrorists hits 100k signatures required for White House response](http://www.f3nws.com/n/mquPkB)
 
-> Posted on: Monday, August 21, 2017 12:12:45 AM
+> Posted on: Monday, August 21, 2017 12:12:00 AM

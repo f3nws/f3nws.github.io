@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump set to announce Afghan strategy after ‘rigorous’ review of options"
-date: 2017-08-21 03:07:10Z
+date: 2017-08-21 03:07:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Donald Trump is expected to announce his long-overdue military strategy for Afgh
 
 Full story on F3News: [Trump set to announce Afghan strategy after ‘rigorous’ review of options](http://www.f3nws.com/n/jepQGE)
 
-> Posted on: Monday, August 21, 2017 3:07:10 AM
+> Posted on: Monday, August 21, 2017 3:07:00 AM

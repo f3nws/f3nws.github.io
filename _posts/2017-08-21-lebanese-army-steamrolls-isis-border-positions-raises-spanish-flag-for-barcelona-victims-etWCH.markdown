@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lebanese army steamrolls ISIS border positions, raises Spanish flag for Barcelona victims"
-date: 2017-08-21 01:31:10Z
+date: 2017-08-21 01:31:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Lebanese army has scored major victories in the ongoing offensive against Is
 
 Full story on F3News: [Lebanese army steamrolls ISIS border positions, raises Spanish flag for Barcelona victims](http://www.f3nws.com/n/etWCH)
 
-> Posted on: Monday, August 21, 2017 1:31:10 AM
+> Posted on: Monday, August 21, 2017 1:31:00 AM
