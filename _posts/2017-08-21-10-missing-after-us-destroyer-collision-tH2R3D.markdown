@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 missing after US destroyer collision"
-date: 2017-08-21 04:00:05Z
+date: 2017-08-21 04:59:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US Navy guided-missile destroyer collided with a merchant ship east of Singapo
 
 Full story on F3News: [10 missing after US destroyer collision](http://www.f3nws.com/n/tH2R3D)
 
-> Posted on: Monday, August 21, 2017 4:00:05 AM
+> Posted on: Monday, August 21, 2017 4:59:32 AM
