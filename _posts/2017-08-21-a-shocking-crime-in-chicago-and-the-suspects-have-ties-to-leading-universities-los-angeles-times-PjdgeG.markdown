@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A shocking crime in Chicago — and the suspects have ties to leading universities - Los Angeles Times](http://www.trbimg.com/img-599a420c/turbine/la-na-chicago-northwestern-homicide-2017)
 
-Los Angeles Times A shocking crime in Chicago — and the suspects have ties to leading universities Los Angeles Times A former Northwestern University professor and an Oxford University employee lured a 26-year-old man into a Chicago high-rise and stabbed him dozens of times to fulfill an elaborate, violent sexual fantasy, prosecutors said Sunday. Wyndham Lathem, a ... Prosecutors: Prof killed boyfriend as part of sexual fantasy Washington Post Michigan hairstylist stabbed 70 times was killed in sex fantasy, prosecutor said MLive.com all 177 news articles »
+Los Angeles Times A shocking crime in Chicago — and the suspects have ties to leading universities Los Angeles Times A former Northwestern University professor and an Oxford University employee lured a 26-year-old man into a Chicago high-rise and stabbed him dozens of times to fulfill an elaborate, violent sexual fantasy, prosecutors said Sunday. Wyndham Lathem, a ... Two Men From Elite Universities Charged With a Killing 'Dark and Disturbing' New York Times Michigan hairstylist stabbed 70 times was killed in sex fantasy, prosecutor said MLive.com Northwestern prof, Oxford staffer extradited to Chicago New Jersey Herald NBC New York - Fox 32 Chicago all 176 news articles »
 
 
 Full story on F3News: [A shocking crime in Chicago — and the suspects have ties to leading universities - Los Angeles Times](http://www.f3nws.com/n/PjdgeG)
