@@ -5,7 +5,7 @@ date: 2017-08-21 17:07:00Z
 categories: wired-top-stories
 ---
 
-![How to Watch the Total Solar Eclipse Without Glasses](https://media.wired.com/photos/598b63706934651cc10574c5/191:100/pass/PinholeCamera-HP-AP_57290852887.jpg)
+![How to Watch the Total Solar Eclipse Without Glasses](https://media.wired.com/photos/59948782f9873438308c955c/191:100/pass/Pinhole-Camera-HP-h_18.51851969.jpg)
 
 Sure, you can buy solar glasses. Or you can save your money an make a DIY pinhole. It's a lot more fun.
 
