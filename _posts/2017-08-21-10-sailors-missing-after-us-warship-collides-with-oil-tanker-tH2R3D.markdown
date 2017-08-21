@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 sailors missing after US warship collides with oil tanker"
-date: 2017-08-21 07:02:30Z
+date: 2017-08-21 09:22:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ten US Navy sailors are missing after a US Navy guided-missile destroyer collide
 
 Full story on F3News: [10 sailors missing after US warship collides with oil tanker](http://www.f3nws.com/n/tH2R3D)
 
-> Posted on: Monday, August 21, 2017 7:02:30 AM
+> Posted on: Monday, August 21, 2017 9:22:00 AM
