@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "One dead after car runs into bus stops in Marseille"
-date: 2017-08-21 10:41:55Z
+date: 2017-08-21 12:51:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One person has died after a car ran into two bus shelters in the southern French
 
 Full story on F3News: [One dead after car runs into bus stops in Marseille](http://www.f3nws.com/n/cUZhuE)
 
-> Posted on: Monday, August 21, 2017 10:41:55 AM
+> Posted on: Monday, August 21, 2017 12:51:59 PM
