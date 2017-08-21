@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Solar Eclipse 2017: Your complete guide     - CNET"
-date: 2017-08-21 14:46:37Z
+date: 2017-08-21 15:51:45Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The moon will hide the sun on Aug. 21. Here's where to go, how to view it safely
 
 Full story on F3News: [Solar Eclipse 2017: Your complete guide     - CNET](http://www.f3nws.com/n/3ZErPB)
 
-> Posted on: Monday, August 21, 2017 2:46:37 PM
+> Posted on: Monday, August 21, 2017 3:51:45 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Navy chief orders probe into Pacific fleet after collisions"
-date: 2017-08-21 11:11:00Z
+date: 2017-08-21 12:23:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SINGAPORE (AP) — The U.S. Navy ordered a broad investigation Monday into the p
 
 Full story on F3News: [Navy chief orders probe into Pacific fleet after collisions](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 21, 2017 11:11:00 AM
+> Posted on: Monday, August 21, 2017 12:23:00 PM
