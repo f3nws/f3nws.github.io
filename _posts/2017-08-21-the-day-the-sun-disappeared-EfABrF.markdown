@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The day the sun disappeared"
-date: 2017-08-21 17:28:08Z
+date: 2017-08-21 19:58:52Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's not fake news; it's good news. It's a story that could eclipse all other st
 
 Full story on F3News: [The day the sun disappeared](http://www.f3nws.com/n/EfABrF)
 
-> Posted on: Monday, August 21, 2017 5:28:08 PM
+> Posted on: Monday, August 21, 2017 7:58:52 PM
