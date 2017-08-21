@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Same-sex marriage advocates say anti-LGBTI poster in Melbourne inaccurate, distressing - ABC Online"
-date: 2017-08-21 09:02:04Z
+date: 2017-08-21 09:29:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Same-sex marriage advocates say anti-LGBTI poster in Melbourne inaccu
 
 Full story on F3News: [Same-sex marriage advocates say anti-LGBTI poster in Melbourne inaccurate, distressing - ABC Online](http://www.f3nws.com/n/JMjCeH)
 
-> Posted on: Monday, August 21, 2017 9:02:04 AM
+> Posted on: Monday, August 21, 2017 9:29:00 AM
