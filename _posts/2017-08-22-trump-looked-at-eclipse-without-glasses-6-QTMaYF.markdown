@@ -5,7 +5,7 @@ date: 2017-08-22 00:40:17Z
 categories: msnbc
 ---
 
-![Trump looked at eclipse without glasses 6...](http://media1.s-nbcnews.com/j/MSNBC/Components/Video/201708/2017-08-22T00-40-17-867Z--1280x720.video_1067x600.jpg)
+![Trump looked at eclipse without glasses 6...](http://media1.s-nbcnews.com/j/MSNBC/Components/Video/201708/MNBC-CH-XXXXXXXX_CLN_SDO-3A2_20-00_ALL_IN_with_CHRIS_HAYES_AS_frame_85332.video_1067x600.jpg)
 
 Everyone knows there is just one rule about solar eclipses - don't look at it without protective eyewear. Donald Trump broke that rule no less than six times.
 

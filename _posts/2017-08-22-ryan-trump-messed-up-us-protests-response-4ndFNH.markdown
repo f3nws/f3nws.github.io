@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ryan: Trump 'messed up' US protests response"
-date: 2017-08-22 02:56:24Z
+date: 2017-08-22 03:45:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ House Speaker Paul Ryan said Monday he believed President Donald Trump "messed u
 
 Full story on F3News: [Ryan: Trump 'messed up' US protests response](http://www.f3nws.com/n/4ndFNH)
 
-> Posted on: Tuesday, August 22, 2017 2:56:24 AM
+> Posted on: Tuesday, August 22, 2017 3:45:22 AM
