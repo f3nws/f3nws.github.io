@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawyers: DNA shows man facing execution tonight is innocent"
-date: 2017-08-22 16:08:02Z
+date: 2017-08-22 17:17:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Missouri plans to put a 48-year-old man to death Tuesday, even as his lawyers sa
 
 Full story on F3News: [Lawyers: DNA shows man facing execution tonight is innocent](http://www.f3nws.com/n/pVamk)
 
-> Posted on: Tuesday, August 22, 2017 4:08:02 PM
+> Posted on: Tuesday, August 22, 2017 5:17:46 PM
