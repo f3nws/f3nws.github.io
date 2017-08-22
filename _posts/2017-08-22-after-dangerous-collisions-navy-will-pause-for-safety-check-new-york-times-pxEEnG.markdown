@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![After Dangerous Collisions, Navy Will Pause for Safety Check - New York Times](https://static01.nyt.com/images/2017/08/22/world/22mccain-1/22mccain-1-facebookJumbo.jpg)
 
-New York Times After Dangerous Collisions, Navy Will Pause for Safety Check New York Times The John S. McCain, an American guided-missile destroyer, with a hole in its rear left side, in waters off Singapore on Monday. Credit Ahmad Masood/Reuters. WASHINGTON — United States Navy ships worldwide will suspend operations for a day or two this ... It's time for the Navy to take a knee CNN US Navy Orders Global Fleet to Pause After Singapore Crash Bloomberg Navy ships keep getting into accidents. Time to find out why. Washington Post Reuters - Los Angeles Times - U.S. News & World Report - Military.com all 1,173 news articles »
+New York Times After Dangerous Collisions, Navy Will Pause for Safety Check New York Times The John S. McCain, an American guided-missile destroyer, with a hole in its rear left side, in waters off Singapore on Monday. Credit Ahmad Masood/Reuters. WASHINGTON — United States Navy ships worldwide will suspend operations for a day or two this ... It's time for the Navy to take a knee CNN Is someone hacking our 7th fleet? Navy to investigate after USS John S McCain collision Fox News Navy ships keep getting into accidents. Time to find out why. Washington Post Bloomberg - Reuters - ABC News - New York Daily News all 1,208 news articles »
 
 
 Full story on F3News: [After Dangerous Collisions, Navy Will Pause for Safety Check - New York Times](http://www.f3nws.com/n/pxEEnG)

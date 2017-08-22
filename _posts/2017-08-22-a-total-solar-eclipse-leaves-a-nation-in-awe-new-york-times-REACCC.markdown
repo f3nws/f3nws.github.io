@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Total Solar Eclipse Leaves a Nation in Awe - New York Times](https://static01.nyt.com/images/2017/08/22/science/22ECLIPSE1/22ECLIPSE1-facebookJumbo.jpg)
 
-New York Times A Total Solar Eclipse Leaves a Nation in Awe New York Times CHARLESTON, S.C. — The United States basked in the glory of a total eclipse on Monday, as the moon's shadow swept from the rocky beaches of Oregon to the marshes of South Carolina. Over an hour and a half, along a 70-mile-wide ribbon of land, in tiny ... 'We are all just mind-boggled:' scenes from the total solar eclipse of 2017 Washington Post The solar eclipse transformed America, at least for a few moments Chicago Tribune Solar eclipse draws millions of spectators across US, unites New Yorkers for the rare event New York Daily News CBS News - NBCNews.com - Fox News - Press-Enterprise all 3,949 news articles »
+New York Times A Total Solar Eclipse Leaves a Nation in Awe New York Times CHARLESTON, S.C. — The United States basked in the glory of a total eclipse on Monday, as the moon's shadow swept from the rocky beaches of Oregon to the marshes of South Carolina. Over an hour and a half, along a 70-mile-wide ribbon of land, in tiny ... 'We are all just mind-boggled:' scenes from the total solar eclipse of 2017 Washington Post Solar eclipse draws millions of spectators across US, unites New Yorkers for the rare event New York Daily News Total solar eclipse leaves Oregon astonished OregonLive.com STLtoday.com - CBS News - Los Angeles Times - NBCNews.com all 4,023 news articles »
 
 
 Full story on F3News: [A Total Solar Eclipse Leaves a Nation in Awe - New York Times](http://www.f3nws.com/n/REACCC)
