@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "India's top court bans Islamic instant divorce"
-date: 2017-08-22 08:58:01Z
+date: 2017-08-22 16:05:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ India's Supreme Court banned the controversial Islamic divorce practice known as
 
 Full story on F3News: [India's top court bans Islamic instant divorce](http://www.f3nws.com/n/jS4VDB)
 
-> Posted on: Tuesday, August 22, 2017 8:58:01 AM
+> Posted on: Tuesday, August 22, 2017 4:05:55 PM
