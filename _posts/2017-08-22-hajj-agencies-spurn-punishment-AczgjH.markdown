@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hajj agencies spurn punishment"
-date: 2017-08-22 03:51:21Z
+date: 2017-08-22 06:30:22Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Hajj agencies spurn punishment](http://www.f3nws.com/n/AczgjH)
 
-> Posted on: Tuesday, August 22, 2017 3:51:21 AM
+> Posted on: Tuesday, August 22, 2017 6:30:22 AM

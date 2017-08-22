@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Could new railway put Laos on the map?"
-date: 2017-08-22 01:11:44Z
+date: 2017-08-22 08:06:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Golden temples, Mekong River cruises, mighty waterfalls, and nearly two dozen na
 
 Full story on F3News: [Could new railway put Laos on the map?](http://www.f3nws.com/n/bcnVhB)
 
-> Posted on: Tuesday, August 22, 2017 1:11:44 AM
+> Posted on: Tuesday, August 22, 2017 8:06:42 AM
