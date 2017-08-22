@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Five key pieces of Trump's Afghanistan plan - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170821212245-trump-afghanistan-nation-building-super-tease.jpg)
 
-CNN Five key pieces of Trump's Afghanistan plan CNN (CNN) President Donald Trump outlined his plan for the 16-year US war in Afghanistan Monday evening, vowing that the US would find victory while no longer "nation-building." The President declared he would no longer announce troop levels but would ... How Trump swallowed a bitter Afghanistan pill Politico 5 takeaways from Trump's Afghan speech The Hill Trump announces plan to increase US presence in Afghanistan ABC News HuffPost - U.S. News & World Report - New York Daily News - Fox News all 1,524 news articles »
+CNN Five key pieces of Trump's Afghanistan plan CNN (CNN) President Donald Trump outlined his plan for the 16-year US war in Afghanistan Monday evening, vowing that the US would find victory while no longer "nation-building." The President declared he would no longer announce troop levels but would ... How Trump swallowed a bitter Afghanistan pill Politico 5 takeaways from Trump's Afghan speech The Hill Trump draws geopolitical battle lines in South Asia HuffPost Bloomberg - Washington Post - BBC News - The Mercury News all 1,581 news articles »
 
 
 Full story on F3News: [Five key pieces of Trump's Afghanistan plan - CNN](http://www.f3nws.com/n/baaUXB)
