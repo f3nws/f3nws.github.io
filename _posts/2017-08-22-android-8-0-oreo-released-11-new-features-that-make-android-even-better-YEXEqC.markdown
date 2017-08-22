@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Android 8.0 Oreo Released – 11 New Features That Make Android Even Better"
-date: 2017-08-22 13:07:05Z
+date: 2017-08-22 20:31:58Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ While the moon was eclipsing the sun, Google announced the launch of its new mob
 
 Full story on F3News: [Android 8.0 Oreo Released – 11 New Features That Make Android Even Better](http://www.f3nws.com/n/YEXEqC)
 
-> Posted on: Tuesday, August 22, 2017 1:07:05 PM
+> Posted on: Tuesday, August 22, 2017 8:31:58 PM
