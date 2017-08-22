@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iOS 11 vs. Android Oreo: Who's winning so far?     - CNET"
-date: 2017-08-22 11:30:11Z
+date: 2017-08-22 12:11:04Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ And why it might not matter until we see the iPhone 8 and next Google Pixel.
 
 Full story on F3News: [iOS 11 vs. Android Oreo: Who's winning so far?     - CNET](http://www.f3nws.com/n/Tyh32H)
 
-> Posted on: Tuesday, August 22, 2017 11:30:11 AM
+> Posted on: Tuesday, August 22, 2017 12:11:04 PM
