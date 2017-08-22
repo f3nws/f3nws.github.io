@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials say Trump's Afghan plan involves 3,900 more troops"
-date: 2017-08-22 15:26:00Z
+date: 2017-08-22 16:11:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's plan to end America's longest war a
 
 Full story on F3News: [Officials say Trump's Afghan plan involves 3,900 more troops](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 22, 2017 3:26:00 PM
+> Posted on: Tuesday, August 22, 2017 4:11:00 PM

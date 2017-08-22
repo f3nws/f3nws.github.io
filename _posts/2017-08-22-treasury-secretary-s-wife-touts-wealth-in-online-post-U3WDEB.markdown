@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Treasury secretary's wife touts wealth in online post"
-date: 2017-08-22 17:31:13Z
+date: 2017-08-22 20:22:28Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Treasury Secretary Steve Mnuchin's wife Louise Linton is facing a backlash for a
 
 Full story on F3News: [Treasury secretary's wife touts wealth in online post](http://www.f3nws.com/n/U3WDEB)
 
-> Posted on: Tuesday, August 22, 2017 5:31:13 PM
+> Posted on: Tuesday, August 22, 2017 8:22:28 PM
