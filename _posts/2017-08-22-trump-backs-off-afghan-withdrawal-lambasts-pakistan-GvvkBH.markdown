@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump backs off Afghan withdrawal, lambasts Pakistan"
-date: 2017-08-22 06:01:19Z
+date: 2017-08-22 10:33:43Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ categories: yahoo-news
 
 Full story on F3News: [Trump backs off Afghan withdrawal, lambasts Pakistan](http://www.f3nws.com/n/GvvkBH)
 
-> Posted on: Tuesday, August 22, 2017 6:01:19 AM
+> Posted on: Tuesday, August 22, 2017 10:33:43 AM
