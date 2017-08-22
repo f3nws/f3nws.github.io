@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump announces new strategy for Afghanistan that calls for a troop increase - Washington Post"
-date: 2017-08-22 02:27:49Z
+date: 2017-08-22 02:56:33Z
 categories: google-news-top-stories
 ---
 
 ![Trump announces new strategy for Afghanistan that calls for a troop increase - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/21/National-Politics/Images/2017-08-20T195140Z_1388171154_RC129F06B8A0_RTRMADP_3_USA-MILITARY-AFGHANISTAN-4257.jpg?t=20170517)
 
-Washington Post Trump announces new strategy for Afghanistan that calls for a troop increase Washington Post President Trump outlined a revised vision for the U.S. war in Afghanistan on Monday, pledging to end a strategy of “nation-building” and instead institute a policy aimed more squarely at addressing the terrorist threat that emanates from the region. “I ... Trump Settles on Afghan Strategy Expected to Raise Troop Levels New York Times Trump's Vague New Afghanistan Strategy Continues An Endless War HuffPost Donald Trump's Afghanistan speech ended up being all about Charlottesville CNN Politico - The Hill - ABC News - NPR all 951 news articles »
+Washington Post Trump announces new strategy for Afghanistan that calls for a troop increase Washington Post President Trump outlined a revised vision for the U.S. war in Afghanistan on Monday, pledging to end a strategy of “nation-building” and instead institute a policy aimed more squarely at addressing the terrorist threat that emanates from the region. “I ... Trump's Vague New Afghanistan Strategy Continues An Endless War HuffPost Trump ramps up war in Afghanistan, rejects timetables The Hill Defense hawks cheer Trump's Afghanistan speech Politico ABC News - New York Times - New York Daily News - U.S. News & World Report all 1,048 news articles »
 
 
 Full story on F3News: [Trump announces new strategy for Afghanistan that calls for a troop increase - Washington Post](http://www.f3nws.com/n/u2QtNH)
 
-> Posted on: Tuesday, August 22, 2017 2:27:49 AM
+> Posted on: Tuesday, August 22, 2017 2:56:33 AM
