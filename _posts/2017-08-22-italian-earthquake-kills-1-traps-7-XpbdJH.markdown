@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Italian earthquake kills 1, traps 7"
-date: 2017-08-22 16:48:10Z
+date: 2017-08-22 21:51:08Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ One person was killed and rescuers were trying to reach seven people buried unde
 
 Full story on F3News: [Italian earthquake kills 1, traps 7](http://www.f3nws.com/n/XpbdJH)
 
-> Posted on: Tuesday, August 22, 2017 4:48:10 PM
+> Posted on: Tuesday, August 22, 2017 9:51:08 PM

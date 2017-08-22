@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best laptops 2017: Find the best notebook for you"
-date: 2017-08-22 20:14:00Z
+date: 2017-08-22 20:09:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Let us be your guide to the best laptops around, now including the 2017 MacBook 
 
 Full story on F3News: [Best laptops 2017: Find the best notebook for you](http://www.f3nws.com/n/srWbGJ)
 
-> Posted on: Tuesday, August 22, 2017 8:14:00 PM
+> Posted on: Tuesday, August 22, 2017 8:09:00 PM
