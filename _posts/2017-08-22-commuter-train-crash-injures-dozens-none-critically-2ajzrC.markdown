@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Commuter train crash injures dozens, none critically"
-date: 2017-08-22 10:32:00Z
+date: 2017-08-22 12:31:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ UPPER DARBY, Pa. (AP) — A commuter train crashed into a parked train at a subu
 
 Full story on F3News: [Commuter train crash injures dozens, none critically](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 22, 2017 10:32:00 AM
+> Posted on: Tuesday, August 22, 2017 12:31:00 PM
