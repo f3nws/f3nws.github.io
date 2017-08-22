@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Official: US ship lost control before collision"
-date: 2017-08-22 12:33:57Z
+date: 2017-08-22 18:23:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The USS John S. McCain suffered a "steering casualty" as the warship was beginni
 
 Full story on F3News: [Official: US ship lost control before collision](http://www.f3nws.com/n/tJJXUB)
 
-> Posted on: Tuesday, August 22, 2017 12:33:57 PM
+> Posted on: Tuesday, August 22, 2017 6:23:08 PM
