@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NKorea issues trademark fiery rhetoric over US-SKorea drills"
-date: 2017-08-22 02:52:00Z
+date: 2017-08-22 05:01:49Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ SEOUL, South Korea (AP) — North Korea's military on Tuesday greeted the start 
 
 Full story on F3News: [NKorea issues trademark fiery rhetoric over US-SKorea drills](http://www.f3nws.com/n/JKkmTE)
 
-> Posted on: Tuesday, August 22, 2017 2:52:00 AM
+> Posted on: Tuesday, August 22, 2017 5:01:49 AM
