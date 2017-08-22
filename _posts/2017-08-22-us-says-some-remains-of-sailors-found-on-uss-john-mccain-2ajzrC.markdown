@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US says some remains of sailors found on USS John McCain"
-date: 2017-08-22 07:43:00Z
+date: 2017-08-22 07:55:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SINGAPORE (AP) — The commander of the U.S. Pacific Fleet said some remains of 
 
 Full story on F3News: [US says some remains of sailors found on USS John McCain](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, August 22, 2017 7:43:00 AM
+> Posted on: Tuesday, August 22, 2017 7:55:00 AM
