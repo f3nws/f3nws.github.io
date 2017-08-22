@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gamescom 2017: all the biggest gaming announcements from Cologne"
-date: 2017-08-22 09:03:14Z
+date: 2017-08-22 14:34:14Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We’re at Gamescom in Cologne this year where we’re going to keep you up to d
 
 Full story on F3News: [Gamescom 2017: all the biggest gaming announcements from Cologne](http://www.f3nws.com/n/2tskzE)
 
-> Posted on: Tuesday, August 22, 2017 9:03:14 AM
+> Posted on: Tuesday, August 22, 2017 2:34:14 PM
