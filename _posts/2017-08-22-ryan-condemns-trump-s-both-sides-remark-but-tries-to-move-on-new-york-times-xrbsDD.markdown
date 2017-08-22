@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ryan Condemns Trump's 'Both Sides' Remark but Tries to Move On - New York Times](https://static01.nyt.com/images/2017/08/22/us/22dc-ryan/22dc-ryan-facebookJumbo.jpg)
 
-New York Times Ryan Condemns Trump's 'Both Sides' Remark but Tries to Move On New York Times Speaker Paul D. Ryan during a news conference at the Capitol last month. Credit Stephen Crowley/The New York Times. WASHINGTON — Speaker Paul D. Ryan condemned President Trump's blaming of “both sides” for last week's violence in Charlottesville ... Paul Ryan defends tax breaks for Foxconn at town hall Washington Post Ryan: Trump 'messed up' with Charlottesville response Politico Ryan opposes Trump "messed up" but opposes censure Miami Herald The Hill (blog) - NBCNews.com - HuffPost - CBS News all 125 news articles »
+New York Times Ryan Condemns Trump's 'Both Sides' Remark but Tries to Move On New York Times Speaker Paul D. Ryan during a news conference at the Capitol last month. Credit Stephen Crowley/The New York Times. WASHINGTON — Speaker Paul D. Ryan condemned President Trump's blaming of “both sides” for last week's violence in Charlottesville ... Ryan faces heat back home in Wisconsin Politico Paul Ryan defends tax breaks for Foxconn at town hall Washington Post Byron York: At Paul Ryan town hall, not a word on Russia Washington Examiner ThinkProgress - NBCNews.com - HuffPost - BuzzFeed News all 141 news articles »
 
 
 Full story on F3News: [Ryan Condemns Trump's 'Both Sides' Remark but Tries to Move On - New York Times](http://www.f3nws.com/n/xrbsDD)

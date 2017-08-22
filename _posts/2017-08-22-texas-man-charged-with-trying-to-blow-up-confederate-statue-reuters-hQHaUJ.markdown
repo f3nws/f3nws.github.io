@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Texas man charged with trying to blow up Confederate statue - Reuters](https://s3.reutersmedia.net/resources/r/?m=02&d=20170821&t=2&i=1197939978&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXNPED7K107)
 
-Reuters Texas man charged with trying to blow up Confederate statue Reuters (Reuters) - Authorities in Houston charged a 25-year-old man on Monday with trying to blow up a Confederate statue, federal prosecutors said, following demonstrations and fierce debate in the United States about race and the legacy of America's Civil War. Federal authorities: Texas man tried planting bomb on Confederate statue Chicago Tribune Texas man accused of trying to blow up Confederate statue cleveland.com Andrew Schneck: 5 Fast Facts You Need to Know Heavy.com KTRK-TV - Chron.com - Department of Justice all 96 news articles »
+Reuters Texas man charged with trying to blow up Confederate statue Reuters (Reuters) - Authorities in Houston charged a 25-year-old man on Monday with trying to blow up a Confederate statue, federal prosecutors said, following demonstrations and fierce debate in the United States about race and the legacy of America's Civil War. Federal authorities: Texas man tried planting bomb on Confederate statue Chicago Tribune Texas man accused of trying to blow up Confederate statue cleveland.com A Man Has Been Charged With Trying To Blow Up To A Confederate Statue BuzzFeed News KHOU - KTRK-TV - Chron.com - Department of Justice all 99 news articles »
 
 
 Full story on F3News: [Texas man charged with trying to blow up Confederate statue - Reuters](http://www.f3nws.com/n/hQHaUJ)
