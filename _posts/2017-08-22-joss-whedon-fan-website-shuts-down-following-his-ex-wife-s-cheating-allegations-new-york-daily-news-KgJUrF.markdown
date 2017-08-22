@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Joss Whedon fan website shuts down following his ex-wife's cheating allegations - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3429568.1503331603!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/68879670.jpg)
 
-New York Daily News Joss Whedon fan website shuts down following his ex-wife's cheating allegations New York Daily News A long-running fan website devoted to discussing Joss Whedon's projects has shut down for good — a day after the director's wife accused him of repeatedly cheating on her for more than a decade. Whedonesque — an online discussion board that had been ... Joss Whedon was never a feminist A.V. Club Following Criticism, Joss Whedon Fan Site Shuts Down After 15 Years Hollywood Reporter Joss Whedon's ex says he's a hypocritical feminist CBS News E! Online - Entertainment Tonight - Salon - Paste Magazine all 96 news articles »
+New York Daily News Joss Whedon fan website shuts down following his ex-wife's cheating allegations New York Daily News A long-running fan website devoted to discussing Joss Whedon's projects has shut down for good — a day after the director's wife accused him of repeatedly cheating on her for more than a decade. Whedonesque — an online discussion board that had been ... Joss Whedon was never a feminist A.V. Club Following Criticism, Joss Whedon Fan Site Shuts Down After 15 Years Hollywood Reporter Joss Whedon's ex says he's a hypocritical feminist CBS News Entertainment Tonight - E! Online - Salon - Paste Magazine all 98 news articles »
 
 
 Full story on F3News: [Joss Whedon fan website shuts down following his ex-wife's cheating allegations - New York Daily News](http://www.f3nws.com/n/KgJUrF)
