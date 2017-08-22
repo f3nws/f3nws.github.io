@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump gives military leeway to fight and says no more nation building"
-date: 2017-08-22 01:51:01Z
+date: 2017-08-22 02:02:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump gives military leeway to fight and says no more nation building](http://www.f3nws.com/n/CMpGfF)
 
-> Posted on: Tuesday, August 22, 2017 1:51:01 AM
+> Posted on: Tuesday, August 22, 2017 2:02:56 AM
