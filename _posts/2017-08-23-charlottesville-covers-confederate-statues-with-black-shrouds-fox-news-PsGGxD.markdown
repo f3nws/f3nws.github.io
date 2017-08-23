@@ -5,7 +5,7 @@ date: 2017-08-23 21:20:33Z
 categories: google-news-top-stories
 ---
 
-Fox News Charlottesville covers Confederate statues with black shrouds Fox News Workers cover an equestrian statue of Confederate Gen. Robert E. Lee in Charlottesville's Emancipation Park Wednesday. (Courtesy C-Ville Weekly). Workers in Charlottesville, Va. shrouded statues of Confederate Gen. Robert E. Lee and Gen. Thomas ... Polls Find Little Support For Confederate Statue Removal — But How You Ask Matters HuffPost Why ESPN and Robert Lee are right CNN Charlottesville Shrouds Its Robert E. Lee And Stonewall Jackson Statues NPR Sports Illustrated - NBCNews.com - New York Daily News - Atlanta Journal Constitution all 479 news articles »
+Fox News Charlottesville covers Confederate statues with black shrouds Fox News Workers cover an equestrian statue of Confederate Gen. Robert E. Lee in Charlottesville's Emancipation Park Wednesday. (Courtesy C-Ville Weekly). Workers in Charlottesville, Va. shrouded statues of Confederate Gen. Robert E. Lee and Gen. Thomas ... When the movement to take down Confederate statues goes to excess Washington Post Why ESPN and Robert Lee are right CNN ESPN's Robert Lee Decision Was Made Out of Fear of Negative Press Sports Illustrated NBCNews.com - Reuters - Atlanta Journal Constitution - The Atlantic all 526 news articles »
 
 
 Full story on F3News: [Charlottesville covers Confederate statues with black shrouds - Fox News](http://www.f3nws.com/n/PsGGxD)
