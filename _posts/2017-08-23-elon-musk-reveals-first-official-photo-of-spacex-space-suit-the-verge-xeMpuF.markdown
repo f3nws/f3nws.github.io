@@ -7,7 +7,7 @@ categories: the-verge
 
 ![Elon Musk reveals first official photo of SpaceX space suit - The Verge](https://cdn.vox-cdn.com/thumbor/7LzYH7Z_wPKSOGrFocre-KAu2F8=/0x38:471x303/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56320329/Screen_Shot_2017_08_23_at_11.32.38.0.png)
 
-The Verge Elon Musk reveals first official photo of SpaceX space suit The Verge Elon Musk has posted the official first photo of his SpaceX space suit on Instagram, teasing that more details will come in a few days. Musk says the suit actually works, and was tested to double vacuum pressure. The suit itself is very white and very ... Elon Musk just revealed SpaceX's space suits, and they're glorious BGR Elon Musk Unveils SpaceX's Sleek New Spacesuit on Instagram Space.com Elon Musk Just Revealed SpaceX Spacesuit Design After Years of Promises Seeker Newsweek - MarketWatch - Quartz - CNET all 172 news articles »
+The Verge Elon Musk reveals first official photo of SpaceX space suit The Verge Elon Musk has posted the official first photo of his SpaceX space suit on Instagram, teasing that more details will come in a few days. Musk says the suit actually works, and was tested to double vacuum pressure. The suit itself is very white and very ... SpaceX just teased a chic new spacesuit CNNMoney Elon Musk Unveils SpaceX's Sleek New Spacesuit on Instagram Space.com SpaceX's slim new spacesuits look straight out of sci-fi Digital Trends CNET - Seeker - Newsweek - BGR all 180 news articles »
 
 
 Full story on F3News: [Elon Musk reveals first official photo of SpaceX space suit - The Verge](http://www.f3nws.com/n/xeMpuF)
