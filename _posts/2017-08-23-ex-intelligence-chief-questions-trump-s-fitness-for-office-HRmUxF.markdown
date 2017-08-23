@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-intelligence chief questions Trump's fitness for office"
-date: 2017-08-23 14:10:15Z
+date: 2017-08-23 19:01:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ James Clapper, former director of National Intelligence, said Wednesday morning 
 
 Full story on F3News: [Ex-intelligence chief questions Trump's fitness for office](http://www.f3nws.com/n/HRmUxF)
 
-> Posted on: Wednesday, August 23, 2017 2:10:15 PM
+> Posted on: Wednesday, August 23, 2017 7:01:03 PM
