@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside Bangkok's abandoned 'ghost' towers"
-date: 2017-08-23 02:21:13Z
+date: 2017-08-23 03:33:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Upon its completion in 2016, the 314-meter MahaNakhon was named Thailand's talle
 
 Full story on F3News: [Inside Bangkok's abandoned 'ghost' towers](http://www.f3nws.com/n/cGECsB)
 
-> Posted on: Wednesday, August 23, 2017 2:21:13 AM
+> Posted on: Wednesday, August 23, 2017 3:33:07 AM
