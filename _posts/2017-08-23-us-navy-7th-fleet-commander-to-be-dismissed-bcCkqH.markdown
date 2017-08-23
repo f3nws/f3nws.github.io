@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy 7th Fleet commander to be dismissed"
-date: 2017-08-23 02:49:08Z
+date: 2017-08-23 03:48:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US Navy intends to remove Vice Adm. Joseph Aucoin as the commander of the US
 
 Full story on F3News: [US Navy 7th Fleet commander to be dismissed](http://www.f3nws.com/n/bcCkqH)
 
-> Posted on: Wednesday, August 23, 2017 2:49:08 AM
+> Posted on: Wednesday, August 23, 2017 3:48:07 AM
