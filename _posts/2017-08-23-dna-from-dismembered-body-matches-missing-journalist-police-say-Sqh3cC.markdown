@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DNA from dismembered body matches missing journalist, police say"
-date: 2017-08-23 07:10:46Z
+date: 2017-08-23 07:54:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Danish police say DNA from a headless torso matches that of missing journalist K
 
 Full story on F3News: [DNA from dismembered body matches missing journalist, police say](http://www.f3nws.com/n/Sqh3cC)
 
-> Posted on: Wednesday, August 23, 2017 7:10:46 AM
+> Posted on: Wednesday, August 23, 2017 7:54:53 AM
