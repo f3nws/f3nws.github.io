@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Lee: ESPN under fire for taking announcer off UVA game"
-date: 2017-08-23 07:51:19Z
+date: 2017-08-23 08:41:00Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ By trying to avoid an embarrassing ordeal, ESPN has embarrassed itself.
 
 Full story on F3News: [Robert Lee: ESPN under fire for taking announcer off UVA game](http://www.f3nws.com/n/gF2PT)
 
-> Posted on: Wednesday, August 23, 2017 7:51:19 AM
+> Posted on: Wednesday, August 23, 2017 8:41:00 AM
