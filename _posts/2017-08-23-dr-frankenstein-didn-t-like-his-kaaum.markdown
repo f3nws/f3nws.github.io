@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dr. Frankenstein didn't like his..."
-date: 2017-08-23 14:20:39Z
+date: 2017-08-23 14:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Like Dr. Frankenstein, Mitch McConnell created a monster he thought he could con
 
 Full story on F3News: [Dr. Frankenstein didn't like his...](http://www.f3nws.com/n/kaaum)
 
-> Posted on: Wednesday, August 23, 2017 2:20:39 PM
+> Posted on: Wednesday, August 23, 2017 2:20:00 PM
