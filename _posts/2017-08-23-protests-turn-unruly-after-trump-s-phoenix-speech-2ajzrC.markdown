@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protests turn unruly after Trump's Phoenix speech"
-date: 2017-08-23 02:11:00Z
+date: 2017-08-23 02:44:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PHOENIX (AP) — A day of noisy but largely peaceful protests of President Donal
 
 Full story on F3News: [Protests turn unruly after Trump's Phoenix speech](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 23, 2017 2:11:00 AM
+> Posted on: Wednesday, August 23, 2017 2:44:00 AM
