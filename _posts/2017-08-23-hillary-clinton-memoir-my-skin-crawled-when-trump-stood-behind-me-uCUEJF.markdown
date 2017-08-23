@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hillary Clinton memoir: My 'skin crawled' when Trump stood behind me"
-date: 2017-08-23 14:39:54Z
+date: 2017-08-23 15:59:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In her upcoming memoir, Hillary Clinton expresses regret and explains what she w
 
 Full story on F3News: [Hillary Clinton memoir: My 'skin crawled' when Trump stood behind me](http://www.f3nws.com/n/uCUEJF)
 
-> Posted on: Wednesday, August 23, 2017 2:39:54 PM
+> Posted on: Wednesday, August 23, 2017 3:59:24 PM
