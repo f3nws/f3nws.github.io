@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Violence in Charlottesville leads to soul-searching at ACLU"
-date: 2017-08-23 15:14:00Z
+date: 2017-08-23 15:41:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Faced with an angry backlash for defending white supremacists'
 
 Full story on F3News: [Violence in Charlottesville leads to soul-searching at ACLU](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, August 23, 2017 3:14:00 PM
+> Posted on: Wednesday, August 23, 2017 3:41:00 PM
