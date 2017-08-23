@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Nintendo's SNES Classic preorders were a shitshow     - CNET"
+date: 2017-08-23 00:59:33Z
+categories: cnet
+---
+
+![Nintendo's SNES Classic preorders were a shitshow     - CNET](https://cnet4.cbsistatic.com/img/1FREucjs8PVl82QRHv50bbzwM6s=/670x503/2017/07/10/3bb7ee78-55a9-40d1-b699-b9cb67427c9e/snesclassic.jpg)
+
+Thought you'd pre-order an SNES Classic online? Think again.
+
+
+Full story on F3News: [Nintendo's SNES Classic preorders were a shitshow     - CNET](http://www.f3nws.com/n/bkCjKH)
+
+> Posted on: Wednesday, August 23, 2017 12:59:33 AM
