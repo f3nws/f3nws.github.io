@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New North Korea photos reveal hidden details of missile program"
-date: 2017-08-23 17:27:08Z
+date: 2017-08-23 17:30:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Newly released photos appear to reveal unexpected advances in North Korea's miss
 
 Full story on F3News: [New North Korea photos reveal hidden details of missile program](http://www.f3nws.com/n/r3xkJF)
 
-> Posted on: Wednesday, August 23, 2017 5:27:08 PM
+> Posted on: Wednesday, August 23, 2017 5:30:02 PM
