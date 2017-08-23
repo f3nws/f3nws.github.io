@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump berates 'sick' news media in fresh tirade"
-date: 2017-08-23 09:40:26Z
+date: 2017-08-23 12:34:13Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Think President Trump couldn't ratchet up his attacks on the news media any more
 
 Full story on F3News: [Trump berates 'sick' news media in fresh tirade](http://www.f3nws.com/n/raU4fE)
 
-> Posted on: Wednesday, August 23, 2017 9:40:26 AM
+> Posted on: Wednesday, August 23, 2017 12:34:13 PM
