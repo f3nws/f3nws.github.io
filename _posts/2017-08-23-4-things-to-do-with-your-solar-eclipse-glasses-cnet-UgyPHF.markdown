@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "4 things to do with your solar eclipse glasses     - CNET"
-date: 2017-08-23 01:06:41Z
+date: 2017-08-23 01:22:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ If they aren't headed for the scrapbook, reuse your glasses with these tips.
 
 Full story on F3News: [4 things to do with your solar eclipse glasses     - CNET](http://www.f3nws.com/n/UgyPHF)
 
-> Posted on: Wednesday, August 23, 2017 1:06:41 AM
+> Posted on: Wednesday, August 23, 2017 1:22:56 AM

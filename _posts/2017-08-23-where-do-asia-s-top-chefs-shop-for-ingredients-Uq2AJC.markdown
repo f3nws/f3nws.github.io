@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Where do Asia's top chefs shop for ingredients?"
-date: 2017-08-23 00:35:03Z
+date: 2017-08-23 01:48:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Regardless of whether it has a trio of Michelin stars attached to its name, a re
 
 Full story on F3News: [Where do Asia's top chefs shop for ingredients?](http://www.f3nws.com/n/Uq2AJC)
 
-> Posted on: Wednesday, August 23, 2017 12:35:03 AM
+> Posted on: Wednesday, August 23, 2017 1:48:17 AM
