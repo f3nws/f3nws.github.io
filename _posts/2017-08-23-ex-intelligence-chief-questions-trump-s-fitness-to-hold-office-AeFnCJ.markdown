@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-intelligence chief questions Trump's fitness to hold office"
-date: 2017-08-23 05:00:16Z
+date: 2017-08-23 05:29:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN's Don Lemon asked former Director of National Intelligence James Clapper if 
 
 Full story on F3News: [Ex-intelligence chief questions Trump's fitness to hold office](http://www.f3nws.com/n/AeFnCJ)
 
-> Posted on: Wednesday, August 23, 2017 5:00:16 AM
+> Posted on: Wednesday, August 23, 2017 5:29:11 AM
