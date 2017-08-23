@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DNA from headless torso matches missing journalist"
-date: 2017-08-23 10:51:41Z
+date: 2017-08-23 10:55:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Danish police say DNA from a headless torso matches that of missing journalist K
 
 Full story on F3News: [DNA from headless torso matches missing journalist](http://www.f3nws.com/n/Sqh3cC)
 
-> Posted on: Wednesday, August 23, 2017 10:51:41 AM
+> Posted on: Wednesday, August 23, 2017 10:55:02 AM

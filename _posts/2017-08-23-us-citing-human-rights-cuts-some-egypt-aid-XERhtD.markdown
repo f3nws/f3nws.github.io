@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, citing human rights, cuts some Egypt aid"
-date: 2017-08-23 01:42:02Z
+date: 2017-08-23 11:06:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US has decided to deny Egypt almost $100 million in aid and hold back anothe
 
 Full story on F3News: [US, citing human rights, cuts some Egypt aid](http://www.f3nws.com/n/XERhtD)
 
-> Posted on: Wednesday, August 23, 2017 1:42:02 AM
+> Posted on: Wednesday, August 23, 2017 11:06:23 AM
