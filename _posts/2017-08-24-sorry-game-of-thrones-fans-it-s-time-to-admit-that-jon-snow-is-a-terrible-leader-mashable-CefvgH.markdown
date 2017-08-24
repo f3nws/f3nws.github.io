@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Sorry, 'Game of Thrones' fans, it's time to admit that Jon Snow is a terrible leader - Mashable"
-date: 2017-08-24 00:01:15Z
+date: 2017-08-24 00:00:57Z
 categories: mashable
 ---
 
 ![Sorry, 'Game of Thrones' fans, it's time to admit that Jon Snow is a terrible leader - Mashable](https://i.amz.mshcdn.com/i3QgYU2sA0hYdRKxdPek2A-vP-Y=/1200x630/2017%2F08%2F24%2F0b%2F907bc9c62a09404e91fd6623c827c055.b4108.jpg)
 
-Mashable Sorry, 'Game of Thrones' fans, it's time to admit that Jon Snow is a terrible leader Mashable It's still anyone's guess who'll wind up on the Iron Throne at the end of Game of Thrones (or whether there will be an Iron Throne at all). More and more, though, the signs are pointing to one guy: Jon Snow. SEE ALSO: All hail King Jon Targaryen, first ... Game of Thrones season 7 finale title and length revealed EW.com (blog) 'Game of Thrones' Finale Photos Still Show No Signs of Daenerys, but Bran Appears Ready to Finally Speak Up IndieWire Postcards From Westeros Volume 16 USA TODAY Vanity Fair - TIME - OregonLive.com - Hollywood Life all 1,880 news articles »
+Mashable Sorry, 'Game of Thrones' fans, it's time to admit that Jon Snow is a terrible leader Mashable It's still anyone's guess who'll wind up on the Iron Throne at the end of Game of Thrones (or whether there will be an Iron Throne at all). More and more, though, the signs are pointing to one guy: Jon Snow. SEE ALSO: All hail King Jon Targaryen, first ... Game of Thrones season 7 finale title and length revealed EW.com (blog) 'Game of Thrones' Finale Photos Still Show No Signs of Daenerys, but Bran Appears Ready to Finally Speak Up IndieWire New Game of Thrones Photos Tease a Climactic Final Showdown TIME USA TODAY - Vanity Fair - Hollywood Life - Hollywood Reporter all 1,813 news articles »
 
 
 Full story on F3News: [Sorry, 'Game of Thrones' fans, it's time to admit that Jon Snow is a terrible leader - Mashable](http://www.f3nws.com/n/CefvgH)
 
-> Posted on: Thursday, August 24, 2017 12:01:15 AM
+> Posted on: Thursday, August 24, 2017 12:00:57 AM
