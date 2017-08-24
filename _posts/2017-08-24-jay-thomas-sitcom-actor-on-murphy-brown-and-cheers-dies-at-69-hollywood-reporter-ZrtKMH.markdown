@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jay Thomas, Sitcom Actor on 'Murphy Brown' and 'Cheers,' Dies at 69 - Hollywood Reporter](http://cdn1.thr.com/sites/default/files/2017/08/love_war_tv_457_-_h_2017.jpg)
 
-PEOPLE.com Jay Thomas, Sitcom Actor on 'Murphy Brown' and 'Cheers,' Dies at 69 Hollywood Reporter The two-time Emmy winner most recently appeared on 'Ray Donovan' and spent many a Christmas season with David Letterman. Jay Thomas, the good-natured comic actor who starred on the sitcoms Murphy Brown and Cheers, has died. He was 69. From the PEOPLE Archives: Jay Thomas Opens Up About Reconnecting with the Son He Placed for Adoption PEOPLE.com Jay Thomas Dies: 'Cheers' & 'Ray Donovan' Actor Was 69 Deadline Jay Thomas, 'Murphy Brown' and 'Cheers' Actor, Dies at 69 Variety RollingStone.com - USA TODAY - A.V. Club - Entertainment Tonight all 76 news articles »
+NBCNews.com Jay Thomas, Sitcom Actor on 'Murphy Brown' and 'Cheers,' Dies at 69 Hollywood Reporter The two-time Emmy winner most recently appeared on 'Ray Donovan' and spent many a Christmas season with David Letterman. Jay Thomas, the good-natured comic actor who starred on the sitcoms Murphy Brown and Cheers, has died. He was 69. From the PEOPLE Archives: Jay Thomas Opens Up About Reconnecting with the Son He Placed for Adoption PEOPLE.com Jay Thomas Dies: 'Cheers' & 'Ray Donovan' Actor Was 69 Deadline Cheers and Murphy Brown actor Jay Thomas dies at 69 EW.com RollingStone.com - Variety - USA TODAY - NOLA.com all 87 news articles »
 
 
 Full story on F3News: [Jay Thomas, Sitcom Actor on 'Murphy Brown' and 'Cheers,' Dies at 69 - Hollywood Reporter](http://www.f3nws.com/n/ZrtKMH)
