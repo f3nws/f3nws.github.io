@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Verizon, T-Mobile, AT&T and Sprint unlimited plans compared     - CNET"
-date: 2017-08-24 18:28:35Z
+date: 2017-08-24 20:50:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We compare the unlimited data plans offered by the four major US carriers.
 
 Full story on F3News: [Verizon, T-Mobile, AT&T and Sprint unlimited plans compared     - CNET](http://www.f3nws.com/n/bCJQFB)
 
-> Posted on: Thursday, August 24, 2017 6:28:35 PM
+> Posted on: Thursday, August 24, 2017 8:50:27 PM
