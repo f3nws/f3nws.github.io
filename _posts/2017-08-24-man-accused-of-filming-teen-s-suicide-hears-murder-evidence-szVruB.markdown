@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man accused of filming teen's suicide hears murder evidence"
-date: 2017-08-24 00:10:01Z
+date: 2017-08-24 01:49:05Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Utah man charged with murder after prosecutors say he filmed a teenage girl ki
 
 Full story on F3News: [Man accused of filming teen's suicide hears murder evidence](http://www.f3nws.com/n/szVruB)
 
-> Posted on: Thursday, August 24, 2017 12:10:01 AM
+> Posted on: Thursday, August 24, 2017 1:49:05 AM
