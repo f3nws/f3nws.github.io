@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Brazil has opened a huge chunk of the Amazon to mining"
+date: 2017-08-24 11:33:19Z
+categories: cnn-com-top-stories
+---
+
+![Brazil has opened a huge chunk of the Amazon to mining](http://i2.cdn.turner.com/money/dam/assets/170824110909-amazon-forest-brazil-780x439.jpg)
+
+
+
+
+Full story on F3News: [Brazil has opened a huge chunk of the Amazon to mining](http://www.f3nws.com/n/CpethC)
+
+> Posted on: Thursday, August 24, 2017 11:33:19 AM
