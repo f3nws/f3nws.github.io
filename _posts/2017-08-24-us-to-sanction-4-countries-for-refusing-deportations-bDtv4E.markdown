@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US to sanction 4 countries for refusing deportations"
-date: 2017-08-24 00:24:13Z
+date: 2017-08-24 07:09:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration will impose visa sanctions on four countries that refus
 
 Full story on F3News: [US to sanction 4 countries for refusing deportations](http://www.f3nws.com/n/bDtv4E)
 
-> Posted on: Thursday, August 24, 2017 12:24:13 AM
+> Posted on: Thursday, August 24, 2017 7:09:49 AM

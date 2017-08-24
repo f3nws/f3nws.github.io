@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terror threat cancels Rotterdam concert"
-date: 2017-08-24 01:26:54Z
+date: 2017-08-24 06:59:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A terror threat early Wednesday in the Netherlands caused the cancellation of a 
 
 Full story on F3News: [Terror threat cancels Rotterdam concert](http://www.f3nws.com/n/RngKuD)
 
-> Posted on: Thursday, August 24, 2017 1:26:54 AM
+> Posted on: Thursday, August 24, 2017 6:59:00 AM
