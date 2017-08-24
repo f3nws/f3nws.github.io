@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Details about N. Korea's missile program revealed"
-date: 2017-08-24 00:19:13Z
+date: 2017-08-24 01:12:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Newly released photos appear to reveal unexpected advances in North Korea's miss
 
 Full story on F3News: [Details about N. Korea's missile program revealed](http://www.f3nws.com/n/r3xkJF)
 
-> Posted on: Thursday, August 24, 2017 12:19:13 AM
+> Posted on: Thursday, August 24, 2017 1:12:29 AM

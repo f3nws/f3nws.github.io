@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Children’s culture trip to Russia triggers Ukrainian security service probe"
-date: 2017-08-24 00:14:02Z
+date: 2017-08-24 00:14:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A summer trip to Moscow and St. Petersburg by a group of schoolchildren from Kie
 
 Full story on F3News: [Children’s culture trip to Russia triggers Ukrainian security service probe](http://www.f3nws.com/n/PWBRJC)
 
-> Posted on: Thursday, August 24, 2017 12:14:02 AM
+> Posted on: Thursday, August 24, 2017 12:14:00 AM
