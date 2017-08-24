@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Joker-Harley Quinn Movie in the Works With Jared Leto, Margot Robbie - Variety](https://pmcvariety.files.wordpress.com/2017/08/joker-harley-quinn.jpg?w=1000&h=562&crop=1)
 
-Variety Joker-Harley Quinn Movie in the Works With Jared Leto, Margot Robbie Variety Glenn Ficarra and John Requa, who direct and exec produce NBC's “This Is Us,” are in final negotiations to direct the villain movie as part of the expanding DC Entertainment universe. Leto and Robbie will reprise the roles they played in the studio's ... Joker and Harley Quinn Movie Coming from 'Crazy Stupid Love' Filmmakers (Exclusive) Hollywood Reporter John Requa & Glenn Ficarra Circling Margot Robbie Harley Quinn Spinoff Movie Deadline Jared Leto and Margot Robbie are set to re-team for a new Joker/Harley Quinn movie Washington Post USA TODAY - The Verge - Vulture - EW.com (blog) all 122 news articles »
+Variety Joker-Harley Quinn Movie in the Works With Jared Leto, Margot Robbie Variety Glenn Ficarra and John Requa, who direct and exec produce NBC's “This Is Us,” are in final negotiations to direct the villain movie as part of the expanding DC Entertainment universe. Leto and Robbie will reprise the roles they played in the studio's ... Joker and Harley Quinn Movie Coming from 'Crazy Stupid Love' Filmmakers (Exclusive) Hollywood Reporter John Requa & Glenn Ficarra Circling Margot Robbie Harley Quinn Spinoff Movie Deadline Jared Leto and Margot Robbie are set to re-team for a new Joker/Harley Quinn movie Washington Post USA TODAY - The Verge - Vulture - Comicbook.com all 126 news articles »
 
 
 Full story on F3News: [Joker-Harley Quinn Movie in the Works With Jared Leto, Margot Robbie - Variety](http://www.f3nws.com/n/bRAptB)
