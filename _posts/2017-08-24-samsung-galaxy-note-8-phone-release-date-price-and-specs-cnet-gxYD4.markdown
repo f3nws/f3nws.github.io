@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung Galaxy Note 8 Phone Release Date, Price and Specs     - CNET"
-date: 2017-08-24 03:26:59Z
+date: 2017-08-24 10:10:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Armed with top-shelf specs and a dual camera with portrait mode, Samsung prepare
 
 Full story on F3News: [Samsung Galaxy Note 8 Phone Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/gxYD4)
 
-> Posted on: Thursday, August 24, 2017 3:26:59 AM
+> Posted on: Thursday, August 24, 2017 10:10:33 AM

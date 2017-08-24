@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ESPN explains its decision on Robert Lee"
-date: 2017-08-24 01:52:56Z
+date: 2017-08-24 10:03:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Following a social media backlash over ESPN moving announcer Robert Lee off the 
 
 Full story on F3News: [ESPN explains its decision on Robert Lee](http://www.f3nws.com/n/TcXMTD)
 
-> Posted on: Thursday, August 24, 2017 1:52:56 AM
+> Posted on: Thursday, August 24, 2017 10:03:58 AM

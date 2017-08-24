@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Single winning Powerball ticket sold in Massachusetts, winner to get $758.7M jackpot](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-A single winning Powerball ticket was sold at Handy Variety, a small convenience store located in Watertown, Massachusetts. The winner is set to receive the total $758.7 million jackpot.
+The single winning ticket of Wednesday night’s $758.7 million Powerball drawing was sold at Handy Variety, a small convenience store located in Watertown, Massachusetts.
 
 
 Full story on F3News: [Single winning Powerball ticket sold in Massachusetts, winner to get $758.7M jackpot](http://www.f3nws.com/n/MjhCuE)
