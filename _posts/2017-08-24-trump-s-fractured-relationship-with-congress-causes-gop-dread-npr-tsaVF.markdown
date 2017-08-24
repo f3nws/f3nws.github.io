@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's Fractured Relationship With Congress Causes GOP Dread - NPR](https://media.npr.org/assets/img/2017/08/23/gettyimages-693084048_wide-a322bb9dfbd1999805dfaa3dfc7a0b75288d3768.jpg?s=1400)
 
-NPR Trump's Fractured Relationship With Congress Causes GOP Dread NPR Escalating tension between Capitol Hill and the White House is threatening the GOP's legislative agenda and testing the bonds of party unity under the Trump administration. An unscripted and angry President Trump unloaded on Congress at a campaign ... Timeline: The Trump and McConnell feud The Hill McConnell to address voters in Kentucky amid Trump feud CNN Trump and McConnell try to tamp down talk of growing rift Washington Post The Week Magazine - U.S. News & World Report - Fox News - Lexington Herald Leader all 372 news articles »
+NPR Trump's Fractured Relationship With Congress Causes GOP Dread NPR Escalating tension between Capitol Hill and the White House is threatening the GOP's legislative agenda and testing the bonds of party unity under the Trump administration. An unscripted and angry President Trump unloaded on Congress at a campaign ... Timeline: The Trump and McConnell feud The Hill McConnell to address voters in Kentucky amid Trump feud CNN Trump and McConnell try to tamp down talk of growing rift Washington Post The Week Magazine - U.S. News & World Report - Fox News - Lexington Herald Leader all 367 news articles »
 
 
 Full story on F3News: [Trump's Fractured Relationship With Congress Causes GOP Dread - NPR](http://www.f3nws.com/n/tsaVF)

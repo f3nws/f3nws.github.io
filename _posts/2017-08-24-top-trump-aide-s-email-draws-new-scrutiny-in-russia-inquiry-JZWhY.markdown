@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top Trump aide's email draws new scrutiny in Russia inquiry"
-date: 2017-08-24 10:45:14Z
+date: 2017-08-24 11:48:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Congressional investigators have unearthed an email from a top Trump aide that r
 
 Full story on F3News: [Top Trump aide's email draws new scrutiny in Russia inquiry](http://www.f3nws.com/n/JZWhY)
 
-> Posted on: Thursday, August 24, 2017 10:45:14 AM
+> Posted on: Thursday, August 24, 2017 11:48:42 AM
