@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US bombers arrive in Europe as Russia preps for war games"
-date: 2017-08-24 03:17:39Z
+date: 2017-08-24 06:41:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two US B-1 bombers and one B-52 Stratofortress arrived in the United Kingdom on 
 
 Full story on F3News: [US bombers arrive in Europe as Russia preps for war games](http://www.f3nws.com/n/hkxZSC)
 
-> Posted on: Thursday, August 24, 2017 3:17:39 AM
+> Posted on: Thursday, August 24, 2017 6:41:53 AM
