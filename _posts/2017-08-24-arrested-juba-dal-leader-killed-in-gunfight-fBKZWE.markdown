@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arrested Juba Dal leader killed in ‘gunfight’"
-date: 2017-08-24 05:22:11Z
+date: 2017-08-24 05:31:31Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Arrested Juba Dal leader killed in ‘gunfight’](http://www.f3nws.com/n/fBKZWE)
 
-> Posted on: Thursday, August 24, 2017 5:22:11 AM
+> Posted on: Thursday, August 24, 2017 5:31:31 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California woman feared husband who killed her, took son"
-date: 2017-08-24 02:41:28Z
+date: 2017-08-24 03:53:59Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A friend says a California woman seeking divorce from her husband had fled to a 
 
 Full story on F3News: [California woman feared husband who killed her, took son](http://www.f3nws.com/n/Q3RQYE)
 
-> Posted on: Thursday, August 24, 2017 2:41:28 AM
+> Posted on: Thursday, August 24, 2017 3:53:59 AM
