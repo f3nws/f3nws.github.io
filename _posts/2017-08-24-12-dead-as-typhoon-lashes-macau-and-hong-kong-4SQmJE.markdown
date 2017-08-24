@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "12 dead as typhoon lashes Macau and Hong Kong"
-date: 2017-08-24 03:23:29Z
+date: 2017-08-24 04:24:16Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A strong typhoon struck the coast of China on Wednesday, bringing massive winds 
 
 Full story on F3News: [12 dead as typhoon lashes Macau and Hong Kong](http://www.f3nws.com/n/4SQmJE)
 
-> Posted on: Thursday, August 24, 2017 3:23:29 AM
+> Posted on: Thursday, August 24, 2017 4:24:16 AM
