@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Another communications staffer departs White House"
-date: 2017-08-24 13:27:23Z
+date: 2017-08-24 22:48:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House's revolving door has seen more out than in lately, as White Hous
 
 Full story on F3News: [Another communications staffer departs White House](http://www.f3nws.com/n/udHxsG)
 
-> Posted on: Thursday, August 24, 2017 1:27:23 PM
+> Posted on: Thursday, August 24, 2017 10:48:23 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jay Thomas, 'Cheers' actor, dead at 69"
-date: 2017-08-24 22:08:39Z
+date: 2017-08-24 22:55:25Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jay Thomas, a comic and character actor whose credits include roles on "Cheers" 
 
 Full story on F3News: [Jay Thomas, 'Cheers' actor, dead at 69](http://www.f3nws.com/n/v3zt3C)
 
-> Posted on: Thursday, August 24, 2017 10:08:39 PM
+> Posted on: Thursday, August 24, 2017 10:55:25 PM
