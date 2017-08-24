@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DAPL protesters sued for being ‘eco-terrorists’ by company behind pipeline"
-date: 2017-08-24 01:29:47Z
+date: 2017-08-24 01:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Energy Transfer Partners, the corporation behind the Dakota Access Pipeline, has
 
 Full story on F3News: [DAPL protesters sued for being ‘eco-terrorists’ by company behind pipeline](http://www.f3nws.com/n/TAMvtD)
 
-> Posted on: Thursday, August 24, 2017 1:29:47 AM
+> Posted on: Thursday, August 24, 2017 1:29:00 AM
