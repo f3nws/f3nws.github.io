@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beware of Windows/MacOS/Linux Virus Spreading Through Facebook Messenger"
-date: 2017-08-24 16:18:40Z
+date: 2017-08-24 16:31:19Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ If you came across any Facebook message with a video link sent by anyone, even y
 
 Full story on F3News: [Beware of Windows/MacOS/Linux Virus Spreading Through Facebook Messenger](http://www.f3nws.com/n/GhZxcD)
 
-> Posted on: Thursday, August 24, 2017 4:18:40 PM
+> Posted on: Thursday, August 24, 2017 4:31:19 PM

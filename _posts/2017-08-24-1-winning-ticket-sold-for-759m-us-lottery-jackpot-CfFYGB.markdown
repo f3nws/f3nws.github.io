@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1 winning ticket sold for $759M US lottery jackpot"
-date: 2017-08-24 15:26:19Z
+date: 2017-08-24 16:46:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The winning numbers for the $700 million Powerball jackpot have been drawn.
 
 Full story on F3News: [1 winning ticket sold for $759M US lottery jackpot](http://www.f3nws.com/n/CfFYGB)
 
-> Posted on: Thursday, August 24, 2017 3:26:19 PM
+> Posted on: Thursday, August 24, 2017 4:46:10 PM
