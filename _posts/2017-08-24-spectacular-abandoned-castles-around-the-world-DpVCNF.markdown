@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spectacular abandoned castles around the world"
-date: 2017-08-24 00:11:05Z
+date: 2017-08-24 05:16:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An abandoned castle always cuts an impressive figure -- a blast from the past su
 
 Full story on F3News: [Spectacular abandoned castles around the world](http://www.f3nws.com/n/DpVCNF)
 
-> Posted on: Thursday, August 24, 2017 12:11:05 AM
+> Posted on: Thursday, August 24, 2017 5:16:46 AM
