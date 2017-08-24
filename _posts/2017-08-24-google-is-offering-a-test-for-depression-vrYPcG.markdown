@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google is offering a test for depression"
-date: 2017-08-24 13:15:51Z
+date: 2017-08-24 15:28:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Google is offering a test for depression](http://www.f3nws.com/n/vrYPcG)
 
-> Posted on: Thursday, August 24, 2017 1:15:51 PM
+> Posted on: Thursday, August 24, 2017 3:28:55 PM

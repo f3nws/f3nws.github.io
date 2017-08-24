@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazil has opened a huge chunk of the Amazon to mining"
-date: 2017-08-24 13:44:27Z
+date: 2017-08-24 15:44:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Brazil has opened a huge chunk of the Amazon to mining](http://www.f3nws.com/n/CpethC)
 
-> Posted on: Thursday, August 24, 2017 1:44:27 PM
+> Posted on: Thursday, August 24, 2017 3:44:17 PM
