@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Netanyahu to Putin: Iran must withdraw from Syria or Israel will ‘defend itself’"
-date: 2017-08-24 01:23:03Z
+date: 2017-08-24 01:23:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israeli PM Benjamin Netanyahu has warned Russian President Vladimir Putin that I
 
 Full story on F3News: [Netanyahu to Putin: Iran must withdraw from Syria or Israel will ‘defend itself’](http://www.f3nws.com/n/NMVau)
 
-> Posted on: Thursday, August 24, 2017 1:23:03 AM
+> Posted on: Thursday, August 24, 2017 1:23:00 AM

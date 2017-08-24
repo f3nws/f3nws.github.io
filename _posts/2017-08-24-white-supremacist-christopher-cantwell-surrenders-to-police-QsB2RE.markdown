@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White supremacist Christopher Cantwell surrenders to police"
-date: 2017-08-24 15:34:55Z
+date: 2017-08-24 18:18:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Christopher Cantwell, a white supremacist organizer known for a Vice video about
 
 Full story on F3News: [White supremacist Christopher Cantwell surrenders to police](http://www.f3nws.com/n/QsB2RE)
 
-> Posted on: Thursday, August 24, 2017 3:34:55 PM
+> Posted on: Thursday, August 24, 2017 6:18:39 PM
