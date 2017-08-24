@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House to issue guidance on transgender military ban, WSJ reports - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170623183653-pentagon-sign-10-29-2014-super-tease.jpg)
 
-CNN White House to issue guidance on transgender military ban, WSJ reports CNN Washington (CNN) The White House will send guidance to the Pentagon on President Donald Trump's transgender military ban -- including instructions to reject transgender applicants -- "in coming days," The Wall Street Journal reported Wednesday night, ... Trump's Transgender Military Ban Memo Shows His 'Embrace of Hate,' Says Veterans Group Newsweek White House Gearing Up To Push Transgender Military Ban Forward HuffPost White House said to be close on transgender military ban Politico New York Magazine - The Hill - Reuters - New York Times all 68 news articles »
+CNN White House to issue guidance on transgender military ban, WSJ reports CNN Washington (CNN) The White House will send guidance to the Pentagon on President Donald Trump's transgender military ban -- including instructions to reject transgender applicants -- "in coming days," The Wall Street Journal reported Wednesday night, ... Trump's Transgender Military Ban Memo Shows His 'Embrace of Hate,' Says Veterans Group Newsweek White House said to be close on transgender military ban Politico White House Finds Solution to Transgender Military Ban: Delay, Then Let Mattis Decide New York Magazine The Hill - CBS News - Reuters - HuffPost all 72 news articles »
 
 
 Full story on F3News: [White House to issue guidance on transgender military ban, WSJ reports - CNN](http://www.f3nws.com/n/QDvsrC)
