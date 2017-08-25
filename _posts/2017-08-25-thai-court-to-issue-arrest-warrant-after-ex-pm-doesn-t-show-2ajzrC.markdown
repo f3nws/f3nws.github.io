@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thai court to issue arrest warrant after ex-PM doesn't show"
-date: 2017-08-25 00:34:00Z
+date: 2017-08-25 01:17:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BANGKOK (AP) — Thailand's Supreme Court said it will issue an arrest warrant f
 
 Full story on F3News: [Thai court to issue arrest warrant after ex-PM doesn't show](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 25, 2017 12:34:00 AM
+> Posted on: Friday, August 25, 2017 1:17:00 AM
