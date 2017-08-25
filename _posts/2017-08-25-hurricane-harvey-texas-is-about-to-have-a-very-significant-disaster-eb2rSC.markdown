@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Harvey: 'Texas is about to have a very significant disaster'"
-date: 2017-08-25 21:15:53Z
+date: 2017-08-25 21:32:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As heavy rain and gusty winds move in over Texas, coastal residents are deciding
 
 Full story on F3News: [Hurricane Harvey: 'Texas is about to have a very significant disaster'](http://www.f3nws.com/n/eb2rSC)
 
-> Posted on: Friday, August 25, 2017 9:15:53 PM
+> Posted on: Friday, August 25, 2017 9:32:04 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "With time running out, thousands flee Hurricane Harvey"
-date: 2017-08-25 16:32:00Z
+date: 2017-08-25 17:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — With time running out, tens of thousands of people fled Friday 
 
 Full story on F3News: [With time running out, thousands flee Hurricane Harvey](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 25, 2017 4:32:00 PM
+> Posted on: Friday, August 25, 2017 5:43:00 PM
