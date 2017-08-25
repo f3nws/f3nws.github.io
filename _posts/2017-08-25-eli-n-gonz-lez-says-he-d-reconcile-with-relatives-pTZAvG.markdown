@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Elián González says he'd reconcile with relatives"
-date: 2017-08-25 00:47:23Z
+date: 2017-08-25 01:24:09Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Elián González greets me with a smile and firm handshake.
 
 Full story on F3News: [Elián González says he'd reconcile with relatives](http://www.f3nws.com/n/pTZAvG)
 
-> Posted on: Friday, August 25, 2017 12:47:23 AM
+> Posted on: Friday, August 25, 2017 1:24:09 AM

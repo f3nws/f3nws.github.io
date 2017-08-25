@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane could hit Texas for 1st time since 2008"
-date: 2017-08-25 01:05:24Z
+date: 2017-08-25 01:53:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Texans are filling sandbags, stocking up on water and boarding up windows ahead 
 
 Full story on F3News: [Hurricane could hit Texas for 1st time since 2008](http://www.f3nws.com/n/qeQyRB)
 
-> Posted on: Friday, August 25, 2017 1:05:24 AM
+> Posted on: Friday, August 25, 2017 1:53:38 AM

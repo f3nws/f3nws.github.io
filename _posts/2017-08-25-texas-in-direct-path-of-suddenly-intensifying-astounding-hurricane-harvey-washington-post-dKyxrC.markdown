@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Texas in direct path of suddenly intensifying, 'astounding' Hurricane Harvey - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/24/National-Enterprise/Images/2017-08-24T192632Z_825078672_RC1ABE9F3010_RTRMADP_3_STORM-HARVEY.jpg?t=20170517)
 
-Washington Post Texas in direct path of suddenly intensifying, 'astounding' Hurricane Harvey Washington Post Texas is bracing for potentially catastrophic flooding and winds as Hurricane Harvey intensified Thursday and cruised toward a late Friday impact near Corpus Christi. The National Hurricane Center described Harvey's sudden strengthening as “astounding. Hurricane Harvey threatens US with most powerful storm in 12 years Reuters 5 reasons to closely watch Hurricane Harvey CNN Harvey's perfect storm recipe: Warm water, calm air up high ABC News Fox News - Yahoo News - HuffPost - CBS News all 1,762 news articles »
+Washington Post Texas in direct path of suddenly intensifying, 'astounding' Hurricane Harvey Washington Post Texas is bracing for potentially catastrophic flooding and winds as Hurricane Harvey intensified Thursday and cruised toward a late Friday impact near Corpus Christi. The National Hurricane Center described Harvey's sudden strengthening as “astounding. 5 reasons to closely watch Hurricane Harvey CNN Oil markets volatile as industry prepares to be hit by Hurricane Harvey Reuters Hurricane Harvey barrels toward coast as Texans prepare for worst Fox News Yahoo News - ABC News - CBS News - HuffPost all 1,836 news articles »
 
 
 Full story on F3News: [Texas in direct path of suddenly intensifying, 'astounding' Hurricane Harvey - Washington Post](http://www.f3nws.com/n/dKyxrC)
