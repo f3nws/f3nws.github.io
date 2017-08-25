@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Patty Jenkins Fires Back at James Cameron Over 'Wonder Woman' Criticism - Variety](https://pmcvariety.files.wordpress.com/2017/07/patty-jenkins.jpg?w=1000&h=563&crop=1)
 
-Variety Patty Jenkins Fires Back at James Cameron Over 'Wonder Woman' Criticism Variety In a tweet, she said “James Cameron's inability to understand what Wonder Woman is, or stands for, to women all over the world is unsurprising as, though, he is a great filmmaker, he is not a woman.” ... Patty Jenkins Responds To James Cameron's 'Wonder Woman' Criticism: “Strong Women Are Great” Deadline Patty Jenkins Rips James Cameron's 'Wonder Woman' Takedown: "There Is No Right and Wrong Kind of Powerful ... Hollywood Reporter Patty Jenkins Responds To James Cameron's 'Wonder Woman' Critique Comicbook.com EW.com (blog) - Daily Beast - Vanity Fair - ABC News all 167 news articles »
+Variety Patty Jenkins Fires Back at James Cameron Over 'Wonder Woman' Criticism Variety In a tweet, she said “James Cameron's inability to understand what Wonder Woman is, or stands for, to women all over the world is unsurprising as, though, he is a great filmmaker, he is not a woman.” ... Patty Jenkins Responds To James Cameron's 'Wonder Woman' Criticism: “Strong Women Are Great” Deadline Patty Jenkins Rips James Cameron's 'Wonder Woman' Takedown: "There Is No Right and Wrong Kind of Powerful ... Hollywood Reporter 'Wonder Woman' director Patty Jenkins strikes back at James Cameron USA TODAY Comicbook.com - EW.com (blog) - Daily Beast - Vanity Fair all 168 news articles »
 
 
 Full story on F3News: [Patty Jenkins Fires Back at James Cameron Over 'Wonder Woman' Criticism - Variety](http://www.f3nws.com/n/UT2tjH)
