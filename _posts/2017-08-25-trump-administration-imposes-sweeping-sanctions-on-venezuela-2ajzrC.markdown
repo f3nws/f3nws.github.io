@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Trump administration imposes sweeping sanctions on Venezuela"
-date: 2017-08-25 12:02:00Z
+date: 2017-08-25 13:21:00Z
 categories: associated-press-ap-top-headlines
 ---
 
-CARACAS, Venezuela (AP) — The Trump administration on Friday slapped sweeping financial sanctions on Venezuela, barring banks from any new financial deals with the government or state-run oil giant PDVSA.
+CARACAS, Venezuela (AP) — The Trump administration on Friday slapped sweeping financial sanctions on Venezuela, dramatically ratcheting up tensions between the two countries and making it harder for embattled President Nicolas Maduro to raise badly needed funds to prevent a debt default.
 
 
 Full story on F3News: [Trump administration imposes sweeping sanctions on Venezuela](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 25, 2017 12:02:00 PM
+> Posted on: Friday, August 25, 2017 1:21:00 PM
