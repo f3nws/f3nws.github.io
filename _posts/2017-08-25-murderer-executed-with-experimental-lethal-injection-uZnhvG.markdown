@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Murderer executed with experimental lethal injection](http://www.abc.net.au/news/image/8841942-1x1-700x700.jpg)
 
-Florida has carried out its first execution in more than 18 months, using an experimental anaesthetic to kill an inmate convicted of two racially motivated murders,
+Florida has carried out its first execution in more than 18 months, using an experimental anaesthetic to kill an inmate convicted of two racially motivated murders.
 
 
 Full story on F3News: [Murderer executed with experimental lethal injection](http://www.f3nws.com/n/uZnhvG)
