@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Controversial Indian guru guilty in rape trial"
-date: 2017-08-25 11:43:35Z
+date: 2017-08-25 15:18:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Several north Indian cities are bracing for violence in the wake of a guilty ver
 
 Full story on F3News: [Controversial Indian guru guilty in rape trial](http://www.f3nws.com/n/pVmCjG)
 
-> Posted on: Friday, August 25, 2017 11:43:35 AM
+> Posted on: Friday, August 25, 2017 3:18:04 PM

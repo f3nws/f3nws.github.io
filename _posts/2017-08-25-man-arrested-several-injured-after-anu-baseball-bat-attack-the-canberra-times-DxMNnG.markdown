@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man arrested, several injured after ANU baseball bat attack - The Canberra Times](http://www.canberratimes.com.au/content/dam/images/g/y/4/3/j/j/image.related.socialLead.620x349.gy3xkr.png/1503653070717.jpg)
 
-The Canberra Times Man arrested, several injured after ANU baseball bat attack The Canberra Times An 18-year-old man has been arrested after several people were attacked with a baseball bat at the Australian National University campus in Canberra. Just after 9am on Friday, police allege the Caucasian man, who is a student at the university, stood ... Students attacked on campus at Australian National University, Canberra dailytelegraph.com.au Students praised after ANU attack The Australian Student in ANU baseball bat attack may have snapped because of failing grades Yahoo7 News News24 - ABC Online - Independent.ie - Daily Mail all 70 news articles »
+The Canberra Times Man arrested, several injured after ANU baseball bat attack The Canberra Times An 18-year-old man has been arrested after several people were attacked with a baseball bat at the Australian National University campus in Canberra. Just after 9am on Friday, police allege the Caucasian man, who is a student at the university, stood ... Students attacked on campus at Australian National University, Canberra dailytelegraph.com.au Students praised after ANU attack The Australian Baseball attack on lecturer, classmates at Australian National University The Australian Financial Review Yahoo7 News - News24 - ABC Online - Independent.ie all 69 news articles »
 
 
 Full story on F3News: [Man arrested, several injured after ANU baseball bat attack - The Canberra Times](http://www.f3nws.com/n/DxMNnG)

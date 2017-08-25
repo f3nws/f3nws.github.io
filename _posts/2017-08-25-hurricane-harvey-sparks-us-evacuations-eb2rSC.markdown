@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Harvey sparks US evacuations"
-date: 2017-08-25 14:01:42Z
+date: 2017-08-25 15:11:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As heavy rain and gusty winds move in over Texas, coastal residents are deciding
 
 Full story on F3News: [Hurricane Harvey sparks US evacuations](http://www.f3nws.com/n/eb2rSC)
 
-> Posted on: Friday, August 25, 2017 2:01:42 PM
+> Posted on: Friday, August 25, 2017 3:11:27 PM
