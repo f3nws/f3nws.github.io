@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arrest warrant issued for ex-Thai PM after she skips court"
-date: 2017-08-25 08:02:38Z
+date: 2017-08-25 08:26:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of police stood guard in the streets around Bangkok's Supreme Court Fr
 
 Full story on F3News: [Arrest warrant issued for ex-Thai PM after she skips court](http://www.f3nws.com/n/dzYhaE)
 
-> Posted on: Friday, August 25, 2017 8:02:38 AM
+> Posted on: Friday, August 25, 2017 8:26:28 AM
