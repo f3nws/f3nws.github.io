@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump signs directive banning transgender military recruits - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170726203915-protester-transgender-army-super-tease.jpg)
 
-CNN Trump signs directive banning transgender military recruits CNN (CNN) President Donald Trump on Friday directed the military not to move forward with an Obama-era plan that would have allowed transgender individuals to be recruited into the armed forces, following through on his intentions announced a month earlier ... Pentagon expects to soon ban recruiting transgender people Washington Post Trump's Order Bans Military From Accepting Transgender Recruits Bloomberg Trump Signs Memo Implementing Ban On Transgender People In The Military NPR The Hill - KERA News - The Providence Journal - WNPR News all 58 news articles »
+CNN Trump signs directive banning transgender military recruits CNN (CNN) President Donald Trump on Friday directed the military not to move forward with an Obama-era plan that would have allowed transgender individuals to be recruited into the armed forces, following through on his intentions announced a month earlier ... Trump signs memo directing Pentagon to renew ban on recruiting transgender people CBS News Trump signs memo directing Pentagon to ban transgender individuals from openly serving in US military ABC News Trump issues guidance on transgender military ban Fox News Bloomberg - New York Times - NPR - The Hill all 75 news articles »
 
 
 Full story on F3News: [Trump signs directive banning transgender military recruits - CNN](http://www.f3nws.com/n/Sbupx)
