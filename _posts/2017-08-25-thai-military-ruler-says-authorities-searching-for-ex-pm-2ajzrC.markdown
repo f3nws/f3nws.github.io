@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thai military ruler says authorities searching for ex-PM"
-date: 2017-08-25 09:37:00Z
+date: 2017-08-25 15:39:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BANGKOK (AP) — Thailand's military ruler said authorities are searching for Yi
 
 Full story on F3News: [Thai military ruler says authorities searching for ex-PM](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, August 25, 2017 9:37:00 AM
+> Posted on: Friday, August 25, 2017 3:39:00 PM
