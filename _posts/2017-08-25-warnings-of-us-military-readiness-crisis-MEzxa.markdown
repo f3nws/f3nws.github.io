@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Warnings of US military readiness 'crisis'"
-date: 2017-08-25 01:52:20Z
+date: 2017-08-25 11:02:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Military leaders, Congress and government watchdogs have all warned for years th
 
 Full story on F3News: [Warnings of US military readiness 'crisis'](http://www.f3nws.com/n/MEzxa)
 
-> Posted on: Friday, August 25, 2017 1:52:20 AM
+> Posted on: Friday, August 25, 2017 11:02:19 AM
