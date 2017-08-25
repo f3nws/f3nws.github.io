@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PNG tells Australia it can't shut Manus Island detention centre and leave asylum seekers behind - ABC Online"
-date: 2017-08-25 08:40:00Z
+date: 2017-08-25 08:44:52Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online PNG tells Australia it can't shut Manus Island detention centre and l
 
 Full story on F3News: [PNG tells Australia it can't shut Manus Island detention centre and leave asylum seekers behind - ABC Online](http://www.f3nws.com/n/xMSMEF)
 
-> Posted on: Friday, August 25, 2017 8:40:00 AM
+> Posted on: Friday, August 25, 2017 8:44:52 AM
