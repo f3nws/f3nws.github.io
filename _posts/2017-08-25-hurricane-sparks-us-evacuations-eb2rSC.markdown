@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane sparks US evacuations"
-date: 2017-08-25 17:57:47Z
+date: 2017-08-25 18:54:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As heavy rain and gusty winds move in over Texas, coastal residents are deciding
 
 Full story on F3News: [Hurricane sparks US evacuations](http://www.f3nws.com/n/eb2rSC)
 
-> Posted on: Friday, August 25, 2017 5:57:47 PM
+> Posted on: Friday, August 25, 2017 6:54:57 PM
