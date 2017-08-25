@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tanker becomes first to cross Arctic without icebreaker"
-date: 2017-08-25 05:42:38Z
+date: 2017-08-25 10:28:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tanker becomes first to cross Arctic without icebreaker](http://www.f3nws.com/n/K3qMMC)
 
-> Posted on: Friday, August 25, 2017 5:42:38 AM
+> Posted on: Friday, August 25, 2017 10:28:13 AM
