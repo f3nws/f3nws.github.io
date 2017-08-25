@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![East High coach let go from previous job over forced splits - WFAA](http://content.9news.com/photo/2017/08/24/Still0824_00000_1503619759914_10354467_ver1.0.jpg)
 
-WFAA East High coach let go from previous job over forced splits WFAA The East High School cheerleading coach under fire for physically forcing girls to do the splits was dismissed from a similar position at Boulder High in 2016 for doing the same thing, 9Wants to Know has learned. Marshall Zelinger, Katie Wilcox, Kevin ... Disturbing video shows high school cheerleaders screaming as they're forced to do splits Washington Post As she wailed in pain, her cheer teammates and coach forced her to do splits, video shows Miami Herald "I was horrified": Mother of cheerleader forced into splits speaks out CBS News Jezebel - The Denver Channel - Chicago Tribune - Bustle all 184 news articles »
+WFAA East High coach let go from previous job over forced splits WFAA The East High School cheerleading coach under fire for physically forcing girls to do the splits was dismissed from a similar position at Boulder High in 2016 for doing the same thing, 9Wants to Know has learned. Marshall Zelinger, Katie Wilcox, Kevin ... Video Shows High School Cheerleader Crying As Coach Forces Her Into Splits HuffPost "I was horrified": Mother of cheerleader forced into splits speaks out CBS News Disturbing video shows high school cheerleaders being forced into splits AZCentral.com Sacramento Bee - Jezebel - Chicago Tribune - The Denver Channel all 186 news articles »
 
 
 Full story on F3News: [East High coach let go from previous job over forced splits - WFAA](http://www.f3nws.com/n/CaEbKH)
