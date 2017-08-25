@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's natural disaster test"
-date: 2017-08-25 19:14:42Z
+date: 2017-08-25 20:03:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As Hurricane Harvey swirls through the Gulf of Mexico, speeding toward the Texas
 
 Full story on F3News: [Trump's natural disaster test](http://www.f3nws.com/n/CPRPGH)
 
-> Posted on: Friday, August 25, 2017 7:14:42 PM
+> Posted on: Friday, August 25, 2017 8:03:25 PM
