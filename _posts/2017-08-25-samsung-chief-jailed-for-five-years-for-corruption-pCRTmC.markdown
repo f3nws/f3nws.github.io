@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung chief jailed for five years for corruption"
-date: 2017-08-25 06:50:39Z
+date: 2017-08-25 07:11:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Samsung chief jailed for five years for corruption](http://www.f3nws.com/n/pCRTmC)
 
-> Posted on: Friday, August 25, 2017 6:50:39 AM
+> Posted on: Friday, August 25, 2017 7:11:42 AM
