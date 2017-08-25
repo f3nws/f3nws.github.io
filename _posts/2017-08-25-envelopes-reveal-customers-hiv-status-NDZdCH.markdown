@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Envelopes reveal customers' HIV status"
-date: 2017-08-25 09:29:40Z
+date: 2017-08-25 10:17:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The health care company Aetna mailed envelopes that revealed the HIV status of s
 
 Full story on F3News: [Envelopes reveal customers' HIV status](http://www.f3nws.com/n/NDZdCH)
 
-> Posted on: Friday, August 25, 2017 9:29:40 AM
+> Posted on: Friday, August 25, 2017 10:17:51 AM
