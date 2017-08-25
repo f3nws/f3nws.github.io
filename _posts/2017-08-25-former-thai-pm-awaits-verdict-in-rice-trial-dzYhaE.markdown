@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Thai PM awaits verdict in rice trial"
-date: 2017-08-25 02:11:11Z
+date: 2017-08-25 02:58:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of police stood guard in the streets around Bangkok's Supreme Court Fr
 
 Full story on F3News: [Former Thai PM awaits verdict in rice trial](http://www.f3nws.com/n/dzYhaE)
 
-> Posted on: Friday, August 25, 2017 2:11:11 AM
+> Posted on: Friday, August 25, 2017 2:58:05 AM

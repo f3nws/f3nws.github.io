@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barista transforms coffee into beautiful works of art"
-date: 2017-08-25 01:02:32Z
+date: 2017-08-25 02:46:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Think latte art's a tired trend?
 
 Full story on F3News: [Barista transforms coffee into beautiful works of art](http://www.f3nws.com/n/FSun3D)
 
-> Posted on: Friday, August 25, 2017 1:02:32 AM
+> Posted on: Friday, August 25, 2017 2:46:18 AM
