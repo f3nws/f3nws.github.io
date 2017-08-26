@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump pardons controversial ex-sheriff Arpaio"
-date: 2017-08-26 00:36:58Z
+date: 2017-08-26 02:25:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has pardoned controversial sheriff Joe Arpaio of his conv
 
 Full story on F3News: [Trump pardons controversial ex-sheriff Arpaio](http://www.f3nws.com/n/WQzefB)
 
-> Posted on: Saturday, August 26, 2017 12:36:58 AM
+> Posted on: Saturday, August 26, 2017 2:25:53 AM

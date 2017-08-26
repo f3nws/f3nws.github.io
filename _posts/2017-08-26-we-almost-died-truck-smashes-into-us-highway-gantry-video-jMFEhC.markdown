@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘We almost died’: Truck smashes into US highway gantry (VIDEO)"
-date: 2017-08-26 01:55:35Z
+date: 2017-08-26 01:55:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A crash wrecked havoc on a major US freeway after a dump truck jackknifed across
 
 Full story on F3News: [‘We almost died’: Truck smashes into US highway gantry (VIDEO)](http://www.f3nws.com/n/jMFEhC)
 
-> Posted on: Saturday, August 26, 2017 1:55:35 AM
+> Posted on: Saturday, August 26, 2017 1:55:00 AM

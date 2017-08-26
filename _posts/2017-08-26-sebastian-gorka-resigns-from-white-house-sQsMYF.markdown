@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sebastian Gorka resigns from White House"
-date: 2017-08-26 01:46:07Z
+date: 2017-08-26 01:59:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sebastian Gorka has resigned from his position as a top counterterrorism adviser
 
 Full story on F3News: [Sebastian Gorka resigns from White House](http://www.f3nws.com/n/sQsMYF)
 
-> Posted on: Saturday, August 26, 2017 1:46:07 AM
+> Posted on: Saturday, August 26, 2017 1:59:28 AM
