@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey lashes Texas coast with high wind, torrential rain"
-date: 2017-08-26 00:41:00Z
+date: 2017-08-26 01:03:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CORPUS CHRISTI, Texas (AP) — Hurricane Harvey smashed into Texas late Friday, 
 
 Full story on F3News: [Harvey lashes Texas coast with high wind, torrential rain](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, August 26, 2017 12:41:00 AM
+> Posted on: Saturday, August 26, 2017 1:03:00 AM

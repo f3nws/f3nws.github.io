@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Floyd Mayweather's purse at $100M; Conor McGregor's $30M biggest of career - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0825%2Fr249024_1296x729_16%2D9.jpg)
 
-ESPN Floyd Mayweather's purse at $100M; Conor McGregor's $30M biggest of career ESPN LAS VEGAS -- For the second time in three fights, Floyd Mayweather will earn a guaranteed purse of $100 million. Mayweather, coming out of a two-year retirement, will earn that sum as a minimum for his junior middleweight boxing match against UFC star ... As Fight vs. Mayweather Approaches, McGregor and Fans Stake Claim to Las Vegas Sports Illustrated Full coverage: Floyd Mayweather-Conor McGregor ABC News Mayweather vs. McGregor is more farce that fight Los Angeles Times MMA Fighting - New York Daily News - Bloody Elbow - Bleacher Report all 1,070 news articles »
+ESPN Floyd Mayweather's purse at $100M; Conor McGregor's $30M biggest of career ESPN LAS VEGAS -- For the second time in three fights, Floyd Mayweather will earn a guaranteed purse of $100 million. Mayweather, coming out of a two-year retirement, will earn that sum as a minimum for his junior middleweight boxing match against UFC star ... As Fight vs. Mayweather Approaches, McGregor and Fans Stake Claim to Las Vegas Sports Illustrated Mayweather, McGregor ready to rumble in much-hyped fight FOXSports.com Full coverage: Floyd Mayweather-Conor McGregor ABC News Los Angeles Times - New York Daily News - MMA Fighting - New York Post all 1,083 news articles »
 
 
 Full story on F3News: [Floyd Mayweather's purse at $100M; Conor McGregor's $30M biggest of career - ESPN](http://www.f3nws.com/n/ZxySAB)
