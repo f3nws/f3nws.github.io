@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea launches missiles days after US praised restraint"
-date: 2017-08-26 15:25:15Z
+date: 2017-08-26 18:53:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an "unidentified projectile" from Kittaeryong into the sea eas
 
 Full story on F3News: [North Korea launches missiles days after US praised restraint](http://www.f3nws.com/n/ER2PQF)
 
-> Posted on: Saturday, August 26, 2017 3:25:15 PM
+> Posted on: Saturday, August 26, 2017 6:53:23 PM
