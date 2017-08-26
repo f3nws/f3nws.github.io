@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Some Facebook and Instagram users are experiencing outages](https://cdn.vox-cdn.com/thumbor/Qk2Jwd4e-wzWQxDlEQMPxmDqnGA=/0x106:2040x1254/1600x900/cdn.vox-cdn.com/uploads/chorus_image/image/56376901/facebook-stock-1104.0.0.jpg)
 
-The Verge Some Facebook and Instagram users are experiencing outages The Verge Facebook and Instagram appear to be down for some users this morning with some unable to post and others unable to access the sites entirely. Facebook users have reported issues accessing page mailboxes, uploading images, and posting updates, ... It Isn't Just You. Facebook Is Down Fortune Facebook down? It's not just you. KXAN.com Facebook, Instagram appear to be back in service after outage The Mercury News Independent.ie - Miami Herald - New York's PIX11 / WPIX-TV - The Independent all 60 news articles »
+The Verge Some Facebook and Instagram users are experiencing outages The Verge Facebook and Instagram appear to be down for some users this morning with some unable to post and others unable to access the sites entirely. Facebook users have reported issues accessing page mailboxes, uploading images, and posting updates, on ... Facebook and Instagram down: Social media users struggle to log on Independent.ie Facebook down? It's not just you. KXAN.com Facebook, Instagram appear to be back in service after outage The Mercury News Miami Herald - New York's PIX11 / WPIX-TV - gulfnews.com - The Independent all 66 news articles »
 
 
 Full story on F3News: [Some Facebook and Instagram users are experiencing outages](http://www.f3nws.com/n/cJ4tTH)
