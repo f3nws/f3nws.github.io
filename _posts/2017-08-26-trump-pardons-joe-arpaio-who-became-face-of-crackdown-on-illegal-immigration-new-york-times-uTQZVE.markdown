@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration - New York Times](https://static01.nyt.com/images/2017/08/26/us/00dc-arpaio-hfo/00dc-arpaio-hfo-facebookJumbo.jpg)
 
-New York Times Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration New York Times Joe Arpaio served for 24 years as sheriff of Maricopa County, Ariz., building a national reputation for harsh conditions in his county jail, and for his campaign against undocumented immigrants. Credit Courtney Pedroza for The New York Times ... Trump pardons former Arizona sheriff Joe Arpaio Washington Post Trump pardons former Sheriff Joe Arpaio CNN Trump's first pardon spares political ally Arpaio ABC News HuffPost - Politico - New York Daily News - NPR all 4,548 news articles »
+New York Times Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration New York Times Joe Arpaio served for 24 years as sheriff of Maricopa County, Ariz., building a national reputation for harsh conditions in his county jail, and for his campaign against undocumented immigrants. Credit Courtney Pedroza for The New York Times ... Trump pardons former Arizona sheriff Joe Arpaio Washington Post Trump's first pardon spares political ally Arpaio ABC News Trump Pardons Former Sheriff Joe Arpaio, Who Illegally Targeted Latinos HuffPost Politico - The Hill - New York Daily News - NPR all 4,634 news articles »
 
 
 Full story on F3News: [Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration - New York Times](http://www.f3nws.com/n/uTQZVE)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korea fires trio of missiles amidst US-S Korea military drills"
-date: 2017-08-26 04:31:35Z
+date: 2017-08-26 06:44:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an "unidentified projectile" from Kittaeryong into the sea eas
 
 Full story on F3News: [N Korea fires trio of missiles amidst US-S Korea military drills](http://www.f3nws.com/n/ER2PQF)
 
-> Posted on: Saturday, August 26, 2017 4:31:35 AM
+> Posted on: Saturday, August 26, 2017 6:44:48 AM
