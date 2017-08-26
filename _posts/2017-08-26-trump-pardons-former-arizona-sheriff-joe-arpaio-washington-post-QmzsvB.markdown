@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump pardons former Arizona sheriff Joe Arpaio - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/26/National-Security/Images/Arpaio-Pardon_59197-30920.jpg?t=20170517)
 
-Washington Post Trump pardons former Arizona sheriff Joe Arpaio Washington Post President Trump on Friday pardoned former Arizona sheriff Joe Arpaio — a move that keeps one of his staunchest political allies out of jail and will likely cheer his conservative base, which supports both men's hard-line views on illegal immigration. Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration New York Times Trump Pardons Former Sheriff Joe Arpaio, Who Illegally Targeted Latinos HuffPost Trump pardons former Sheriff Joe Arpaio The Hill New York Daily News - Slate Magazine (blog) - Chicago Tribune - U.S. News & World Report all 4,839 news articles »
+Washington Post Trump pardons former Arizona sheriff Joe Arpaio Washington Post President Trump on Friday pardoned former Arizona sheriff Joe Arpaio — a move that keeps one of his staunchest political allies out of jail and will likely cheer his conservative base, which supports both men's hard-line views on illegal immigration. Trump Pardons Joe Arpaio, Who Became Face of Crackdown on Illegal Immigration New York Times Trump Pardons Former Sheriff Joe Arpaio, Who Illegally Targeted Latinos HuffPost Trump pardons former Sheriff Joe Arpaio The Hill ABC News - New York Daily News - NPR - Fox News all 4,888 news articles »
 
 
 Full story on F3News: [Trump pardons former Arizona sheriff Joe Arpaio - Washington Post](http://www.f3nws.com/n/QmzsvB)
