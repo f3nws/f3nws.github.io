@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['What Happened Was Wrong': Cheer Coach Behind Forced Splits Fired From DPS - CBS Local](https://cbsdenver.files.wordpress.com/2017/08/cheerleader-forced-splits.jpg?w=673)
 
-CBS Local 'What Happened Was Wrong': Cheer Coach Behind Forced Splits Fired From DPS CBS Local DENVER (CBS4)– Denver Public Schools Superintendent Tom Boasberg says that the district was “wrong not to have acted in June” when some East High School employees learned of forced splits. The coach, Ozell Williams, and four other school ... Coach Who Oversaw Teen Cheerleaders Being Forced Into Splits Is Fired BuzzFeed News Cheerleading coach fired over video of girls' excruciating forced splits New York Daily News Denver cheerleading coach under investigation was also fired from previous job for forcing splits Boston Herald WHIO - The Denver Post - 9NEWS.com - International Business Times all 355 news articles »
+CBS Local 'What Happened Was Wrong': Cheer Coach Behind Forced Splits Fired From DPS CBS Local DENVER (CBS4)– Denver Public Schools Superintendent Tom Boasberg says that the district was “wrong not to have acted in June” when some East High School employees learned of forced splits. The coach, Ozell Williams, and four other school ... East High cheerleading coach fired after video showing 'forced splits,' superintendent says WFAA Coach Who Oversaw Teen Cheerleaders Being Forced Into Splits Is Fired BuzzFeed News Cheerleading coach in Denver video fired from another school WHIO New York Daily News - 9NEWS.com - International Business Times - The Denver Channel all 352 news articles »
 
 
 Full story on F3News: ['What Happened Was Wrong': Cheer Coach Behind Forced Splits Fired From DPS - CBS Local](http://www.f3nws.com/n/zAcMcC)
