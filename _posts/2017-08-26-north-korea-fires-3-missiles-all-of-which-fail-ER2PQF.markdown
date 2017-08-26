@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires 3 missiles, all of which fail"
-date: 2017-08-26 01:43:21Z
+date: 2017-08-26 04:31:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an "several unidentified short-range projectiles" from Kittaer
 
 Full story on F3News: [North Korea fires 3 missiles, all of which fail](http://www.f3nws.com/n/ER2PQF)
 
-> Posted on: Saturday, August 26, 2017 1:43:21 AM
+> Posted on: Saturday, August 26, 2017 4:31:35 AM
