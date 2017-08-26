@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Vandals deface Hyde Park statues in Australia Day protest - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/4/s/c/4/image.related.socialLead.620x349.gy4pc3.png/1503730686261.jpg)
 
-The Sydney Morning Herald Vandals deface Hyde Park statues in Australia Day protest The Sydney Morning Herald Indigenous journalist Stan Grant has slammed the defacement of a number of statues in Hyde Park overnight as appalling and disgraceful. Between 2.25am and 3.15am on Saturday, the statues of former NSW Governor Lachlan Macquarie and Captain Cook ... Australia Day: Malcolm Turnbull condemns Captain Cook statue vandalism as 'cowardly' ABC Online Iconic park statues defaced in Australia Day protest dailytelegraph.com.au Vandals graffiti monuments in Hyde Park Sky News Australia The New Daily - The Australian - The Australian Financial Review - Pedestrian TV all 68 news articles »
+The Sydney Morning Herald Vandals deface Hyde Park statues in Australia Day protest The Sydney Morning Herald Indigenous journalist Stan Grant has slammed the defacement of a number of statues in Hyde Park overnight as appalling and disgraceful. Between 2.25am and 3.15am on Saturday, the statues of former NSW Governor Lachlan Macquarie and Captain Cook ... Australia Day: Malcolm Turnbull condemns Captain Cook statue vandalism as 'cowardly' ABC Online Iconic park statues defaced in Australia Day protest dailytelegraph.com.au Vandals graffiti monuments in Hyde Park Sky News Australia The Guardian - The New Daily - The Australian - The Australian Financial Review all 66 news articles »
 
 
 Full story on F3News: [Vandals deface Hyde Park statues in Australia Day protest - The Sydney Morning Herald](http://www.f3nws.com/n/JxY4MD)
