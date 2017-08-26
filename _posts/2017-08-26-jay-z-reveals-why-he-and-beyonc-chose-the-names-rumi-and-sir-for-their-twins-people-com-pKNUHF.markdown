@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![JAY-Z Reveals Why He and Beyoncé Chose the Names Rumi and Sir for Their Twins - PEOPLE.com](http://peopledotcom.files.wordpress.com/2017/08/beyonce-jay-z.jpg?crop=287px%2C31px%2C1594px%2C836px&resize=1200%2C630)
 
-PEOPLE.com JAY-Z Reveals Why He and Beyoncé Chose the Names Rumi and Sir for Their Twins PEOPLE.com JAY-Z and Beyoncé had good reasons for the names they chose for their newborn twins, who were born in June. The “Empire State of Mind” rapper, 47, opened up on Friday to Rap Radar hosts Elliot Wilson and Brian Miller about how he and the “Formation” ... See Jay-Z Talk Twins' Names, Mother's Coming Out in New Interview RollingStone.com Jay-Z Reveals Why He and Beyoncé Named Their Twins Rumi and Sir E! Online Jay-Z Was Floored By Blue Ivy's Rapping Skills: 'I Was Like, Oh Shit!' MTV.com ABC News - Us Weekly - Bustle - Hollywood Life all 69 news articles »
+PEOPLE.com JAY-Z Reveals Why He and Beyoncé Chose the Names Rumi and Sir for Their Twins PEOPLE.com JAY-Z and Beyoncé had good reasons for the names they chose for their newborn twins, who were born in June. The “Empire State of Mind” rapper, 47, opened up on Friday to Rap Radar hosts Elliot Wilson and Brian Miller about how he and the “Formation” ... See Jay-Z Talk Twins' Names, Mother's Coming Out in New Interview RollingStone.com Jay-Z Reveals Why He and Beyoncé Named Their Twins Rumi and Sir E! Online Jay Z Dropped Some Gems On Part 2 Of His Tidal Interview BET MTV.com - ABC News - Us Weekly - Bustle all 70 news articles »
 
 
 Full story on F3News: [JAY-Z Reveals Why He and Beyoncé Chose the Names Rumi and Sir for Their Twins - PEOPLE.com](http://www.f3nws.com/n/pKNUHF)

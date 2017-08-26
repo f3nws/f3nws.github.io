@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Federal government to launch crackdown on asylum seekers - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/x/x/9/d/9/image.related.socialLead.620x349.gy4vnh.png/1503744672785.jpg)
 
-The Sydney Morning Herald Federal government to launch crackdown on asylum seekers The Sydney Morning Herald The Turnbull government will on Monday effectively throw up to 100 Australia-based asylum seekers onto the street by immediately cutting their income support and giving them three weeks to find a place to live. SHARE; Share on Facebook SHARE; Share on ... Turnbull government to cut income support for asylum seekers: report NEWS.com.au Govt to cut income support for asylum seekers Sky News Australia Govt pulls rug from under asylum seekers 9news.com.au all 4 news articles »
+The Sydney Morning Herald Federal government to launch crackdown on asylum seekers The Sydney Morning Herald The Turnbull government will on Monday effectively throw up to 100 Australia-based asylum seekers onto the street by immediately cutting their income support and giving them three weeks to find a place to live. SHARE; Share on Facebook SHARE; Share on ... Government to end financial support for up to 100 asylum seekers SBS Turnbull government to cut income support for asylum seekers: report NEWS.com.au Govt to cut income support for asylum seekers Sky News Australia all 4 news articles »
 
 
 Full story on F3News: [Federal government to launch crackdown on asylum seekers - The Sydney Morning Herald](http://www.f3nws.com/n/YqUmRF)
