@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Trump pardons controversial ex-sheriff Joe Arpaio](https://www.thestar.com/content/dam/thestar/news/world/2017/08/25/trump-pardons-controversial-ex-sheriff-joe-arpaio/joe-arpaio.jpg)
 
-Former Arizona sheriff Joe Arpaio was convicted of intentionally disobeying a judge’s order in an immigration case.
+Former Arizona sheriff and Donald Trump ally Joe Arpaio was convicted of intentionally disobeying a judge’s order in an immigration case.
 
 
 Full story on F3News: [Trump pardons controversial ex-sheriff Joe Arpaio](http://www.f3nws.com/n/MVXkFC)

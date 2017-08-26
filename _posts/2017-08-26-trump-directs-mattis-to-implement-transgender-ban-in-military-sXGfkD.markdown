@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump directs Mattis to implement transgender ban in military"
-date: 2017-08-26 00:58:19Z
+date: 2017-08-26 00:58:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump officially ordered a ban on transgender troops in the US 
 
 Full story on F3News: [Trump directs Mattis to implement transgender ban in military](http://www.f3nws.com/n/sXGfkD)
 
-> Posted on: Saturday, August 26, 2017 12:58:19 AM
+> Posted on: Saturday, August 26, 2017 12:58:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires 'several unidentified short-range projectiles,' South Korea says"
-date: 2017-08-26 00:02:16Z
+date: 2017-08-26 01:17:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea fired an "several unidentified short-range projectiles" from Kittaer
 
 Full story on F3News: [North Korea fires 'several unidentified short-range projectiles,' South Korea says](http://www.f3nws.com/n/ER2PQF)
 
-> Posted on: Saturday, August 26, 2017 12:02:16 AM
+> Posted on: Saturday, August 26, 2017 1:17:50 AM
