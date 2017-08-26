@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump pardons ex-sheriff Joe Arpaio"
-date: 2017-08-26 00:26:50Z
+date: 2017-08-26 00:26:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has pardoned former Maricopa County, Arizona sheriff Joe 
 
 Full story on F3News: [Trump pardons ex-sheriff Joe Arpaio](http://www.f3nws.com/n/rzYNuB)
 
-> Posted on: Saturday, August 26, 2017 12:26:50 AM
+> Posted on: Saturday, August 26, 2017 12:26:00 AM

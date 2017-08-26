@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sheriff Joe Arpaio wins pardon from Trump"
-date: 2017-08-26 00:06:00Z
+date: 2017-08-26 00:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump granted a presidential pardon to Joe Arpaio, former Sheriff of M
 
 Full story on F3News: [Sheriff Joe Arpaio wins pardon from Trump](http://www.f3nws.com/n/gTmyvC)
 
-> Posted on: Saturday, August 26, 2017 12:06:00 AM
+> Posted on: Saturday, August 26, 2017 12:30:00 AM
