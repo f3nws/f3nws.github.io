@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Sebastian Gorka, a fiery nationalist and Bannon ally, abruptly exits White House - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/26/National-Politics/Images/694198194.jpg?t=20170517)
 
-Washington Post Sebastian Gorka, a fiery nationalist and Bannon ally, abruptly exits White House Washington Post Sebastian Gorka, a controversial White House staffer who served as a fiery spokesman for President Trump on national security matters, abruptly left the administration on Friday as his nationalist faction was being silenced, four people briefed on ... Sebastian Gorka gone from White House CNN While Americans Focus On A Category 4 Hurricane, Trump Does His Dirty Work HuffPost White House aide Sebastian Gorka ousted from post Politico Fox News - NPR - The Hill - The Atlantic all 169 news articles »
+Washington Post Sebastian Gorka, a fiery nationalist and Bannon ally, abruptly exits White House Washington Post Sebastian Gorka, a controversial White House staffer who served as a fiery spokesman for President Trump on national security matters, abruptly left the administration on Friday as his nationalist faction was being silenced, four people briefed on ... Trump Won't Back Down The Atlantic Sebastian Gorka gone from White House CNN White House Buries Controversial News Under Hurricane Harvey Watch TIME HuffPost - Politico - NPR - The Hill all 193 news articles »
 
 
 Full story on F3News: [Sebastian Gorka, a fiery nationalist and Bannon ally, abruptly exits White House - Washington Post](http://www.f3nws.com/n/RPx3FH)
