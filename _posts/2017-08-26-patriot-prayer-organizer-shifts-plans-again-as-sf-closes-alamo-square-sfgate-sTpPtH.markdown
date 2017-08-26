@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Patriot Prayer organizer shifts plans again as SF closes Alamo Square - SFGate](http://ww4.hdnux.com/photos/65/05/64/13917471/3/920x920.jpg)
 
-SFGate Patriot Prayer organizer shifts plans again as SF closes Alamo Square SFGate Latest updates in advance of a planned right-wing gathering in San Francisco on Saturday: 10:29 a.m.: Park closes: San Francisco police and park department rangers closed off Alamo Square Park. Rangers announced through bullhorns that all visitors must ... San Francisco fences park ahead of planned right-wing event ABC News Controversial free speech rally canceled in San Francisco New York Daily News The Latest: SF mayor doesn't trust group canceling rally Sacramento Bee STLtoday.com - The Guardian all 454 news articles »
+SFGate Patriot Prayer organizer shifts plans again as SF closes Alamo Square SFGate Latest updates in advance of a planned right-wing gathering in San Francisco on Saturday: 10:29 a.m.: Park closes: San Francisco police and park department rangers closed off Alamo Square Park. Rangers announced through bullhorns that all visitors must ... What will happen in the Bay Area? After San Francisco and Berkeley rallies scrapped, peace activists prepare Los Angeles Times Turd Reich: San Francisco dog owners lay minefield of poo for rightwing rally The Guardian all 460 news articles »
 
 
 Full story on F3News: [Patriot Prayer organizer shifts plans again as SF closes Alamo Square - SFGate](http://www.f3nws.com/n/sTpPtH)
