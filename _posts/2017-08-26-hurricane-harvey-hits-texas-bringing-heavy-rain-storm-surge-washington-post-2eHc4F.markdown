@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Hurricane Harvey hits Texas, bringing heavy rain, storm surge - Washington Post"
-date: 2017-08-26 09:26:42Z
+date: 2017-08-26 10:33:36Z
 categories: google-news-top-stories
 ---
 
 ![Hurricane Harvey hits Texas, bringing heavy rain, storm surge - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/25/National-Politics/Images/Botsford170825Hurricane19676.JPG?t=20170517)
 
-Washington Post Hurricane Harvey hits Texas, bringing heavy rain, storm surge Washington Post CORPUS CHRISTI, Tex. — Residents of the Gulf Coast hunkered down late Friday amid dire warnings of a major natural disaster as Hurricane Harvey roared ashore as a Category 4 storm with 130 mph winds for a few hours before weakening as it slowly ... Hurricane Harvey: Storm Roars Ashore Near Corpus Christi, Tex. New York Times Hurricane Harvey downgraded to Category 1 storm -- live updates CBS News Hurricane Harvey downgraded to Category 2 storm as winds weaken ABC News CNN - Los Angeles Times - U.S. News & World Report - USA TODAY all 5,380 news articles »
+Washington Post Hurricane Harvey hits Texas, bringing heavy rain, storm surge Washington Post CORPUS CHRISTI, Tex. — Gulf Coast residents awoke to dire warnings of a major natural disaster Saturday as Hurricane Harvey charged inland, with weather officials downgrading it to a Category 1 storm but cautioning that the danger was far from over. Hurricane Harvey: Storm Roars Ashore Near Corpus Christi, Tex. New York Times Hurricane Harvey downgraded to Category 1 storm -- live updates CBS News Hurricane Harvey makes landfall as Texas braces for 'catastrophic' rains, high winds Fox News ABC News - CNN - Los Angeles Times - USA TODAY all 5,358 news articles »
 
 
 Full story on F3News: [Hurricane Harvey hits Texas, bringing heavy rain, storm surge - Washington Post](http://www.f3nws.com/n/2eHc4F)
 
-> Posted on: Saturday, August 26, 2017 9:26:42 AM
+> Posted on: Saturday, August 26, 2017 10:33:36 AM

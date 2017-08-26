@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Crocodile fears: Caitlyn Munnich and Raphael Woodhouse jumped into Mary River to flee police - ABC Online](http://www.abc.net.au/news/image/7424178-1x1-700x700.jpg)
 
-ABC Online Crocodile fears: Caitlyn Munnich and Raphael Woodhouse jumped into Mary River to flee police ABC Online Northern Territory police hold grave fears for two people who tried to evade a police roadblock by jumping into the Mary River, a waterway known for its high crocodile numbers. NT Police said they are seeking information from anyone on the whereabouts ... Northern Territory Police concerned for welfare of couple who fled towards crocodile infested waters NT News Couple missing in croc infested Mary River Katherine Times all 6 news articles »
+ABC Online Crocodile fears: Caitlyn Munnich and Raphael Woodhouse jumped into Mary River to flee police ABC Online Northern Territory police hold grave fears for two people who tried to evade a police roadblock by jumping into the Mary River, a waterway known for its high crocodile numbers. NT Police said they are seeking information from anyone on the whereabouts ... Pair flee police into croc-filled NT river The Australian Northern Territory Police concerned for welfare of couple who fled towards crocodile infested waters NT News Crocodile fears: Police desperately search for missing pair in NT Yahoo7 News Sky News Australia - Katherine Times all 9 news articles »
 
 
 Full story on F3News: [Crocodile fears: Caitlyn Munnich and Raphael Woodhouse jumped into Mary River to flee police - ABC Online](http://www.f3nws.com/n/QhedJH)
