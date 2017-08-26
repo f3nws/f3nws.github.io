@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Veteran sports broadcaster Drew Morphett dies](http://www.abc.net.au/news/image/8845130-1x1-700x700.jpg)
 
-Sports broadcaster Drew Morphett, known for his long career calling AFL, cricket and four Olympic Games, dies at his Melbourne home overnight aged 69.
+Sports broadcaster Drew Morphett, known for his long career calling AFL, cricket and four Olympic Games, dies suddenly at his Melbourne home overnight aged 69.
 
 
 Full story on F3News: [Veteran sports broadcaster Drew Morphett dies](http://www.f3nws.com/n/pnxtHJ)
