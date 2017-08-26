@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nepal outlaws menstruation huts, but what will take their place?"
-date: 2017-08-26 00:34:57Z
+date: 2017-08-26 08:01:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Radhika Kami lives with her family of six in a traditional mud-and-brick house i
 
 Full story on F3News: [Nepal outlaws menstruation huts, but what will take their place?](http://www.f3nws.com/n/TZf4NB)
 
-> Posted on: Saturday, August 26, 2017 12:34:57 AM
+> Posted on: Saturday, August 26, 2017 8:01:12 AM
