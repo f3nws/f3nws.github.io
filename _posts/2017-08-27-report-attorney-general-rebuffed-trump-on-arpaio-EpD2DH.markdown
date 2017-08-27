@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Attorney general rebuffed Trump on Arpaio"
-date: 2017-08-27 02:06:16Z
+date: 2017-08-27 06:31:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump asked Attorney General Jeff Sessions this past spring whe
 
 Full story on F3News: [Report: Attorney general rebuffed Trump on Arpaio](http://www.f3nws.com/n/EpD2DH)
 
-> Posted on: Sunday, August 27, 2017 2:06:16 AM
+> Posted on: Sunday, August 27, 2017 6:31:51 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mayweather beats McGregor for historic 50-0 record"
-date: 2017-08-27 06:23:49Z
+date: 2017-08-27 06:42:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Mayweather beats McGregor for historic 50-0 record](http://www.f3nws.com/n/u4cmZH)
 
-> Posted on: Sunday, August 27, 2017 6:23:49 AM
+> Posted on: Sunday, August 27, 2017 6:42:33 AM
