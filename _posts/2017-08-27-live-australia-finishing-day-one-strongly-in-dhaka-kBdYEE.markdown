@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Australia finishing day one strongly in Dhaka](http://www.abc.net.au/news/image/8834376-1x1-700x700.jpg)
 
-Ashton Agar strikes in the final session, as Australia looks to close Bangladesh's first innings in Dhaka. Follow all the action in our live blog.
+Ashton Agar strikes in the final session, as Australia dismisses Bangladesh for 260 in Dhaka. Follow all the action in our live blog.
 
 
 Full story on F3News: [Live: Australia finishing day one strongly in Dhaka](http://www.f3nws.com/n/kBdYEE)
