@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nixon was right about women"
-date: 2017-08-27 01:11:55Z
+date: 2017-08-27 16:21:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In 1973, when President Richard Nixon proclaimed August 26 Women's Equality Day 
 
 Full story on F3News: [Nixon was right about women](http://www.f3nws.com/n/sV2vcE)
 
-> Posted on: Sunday, August 27, 2017 1:11:55 AM
+> Posted on: Sunday, August 27, 2017 4:21:11 PM
