@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey delivers pounding rainfall; days of floods feared"
-date: 2017-08-27 08:45:55Z
+date: 2017-08-27 09:23:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The sprawling and soaked Houston metro area and other deluged towns in southeast
 
 Full story on F3News: [Harvey delivers pounding rainfall; days of floods feared](http://www.f3nws.com/n/SbyUMC)
 
-> Posted on: Sunday, August 27, 2017 8:45:55 AM
+> Posted on: Sunday, August 27, 2017 9:23:14 AM
