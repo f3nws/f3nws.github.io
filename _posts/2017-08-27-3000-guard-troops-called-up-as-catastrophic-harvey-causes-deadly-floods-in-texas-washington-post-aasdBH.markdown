@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![3000 guard troops called up as 'catastrophic' Harvey causes deadly floods in Texas - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/25/National-Politics/Images/Botsford170825Hurricane19676.JPG?t=20170517)
 
-Washington Post 3000 guard troops called up as 'catastrophic' Harvey causes deadly floods in Texas Washington Post HOUSTON — More than 3,000 national and state guard troops are being deployed to assist with relief and recovery efforts as the nation's fourth-largest city and surrounding areas try to cope with the aftermath of Hurricane Harvey, which has transformed ... At Least 1 Person Killed As 'Catastrophic' Floods Inundate Houston NPR Trump is meeting (and tweeting) his Harvey moment CNN Trump to visit Texas on Tuesday Politico NBCNews.com - New York Times - HuffPost - Miami Herald all 23 news articles »
+Washington Post 3000 guard troops called up as 'catastrophic' Harvey causes deadly floods in Texas Washington Post HOUSTON — More than 3,000 national and state guard troops are being deployed to assist with relief and recovery efforts as the nation's fourth-largest city and surrounding areas try to cope with the aftermath of Hurricane Harvey, which has transformed ... Harvey's rain 'beyond anything experienced,' weather service says CNN At Least 1 Person Killed As 'Catastrophic' Floods Inundate Houston NPR Trump to visit Texas on Tuesday Politico NBCNews.com - HuffPost - Los Angeles Times - The Atlantic all 9,885 news articles »
 
 
 Full story on F3News: [3000 guard troops called up as 'catastrophic' Harvey causes deadly floods in Texas - Washington Post](http://www.f3nws.com/n/aasdBH)

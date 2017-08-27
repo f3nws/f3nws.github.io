@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rising water traps Houston residents in their homes. More than 1,000 people have been rescued"
-date: 2017-08-27 21:08:27Z
+date: 2017-08-27 22:33:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The sprawling and soaked Houston metro area and other deluged towns in southeast
 
 Full story on F3News: [Rising water traps Houston residents in their homes. More than 1,000 people have been rescued](http://www.f3nws.com/n/SbyUMC)
 
-> Posted on: Sunday, August 27, 2017 9:08:27 PM
+> Posted on: Sunday, August 27, 2017 10:33:42 PM
