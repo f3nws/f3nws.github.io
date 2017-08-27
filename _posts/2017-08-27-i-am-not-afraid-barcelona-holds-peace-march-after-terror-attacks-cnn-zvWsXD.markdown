@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['I am not afraid': Barcelona holds peace march after terror attacks - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170827091620-barcelona-demonstration-6-super-tease.jpg)
 
-CNN 'I am not afraid': Barcelona holds peace march after terror attacks CNN (CNN) Half a million people took part in a colorful peace protest in Barcelona on Saturday after Spain's Catalonia region was hit with two terror attacks that killed 16 people. The march was organized on social media with the hashtag #NoTincPor ... Barcelona attack: German woman dies in hospital BBC News German woman dies, raises death toll to 16 in Spain attacks New York Daily News Death toll rises in Barcelona terrorist attack New York Post Reuters - Daily Mail - The Boston Globe - The Guardian all 179 news articles »
+CNN 'I am not afraid': Barcelona holds peace march after terror attacks CNN (CNN) Half a million people took part in a colorful peace protest in Barcelona on Saturday after Spain's Catalonia region was hit with two terror attacks that killed 16 people. The march was organized on social media with the hashtag #NoTincPor ... German woman dies, raising death toll in Spain attacks to 16 CBS News German woman dies from injuries 10 days after Barcelona attack New York Daily News Spanish attacks death toll rises to 16 after woman dies in hospital The Guardian WHIO - The Boston Globe - News24 - UPI.com all 234 news articles »
 
 
 Full story on F3News: ['I am not afraid': Barcelona holds peace march after terror attacks - CNN](http://www.f3nws.com/n/zvWsXD)
