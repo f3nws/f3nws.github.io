@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mayweather-McGregor fight: Start time, how to stream, odds and more     - CNET"
-date: 2017-08-27 03:03:05Z
+date: 2017-08-27 20:43:25Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ When does it start? How can you watch it? We have everything you need to know ri
 
 Full story on F3News: [Mayweather-McGregor fight: Start time, how to stream, odds and more     - CNET](http://www.f3nws.com/n/ABz4W)
 
-> Posted on: Sunday, August 27, 2017 3:03:05 AM
+> Posted on: Sunday, August 27, 2017 8:43:25 PM
