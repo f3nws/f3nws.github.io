@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Large public hospital evacuated"
-date: 2017-08-27 16:53:29Z
+date: 2017-08-27 20:23:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Large public hospital evacuated](http://www.f3nws.com/n/XGqvPC)
 
-> Posted on: Sunday, August 27, 2017 4:53:29 PM
+> Posted on: Sunday, August 27, 2017 8:23:19 PM
