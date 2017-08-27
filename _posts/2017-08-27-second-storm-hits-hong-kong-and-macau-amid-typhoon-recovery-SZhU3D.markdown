@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Second storm hits Hong Kong and Macau amid typhoon recovery"
-date: 2017-08-27 07:41:17Z
+date: 2017-08-27 09:41:33Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ A powerful storm lashed Hong Kong and Macau on Sunday, just days after a punishi
 
 Full story on F3News: [Second storm hits Hong Kong and Macau amid typhoon recovery](http://www.f3nws.com/n/SZhU3D)
 
-> Posted on: Sunday, August 27, 2017 7:41:17 AM
+> Posted on: Sunday, August 27, 2017 9:41:33 AM
