@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![As residents survey damage, Harvey drenches Texas - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170825233333-16-hurricane-harvey-0825-super-tease.jpg)
 
-CNN As residents survey damage, Harvey drenches Texas CNN (CNN) The winds died downs some Saturday but the rain from Harvey kept coming and coming as the now-tropical storm camped over Texas, drenching searchers and residents going through widespread devastation along the coast. Texans who rode out the ... Harvey delivers heavy damage as it batters Texas coast Washington Post Harvey spins deeper inland; full scope of damage is unknown Politico Hurricane Harvey Strikes a Powerful Blow to Texas, and Lingers New York Times U.S. News & World Report - Atlanta Journal Constitution - ABC News - Los Angeles Times all 7,550 news articles »
+CNN As residents survey damage, Harvey drenches Texas CNN (CNN) The winds died down some Saturday but the rain from Harvey kept coming and coming as the now-tropical storm camped over Texas, drenching searchers and residents going through widespread devastation along the coast. Texans who rode out the ... Harvey delivers heavy damage as it batters Texas coast Washington Post Damage toll from Hurricane Harvey continues to mount as rescue workers strive to reach stranded communities Los Angeles Times Corpus Christi breaths sigh of relief, prepares for post-Harvey cleanup USA TODAY U.S. News & World Report - SFGate - ABC News - Reuters all 7,501 news articles »
 
 
 Full story on F3News: [As residents survey damage, Harvey drenches Texas - CNN](http://www.f3nws.com/n/hQdgGE)
