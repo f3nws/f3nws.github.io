@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Trump asked Sessions to consider dropping Arpaio prosecution"
-date: 2017-08-27 12:32:01Z
+date: 2017-08-27 16:40:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump asked Attorney General Jeff Sessions this past spring whe
 
 Full story on F3News: [Report: Trump asked Sessions to consider dropping Arpaio prosecution](http://www.f3nws.com/n/EpD2DH)
 
-> Posted on: Sunday, August 27, 2017 12:32:01 PM
+> Posted on: Sunday, August 27, 2017 4:40:26 PM
