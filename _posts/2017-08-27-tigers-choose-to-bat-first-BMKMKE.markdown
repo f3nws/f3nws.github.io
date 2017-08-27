@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tigers choose to bat first"
-date: 2017-08-27 03:43:55Z
+date: 2017-08-27 04:24:02Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Tigers choose to bat first](http://www.f3nws.com/n/BMKMKE)
 
-> Posted on: Sunday, August 27, 2017 3:43:55 AM
+> Posted on: Sunday, August 27, 2017 4:24:02 AM
