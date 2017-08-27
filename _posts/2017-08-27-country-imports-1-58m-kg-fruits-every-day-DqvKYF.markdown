@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Country imports 1.58m kg fruits every day"
-date: 2017-08-27 06:40:41Z
+date: 2017-08-27 07:18:04Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Country imports 1.58m kg fruits every day](http://www.f3nws.com/n/DqvKYF)
 
-> Posted on: Sunday, August 27, 2017 6:40:41 AM
+> Posted on: Sunday, August 27, 2017 7:18:04 AM
