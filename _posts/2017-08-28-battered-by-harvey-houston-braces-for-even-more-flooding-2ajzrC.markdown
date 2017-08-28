@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Battered by Harvey, Houston braces for even more flooding"
-date: 2017-08-28 06:14:00Z
+date: 2017-08-28 07:22:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — Officials released more water from Houston-area reservoirs over
 
 Full story on F3News: [Battered by Harvey, Houston braces for even more flooding](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 28, 2017 6:14:00 AM
+> Posted on: Monday, August 28, 2017 7:22:00 AM
