@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials act to protect downtown Houston from Harvey floods"
-date: 2017-08-28 08:41:00Z
+date: 2017-08-28 10:26:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — Officials released more water from Houston-area reservoirs over
 
 Full story on F3News: [Officials act to protect downtown Houston from Harvey floods](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 28, 2017 8:41:00 AM
+> Posted on: Monday, August 28, 2017 10:26:00 AM
