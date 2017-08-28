@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "People are rushing boats, volunteer says, forcing a halt to some rescue efforts"
-date: 2017-08-28 21:24:27Z
+date: 2017-08-28 22:53:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The New Yorker As Harvey's waters rise, so do panic levels, rescuer says CNN (CN
 
 Full story on F3News: [People are rushing boats, volunteer says, forcing a halt to some rescue efforts](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Monday, August 28, 2017 9:24:27 PM
+> Posted on: Monday, August 28, 2017 10:53:12 PM
