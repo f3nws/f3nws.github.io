@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump rolling back limits on military gear for police - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2014/08/23/National-Politics/Images/2014-08-23T211638Z_01_TOR906_RTRIDSP_3_USA-MISSOURI-SHOOTING-MILITARIZATION-5675.jpg?t=20170517)
 
-Washington Post Trump rolling back limits on military gear for police Washington Post WASHINGTON — President Donald Trump will revive a program that provides local police departments with surplus military equipment such as high-caliber weapons and grenade launchers, despite past concerns that armored vehicles and other gear were ... Trump Reverses Restrictions on Military Hardware for Police New York Times Trump clears way for local police to obtain military gear ABC News Trump is ending restrictions that limit the military from giving surplus gear to police Los Angeles Times Newsweek - U.S. News & World Report - NPR - Fox News all 212 news articles »
+Washington Post Trump rolling back limits on military gear for police Washington Post WASHINGTON — President Donald Trump will revive a program that provides local police departments with surplus military equipment such as high-caliber weapons and grenade launchers, despite past concerns that armored vehicles and other gear were ... Trump Reverses Restrictions on Military Hardware for Police New York Times Trump clears way for local police to obtain military gear ABC News Trump just reauthorized police to use high-tech military gear — Here's what they can get Business Insider The Hill - Newsweek - U.S. News & World Report - NPR all 211 news articles »
 
 
 Full story on F3News: [Trump rolling back limits on military gear for police - Washington Post](http://www.f3nws.com/n/jPDmYC)
