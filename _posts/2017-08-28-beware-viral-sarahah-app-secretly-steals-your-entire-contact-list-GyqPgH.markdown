@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beware! Viral Sarahah App Secretly Steals Your Entire Contact List"
-date: 2017-08-28 12:17:19Z
+date: 2017-08-28 15:43:02Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Are you also one of those 18 Million users using SARAHAH? You should beware of t
 
 Full story on F3News: [Beware! Viral Sarahah App Secretly Steals Your Entire Contact List](http://www.f3nws.com/n/GyqPgH)
 
-> Posted on: Monday, August 28, 2017 12:17:19 PM
+> Posted on: Monday, August 28, 2017 3:43:02 PM

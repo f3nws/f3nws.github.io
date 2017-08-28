@@ -5,7 +5,7 @@ date: 2017-08-28 13:07:24Z
 categories: cnn-com-entertainment
 ---
 
-![MTV Video Music Awards 2017: The winners](http://i2.cdn.cnn.com/cnnnext/dam/assets/170825154653-mtv-vma-moonman-statue-super-tease.jpg)
+![MTV Video Music Awards 2017: The winners](http://i2.cdn.cnn.com/cnnnext/dam/assets/170827212734-kendrick-lamar-mtv-vma-super-tease.jpg)
 
 Sunday's MTV Video Music Awards were about performances and powerful words.
 
