@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man arrested for firing gun at Charlottesville rally"
-date: 2017-08-28 09:57:35Z
+date: 2017-08-28 13:08:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man who is suspected of firing a gun at counterprotesters during the "Unite th
 
 Full story on F3News: [Man arrested for firing gun at Charlottesville rally](http://www.f3nws.com/n/bkMpKC)
 
-> Posted on: Monday, August 28, 2017 9:57:35 AM
+> Posted on: Monday, August 28, 2017 1:08:04 PM

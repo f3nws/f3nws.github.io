@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US navy recovers remains of all sailors missing after USS McCain collision - Reuters](https://s1.reutersmedia.net/resources/r/?m=02&d=20170828&t=2&i=1198805173&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXNPED7R041)
 
-Reuters US navy recovers remains of all sailors missing after USS McCain collision Reuters A combination photo showing (from L to R, top) Electronics Technician 3rd Class Kenneth Aaron Smith, Interior Communications Electrician 3rd Class Logan Stephen Palmer, Electronics Technician 3rd Class John Henry Hoagland III, Electronics Technician ... Bodies of all 10 sailors missing on USS John S. McCain have been recovered Washington Post Bodies of missing USS McCain sailors recovered USA TODAY Remains of 10 Sailors Who Died in Navy Collision Are Found New York Times Chicago Tribune - Baltimore Sun - NBCNews.com - WHIO all 273 news articles »
+Reuters US navy recovers remains of all sailors missing after USS McCain collision Reuters A combination photo showing (from L to R, top) Electronics Technician 3rd Class Kenneth Aaron Smith, Interior Communications Electrician 3rd Class Logan Stephen Palmer, Electronics Technician 3rd Class John Henry Hoagland III, Electronics Technician ... Bodies of missing USS McCain sailors recovered USA TODAY Remains of 10 Sailors Who Died in Navy Collision Are Found New York Times Bodies of All 10 Sailors Found After USS McCain Collision Off Singapore NBCNews.com Military.com - UPROXX - New York Daily News - WSOC Charlotte all 319 news articles »
 
 
 Full story on F3News: [US navy recovers remains of all sailors missing after USS McCain collision - Reuters](http://www.f3nws.com/n/H2ySzF)
