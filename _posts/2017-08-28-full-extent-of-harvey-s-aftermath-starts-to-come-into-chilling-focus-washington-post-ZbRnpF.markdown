@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Full extent of Harvey's aftermath starts to come into chilling focus - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/27/National-Politics/Images/Botsford170827Hurricane19755.JPG?t=20170517)
 
-New York Times Full extent of Harvey's aftermath starts to come into chilling focus Washington Post HOUSTON — The full extent of Hurricane Harvey's aftermath started to come into chilling focus Sunday in Houston and across much of Central Texas, as rain measured in feet, not inches, overwhelmed lakes, rivers and bayous, leaving several people dead ... Dallas preps 'mega-shelter' as Texas braces for more rain CNN Harvey causes 'catastrophic flooding' in Houston, thousands of rescue calls made Fox News Hurricane Harvey: Houston evokes painful memories of Katrina Politico New York Times - NPR - NBCNews.com - Wall Street Journal (subscription) all 11,025 news articles »
+CBS News Full extent of Harvey's aftermath starts to come into chilling focus Washington Post HOUSTON — The full extent of Hurricane Harvey's aftermath started to come into chilling focus Sunday in Houston and across much of Central Texas, as rain measured in feet, not inches, overwhelmed lakes, rivers and bayous, leaving several people dead ... Dallas preps 'mega-shelter' as Texas braces for more rain CNN Houston devastated by deadly flooding from Harvey, more rain ahead Reuters Harvey causes 'catastrophic flooding' in Houston, thousands of rescue calls made Fox News Politico - NPR - AZCentral.com - New York Daily News all 11,018 news articles »
 
 
 Full story on F3News: [Full extent of Harvey's aftermath starts to come into chilling focus - Washington Post](http://www.f3nws.com/n/ZbRnpF)
