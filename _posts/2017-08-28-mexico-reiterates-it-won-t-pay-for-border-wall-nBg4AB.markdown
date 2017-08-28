@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico reiterates it won't pay for border wall"
-date: 2017-08-28 00:44:25Z
+date: 2017-08-28 13:37:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Mexican government on Sunday again stressed its position that it will not pa
 
 Full story on F3News: [Mexico reiterates it won't pay for border wall](http://www.f3nws.com/n/nBg4AB)
 
-> Posted on: Monday, August 28, 2017 12:44:25 AM
+> Posted on: Monday, August 28, 2017 1:37:24 PM
