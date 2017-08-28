@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump plans trip to Texas on Tuesday"
-date: 2017-08-28 00:30:23Z
+date: 2017-08-28 01:56:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump plans trip to Texas on Tuesday](http://www.f3nws.com/n/XGqvPC)
 
-> Posted on: Monday, August 28, 2017 12:30:23 AM
+> Posted on: Monday, August 28, 2017 1:56:01 AM
