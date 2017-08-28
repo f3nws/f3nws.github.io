@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As thousands flee deadly Tropical Storm Harvey, forecasters warn worst is to come"
-date: 2017-08-28 20:17:15Z
+date: 2017-08-28 20:46:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The New Yorker As Harvey's waters rise, so do panic levels, rescuer says CNN (CN
 
 Full story on F3News: [As thousands flee deadly Tropical Storm Harvey, forecasters warn worst is to come](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Monday, August 28, 2017 8:17:15 PM
+> Posted on: Monday, August 28, 2017 8:46:53 PM
