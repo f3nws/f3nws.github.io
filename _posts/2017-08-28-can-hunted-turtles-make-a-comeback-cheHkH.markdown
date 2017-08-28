@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Can hunted turtles make a comeback?"
-date: 2017-08-28 00:25:40Z
+date: 2017-08-28 01:27:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The sun was blazing on the white sand of Dadonghai Bay when Stanley, an endanger
 
 Full story on F3News: [Can hunted turtles make a comeback?](http://www.f3nws.com/n/cheHkH)
 
-> Posted on: Monday, August 28, 2017 12:25:40 AM
+> Posted on: Monday, August 28, 2017 1:27:24 AM
