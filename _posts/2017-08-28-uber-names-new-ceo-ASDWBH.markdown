@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber names new CEO"
-date: 2017-08-28 01:07:39Z
+date: 2017-08-28 01:32:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Uber names new CEO](http://www.f3nws.com/n/ASDWBH)
 
-> Posted on: Monday, August 28, 2017 1:07:39 AM
+> Posted on: Monday, August 28, 2017 1:32:43 AM
