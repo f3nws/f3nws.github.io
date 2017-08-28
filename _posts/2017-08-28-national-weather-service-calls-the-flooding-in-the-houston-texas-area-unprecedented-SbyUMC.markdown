@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "National Weather Service calls the flooding in the Houston, Texas, area unprecedented"
-date: 2017-08-28 02:02:35Z
+date: 2017-08-28 03:17:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Dallas preps 'mega-shelter' as Texas braces for more rain CNN Houston (CNN) 
 
 Full story on F3News: [National Weather Service calls the flooding in the Houston, Texas, area unprecedented](http://www.f3nws.com/n/SbyUMC)
 
-> Posted on: Monday, August 28, 2017 2:02:35 AM
+> Posted on: Monday, August 28, 2017 3:17:21 AM
