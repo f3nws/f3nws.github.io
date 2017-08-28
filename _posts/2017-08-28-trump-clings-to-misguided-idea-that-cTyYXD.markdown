@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump clings to misguided idea that..."
-date: 2017-08-28 14:04:51Z
+date: 2017-08-28 14:04:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Mexico, Donald Trump declared, will pay for a massive border wall "through reimb
 
 Full story on F3News: [Trump clings to misguided idea that...](http://www.f3nws.com/n/cTyYXD)
 
-> Posted on: Monday, August 28, 2017 2:04:51 PM
+> Posted on: Monday, August 28, 2017 2:04:00 PM
