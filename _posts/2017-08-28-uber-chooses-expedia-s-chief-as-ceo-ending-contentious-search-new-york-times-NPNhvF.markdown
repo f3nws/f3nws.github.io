@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Uber Chooses Expedia's Chief as CEO, Ending Contentious Search - New York Times](https://static01.nyt.com/images/2017/08/24/business/28uber1/24db-uberviews3-facebookJumbo.jpg)
 
-New York Times Uber Chooses Expedia's Chief as CEO, Ending Contentious Search New York Times Dara Khosrowshahi, chief executive of Expedia, takes over a company that has been pummeled by scandal after scandal. Credit Rob Latour/Rex Features, via AP images. SAN FRANCISCO — Uber chose Dara Khosrowshahi, who leads the online travel ... Uber chooses a surprising new leader: the CEO of Expedia Washington Post Uber to name Expedia chief Dara Khosrowshahi as new CEO SFGate Who is Dara Khosrowshahi, Uber's new CEO? Business Insider Recode - Forbes - NPR - Los Angeles Times all 199 news articles »
+New York Times Uber Chooses Expedia's Chief as CEO, Ending Contentious Search New York Times Dara Khosrowshahi, chief executive of Expedia, takes over a company that has been pummeled by scandal after scandal. Credit Rob Latour/Rex Features, via AP images. SAN FRANCISCO — Uber chose Dara Khosrowshahi, who leads the online travel ... Uber chooses a surprising new leader: the CEO of Expedia Washington Post Uber to name Expedia chief Dara Khosrowshahi as new CEO SFGate Uber chooses a surprising new leader: Expedia CEO Dara Khosrowshahi Chicago Tribune Business Insider - Forbes - Recode - NPR all 206 news articles »
 
 
 Full story on F3News: [Uber Chooses Expedia's Chief as CEO, Ending Contentious Search - New York Times](http://www.f3nws.com/n/NPNhvF)

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Former Ironman Dean Mercer dies after crashing car](http://www.abc.net.au/news/image/8848434-1x1-700x700.jpg)
 
-Former Ironman Dean Mercer dies after having a suspected heart attack and crashing his car on the Gold Coast this morning.
+Former Ironman Dean Mercer dies after having a heart attack and crashing his car on the Gold Coast this morning.
 
 
 Full story on F3News: [Former Ironman Dean Mercer dies after crashing car](http://www.f3nws.com/n/ZvYYVE)
