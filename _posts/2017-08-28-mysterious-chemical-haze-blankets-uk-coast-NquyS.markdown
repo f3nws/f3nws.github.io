@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mysterious 'chemical haze' blankets UK coast"
-date: 2017-08-28 06:16:13Z
+date: 2017-08-28 09:25:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Around 150 people have been treated at hospital after being caught in a mysterio
 
 Full story on F3News: [Mysterious 'chemical haze' blankets UK coast](http://www.f3nws.com/n/NquyS)
 
-> Posted on: Monday, August 28, 2017 6:16:13 AM
+> Posted on: Monday, August 28, 2017 9:25:17 AM

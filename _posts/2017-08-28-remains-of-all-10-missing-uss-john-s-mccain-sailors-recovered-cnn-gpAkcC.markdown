@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Remains of all 10 missing USS John S. McCain sailors recovered - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170821080742-04-uss-john-s-mccain-collision-0821-super-tease.jpg)
 
-CNN Remains of all 10 missing USS John S. McCain sailors recovered CNN (CNN) The bodies of all 10 sailors reported missing following a collision between the USS John S. McCain and a merchant vessel have been found, according to a statement from the US Navy's 7th Fleet. The guided-missile destroyer collided with an oil ... US navy recovers remains of all sailors missing after USS McCain collision Reuters Bodies of all 10 sailors missing on USS John S. McCain have been recovered Washington Post Navy Recovers Remains Of All 10 Missing Sailors Aboard USS John S. McCain NPR Yahoo News - New York Times - NBCNews.com - Chicago Tribune all 286 news articles »
+CNN Remains of all 10 missing USS John S. McCain sailors recovered CNN (CNN) The bodies of all 10 sailors reported missing following a collision between the USS John S. McCain and a merchant vessel have been found, according to a statement from the US Navy's 7th Fleet. The guided-missile destroyer collided with an oil ... Bodies of all 10 sailors missing on USS John S. McCain have been recovered Washington Post US navy recovers remains of all sailors missing after USS McCain collision Reuters Remains of 10 Sailors Who Died in Navy Collision Are Found New York Times CBS News - NBCNews.com - Chicago Tribune - Baltimore Sun all 291 news articles »
 
 
 Full story on F3News: [Remains of all 10 missing USS John S. McCain sailors recovered - CNN](http://www.f3nws.com/n/gpAkcC)
