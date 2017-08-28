@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Game of Thrones' soars in breathtaking finale"
-date: 2017-08-28 03:53:24Z
+date: 2017-08-28 10:19:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The following contains major spoilers about the "Game of Thrones" season finale.
 
 Full story on F3News: ['Game of Thrones' soars in breathtaking finale](http://www.f3nws.com/n/u3VGBE)
 
-> Posted on: Monday, August 28, 2017 3:53:24 AM
+> Posted on: Monday, August 28, 2017 10:19:20 AM
