@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Remains of all 10 missing US sailors recovered"
-date: 2017-08-28 08:57:15Z
+date: 2017-08-28 12:22:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The bodies of all 10 sailors reported missing following a collision between the 
 
 Full story on F3News: [Remains of all 10 missing US sailors recovered](http://www.f3nws.com/n/gpAkcC)
 
-> Posted on: Monday, August 28, 2017 8:57:15 AM
+> Posted on: Monday, August 28, 2017 12:22:30 PM

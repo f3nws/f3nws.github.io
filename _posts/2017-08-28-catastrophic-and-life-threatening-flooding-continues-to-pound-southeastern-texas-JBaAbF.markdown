@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Catastrophic and life-threatening flooding' continues to pound southeastern Texas"
-date: 2017-08-28 11:51:43Z
+date: 2017-08-28 12:18:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['Catastrophic and life-threatening flooding' continues to pound southeastern Texas](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Monday, August 28, 2017 11:51:43 AM
+> Posted on: Monday, August 28, 2017 12:18:48 PM
