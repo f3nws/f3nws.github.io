@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "MTV Video Music Awards 2017: Politics and Taylor Swift"
-date: 2017-08-28 01:11:21Z
+date: 2017-08-28 03:47:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sunday's MTV Video Music Awards opened with a performance by the most-nominated 
 
 Full story on F3News: [MTV Video Music Awards 2017: Politics and Taylor Swift](http://www.f3nws.com/n/gvFp2E)
 
-> Posted on: Monday, August 28, 2017 1:11:21 AM
+> Posted on: Monday, August 28, 2017 3:47:46 AM
