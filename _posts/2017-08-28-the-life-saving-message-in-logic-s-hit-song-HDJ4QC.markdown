@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The life-saving message in Logic's hit song"
-date: 2017-08-28 02:59:17Z
+date: 2017-08-28 12:59:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The life-saving message in Logic's hit song](http://www.f3nws.com/n/HDJ4QC)
 
-> Posted on: Monday, August 28, 2017 2:59:17 AM
+> Posted on: Monday, August 28, 2017 12:59:56 PM
