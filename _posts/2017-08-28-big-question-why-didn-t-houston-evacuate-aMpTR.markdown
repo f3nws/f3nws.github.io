@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Big question: Why didn't Houston evacuate?"
-date: 2017-08-28 06:44:50Z
+date: 2017-08-28 15:19:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sunday morning, as Houston residents found themselves trapped on rooftops and wa
 
 Full story on F3News: [Big question: Why didn't Houston evacuate?](http://www.f3nws.com/n/aMpTR)
 
-> Posted on: Monday, August 28, 2017 6:44:50 AM
+> Posted on: Monday, August 28, 2017 3:19:38 PM
