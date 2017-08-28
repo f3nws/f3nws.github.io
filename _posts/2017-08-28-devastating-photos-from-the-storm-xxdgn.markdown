@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Devastating photos from the storm"
-date: 2017-08-28 18:01:38Z
+date: 2017-08-28 18:29:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Harvey slams Texas as a Category 4 storm, spawning "widespread devasta
 
 Full story on F3News: [Devastating photos from the storm](http://www.f3nws.com/n/xxdgn)
 
-> Posted on: Monday, August 28, 2017 6:01:38 PM
+> Posted on: Monday, August 28, 2017 6:29:56 PM

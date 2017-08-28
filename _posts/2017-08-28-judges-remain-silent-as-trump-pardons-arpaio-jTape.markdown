@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judges remain silent as Trump pardons Arpaio"
-date: 2017-08-28 13:01:01Z
+date: 2017-08-28 18:57:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's pardon of former Sheriff Joe Arpaio has been widely den
 
 Full story on F3News: [Judges remain silent as Trump pardons Arpaio](http://www.f3nws.com/n/jTape)
 
-> Posted on: Monday, August 28, 2017 1:01:01 PM
+> Posted on: Monday, August 28, 2017 6:57:15 PM
