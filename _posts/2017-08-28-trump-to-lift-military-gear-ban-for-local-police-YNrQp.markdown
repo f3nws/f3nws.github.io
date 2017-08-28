@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to lift military gear ban for local police"
-date: 2017-08-28 11:59:21Z
+date: 2017-08-28 12:54:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration will unveil a new plan Monday morning to roll back limi
 
 Full story on F3News: [Trump to lift military gear ban for local police](http://www.f3nws.com/n/YNrQp)
 
-> Posted on: Monday, August 28, 2017 11:59:21 AM
+> Posted on: Monday, August 28, 2017 12:54:54 PM
