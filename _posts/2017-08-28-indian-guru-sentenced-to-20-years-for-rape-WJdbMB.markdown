@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Indian guru sentenced to 20 years for rape](http://i2.cdn.cnn.com/cnnnext/dam/assets/170825141609-03-gurmeet-ram-rahim-singh-file-super-tease.jpg)
 
-Security forces in India's northern Haryana state are on high alert ahead of the sentencing of a controversial spiritual leader whose supporters were involved in deadly protests Friday following his conviction for rape.
+A controversial Indian spiritual guru has been sentenced to 20 years in prison for rape, India's Central Bureau of Investigation announced Monday.
 
 
 Full story on F3News: [Indian guru sentenced to 20 years for rape](http://www.f3nws.com/n/WJdbMB)
