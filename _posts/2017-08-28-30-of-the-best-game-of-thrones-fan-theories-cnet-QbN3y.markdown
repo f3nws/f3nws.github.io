@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "30 of the best 'Game of Thrones' fan theories     - CNET"
-date: 2017-08-28 18:49:00Z
+date: 2017-08-28 18:54:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Who's going to kill whom? Who's already dead? And who will ride the dragons?
 
 Full story on F3News: [30 of the best 'Game of Thrones' fan theories     - CNET](http://www.f3nws.com/n/QbN3y)
 
-> Posted on: Monday, August 28, 2017 6:49:00 PM
+> Posted on: Monday, August 28, 2017 6:54:48 PM
