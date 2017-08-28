@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "National Weather Service calls the flooding in the Houston, Texas, area unprecedented"
-date: 2017-08-28 01:11:52Z
+date: 2017-08-28 02:02:35Z
 categories: cnn-com-top-stories
 ---
 
 ![National Weather Service calls the flooding in the Houston, Texas, area unprecedented](http://i2.cdn.cnn.com/cnnnext/dam/assets/170825233333-16-hurricane-harvey-0825-super-tease.jpg)
 
-The sprawling and soaked Houston metro area and other deluged towns in southeastern Texas braced for devastating floods and pummeling rainfall on Sunday as Tropical Storm Harvey drifted over land and drenched dogged searchers and anxious residents.
+CNN Dallas preps 'mega-shelter' as Texas braces for more rain CNN Houston (CNN) Harvey is no longer a hurricane, but life-threatening flooding continued in and around Houston on Sunday night as citizens with boats assisted authorities in search and rescue efforts. Flooding from Tropical Storm Harvey is overburdening ... Full extent of Harvey's aftermath starts to come into chilling focus Washington Post Hurricane Harvey: Houston evokes painful memories of Katrina Politico Houston devastated by flooding from Harvey as residents gird for days of rain Reuters NPR - Fox News - Los Angeles Times - USA TODAY all 10,645 news articles »
 
 
 Full story on F3News: [National Weather Service calls the flooding in the Houston, Texas, area unprecedented](http://www.f3nws.com/n/SbyUMC)
 
-> Posted on: Monday, August 28, 2017 1:11:52 AM
+> Posted on: Monday, August 28, 2017 2:02:35 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber reportedly taps Expedia CEO to replace Travis Kalanick     - CNET"
-date: 2017-08-28 01:45:39Z
+date: 2017-08-28 02:02:54Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Dara Khosrowshahi will be the ride-hailing startup's next CEO, according to The 
 
 Full story on F3News: [Uber reportedly taps Expedia CEO to replace Travis Kalanick     - CNET](http://www.f3nws.com/n/M4AfzD)
 
-> Posted on: Monday, August 28, 2017 1:45:39 AM
+> Posted on: Monday, August 28, 2017 2:02:54 AM
