@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: Abuse in nursing homes unreported despite law"
-date: 2017-08-28 03:47:00Z
+date: 2017-08-28 10:51:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — More than 1 in 4 cases of possible sexual and physical abuse
 
 Full story on F3News: [APNewsBreak: Abuse in nursing homes unreported despite law](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, August 28, 2017 3:47:00 AM
+> Posted on: Monday, August 28, 2017 10:51:00 AM
