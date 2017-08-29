@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel mulls special status & extended visas for people with Jewish heritage – reports"
-date: 2017-08-29 00:36:20Z
+date: 2017-08-29 00:36:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Israeli government will soon consider recommendations to grant gentiles with
 
 Full story on F3News: [Israel mulls special status & extended visas for people with Jewish heritage – reports](http://www.f3nws.com/n/UfqGUD)
 
-> Posted on: Tuesday, August 29, 2017 12:36:20 AM
+> Posted on: Tuesday, August 29, 2017 12:36:00 AM
