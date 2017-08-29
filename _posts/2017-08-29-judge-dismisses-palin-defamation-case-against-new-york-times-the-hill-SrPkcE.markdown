@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Judge dismisses Palin defamation case against New York Times - The Hill](http://thehill.com/sites/default/files/blogs/palinsarah_123116getty.jpg)
 
-The Hill Judge dismisses Palin defamation case against New York Times The Hill A federal judge dismissed Sarah Palin's defamation lawsuit against The New York Times on Tuesday. Palin sued the Times for defamation after an editorial in the newspaper on mass shootings tied an ad run by the former vice presidential nominee to the ... Sarah Palin's Defamation Suit Against New York Times Is Dismissed New York Times New York Times Wins Dismissal of Sarah Palin's Defamation Lawsuit U.S. News & World Report Judge dismisses Palin defamation lawsuit against New York Times Politico Hollywood Reporter - CNNMoney - Fox News - New York Daily News all 59 news articles »
+The Hill Judge dismisses Palin defamation case against New York Times The Hill A federal judge dismissed Sarah Palin's defamation lawsuit against The New York Times on Tuesday. Palin sued the Times for defamation after an editorial in the newspaper on mass shootings tied an ad run by the former vice presidential nominee to the ... Sarah Palin's Defamation Suit Against New York Times Is Dismissed New York Times New York Times Wins Dismissal of Sarah Palin's Defamation Lawsuit U.S. News & World Report Sarah Palin's New York Times Defamation Lawsuit Ended By Judge Deadline BuzzFeed News - Hollywood Reporter - CNNMoney - Washington Examiner all 48 news articles »
 
 
 Full story on F3News: [Judge dismisses Palin defamation case against New York Times - The Hill](http://www.f3nws.com/n/SrPkcE)
