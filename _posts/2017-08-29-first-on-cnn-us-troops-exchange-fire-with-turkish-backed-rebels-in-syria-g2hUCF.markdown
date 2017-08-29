@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First on CNN: US troops exchange fire with Turkish-backed rebels in Syria"
-date: 2017-08-29 16:29:48Z
+date: 2017-08-29 19:27:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US troops in northern Syria came under direct attack last week by Turkish-backed
 
 Full story on F3News: [First on CNN: US troops exchange fire with Turkish-backed rebels in Syria](http://www.f3nws.com/n/g2hUCF)
 
-> Posted on: Tuesday, August 29, 2017 4:29:48 PM
+> Posted on: Tuesday, August 29, 2017 7:27:22 PM
