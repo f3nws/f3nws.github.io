@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Photos: Hurricane Harvey slams Texas"
-date: 2017-08-29 14:11:18Z
+date: 2017-08-29 17:55:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ See photos of the destruction caused by Hurricane Harvey, the strongest hurrican
 
 Full story on F3News: [Photos: Hurricane Harvey slams Texas](http://www.f3nws.com/n/xxdgn)
 
-> Posted on: Tuesday, August 29, 2017 2:11:18 PM
+> Posted on: Tuesday, August 29, 2017 5:55:50 PM
