@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Panic rising with Texas water levels"
-date: 2017-08-29 02:53:43Z
+date: 2017-08-29 04:18:16Z
 categories: cnn-com-top-stories
 ---
 
 ![Panic rising with Texas water levels](http://i2.cdn.cnn.com/cnnnext/dam/assets/170828161219-hurricane-harvey-boat-rescue-aug-27-super-tease.jpg)
 
-CNN As Harvey's waters rise, so do panic levels, rescuer says CNN (CNN) As Harvey continues dumping rain on East Texas and the waters there continue to rise, people are starting to panic, rushing rescue boats and even shooting at them if they don't stop, said one volunteer rescuer. Clyde Cain, of the Cajun Navy, ... 'Cajun Navy' races from Louisiana to Texas, using boats to pay it forward Washington Post Stranded hurricane survivors use Zello app to get help CNNMoney Listening to Houston's Desperate Cries for Help After Hurricane Harvey The New Yorker USA TODAY - Christian Science Monitor - The Advocate - Reason (blog) all 77 news articles »
+CNN Thousands rescued as Harvey's waters rise CNN (CNN) As night fell Monday, emergency officials in Texas continued fielding calls from stranded residents, rescuing thousands from Harvey's floodwaters. "The Coast Guard is continuing to receive upwards of 1,000 calls per hour," US Coast Guard Lt. Mike ... Texas officials say at least nine dead as Harvey flooding continues Washington Post Harvey Updates: Cities Gear Up to Take In Storm Victims From Texas Coast New York Times At least nine people dead as Tropical Storm Harvey continues its rampage across Texas Los Angeles Times Chicago Tribune - Politico - NBCSports.com - New York Daily News all 16,531 news articles »
 
 
 Full story on F3News: [Panic rising with Texas water levels](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Tuesday, August 29, 2017 2:53:43 AM
+> Posted on: Tuesday, August 29, 2017 4:18:16 AM
