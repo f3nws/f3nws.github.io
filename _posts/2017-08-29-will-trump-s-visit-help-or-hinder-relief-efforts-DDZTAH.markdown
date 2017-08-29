@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Will Trump's visit help or hinder relief efforts?"
-date: 2017-08-29 12:36:29Z
+date: 2017-08-29 22:40:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Eager to demonstrate leadership amid the worst natural disaster of his tenure, P
 
 Full story on F3News: [Will Trump's visit help or hinder relief efforts?](http://www.f3nws.com/n/DDZTAH)
 
-> Posted on: Tuesday, August 29, 2017 12:36:29 PM
+> Posted on: Tuesday, August 29, 2017 10:40:20 PM
