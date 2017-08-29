@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Get out now!' Residents flee breached levee"
-date: 2017-08-29 21:23:01Z
+date: 2017-08-29 21:46:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harvey rammed into Texas last week, unleashing a torrent of rainfall, clogging s
 
 Full story on F3News: ['Get out now!' Residents flee breached levee](http://www.f3nws.com/n/zJMDcH)
 
-> Posted on: Tuesday, August 29, 2017 9:23:01 PM
+> Posted on: Tuesday, August 29, 2017 9:46:09 PM
