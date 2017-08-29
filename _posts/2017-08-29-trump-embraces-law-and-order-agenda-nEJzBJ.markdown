@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump embraces law and order agenda"
-date: 2017-08-29 08:43:00Z
+date: 2017-08-29 13:47:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There's nothing more fundamental to President Donald Trump's political philosoph
 
 Full story on F3News: [Trump embraces law and order agenda](http://www.f3nws.com/n/nEJzBJ)
 
-> Posted on: Tuesday, August 29, 2017 8:43:00 AM
+> Posted on: Tuesday, August 29, 2017 1:47:04 PM
