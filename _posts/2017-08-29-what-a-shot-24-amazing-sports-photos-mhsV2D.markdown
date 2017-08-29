@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What a shot! 24 amazing sports photos"
-date: 2017-08-29 00:42:44Z
+date: 2017-08-29 02:57:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Take a look at 24 amazing sports photos from August 22 through August 28.
 
 Full story on F3News: [What a shot! 24 amazing sports photos](http://www.f3nws.com/n/mhsV2D)
 
-> Posted on: Tuesday, August 29, 2017 12:42:44 AM
+> Posted on: Tuesday, August 29, 2017 2:57:59 AM
