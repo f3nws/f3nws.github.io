@@ -5,7 +5,7 @@ date: 2017-08-29 03:38:57Z
 categories: abc-top-stories
 ---
 
-!['I thought a bomb had gone off': Crane topples into Sydney Harbour](http://www.abc.net.au/news/image/8852890-1x1-700x700.jpg)
+!['I thought a bomb had gone off': Crane topples into Sydney Harbour](http://www.abc.net.au/news/image/8852652-1x1-700x700.jpg)
 
 A crane operating off a barge at Milsons Point topples into Sydney Harbour, with stunned witnesses reporting a "huge bang" and seeing a cable fly off the construction site and land on Luna Park's distinctive entry face.
 
