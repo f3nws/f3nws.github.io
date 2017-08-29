@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Millions illegally streamed Mayweather-McGregor fight     - CNET"
-date: 2017-08-29 01:17:11Z
+date: 2017-08-29 13:39:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ About 2.9 million people watched Saturday's big fight illegally through pirated 
 
 Full story on F3News: [Millions illegally streamed Mayweather-McGregor fight     - CNET](http://www.f3nws.com/n/3ngHnB)
 
-> Posted on: Tuesday, August 29, 2017 1:17:11 AM
+> Posted on: Tuesday, August 29, 2017 1:39:15 PM

@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Racist place names in Queensland's north to be wiped off maps - ABC Local](http://www.abc.net.au/news/image/8853154-1x1-700x700.png)
 
-ABC Local Racist place names in Queensland's north to be wiped off maps ABC Local The decision comes after community concerns about a place called N*****s Bounce led to its removal from all databases by the Department of Natural Resources and Mines in May. Other names that have been discontinued include Mount N*****, N***** Head ... Queensland moves to remove racist place names such as N***** Creek SBS Racist place names in Queensland to be removed 9news.com.au Australian State Removes Racially Offensive Place Names New York Times JOE - Wingham Chronicle - Daily Mail all 7 news articles »
+ABC Local Racist place names in Queensland's north to be wiped off maps ABC Local The decision comes after community concerns about a place called N*****s Bounce led to its removal from all databases by the Department of Natural Resources and Mines in May. Other names that have been discontinued include Mount N*****, N***** Head ... Queensland moves to remove racist place names such as N***** Creek SBS Racist place names in Queensland to be removed 9news.com.au Australian State Removes Racially Offensive Place Names New York Times JOE - Daily Mail all 7 news articles »
 
 
 Full story on F3News: [Racist place names in Queensland's north to be wiped off maps - ABC Local](http://www.f3nws.com/n/GsmaUH)
