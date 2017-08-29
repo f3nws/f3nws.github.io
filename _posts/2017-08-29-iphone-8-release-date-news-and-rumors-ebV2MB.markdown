@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8 release date, news and rumors"
-date: 2017-08-29 11:18:18Z
+date: 2017-08-29 12:08:18Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ iPhone 8 could launch in a matter of days with new features and, of course, and 
 
 Full story on F3News: [iPhone 8 release date, news and rumors](http://www.f3nws.com/n/ebV2MB)
 
-> Posted on: Tuesday, August 29, 2017 11:18:18 AM
+> Posted on: Tuesday, August 29, 2017 12:08:18 PM
