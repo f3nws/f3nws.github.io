@@ -7,7 +7,7 @@ categories: techradar
 
 ![Google to mark certified Android devices so you know they're legit](http://cdn.mos.cms.futurecdn.net/5rmBdt8cC4tAXEWLLCnCGA-1200-80.jpg)
 
-Need to know if your Android phone meets Google's standards? Soon you'll just look for the little green shield.
+Need to know if your Android phone meets Google's standards? Soon, you'll just have to look for the little green shield.
 
 
 Full story on F3News: [Google to mark certified Android devices so you know they're legit](http://www.f3nws.com/n/ZencbC)

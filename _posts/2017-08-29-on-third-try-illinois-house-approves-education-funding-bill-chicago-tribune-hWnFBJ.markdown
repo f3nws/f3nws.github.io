@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![On third try, Illinois House approves education funding bill - Chicago Tribune](http://www.trbimg.com/img-59a498ea/turbine/ct-illinois-house-school-funding-met-0829-20170828)
 
-Chicago Tribune On third try, Illinois House approves education funding bill Chicago Tribune Democratic House Speaker Mike Madigan, left,visits with House Republican Leader Jim Durkin after the education funding bill passed. (Justin L. Fowler / AP). Monique Garcia, Hal Dardick and Rick PearsonContact ReportersChicago Tribune. Privacy Policy. Illinois GOP Governor Signs Bill Helping Criminal Immigrants The Daily Caller The Latest: Illinois House approves school bill on 2nd try Miami Herald all 168 news articles »
+Chicago Tribune On third try, Illinois House approves education funding bill Chicago Tribune Democratic House Speaker Mike Madigan, left,visits with House Republican Leader Jim Durkin after the education funding bill passed. (Justin L. Fowler / AP). Monique Garcia, Hal Dardick and Rick PearsonContact ReportersChicago Tribune. Privacy Policy. Illinois House passes school funding overhaul on 2nd attempt STLtoday.com Illinois GOP Governor Signs Bill Helping Criminal Immigrants The Daily Caller The Latest: Illinois House approves school bill on 2nd try Miami Herald Reuters - WLS-TV - Herald & Review - DNAinfo all 170 news articles »
 
 
 Full story on F3News: [On third try, Illinois House approves education funding bill - Chicago Tribune](http://www.f3nws.com/n/hWnFBJ)
