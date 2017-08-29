@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey regains strength, will make landfall again"
-date: 2017-08-29 14:02:19Z
+date: 2017-08-29 15:13:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harvey rammed into Texas last week, unleashing a torrent of rainfall, clogging s
 
 Full story on F3News: [Harvey regains strength, will make landfall again](http://www.f3nws.com/n/zJMDcH)
 
-> Posted on: Tuesday, August 29, 2017 2:02:19 PM
+> Posted on: Tuesday, August 29, 2017 3:13:59 PM
