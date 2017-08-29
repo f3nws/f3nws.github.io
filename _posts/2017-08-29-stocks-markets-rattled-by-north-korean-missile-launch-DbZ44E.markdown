@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stocks: Markets rattled by North Korean missile launch"
-date: 2017-08-29 01:29:58Z
+date: 2017-08-29 08:11:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Stocks: Markets rattled by North Korean missile launch](http://www.f3nws.com/n/DbZ44E)
 
-> Posted on: Tuesday, August 29, 2017 1:29:58 AM
+> Posted on: Tuesday, August 29, 2017 8:11:12 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Coast Guard getting 1,000 rescue calls an hour"
-date: 2017-08-29 07:20:59Z
+date: 2017-08-29 08:13:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Thousands rescued as Harvey's waters rise CNN (CNN) Even as darkness fell an
 
 Full story on F3News: [US Coast Guard getting 1,000 rescue calls an hour](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Tuesday, August 29, 2017 7:20:59 AM
+> Posted on: Tuesday, August 29, 2017 8:13:45 AM
