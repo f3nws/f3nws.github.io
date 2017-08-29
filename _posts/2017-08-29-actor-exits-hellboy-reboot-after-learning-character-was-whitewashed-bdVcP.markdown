@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Actor exits 'Hellboy' reboot after learning character was whitewashed"
-date: 2017-08-29 03:28:11Z
+date: 2017-08-29 20:02:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ An actor set to appear in an upcoming reboot of "Hellboy" has exited the project
 
 Full story on F3News: [Actor exits 'Hellboy' reboot after learning character was whitewashed](http://www.f3nws.com/n/bdVcP)
 
-> Posted on: Tuesday, August 29, 2017 3:28:11 AM
+> Posted on: Tuesday, August 29, 2017 8:02:04 PM
