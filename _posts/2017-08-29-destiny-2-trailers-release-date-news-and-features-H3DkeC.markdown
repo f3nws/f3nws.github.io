@@ -7,7 +7,7 @@ categories: techradar
 
 ![Destiny 2 trailers, release date, news and features](http://cdn.mos.cms.futurecdn.net/whzGyDYYCwVrDiSdUSCEeY-1200-80.jpg)
 
-We're getting close to Destiny 2's console release and that means the launch trailer is here.
+Destiny 2's PC beta is ready to kick off.
 
 
 Full story on F3News: [Destiny 2 trailers, release date, news and features](http://www.f3nws.com/n/H3DkeC)
