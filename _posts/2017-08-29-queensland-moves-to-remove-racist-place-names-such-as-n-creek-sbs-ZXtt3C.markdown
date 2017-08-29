@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Queensland moves to remove racist place names such as N***** Creek - SBS](http://www.sbs.com.au/nitv/sites/sbs.com.au.nitv/files/styles/full/public/7435.jpg?itok=X5UPGYnB)
 
-SBS Queensland moves to remove racist place names such as N***** Creek SBS The Queensland Natural Resources and Mines Department has begun a review of place names in its database following complaints in May about the offensive place name "N****** Bounce" in north Queensland. There are a number of other racist names in ... Racist place names in Queensland to be removed 9news.com.au all 3 news articles »
+SBS Queensland moves to remove racist place names such as N***** Creek SBS The Queensland Natural Resources and Mines Department has begun a review of place names in its database following complaints in May about the offensive place name "N****** Bounce" in north Queensland. There are a number of other racist names in ... Racist place names in Queensland to be removed 9news.com.au Racist place names to be struck from the record in Queensland The Border Mail all 4 news articles »
 
 
 Full story on F3News: [Queensland moves to remove racist place names such as N***** Creek - SBS](http://www.f3nws.com/n/ZXtt3C)
