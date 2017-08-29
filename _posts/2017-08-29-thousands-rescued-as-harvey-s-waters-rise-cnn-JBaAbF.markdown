@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Thousands rescued as Harvey's waters rise - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170828161219-hurricane-harvey-boat-rescue-aug-27-super-tease.jpg)
 
-CNN Thousands rescued as Harvey's waters rise CNN (CNN) As night fell Monday, emergency officials in Texas continued fielding calls from stranded residents, rescuing thousands from Harvey's floodwaters. "The Coast Guard is continuing to receive upwards of 1,000 calls per hour," US Coast Guard Lt. Mike ... Texas officials say at least nine dead as Harvey flooding continues Washington Post Harvey Updates: Cities Gear Up to Take In Storm Victims From Texas Coast New York Times At least nine people dead as Tropical Storm Harvey continues its rampage across Texas Los Angeles Times Chicago Tribune - Politico - NBCSports.com - New York Daily News all 16,531 news articles »
+CNN Thousands rescued as Harvey's waters rise CNN (CNN) Even as darkness fell and the waters kept rising, emergency officials in Houston continued fielding calls overnight from flood-stranded Texans. Thousands have been rescued so far, many are still waiting to picked up. "The Coast Guard is ... Harvey Updates: Cities Gear Up to Take In Storm Victims From Texas Coast New York Times At least nine people dead as Tropical Storm Harvey continues its rampage across Texas Los Angeles Times JJ Watt's fundraising efforts closes in on $1 million in donations NBCSports.com ESPN - Bloomberg - TIME - ABC News all 17,661 news articles »
 
 
 Full story on F3News: [Thousands rescued as Harvey's waters rise - CNN](http://www.f3nws.com/n/JBaAbF)
