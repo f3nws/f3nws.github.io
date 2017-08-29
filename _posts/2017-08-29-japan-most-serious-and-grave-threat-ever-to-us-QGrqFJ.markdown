@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan: 'Most serious and grave threat ever to us'"
-date: 2017-08-29 05:09:14Z
+date: 2017-08-29 05:38:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US official told CNN Monday that North Korea has launched some sort of a proje
 
 Full story on F3News: [Japan: 'Most serious and grave threat ever to us'](http://www.f3nws.com/n/QGrqFJ)
 
-> Posted on: Tuesday, August 29, 2017 5:09:14 AM
+> Posted on: Tuesday, August 29, 2017 5:38:42 AM
