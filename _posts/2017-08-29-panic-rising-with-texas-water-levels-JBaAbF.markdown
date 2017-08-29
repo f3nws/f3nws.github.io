@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Panic rising with Texas water levels"
-date: 2017-08-29 04:18:16Z
+date: 2017-08-29 05:21:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Thousands rescued as Harvey's waters rise CNN (CNN) As night fell Monday, em
 
 Full story on F3News: [Panic rising with Texas water levels](http://www.f3nws.com/n/JBaAbF)
 
-> Posted on: Tuesday, August 29, 2017 4:18:16 AM
+> Posted on: Tuesday, August 29, 2017 5:21:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S Korea simulates bombing of N Korean leadership"
-date: 2017-08-29 04:00:36Z
+date: 2017-08-29 05:22:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korea's air force has staged a live-fire drill simulating the destruction 
 
 Full story on F3News: [S Korea simulates bombing of N Korean leadership](http://www.f3nws.com/n/u3skmC)
 
-> Posted on: Tuesday, August 29, 2017 4:00:36 AM
+> Posted on: Tuesday, August 29, 2017 5:22:33 AM
