@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson moves to ditch special envoys"
-date: 2017-08-29 01:32:09Z
+date: 2017-08-29 08:51:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson is moving to eliminate or downgrade special env
 
 Full story on F3News: [Tillerson moves to ditch special envoys](http://www.f3nws.com/n/ncG4uH)
 
-> Posted on: Tuesday, August 29, 2017 1:32:09 AM
+> Posted on: Tuesday, August 29, 2017 8:51:29 AM
