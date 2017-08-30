@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: Talking to North Korea is 'not the answer'"
-date: 2017-08-30 18:24:04Z
+date: 2017-08-30 19:19:37Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Wednesday that "talking is not the answer" when it c
 
 Full story on F3News: [Trump: Talking to North Korea is 'not the answer'](http://www.f3nws.com/n/gZsHWB)
 
-> Posted on: Wednesday, August 30, 2017 6:24:04 PM
+> Posted on: Wednesday, August 30, 2017 7:19:37 PM

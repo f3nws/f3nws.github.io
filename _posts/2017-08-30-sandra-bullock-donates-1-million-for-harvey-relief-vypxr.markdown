@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sandra Bullock donates $1 million for Harvey relief"
-date: 2017-08-30 15:55:25Z
+date: 2017-08-30 19:03:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sandra Bullock has donated $1 million to help those hard hit by flooding in Texa
 
 Full story on F3News: [Sandra Bullock donates $1 million for Harvey relief](http://www.f3nws.com/n/vypxr)
 
-> Posted on: Wednesday, August 30, 2017 3:55:25 PM
+> Posted on: Wednesday, August 30, 2017 7:03:48 PM
