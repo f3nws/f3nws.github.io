@@ -7,7 +7,7 @@ categories: techradar
 
 ![iPhone 8 release date, news and rumors](http://cdn.mos.cms.futurecdn.net/c78397395868d3bdf3b734be388ad855-1200-80.jpg)
 
-The iPhone 8 could launch in a matter of days with new features and, of course, a price increase. Here are the best iPhone leaks.
+The iPhone 8 could launch in a matter of days, with new features and likely a big price hike. Here's what we know – and what we think we know.
 
 
 Full story on F3News: [iPhone 8 release date, news and rumors](http://www.f3nws.com/n/ebV2MB)

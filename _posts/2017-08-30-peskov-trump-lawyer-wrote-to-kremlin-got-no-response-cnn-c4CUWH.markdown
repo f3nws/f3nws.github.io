@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Peskov: Trump lawyer wrote to Kremlin, got no response - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170816163314-michael-cohen-12-16-2016-super-tease.jpg)
 
-CNN Peskov: Trump lawyer wrote to Kremlin, got no response CNN Moscow (CNN) Kremlin spokesman Dmitry Peskov confirmed Wednesday he got an email from Michael Cohen, US President Donald Trump's lawyer, asking for help moving a Moscow real estate deal forward, but said he did not respond and did not pass it to ... Kremlin says it got the Trump Tower email but didn't respond Washington Post Russiagate's Second Smoking Gun RollingStone.com Here Are Trump's 3 Biggest Lies About the Russia Scandal Mother Jones The Hill - Newsweek - Bloomberg - Townhall all 170 news articles »
+CNN Peskov: Trump lawyer wrote to Kremlin, got no response CNN Moscow (CNN) Kremlin spokesman Dmitry Peskov confirmed Wednesday he got an email from Michael Cohen, US President Donald Trump's lawyer, asking for help moving a Moscow real estate deal forward, but said he did not respond and did not pass it to ... Kremlin says it got the Trump Tower email but didn't respond Washington Post Russiagate's Second Smoking Gun RollingStone.com Kremlin confirms Trump Tower email, says it did not respond The Hill Mother Jones - Newsweek - Bloomberg - Townhall all 176 news articles »
 
 
 Full story on F3News: [Peskov: Trump lawyer wrote to Kremlin, got no response - CNN](http://www.f3nws.com/n/c4CUWH)
