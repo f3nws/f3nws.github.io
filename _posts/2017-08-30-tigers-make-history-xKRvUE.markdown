@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tigers make history"
-date: 2017-08-30 09:01:25Z
+date: 2017-08-30 09:53:40Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Tigers make history](http://www.f3nws.com/n/xKRvUE)
 
-> Posted on: Wednesday, August 30, 2017 9:01:25 AM
+> Posted on: Wednesday, August 30, 2017 9:53:40 AM
