@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "25 top things to do and eat in Malaysia"
-date: 2017-08-30 09:09:22Z
+date: 2017-08-30 10:27:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For years, Malaysia cruised under the tourist radar, overshadowed by its more po
 
 Full story on F3News: [25 top things to do and eat in Malaysia](http://www.f3nws.com/n/tmfWDD)
 
-> Posted on: Wednesday, August 30, 2017 9:09:22 AM
+> Posted on: Wednesday, August 30, 2017 10:27:26 AM
