@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mattis: Transgender troops can keep serving pending study - The Hill](http://thehill.com/sites/default/files/article_images/mattis-james-getty.jpg)
 
-The Hill Mattis: Transgender troops can keep serving pending study The Hill Defense Secretary Jim Mattis announced Tuesday that transgender troops in the military would be allowed to continue serving pending the results of a study. The announcement comes days after President Trump signed a memo barring transgender people ... Mattis allows transgender troops to serve as Pentagon studies Trump's ban Politico Mattis Freezes Trump's Transgender Ban Pending Further Review by People Other Than the President Slate Magazine (blog) Mattis freezes transgender policy; allows troops to continue serving, pending study USA TODAY Business Insider - Fox News - SFGate - Daily Beast all 567 news articles »
+The Hill Mattis: Transgender troops can keep serving pending study The Hill Defense Secretary Jim Mattis announced Tuesday that transgender troops in the military would be allowed to continue serving pending the results of a study. The announcement comes days after President Trump signed a memo barring transgender people ... Mattis: Transgender service members will continue to serve, pending 6-month study ABC News Mattis Says Panel Will Study Trump's Transgender Military Ban New York Times Mattis allows transgender troops to serve as Pentagon studies Trump's ban Politico USA TODAY - Washington Post - Slate Magazine (blog) - Fox News all 502 news articles »
 
 
 Full story on F3News: [Mattis: Transgender troops can keep serving pending study - The Hill](http://www.f3nws.com/n/DtWMcF)

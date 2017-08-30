@@ -5,7 +5,7 @@ date: 2017-08-30 05:04:05Z
 categories: cnn-com-top-stories
 ---
 
-![Next target is Guam, North Korea says](http://i2.cdn.cnn.com/cnnnext/dam/assets/170829104201-korea-missile-launch-tv-t1-super-tease.jpg)
+![Next target is Guam, North Korea says](http://i2.cdn.cnn.com/cnnnext/dam/assets/170829201514-01-north-korea-missile-launch-0829-super-tease.jpg)
 
 North Korea's missile launch on Tuesday was a prelude to more military operations directed at the US territory of Guam, North Korean state media said Wednesday.
 

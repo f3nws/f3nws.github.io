@@ -7,7 +7,7 @@ categories: fortune
 
 ![It's Google Vs. Apple in the Race for AR Integrated Smartphones - Fortune](https://fortunedotcom.files.wordpress.com/2017/08/840540680.jpg?w=720)
 
-Fortune It's Google Vs. Apple in the Race for AR Integrated Smartphones Fortune Alphabet Inc.'s Google (googl) on Wednesday unveiled tools to make augmented reality apps for mobile devices using the Android operating system, setting up its latest showdown with Apple (aapl) Inc's iPhone over next-generation smartphone features. Apple's ARKit is already winning the AR wars vs. Google's ARCore Mashable Apple previews ARKit apps, Google debuts ARCore: It's all about business, developers ZDNet Google's answer to Apple's ARKit is late and underwhelming BGR NBCNews.com - The Verge - Seeking Alpha - Yahoo News all 116 news articles »
+Fortune It's Google Vs. Apple in the Race for AR Integrated Smartphones Fortune Alphabet Inc.'s Google (googl) on Wednesday unveiled tools to make augmented reality apps for mobile devices using the Android operating system, setting up its latest showdown with Apple (aapl) Inc's iPhone over next-generation smartphone features. Apple's ARKit is already winning the AR wars vs. Google's ARCore Mashable Apple previews ARKit apps, Google debuts ARCore: It's all about business, developers ZDNet Google's answer to Apple's ARKit is late and underwhelming BGR NBCNews.com - The Verge - Seeking Alpha - TechSpot all 116 news articles »
 
 
 Full story on F3News: [It's Google Vs. Apple in the Race for AR Integrated Smartphones - Fortune](http://www.f3nws.com/n/DMjxRJ)
