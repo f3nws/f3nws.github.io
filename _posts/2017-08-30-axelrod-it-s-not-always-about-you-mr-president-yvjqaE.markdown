@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Axelrod: It's not always about you, Mr. President"
-date: 2017-08-30 01:57:58Z
+date: 2017-08-30 18:40:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Article Two of the Constitution spells out the official duties of the presidency
 
 Full story on F3News: [Axelrod: It's not always about you, Mr. President](http://www.f3nws.com/n/yvjqaE)
 
-> Posted on: Wednesday, August 30, 2017 1:57:58 AM
+> Posted on: Wednesday, August 30, 2017 6:40:36 PM
