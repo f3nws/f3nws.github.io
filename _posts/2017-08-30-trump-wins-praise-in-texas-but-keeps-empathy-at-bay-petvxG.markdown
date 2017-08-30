@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump wins praise in Texas but keeps empathy at bay"
-date: 2017-08-30 03:30:56Z
+date: 2017-08-30 11:40:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump flew to Texas to show the country he could lead at a mome
 
 Full story on F3News: [Trump wins praise in Texas but keeps empathy at bay](http://www.f3nws.com/n/petvxG)
 
-> Posted on: Wednesday, August 30, 2017 3:30:56 AM
+> Posted on: Wednesday, August 30, 2017 11:40:12 AM

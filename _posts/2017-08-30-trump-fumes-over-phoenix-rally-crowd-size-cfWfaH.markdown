@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump fumes over Phoenix rally crowd size"
-date: 2017-08-30 05:59:25Z
+date: 2017-08-30 11:33:00Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump was fuming as he sat in his Phoenix hotel watching news c
 
 Full story on F3News: [Trump fumes over Phoenix rally crowd size](http://www.f3nws.com/n/cfWfaH)
 
-> Posted on: Wednesday, August 30, 2017 5:59:25 AM
+> Posted on: Wednesday, August 30, 2017 11:33:00 AM
