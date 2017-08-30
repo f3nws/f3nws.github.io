@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Darwin homes left without power after Berrimah substation explosion - ABC Local](http://www.abc.net.au/news/image/8855456-1x1-700x700.jpg)
 
-ABC Local Darwin homes left without power after Berrimah substation explosion ABC Local A Power and Water Corporation worker has been injured in an explosion at a major electrical substation in Darwin. The incident happened at the Berrimah substation just before 8am today and has led to widespread power outages in Darwin. According to ... Darwin homes left without power NEWS.com.au Power outages hit Darwin suburbs NT News all 6 news articles »
+ABC Local Darwin homes left without power after Berrimah substation explosion ABC Local A Power and Water Corporation worker has been injured in an explosion at a major electrical substation in Darwin. The incident happened at the Berrimah substation just before 8am today and has led to widespread power outages in Darwin. According to ... Young girl shot in face in Tasmania The Australian Power outages hit Darwin suburbs NT News all 5 news articles »
 
 
 Full story on F3News: [Darwin homes left without power after Berrimah substation explosion - ABC Local](http://www.f3nws.com/n/AztfkE)

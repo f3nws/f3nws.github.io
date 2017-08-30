@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Homes still swamped 3 days after Hurricane Harvey hit"
-date: 2017-08-30 00:11:08Z
+date: 2017-08-30 02:38:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The catastrophic flooding that has already swallowed thousands of homes in Texas
 
 Full story on F3News: [Homes still swamped 3 days after Hurricane Harvey hit](http://www.f3nws.com/n/zJMDcH)
 
-> Posted on: Wednesday, August 30, 2017 12:11:08 AM
+> Posted on: Wednesday, August 30, 2017 2:38:59 AM
