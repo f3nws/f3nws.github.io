@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Great browser alternatives to Chrome video     - CNET"
-date: 2017-08-30 00:01:53Z
+date: 2017-08-30 00:18:07Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Chrome is one of the most preferred browsers, ahead of the likes of Firefox and 
 
 Full story on F3News: [Great browser alternatives to Chrome video     - CNET](http://www.f3nws.com/n/mKfWnB)
 
-> Posted on: Wednesday, August 30, 2017 12:01:53 AM
+> Posted on: Wednesday, August 30, 2017 12:18:07 AM
