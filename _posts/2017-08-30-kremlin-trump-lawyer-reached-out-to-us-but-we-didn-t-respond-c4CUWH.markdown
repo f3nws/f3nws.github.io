@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kremlin: Trump lawyer reached out to us, but we didn't respond"
-date: 2017-08-30 13:43:03Z
+date: 2017-08-30 15:58:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kremlin spokesman Dmitry Peskov confirmed Wednesday he got an email from Michael
 
 Full story on F3News: [Kremlin: Trump lawyer reached out to us, but we didn't respond](http://www.f3nws.com/n/c4CUWH)
 
-> Posted on: Wednesday, August 30, 2017 1:43:03 PM
+> Posted on: Wednesday, August 30, 2017 3:58:16 PM
