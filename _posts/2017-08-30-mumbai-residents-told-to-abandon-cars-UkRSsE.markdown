@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mumbai residents told to abandon cars"
-date: 2017-08-30 06:11:52Z
+date: 2017-08-30 08:51:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Heavy rainfall paralyzed parts of the Indian financial capital of Mumbai on Tues
 
 Full story on F3News: [Mumbai residents told to abandon cars](http://www.f3nws.com/n/UkRSsE)
 
-> Posted on: Wednesday, August 30, 2017 6:11:52 AM
+> Posted on: Wednesday, August 30, 2017 8:51:50 AM
