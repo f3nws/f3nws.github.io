@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Next target is Guam, North Korea says"
-date: 2017-08-30 06:25:56Z
+date: 2017-08-30 09:04:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's missile launch on Tuesday was a prelude to more military operation
 
 Full story on F3News: [Next target is Guam, North Korea says](http://www.f3nws.com/n/TEpkGG)
 
-> Posted on: Wednesday, August 30, 2017 6:25:56 AM
+> Posted on: Wednesday, August 30, 2017 9:04:41 AM
