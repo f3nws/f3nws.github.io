@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plane makes harrowing landing in Sochi as tornadoes rip through Black Sea nearby (PHOTO, VIDEO)"
-date: 2017-08-30 06:53:08Z
+date: 2017-08-30 06:53:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A plane was filmed landing in the Russian city of Sochi with three tornadoes rig
 
 Full story on F3News: [Plane makes harrowing landing in Sochi as tornadoes rip through Black Sea nearby (PHOTO, VIDEO)](http://www.f3nws.com/n/SYHZKC)
 
-> Posted on: Wednesday, August 30, 2017 6:53:08 AM
+> Posted on: Wednesday, August 30, 2017 6:53:00 AM
