@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Smoke over Canberra from Queanbeyan hazard burn off expected to hold to midday - The Canberra Times"
-date: 2017-08-30 01:04:00Z
+date: 2017-08-30 01:13:25Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Canberra Times Smoke over Canberra from Queanbeyan hazard burn off expected 
 
 Full story on F3News: [Smoke over Canberra from Queanbeyan hazard burn off expected to hold to midday - The Canberra Times](http://www.f3nws.com/n/JxsGnH)
 
-> Posted on: Wednesday, August 30, 2017 1:04:00 AM
+> Posted on: Wednesday, August 30, 2017 1:13:25 AM
