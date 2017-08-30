@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How father, son fight for a country which doesn't allow them to vote"
-date: 2017-08-30 01:21:40Z
+date: 2017-08-30 01:51:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the first years after the September 11 terror attacks, administrators at Guam
 
 Full story on F3News: [How father, son fight for a country which doesn't allow them to vote](http://www.f3nws.com/n/ZeZRyF)
 
-> Posted on: Wednesday, August 30, 2017 1:21:40 AM
+> Posted on: Wednesday, August 30, 2017 1:51:01 AM

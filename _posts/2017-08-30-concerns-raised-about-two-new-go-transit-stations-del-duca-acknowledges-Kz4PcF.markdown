@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Concerns raised’ about two new GO Transit stations, Del Duca acknowledges"
-date: 2017-08-30 00:14:57Z
+date: 2017-08-30 00:14:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Transportation Minister stops short of saying that the two stops, one of which i
 
 Full story on F3News: [‘Concerns raised’ about two new GO Transit stations, Del Duca acknowledges](http://www.f3nws.com/n/Kz4PcF)
 
-> Posted on: Wednesday, August 30, 2017 12:14:57 AM
+> Posted on: Wednesday, August 30, 2017 12:14:00 AM
