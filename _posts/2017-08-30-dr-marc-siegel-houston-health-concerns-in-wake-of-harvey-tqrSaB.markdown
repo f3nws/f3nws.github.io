@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dr. Marc Siegel: Houston health concerns in wake of Harvey"
-date: 2017-08-30 01:30:02Z
+date: 2017-08-30 05:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The floodwaters from Tropical Storm Harvey will disappear over time, but for mil
 
 Full story on F3News: [Dr. Marc Siegel: Houston health concerns in wake of Harvey](http://www.f3nws.com/n/tqrSaB)
 
-> Posted on: Wednesday, August 30, 2017 1:30:02 AM
+> Posted on: Wednesday, August 30, 2017 5:00:00 AM
