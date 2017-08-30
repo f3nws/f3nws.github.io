@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spicer meets Pope Francis at last"
-date: 2017-08-30 11:35:29Z
+date: 2017-08-30 15:04:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House press secretary Sean Spicer has finally crossed an important 
 
 Full story on F3News: [Spicer meets Pope Francis at last](http://www.f3nws.com/n/atCjhF)
 
-> Posted on: Wednesday, August 30, 2017 11:35:29 AM
+> Posted on: Wednesday, August 30, 2017 3:04:44 PM
