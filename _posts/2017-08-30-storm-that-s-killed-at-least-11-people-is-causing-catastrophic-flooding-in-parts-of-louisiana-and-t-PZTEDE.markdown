@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Storm that's killed at least 11 people is causing catastrophic flooding in parts of Louisiana and Texas"
-date: 2017-08-30 11:02:36Z
+date: 2017-08-30 13:21:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harvey is set to take an aim at the Louisiana-Texas border, dousing the region w
 
 Full story on F3News: [Storm that's killed at least 11 people is causing catastrophic flooding in parts of Louisiana and Texas](http://www.f3nws.com/n/PZTEDE)
 
-> Posted on: Wednesday, August 30, 2017 11:02:36 AM
+> Posted on: Wednesday, August 30, 2017 1:21:10 PM
