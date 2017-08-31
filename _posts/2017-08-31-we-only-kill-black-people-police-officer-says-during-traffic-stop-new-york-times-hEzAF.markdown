@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['We Only Kill Black People,' Police Officer Says During Traffic Stop - New York Times](https://static01.nyt.com/images/2017/09/01/us/01xp-georgia/01xp-georgia-facebookJumbo.jpg)
 
-New York Times 'We Only Kill Black People,' Police Officer Says During Traffic Stop New York Times A still photo from dashboard camera video footage of a traffic stop last year near Marietta, Ga. Credit via WSB-TV. A police department in Georgia is firing one of its officers after he was recorded on a dashboard camera trying to convince a white ... Georgia police officer: 'We only kill black people' The Hill (blog) Georgia cop who said 'we only kill black people' to be fired Fox News Cobb cop during traffic stop: 'Remember, we only shoot black people' Atlanta Journal Constitution ThinkProgress - Salon - Bustle - WLS-TV all 152 news articles »
+New York Times 'We Only Kill Black People,' Police Officer Says During Traffic Stop New York Times A still photo from dashboard camera video footage of a traffic stop last year near Marietta, Ga. Credit via WSB-TV. A police department in Georgia is firing one of its officers after he was recorded on a dashboard camera trying to convince a white ... Georgia police officer: 'We only kill black people' The Hill (blog) Georgia cop who said 'we only kill black people' to be fired Fox News Cobb cop during traffic stop: 'Remember, we only shoot black people' Atlanta Journal Constitution ThinkProgress - Salon - Bustle - WLS-TV all 153 news articles »
 
 
 Full story on F3News: ['We Only Kill Black People,' Police Officer Says During Traffic Stop - New York Times](http://www.f3nws.com/n/hEzAF)
