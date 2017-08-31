@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Essential admits it accidentally leaked customer info     - CNET"
-date: 2017-08-31 03:16:57Z
+date: 2017-08-31 06:14:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CEO Andy Rubin issues a narrow apology.
 
 Full story on F3News: [Essential admits it accidentally leaked customer info     - CNET](http://www.f3nws.com/n/RQDZKC)
 
-> Posted on: Thursday, August 31, 2017 3:16:57 AM
+> Posted on: Thursday, August 31, 2017 6:14:43 AM
