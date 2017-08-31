@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese tourist Jie Shao almost killed beauty clinic owner in breast implant procedure: court - The Sydney Morning Herald"
-date: 2017-08-31 04:05:25Z
+date: 2017-08-31 07:28:53Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Chinese tourist Jie Shao almost killed beauty clinic o
 
 Full story on F3News: [Chinese tourist Jie Shao almost killed beauty clinic owner in breast implant procedure: court - The Sydney Morning Herald](http://www.f3nws.com/n/Pqr3K)
 
-> Posted on: Thursday, August 31, 2017 4:05:25 AM
+> Posted on: Thursday, August 31, 2017 7:28:53 AM
