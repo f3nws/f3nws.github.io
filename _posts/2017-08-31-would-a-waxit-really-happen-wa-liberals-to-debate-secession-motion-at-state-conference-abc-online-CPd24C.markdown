@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Would a WAxit really happen? WA Liberals to debate secession motion at state conference - ABC Online"
-date: 2017-08-31 01:54:00Z
+date: 2017-08-31 01:59:04Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Would a WAxit really happen? WA Liberals to debate secession motion a
 
 Full story on F3News: [Would a WAxit really happen? WA Liberals to debate secession motion at state conference - ABC Online](http://www.f3nws.com/n/CPd24C)
 
-> Posted on: Thursday, August 31, 2017 1:54:00 AM
+> Posted on: Thursday, August 31, 2017 1:59:04 AM

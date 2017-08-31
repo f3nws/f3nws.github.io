@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charges laid after woman suffers cardiac arrest at Sydney beauty clinic - The Sydney Morning Herald"
-date: 2017-08-31 00:50:25Z
+date: 2017-08-31 01:16:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Charges laid after woman suffers cardiac arrest at Syd
 
 Full story on F3News: [Charges laid after woman suffers cardiac arrest at Sydney beauty clinic - The Sydney Morning Herald](http://www.f3nws.com/n/JN2EDG)
 
-> Posted on: Thursday, August 31, 2017 12:50:25 AM
+> Posted on: Thursday, August 31, 2017 1:16:00 AM

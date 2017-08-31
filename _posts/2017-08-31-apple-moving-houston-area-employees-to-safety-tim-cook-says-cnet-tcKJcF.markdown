@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple moving Houston-area employees to safety, Tim Cook says     - CNET"
-date: 2017-08-31 01:50:21Z
+date: 2017-08-31 02:49:36Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Along with fundraising efforts, Apple is helping its own employees affected by t
 
 Full story on F3News: [Apple moving Houston-area employees to safety, Tim Cook says     - CNET](http://www.f3nws.com/n/tcKJcF)
 
-> Posted on: Thursday, August 31, 2017 1:50:21 AM
+> Posted on: Thursday, August 31, 2017 2:49:36 AM
