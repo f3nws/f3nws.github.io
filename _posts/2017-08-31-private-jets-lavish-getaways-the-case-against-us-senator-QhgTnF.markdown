@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Private jets, lavish getaways: The case against US senator"
-date: 2017-08-31 06:22:10Z
+date: 2017-08-31 11:56:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Email correspondence, flight manifests, hotel bills, credit card statements and 
 
 Full story on F3News: [Private jets, lavish getaways: The case against US senator](http://www.f3nws.com/n/QhgTnF)
 
-> Posted on: Thursday, August 31, 2017 6:22:10 AM
+> Posted on: Thursday, August 31, 2017 11:56:44 AM

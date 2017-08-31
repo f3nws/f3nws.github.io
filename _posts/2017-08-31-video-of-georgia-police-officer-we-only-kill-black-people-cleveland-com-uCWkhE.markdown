@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Video of Georgia police officer: 'We only kill black people' - cleveland.com](http://image.cleveland.com/home/cleve-media/width620/img/nationworld_impact/photo/police-lightspng-0885196adc038f0b.png)
 
-cleveland.com Video of Georgia police officer: 'We only kill black people' cleveland.com A Georgia police officer is accused of making racial comments during a traffic stop in July. A Georgia police officer is accused of making racial comments during a traffic stop in July.( cleveland.com file photo ). By Cliff Pinckard, cleveland.com. and more »
+cleveland.com Video of Georgia police officer: 'We only kill black people' cleveland.com A Georgia police officer is accused of making racial comments during a traffic stop in July. A Georgia police officer is accused of making racial comments during a traffic stop in July.( cleveland.com file photo ). 0 shares. By Cliff Pinckard ... and more »
 
 
 Full story on F3News: [Video of Georgia police officer: 'We only kill black people' - cleveland.com](http://www.f3nws.com/n/uCWkhE)
