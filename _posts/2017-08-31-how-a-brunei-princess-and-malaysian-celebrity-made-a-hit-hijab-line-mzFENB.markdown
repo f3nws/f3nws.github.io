@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How a Brunei princess and Malaysian celebrity made a hit hijab line"
-date: 2017-08-31 03:26:41Z
+date: 2017-08-31 04:49:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The tiny Southeast Asian sultanate of Brunei is better known as an exporter of o
 
 Full story on F3News: [How a Brunei princess and Malaysian celebrity made a hit hijab line](http://www.f3nws.com/n/mzFENB)
 
-> Posted on: Thursday, August 31, 2017 3:26:41 AM
+> Posted on: Thursday, August 31, 2017 4:49:52 AM
