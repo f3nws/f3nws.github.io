@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US holds bombing drill over Korean Peninsula"
-date: 2017-08-31 15:16:51Z
+date: 2017-08-31 15:40:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two days after North Korea flew a missile over Japan, the United States and Sout
 
 Full story on F3News: [US holds bombing drill over Korean Peninsula](http://www.f3nws.com/n/RGEKBF)
 
-> Posted on: Thursday, August 31, 2017 3:16:51 PM
+> Posted on: Thursday, August 31, 2017 3:40:38 PM
