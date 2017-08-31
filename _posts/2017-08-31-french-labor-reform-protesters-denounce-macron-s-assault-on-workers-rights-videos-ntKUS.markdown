@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French labor reform protesters denounce Macron’s ‘assault on workers’ rights’ (VIDEOS)"
-date: 2017-08-31 00:28:25Z
+date: 2017-08-31 00:28:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Several hundred activists have taken to the streets of a Paris suburb, protestin
 
 Full story on F3News: [French labor reform protesters denounce Macron’s ‘assault on workers’ rights’ (VIDEOS)](http://www.f3nws.com/n/ntKUS)
 
-> Posted on: Thursday, August 31, 2017 12:28:25 AM
+> Posted on: Thursday, August 31, 2017 12:28:00 AM
