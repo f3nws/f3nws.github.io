@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump in Missouri Lays Groundwork for Tax Overhaul but Offers No Details - New York Times](https://static01.nyt.com/images/2017/08/30/us/31DC-TRUMP/31DC-TRUMP-facebookJumbo.jpg)
 
-New York Times Trump in Missouri Lays Groundwork for Tax Overhaul but Offers No Details New York Times President Trump spoke about his tax overhaul plan on Wednesday in Springfield, Mo. Credit Tom Brenner/The New York Times. SPRINGFIELD, Mo. — President Trump on Wednesday pitched a sweeping tax overhaul that he said would unleash the American ... Trump pushes tax cuts, hopes he isn't 'disappointed' by Congress Washington Post FACT CHECK: 4 Claims From Trump's Tax Speech NPR Trump's growing economy faces fall obstacles The Hill HuffPost - Business Insider - Politico - ABC News all 436 news articles »
+New York Times Trump in Missouri Lays Groundwork for Tax Overhaul but Offers No Details New York Times President Trump spoke about his tax overhaul plan on Wednesday in Springfield, Mo. Credit Tom Brenner/The New York Times. SPRINGFIELD, Mo. — President Trump on Wednesday pitched a sweeping tax overhaul that he said would unleash the American ... Trump pushes tax cuts, hopes he isn't 'disappointed' by Congress Washington Post Here are Trump's four tax principles — and why his plan won't serve them Business Insider Trump touts tax reform, tells Congress to deliver Reuters STLtoday.com all 436 news articles »
 
 
 Full story on F3News: [Trump in Missouri Lays Groundwork for Tax Overhaul but Offers No Details - New York Times](http://www.f3nws.com/n/qNR3MC)
