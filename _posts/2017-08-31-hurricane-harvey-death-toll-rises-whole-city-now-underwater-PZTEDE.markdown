@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Harvey death toll rises: 'Whole city' now underwater"
-date: 2017-08-31 01:29:24Z
+date: 2017-08-31 02:07:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harvey is set to take an aim at the Louisiana-Texas border, dousing the region w
 
 Full story on F3News: [Hurricane Harvey death toll rises: 'Whole city' now underwater](http://www.f3nws.com/n/PZTEDE)
 
-> Posted on: Thursday, August 31, 2017 1:29:24 AM
+> Posted on: Thursday, August 31, 2017 2:07:50 AM
