@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, South Korea fly bombers over Korean Peninsula"
-date: 2017-08-31 09:32:07Z
+date: 2017-08-31 09:57:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US and South Korea have staged a joint show of force over the Korean Peninsu
 
 Full story on F3News: [US, South Korea fly bombers over Korean Peninsula](http://www.f3nws.com/n/RGEKBF)
 
-> Posted on: Thursday, August 31, 2017 9:32:07 AM
+> Posted on: Thursday, August 31, 2017 9:57:58 AM
