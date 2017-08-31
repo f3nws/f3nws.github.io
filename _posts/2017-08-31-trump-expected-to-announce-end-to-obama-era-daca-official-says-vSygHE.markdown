@@ -5,7 +5,7 @@ date: 2017-08-31 18:15:00Z
 categories: fox-news
 ---
 
-Trump promised to terminate the Deferred Action for Childhood Arrivals program, or DACA, during the presidential campaign -- but since taking office had left the door open to preserving parts of it.
+President Trump, as early as Friday, is expected to announce plans to end the Obama administration program that gave a deportation reprieve to hundreds of thousands of young illegal immigrants, a senior administration official told Fox News.
 
 
 Full story on F3News: [Trump expected to announce end to Obama-era DACA, official says](http://www.f3nws.com/n/vSygHE)
