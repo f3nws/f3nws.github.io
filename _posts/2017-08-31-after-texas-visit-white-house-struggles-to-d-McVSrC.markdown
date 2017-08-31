@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "After Texas visit, White House struggles to d"
-date: 2017-08-31 12:40:18Z
+date: 2017-08-31 12:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Donald Trump said he witnessed the horror and devastation of Hurricane Harvey "f
 
 Full story on F3News: [After Texas visit, White House struggles to d](http://www.f3nws.com/n/McVSrC)
 
-> Posted on: Thursday, August 31, 2017 12:40:18 PM
+> Posted on: Thursday, August 31, 2017 12:40:00 PM

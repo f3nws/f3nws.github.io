@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Diana's death changed how Britons saw their royals"
-date: 2017-08-31 07:38:52Z
+date: 2017-08-31 16:28:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the early hours of August 31, 1997, the media began reporting that Diana, Pri
 
 Full story on F3News: [Diana's death changed how Britons saw their royals](http://www.f3nws.com/n/hHyVaG)
 
-> Posted on: Thursday, August 31, 2017 7:38:52 AM
+> Posted on: Thursday, August 31, 2017 4:28:51 PM

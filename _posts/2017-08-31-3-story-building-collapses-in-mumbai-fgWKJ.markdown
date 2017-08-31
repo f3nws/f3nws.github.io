@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3-story building collapses in Mumbai"
-date: 2017-08-31 15:08:20Z
+date: 2017-08-31 16:48:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Authorities are scrambling to rescue survivors from the rubble of a three-story 
 
 Full story on F3News: [3-story building collapses in Mumbai](http://www.f3nws.com/n/fgWKJ)
 
-> Posted on: Thursday, August 31, 2017 3:08:20 PM
+> Posted on: Thursday, August 31, 2017 4:48:35 PM
