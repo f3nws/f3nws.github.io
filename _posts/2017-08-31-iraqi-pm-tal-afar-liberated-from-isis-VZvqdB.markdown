@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi PM: Tal Afar 'liberated' from ISIS"
-date: 2017-08-31 12:37:58Z
+date: 2017-08-31 13:43:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi forces have seized the strategically important city of Tal Afar from ISIS,
 
 Full story on F3News: [Iraqi PM: Tal Afar 'liberated' from ISIS](http://www.f3nws.com/n/VZvqdB)
 
-> Posted on: Thursday, August 31, 2017 12:37:58 PM
+> Posted on: Thursday, August 31, 2017 1:43:14 PM

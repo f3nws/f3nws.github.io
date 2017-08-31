@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huge evacuation planned after WWII bomb found"
-date: 2017-08-31 09:37:55Z
+date: 2017-08-31 13:31:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 60,000 people are set to be evacuated from the center of Frankfurt on 
 
 Full story on F3News: [Huge evacuation planned after WWII bomb found](http://www.f3nws.com/n/QRbZGC)
 
-> Posted on: Thursday, August 31, 2017 9:37:55 AM
+> Posted on: Thursday, August 31, 2017 1:31:46 PM
