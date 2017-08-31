@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple sends invites to its Sept. 12 event at Apple Park     - CNET"
-date: 2017-08-31 16:40:42Z
+date: 2017-08-31 19:00:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The iPhone 8 -- and several other products -- are expected to be unveiled at the
 
 Full story on F3News: [Apple sends invites to its Sept. 12 event at Apple Park     - CNET](http://www.f3nws.com/n/JCvgYG)
 
-> Posted on: Thursday, August 31, 2017 4:40:42 PM
+> Posted on: Thursday, August 31, 2017 7:00:02 PM
