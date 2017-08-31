@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Building collapses in Mumbai; 11 dead, more trapped"
-date: 2017-08-31 08:51:25Z
+date: 2017-08-31 09:17:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Authorities are scrambling to rescue survivors from the rubble of a three-story 
 
 Full story on F3News: [Building collapses in Mumbai; 11 dead, more trapped](http://www.f3nws.com/n/fgWKJ)
 
-> Posted on: Thursday, August 31, 2017 8:51:25 AM
+> Posted on: Thursday, August 31, 2017 9:17:35 AM
