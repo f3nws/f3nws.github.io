@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Navy, Air Force conduct rescue missions. Ships bring Marines, supplies"
-date: 2017-08-31 00:26:38Z
+date: 2017-08-31 06:07:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ With floodwaters from Tropical Storm Harvey swallowing entire Texas cities, the 
 
 Full story on F3News: [Navy, Air Force conduct rescue missions. Ships bring Marines, supplies](http://www.f3nws.com/n/rRtGxE)
 
-> Posted on: Thursday, August 31, 2017 12:26:38 AM
+> Posted on: Thursday, August 31, 2017 6:07:15 AM
