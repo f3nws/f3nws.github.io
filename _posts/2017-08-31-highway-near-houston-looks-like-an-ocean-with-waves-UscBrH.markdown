@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Highway near Houston looks like an ocean -- with waves"
-date: 2017-08-31 00:12:03Z
+date: 2017-08-31 01:04:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Logan Wheat went out on a small boat to check on cattle and ended up capturing o
 
 Full story on F3News: [Highway near Houston looks like an ocean -- with waves](http://www.f3nws.com/n/UscBrH)
 
-> Posted on: Thursday, August 31, 2017 12:12:03 AM
+> Posted on: Thursday, August 31, 2017 1:04:36 AM
