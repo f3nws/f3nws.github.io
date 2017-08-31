@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Would a WAxit really happen? WA Liberals to debate secession motion at state conference - ABC Online](http://www.abc.net.au/news/image/8558894-1x1-700x700.jpg)
 
-ABC Online Would a WAxit really happen? WA Liberals to debate secession motion at state conference ABC Online A group of West Australian Liberals has put secessionism back on the agenda, with a renewed push for the state to consider becoming an independent nation. This week's WA Liberal conference will examine setting up a committee to consider secession, ... 'Waxit' push gains key backing The Australian Some Western Australian Liberals pushing for 'WAxit' to secede from Australia The Sydney Morning Herald Liberal Party to debate if WA should secede from the Commonwealth Perth Now The Guardian - Sky News Australia - The West Australian - Business News all 14 news articles »
+ABC Online Would a WAxit really happen? WA Liberals to debate secession motion at state conference ABC Online A group of West Australian Liberals has put secessionism back on the agenda, with a renewed push for the state to consider becoming an independent nation. This week's WA Liberal conference will examine setting up a committee to consider secession, ... 'Waxit' push gains key backing The Australian Some Western Australian Liberals pushing for 'WAxit' to secede from Australia The Sydney Morning Herald WA Liberal party members push for repeal of 18C to be an election pledge The Guardian Sky News Australia - The West Australian - Business News - Daily Mail all 14 news articles »
 
 
 Full story on F3News: [Would a WAxit really happen? WA Liberals to debate secession motion at state conference - ABC Online](http://www.f3nws.com/n/CPd24C)
