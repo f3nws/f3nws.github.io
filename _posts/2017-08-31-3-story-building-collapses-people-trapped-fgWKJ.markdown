@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3-story building collapses; people trapped"
-date: 2017-08-31 06:02:48Z
+date: 2017-08-31 07:10:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Authorities are scrambling to rescue survivors from the rubble of a three-story 
 
 Full story on F3News: [3-story building collapses; people trapped](http://www.f3nws.com/n/fgWKJ)
 
-> Posted on: Thursday, August 31, 2017 6:02:48 AM
+> Posted on: Thursday, August 31, 2017 7:10:07 AM
