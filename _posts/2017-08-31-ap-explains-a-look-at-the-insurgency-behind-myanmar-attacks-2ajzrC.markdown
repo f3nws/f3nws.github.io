@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP Explains: A look at the insurgency behind Myanmar attacks"
-date: 2017-08-31 05:18:00Z
+date: 2017-08-31 05:31:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BANGKOK (AP) — Armed with machetes and rifles, a ragtag band of insurgents com
 
 Full story on F3News: [AP Explains: A look at the insurgency behind Myanmar attacks](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, August 31, 2017 5:18:00 AM
+> Posted on: Thursday, August 31, 2017 5:31:00 AM
