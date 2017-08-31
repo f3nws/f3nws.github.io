@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Houston's layout may have led to mass flooding"
-date: 2017-08-31 16:48:23Z
+date: 2017-08-31 19:59:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tropical Storm Harvey, which has flooded thousands of Houston-area homes, is ser
 
 Full story on F3News: [How Houston's layout may have led to mass flooding](http://www.f3nws.com/n/yzsAEG)
 
-> Posted on: Thursday, August 31, 2017 4:48:23 PM
+> Posted on: Thursday, August 31, 2017 7:59:51 PM

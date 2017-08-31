@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best laptop 2017: Our pick of the 15 best laptops you can buy this year"
-date: 2017-08-31 19:30:00Z
+date: 2017-08-31 19:31:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've reviewed all the best laptops out there so that we can help you discover w
 
 Full story on F3News: [The best laptop 2017: Our pick of the 15 best laptops you can buy this year](http://www.f3nws.com/n/srWbGJ)
 
-> Posted on: Thursday, August 31, 2017 7:30:00 PM
+> Posted on: Thursday, August 31, 2017 7:31:00 PM
