@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US orders closure of Russian facilities as relations worsen"
-date: 2017-08-31 21:10:03Z
+date: 2017-08-31 21:42:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US announced Thursday it will shutter the Russian consulate in San Francisco
 
 Full story on F3News: [US orders closure of Russian facilities as relations worsen](http://www.f3nws.com/n/sUkEh)
 
-> Posted on: Thursday, August 31, 2017 9:10:03 PM
+> Posted on: Thursday, August 31, 2017 9:42:41 PM
