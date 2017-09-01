@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dancing With the Stars' first new cast member of season 25 is..."
-date: 2017-09-01 00:38:18Z
+date: 2017-09-01 03:30:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The first celebrity cast member for Season 25 of "Dancing With the Stars" has be
 
 Full story on F3News: ['Dancing With the Stars' first new cast member of season 25 is...](http://www.f3nws.com/n/GJWqkD)
 
-> Posted on: Friday, September 1, 2017 12:38:18 AM
+> Posted on: Friday, September 1, 2017 3:30:12 AM
