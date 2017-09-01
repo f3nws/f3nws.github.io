@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey deaths, other fatalities push morgue to near capacity"
-date: 2017-09-01 01:51:29Z
+date: 2017-09-01 02:21:36Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Bodies are piling up at the Houston morgue because of Harvey: Not only did the s
 
 Full story on F3News: [Harvey deaths, other fatalities push morgue to near capacity](http://www.f3nws.com/n/cfeB3H)
 
-> Posted on: Friday, September 1, 2017 1:51:29 AM
+> Posted on: Friday, September 1, 2017 2:21:36 AM
