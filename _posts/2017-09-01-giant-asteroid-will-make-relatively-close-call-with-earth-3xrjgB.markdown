@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Giant asteroid will make (relatively) close call with Earth"
-date: 2017-09-01 12:37:10Z
+date: 2017-09-01 14:13:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A huge asteroid is hurtling toward Earth, but don't worry, this isn't "Armageddo
 
 Full story on F3News: [Giant asteroid will make (relatively) close call with Earth](http://www.f3nws.com/n/3xrjgB)
 
-> Posted on: Friday, September 1, 2017 12:37:10 PM
+> Posted on: Friday, September 1, 2017 2:13:04 PM
