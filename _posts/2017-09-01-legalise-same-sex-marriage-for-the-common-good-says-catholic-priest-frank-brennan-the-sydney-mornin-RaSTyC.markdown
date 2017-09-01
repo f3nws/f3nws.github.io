@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Legalise same-sex marriage for the 'common good', says Catholic priest Frank Brennan - The Sydney Morning Herald"
-date: 2017-09-01 01:21:00Z
+date: 2017-09-01 01:22:26Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Legalise same-sex marriage for the 'common good', says
 
 Full story on F3News: [Legalise same-sex marriage for the 'common good', says Catholic priest Frank Brennan - The Sydney Morning Herald](http://www.f3nws.com/n/RaSTyC)
 
-> Posted on: Friday, September 1, 2017 1:21:00 AM
+> Posted on: Friday, September 1, 2017 1:22:26 AM

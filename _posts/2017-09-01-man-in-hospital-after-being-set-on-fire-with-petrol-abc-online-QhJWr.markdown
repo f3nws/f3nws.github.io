@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man in hospital after being set on fire with petrol - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Courier Mail Man in hospital after being set on fire with petrol ABC Online A 65-year-old man is fighting for his life in hospital after being doused with petrol and set on fire. Police said the alleged attack happened at an address in Alexandra Hills, south of Brisbane, just after 9:00am. The victim has been taken to the ... House guest 'cut off man's finger' during argument The Sydney Morning Herald Brisbane house fight: Tip of finger chopped off at Capalaba home Courier Mail Man loses finger tip in Qld knife fight Yahoo7 News Triple M - myGC.com.au all 6 news articles »
+NEWS.com.au Man in hospital after being set on fire with petrol ABC Online A 65-year-old man is fighting for his life in hospital after being doused with petrol and set on fire. Police said the alleged attack happened at an address in Alexandra Hills, south of Brisbane, just after 9:00am. The victim has been taken to the ... Alexandra Hills man fighting for life after being 'set alight' NEWS.com.au Man 'set alight' at Brisbane home Yahoo7 News Brisbane man burned alive 9news.com.au Triple M - Daily Mail - Courier Mail - myPolice (press release) (blog) all 12 news articles »
 
 
 Full story on F3News: [Man in hospital after being set on fire with petrol - ABC Online](http://www.f3nws.com/n/QhJWr)
