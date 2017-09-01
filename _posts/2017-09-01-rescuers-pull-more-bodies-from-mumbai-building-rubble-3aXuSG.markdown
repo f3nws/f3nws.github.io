@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rescuers pull more bodies from Mumbai building rubble"
-date: 2017-09-01 13:52:40Z
+date: 2017-09-01 16:37:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rescue teams in Mumbai Friday pulled more bodies from the rubble of a three-stor
 
 Full story on F3News: [Rescuers pull more bodies from Mumbai building rubble](http://www.f3nws.com/n/3aXuSG)
 
-> Posted on: Friday, September 1, 2017 1:52:40 PM
+> Posted on: Friday, September 1, 2017 4:37:04 PM
