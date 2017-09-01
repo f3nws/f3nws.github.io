@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Diplomatic tit-for-tat between Russia and the US escalates"
-date: 2017-09-01 11:21:33Z
+date: 2017-09-01 11:48:25Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Russia on Friday promised a "tough response" to a U.S. order
 
 Full story on F3News: [Diplomatic tit-for-tat between Russia and the US escalates](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 1, 2017 11:21:33 AM
+> Posted on: Friday, September 1, 2017 11:48:25 AM
