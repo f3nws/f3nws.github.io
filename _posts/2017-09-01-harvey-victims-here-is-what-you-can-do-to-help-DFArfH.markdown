@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Victims: Here Is What You Can Do to Help"
-date: 2017-09-01 00:30:02Z
+date: 2017-09-01 01:00:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Harvey Victims: Here Is What You Can Do to Help](http://www.f3nws.com/n/DFArfH)
 
-> Posted on: Friday, September 1, 2017 12:30:02 AM
+> Posted on: Friday, September 1, 2017 1:00:02 AM
