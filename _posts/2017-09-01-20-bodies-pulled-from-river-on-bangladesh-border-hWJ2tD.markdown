@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "20 bodies pulled from river on Bangladesh border"
-date: 2017-09-01 00:03:22Z
+date: 2017-09-01 02:53:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The bodies of 20 Rohingya Muslims were pulled out of a river Thursday along the 
 
 Full story on F3News: [20 bodies pulled from river on Bangladesh border](http://www.f3nws.com/n/hWJ2tD)
 
-> Posted on: Friday, September 1, 2017 12:03:22 AM
+> Posted on: Friday, September 1, 2017 2:53:41 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![David Clarke, Milwaukee County Sheriff and Trump Supporter, Resigns - New York Times](https://static01.nyt.com/images/2017/09/01/us/01xp-Clarke/01xp-Clarke-facebookJumbo.jpg)
 
-New York Times David Clarke, Milwaukee County Sheriff and Trump Supporter, Resigns New York Times David A. Clarke Jr., the sometimes divisive supporter of President Trump who appeared to flirt with taking a senior role in the Homeland Security Department, has resigned from his position as Milwaukee County sheriff, the county clerk said Thursday ... David Clarke, a strong Trump supporter, resigns as Milwaukee County sheriff Washington Post Milwaukee County Sheriff David Clarke resigns CNN Milwaukee sheriff, Trump supporter Clarke resigns ABC News NBCNews.com - USA TODAY - HuffPost - Chicago Tribune all 108 news articles »
+New York Times David Clarke, Milwaukee County Sheriff and Trump Supporter, Resigns New York Times David A. Clarke Jr., the sometimes divisive supporter of President Trump who appeared to flirt with taking a senior role in the Homeland Security Department, has resigned from his position as Milwaukee County sheriff, the county clerk said Thursday ... David Clarke, a strong Trump supporter, resigns as Milwaukee County sheriff Washington Post Milwaukee County Sheriff David Clarke resigns CNN Tough-Talking Milwaukee County Sheriff David Clarke Resigns NBCNews.com USA TODAY - ABC News - HuffPost - Chicago Tribune all 107 news articles »
 
 
 Full story on F3News: [David Clarke, Milwaukee County Sheriff and Trump Supporter, Resigns - New York Times](http://www.f3nws.com/n/WeSBzG)

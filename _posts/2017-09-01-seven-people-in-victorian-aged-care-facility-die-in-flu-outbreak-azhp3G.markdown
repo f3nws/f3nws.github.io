@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Seven people in Victorian aged care facility die in flu outbreak](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Seven elderly residents from a nursing home in Victoria's north-east have died following a flu outbreak, the state's health authorities say.
+An influenza outbreak at a retirement village in north-east Victoria claims seven lives, after 123 patients and stuff were struck down by the illness over a few weeks.
 
 
 Full story on F3News: [Seven people in Victorian aged care facility die in flu outbreak](http://www.f3nws.com/n/azhp3G)
