@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syrian rebel defector says his US-trained unit sold arms to ISIS"
-date: 2017-09-01 03:58:15Z
+date: 2017-09-01 03:58:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Not only were the US-backed ‘moderate’ militants in southern Syria never mea
 
 Full story on F3News: [Syrian rebel defector says his US-trained unit sold arms to ISIS](http://www.f3nws.com/n/SSBdJE)
 
-> Posted on: Friday, September 1, 2017 3:58:15 AM
+> Posted on: Friday, September 1, 2017 3:58:00 AM

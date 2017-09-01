@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Acting Homeland Security boss brings experience to Harvey role"
-date: 2017-09-01 10:00:06Z
+date: 2017-09-01 11:30:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ As thousands of flood victims in Texas face the harsh reality and devastation le
 
 Full story on F3News: [Acting Homeland Security boss brings experience to Harvey role](http://www.f3nws.com/n/ZWGShE)
 
-> Posted on: Friday, September 1, 2017 10:00:06 AM
+> Posted on: Friday, September 1, 2017 11:30:03 AM
