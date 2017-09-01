@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lego Millennium Falcon: Feast your eyes on 17 gorgeous photos     - CNET"
-date: 2017-09-01 00:13:00Z
+date: 2017-09-01 01:06:29Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The biggest Lego set ever made -- and for $800, it can be yours.
 
 Full story on F3News: [Lego Millennium Falcon: Feast your eyes on 17 gorgeous photos     - CNET](http://www.f3nws.com/n/yEdK4)
 
-> Posted on: Friday, September 1, 2017 12:13:00 AM
+> Posted on: Friday, September 1, 2017 1:06:29 AM
