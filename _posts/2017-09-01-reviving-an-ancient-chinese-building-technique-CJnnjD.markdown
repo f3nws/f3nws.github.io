@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reviving an ancient Chinese building technique"
-date: 2017-09-01 01:46:51Z
+date: 2017-09-01 06:57:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Architects have long turned to the past for inspiration. In this age of glass an
 
 Full story on F3News: [Reviving an ancient Chinese building technique](http://www.f3nws.com/n/CJnnjD)
 
-> Posted on: Friday, September 1, 2017 1:46:51 AM
+> Posted on: Friday, September 1, 2017 6:57:35 AM
