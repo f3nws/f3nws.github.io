@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Haier Super Drum Release Date, Price and Specs     - CNET"
-date: 2017-09-01 06:00:17Z
+date: 2017-09-01 09:22:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Super Drum washer-dryer combo claims space-saving dimensions and a large cap
 
 Full story on F3News: [Haier Super Drum Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/WGrpFE)
 
-> Posted on: Friday, September 1, 2017 6:00:17 AM
+> Posted on: Friday, September 1, 2017 9:22:06 AM

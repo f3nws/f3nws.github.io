@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka favors ending gender pay gap data"
-date: 2017-09-01 06:08:19Z
+date: 2017-09-01 09:56:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has announced that it is ending an Obama-era rule on ge
 
 Full story on F3News: [Ivanka favors ending gender pay gap data](http://www.f3nws.com/n/gaZpBG)
 
-> Posted on: Friday, September 1, 2017 6:08:19 AM
+> Posted on: Friday, September 1, 2017 9:56:59 AM

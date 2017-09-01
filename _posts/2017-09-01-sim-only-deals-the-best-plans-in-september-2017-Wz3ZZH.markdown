@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SIM only deals: the best plans in September 2017"
-date: 2017-09-01 07:30:59Z
+date: 2017-09-01 09:00:59Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Forget signing a 24-month contract. Keep your existing phone and grab a SIM only
 
 Full story on F3News: [SIM only deals: the best plans in September 2017](http://www.f3nws.com/n/Wz3ZZH)
 
-> Posted on: Friday, September 1, 2017 7:30:59 AM
+> Posted on: Friday, September 1, 2017 9:00:59 AM
