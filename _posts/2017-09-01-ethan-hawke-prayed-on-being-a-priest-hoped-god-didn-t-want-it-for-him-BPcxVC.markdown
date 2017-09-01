@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ethan Hawke prayed on being a priest, hoped God didn't want it for him"
-date: 2017-09-01 07:00:02Z
+date: 2017-09-01 08:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Ethan Hawke’s great-grandmother had wanted him to become a priest, but the Ame
 
 Full story on F3News: [Ethan Hawke prayed on being a priest, hoped God didn't want it for him](http://www.f3nws.com/n/BPcxVC)
 
-> Posted on: Friday, September 1, 2017 7:00:02 AM
+> Posted on: Friday, September 1, 2017 8:00:02 AM
