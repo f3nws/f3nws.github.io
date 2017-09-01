@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya declares presidential election void -- orders rerun"
-date: 2017-09-01 11:41:12Z
+date: 2017-09-01 13:16:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kenya's Supreme Court has ordered a rerun of the country's contentious president
 
 Full story on F3News: [Kenya declares presidential election void -- orders rerun](http://www.f3nws.com/n/TyNyTH)
 
-> Posted on: Friday, September 1, 2017 11:41:12 AM
+> Posted on: Friday, September 1, 2017 1:16:01 PM

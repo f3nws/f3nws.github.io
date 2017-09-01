@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya court nullifies president's win, calls for new vote"
-date: 2017-09-01 12:56:43Z
+date: 2017-09-01 13:23:49Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAIROBI, Kenya (AP) — Kenya's Supreme Court on Friday nullified President Uhur
 
 Full story on F3News: [Kenya court nullifies president's win, calls for new vote](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 1, 2017 12:56:43 PM
+> Posted on: Friday, September 1, 2017 1:23:49 PM
