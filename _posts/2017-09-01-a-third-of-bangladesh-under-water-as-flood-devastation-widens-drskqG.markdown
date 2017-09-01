@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A third of Bangladesh under water as flood devastation widens"
-date: 2017-09-01 05:17:38Z
+date: 2017-09-01 05:40:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [A third of Bangladesh under water as flood devastation widens](http://www.f3nws.com/n/drskqG)
 
-> Posted on: Friday, September 1, 2017 5:17:38 AM
+> Posted on: Friday, September 1, 2017 5:40:52 AM
