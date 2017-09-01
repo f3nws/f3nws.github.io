@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Shelley Berman, Famed 'Sit-Down' Comedian, Dies at 92 - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/05/berman_69_-_h_2017_0.jpg)
 
-Hollywood Reporter Shelley Berman, Famed 'Sit-Down' Comedian, Dies at 92 Hollywood Reporter After an angry outburst caught on camera damaged his nightclub career, he worked as an actor, appearing in 'The Best Man' and as Larry David's dad on 'Curb Your Enthusiasm.' Shelley Berman, the wildly popular “sit-down” comic of the late 1950s and '60s ... Shelley Berman, Stand-Up Comic and 'Curb Your Enthusiasm' Actor, Dies at 92 Variety Shelley Berman Dies: Comedian, 'Curb Your Enthusiasm' Actor Was 92 Deadline Comedian and Curb Your Enthusiasm Actor Shelley Berman Dies at 92 TIME New York Times - EW.com (blog) - RollingStone.com - New York Daily News all 27 news articles »
+Hollywood Reporter Shelley Berman, Famed 'Sit-Down' Comedian, Dies at 92 Hollywood Reporter After an angry outburst caught on camera damaged his nightclub career, he worked as an actor, appearing in 'The Best Man' and as Larry David's dad on 'Curb Your Enthusiasm.' Shelley Berman, the wildly popular “sit-down” comic of the late 1950s and '60s ... Shelley Berman, Stand-Up Comic and 'Curb Your Enthusiasm' Actor, Dies at 92 Variety Shelley Berman Dies: Comedian, 'Curb Your Enthusiasm' Actor Was 92 Deadline Comedian and Curb Your Enthusiasm Actor Shelley Berman Dies at 92 TIME New York Times - EW.com (blog) - RollingStone.com - New York Daily News all 30 news articles »
 
 
 Full story on F3News: [Shelley Berman, Famed 'Sit-Down' Comedian, Dies at 92 - Hollywood Reporter](http://www.f3nws.com/n/4sfVtF)
