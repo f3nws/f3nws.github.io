@@ -5,7 +5,7 @@ date: 2017-09-02 07:13:40Z
 categories: fox-news
 ---
 
-Fox News Wary of North Korea, Japan mulls additional military options Fox News North Korea's recent test firing of a missile over northern Japan has officials in Tokyo rethinking the country's long tradition of pacifism. Some Japanese leaders say it's time for a new approach to national defense, one that can include limited pre ... NKorea missile fear sets pre-emptive strike debate in Japan Washington Post May Bonds With 'Shinzo' Over Tea, Trade and Sea Cucumber Innards Bloomberg North Korea Missiles Could Hit US, Europe 'Within Months' in Nuclear Strike, France Says Newsweek Washington Examiner - The Guardian - AZCentral.com - Breitbart News all 2,878 news articles »
+Fox News Wary of North Korea, Japan mulls additional military options Fox News North Korea's recent test firing of a missile over northern Japan has officials in Tokyo rethinking the country's long tradition of pacifism. Some Japanese leaders say it's time for a new approach to national defense, one that can include limited pre ... NKorea missile fear sets pre-emptive strike debate in Japan Washington Post Will N. Korea make missiles over Japan the new normal? The Detroit News The US just gave North Korea a new threat to worry about — F-35 stealth jets Business Insider Politico - Nikkei Asian Review all 2,856 news articles »
 
 
 Full story on F3News: [Wary of North Korea, Japan mulls additional military options - Fox News](http://www.f3nws.com/n/XXQkrC)
