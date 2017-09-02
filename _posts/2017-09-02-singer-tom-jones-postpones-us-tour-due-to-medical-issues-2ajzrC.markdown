@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Singer Tom Jones postpones US tour due to medical issues"
-date: 2017-09-02 14:17:05Z
+date: 2017-09-02 15:52:49Z
 categories: associated-press-ap-top-headlines
 ---
 
-LONDON (AP) — Singer Tom Jones has postponed his planned U.S. tour because of health issues.
+LONDON (AP) — Veteran singer Tom Jones announced Saturday that he was reluctantly postponing a U.S. concert tour scheduled to kick off next week because of health issues.
 
 
 Full story on F3News: [Singer Tom Jones postpones US tour due to medical issues](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 2, 2017 2:17:05 PM
+> Posted on: Saturday, September 2, 2017 3:52:49 PM
