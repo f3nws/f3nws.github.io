@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP source: Mueller team has draft letter on Comey firing"
-date: 2017-09-02 02:53:45Z
+date: 2017-09-02 06:19:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Special counsel Robert Mueller's team of investigators is in
 
 Full story on F3News: [AP source: Mueller team has draft letter on Comey firing](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 2, 2017 2:53:45 AM
+> Posted on: Saturday, September 2, 2017 6:19:30 AM
