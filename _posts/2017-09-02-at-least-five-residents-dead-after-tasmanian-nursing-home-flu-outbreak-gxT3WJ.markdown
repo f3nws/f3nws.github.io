@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['At least' five residents dead after Tasmanian nursing home flu outbreak](http://www.abc.net.au/news/image/8866120-1x1-700x700.jpg)
 
-Tasmania's public health department confirms at least five elderly people died during an influenza outbreak in a nursing home at Strathdevon.
+Tasmania's public health department confirms at least five elderly people died during an influenza outbreak in the Strethdevon nursing home at Latrobe.
 
 
 Full story on F3News: ['At least' five residents dead after Tasmanian nursing home flu outbreak](http://www.f3nws.com/n/gxT3WJ)
