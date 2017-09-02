@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, South Korea set to revise bilateral missile treaty"
-date: 2017-09-02 09:21:54Z
+date: 2017-09-02 13:22:04Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ South Korean President Moon Jae-in and US President Donald Trump have agreed "in
 
 Full story on F3News: [US, South Korea set to revise bilateral missile treaty](http://www.f3nws.com/n/x4KAxF)
 
-> Posted on: Saturday, September 2, 2017 9:21:54 AM
+> Posted on: Saturday, September 2, 2017 1:22:04 PM

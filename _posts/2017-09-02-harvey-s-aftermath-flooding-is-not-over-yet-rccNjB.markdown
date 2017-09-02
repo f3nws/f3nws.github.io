@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey's aftermath: Flooding is not over yet"
-date: 2017-09-02 14:10:12Z
+date: 2017-09-02 14:41:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Texas struggles with Harvey flooding, could still see water rise CNN (CNN) A
 
 Full story on F3News: [Harvey's aftermath: Flooding is not over yet](http://www.f3nws.com/n/rccNjB)
 
-> Posted on: Saturday, September 2, 2017 2:10:12 PM
+> Posted on: Saturday, September 2, 2017 2:41:20 PM
