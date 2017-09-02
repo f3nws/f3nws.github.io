@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Death of beauty clinic owner Jean Huang prompts review of industry laws - ABC Online](http://www.abc.net.au/news/image/8866158-1x1-700x700.jpg)
 
-ABC Online Death of beauty clinic owner Jean Huang prompts review of industry laws ABC Online The New South Wales Government will consider tightening laws around the beauty industry after beauty-salon owner Jean Huang died after a botched breast surgery. Ms Huang, 35, underwent the surgery at the Medi Beauty Clinic in Chippendale on ... Woman dead after 'boob job' by tourist who had just arrived in Australia NEWS.com.au Chinese tourist who injected deadly dose to woman in beauty salon had no Australian qualifications dailytelegraph.com.au Woman dies after botched breast procedure The Australian 9news.com.au - Yahoo7 News - Pedestrian TV - BBC News all 29 news articles »
+ABC Online Death of beauty clinic owner Jean Huang prompts review of industry laws ABC Online The New South Wales Government will consider tightening laws around the beauty industry after beauty-salon owner Jean Huang died after a botched breast surgery. Ms Huang, 35, underwent the surgery at the Medi Beauty Clinic in Chippendale on ... Woman dead after 'boob job' by tourist who had just arrived in Australia NEWS.com.au News dailytelegraph.com.au Woman dies after botched breast procedure The Australian Yahoo7 News - 9news.com.au - Pedestrian TV - BBC News all 31 news articles »
 
 
 Full story on F3News: [Death of beauty clinic owner Jean Huang prompts review of industry laws - ABC Online](http://www.f3nws.com/n/pYDCxD)
