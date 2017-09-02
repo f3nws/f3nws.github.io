@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dreamers' decision weighs on Trump as announcement nears"
-date: 2017-09-02 03:20:27Z
+date: 2017-09-02 06:46:38Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Midday protests. Urgent pleas. Furious campaigning. A presid
 
 Full story on F3News: ['Dreamers' decision weighs on Trump as announcement nears](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 2, 2017 3:20:27 AM
+> Posted on: Saturday, September 2, 2017 6:46:38 AM
