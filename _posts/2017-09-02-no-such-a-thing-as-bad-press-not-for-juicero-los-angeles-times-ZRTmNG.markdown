@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![No such a thing as bad press? Not for Juicero - Los Angeles Times](http://www.trbimg.com/img-59aa052b/turbine/la-fi-juicero-death-20170901)
 
-Los Angeles Times No such a thing as bad press? Not for Juicero Los Angeles Times Social media served up a schadenfreude shake Friday on news that Juicero, a startup that created a widely mocked WiFi-compatible juicer, went under. Juicero was supposed to do to the cold-press juice market what the Keurig machine did to the world of ... RIP Juicero, the $400 venture-backed juice machine TechCrunch Say goodbye to Juicero, the maker of the $400 juicer Washington Post all 46 news articles »
+Los Angeles Times No such a thing as bad press? Not for Juicero Los Angeles Times Social media served up a schadenfreude shake Friday on news that Juicero, a startup that created a widely mocked WiFi-compatible juicer, went under. Juicero was supposed to do to the cold-press juice market what the Keurig machine did to the world of ... RIP Juicero, the $400 venture-backed juice machine TechCrunch all 46 news articles »
 
 
 Full story on F3News: [No such a thing as bad press? Not for Juicero - Los Angeles Times](http://www.f3nws.com/n/ZRTmNG)

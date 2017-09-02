@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California braces for severe heatwave through Labor day"
-date: 2017-09-02 01:57:57Z
+date: 2017-09-02 02:25:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — Dozens of cooling centers opened throughout California, s
 
 Full story on F3News: [California braces for severe heatwave through Labor day](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 2, 2017 1:57:57 AM
+> Posted on: Saturday, September 2, 2017 2:25:10 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Musical Study with Isomorphic Computer Keyboard"
-date: 2017-09-02 01:56:00Z
+date: 2017-09-02 02:01:00Z
 categories: codeproject
 ---
 
@@ -12,4 +12,4 @@ A computer keyboard can be turned into an isomorphic musical instrument, to help
 
 Full story on F3News: [Musical Study with Isomorphic Computer Keyboard](http://www.f3nws.com/n/Fzt4n)
 
-> Posted on: Saturday, September 2, 2017 1:56:00 AM
+> Posted on: Saturday, September 2, 2017 2:01:00 AM
