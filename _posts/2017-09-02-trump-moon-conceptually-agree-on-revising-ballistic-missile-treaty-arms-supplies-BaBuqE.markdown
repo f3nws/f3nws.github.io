@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Moon ‘conceptually’ agree on revising ballistic missile treaty & arms supplies"
-date: 2017-09-02 03:48:21Z
+date: 2017-09-02 03:48:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Donald Trump and his South Korean counterpart have agreed to revise the joint tr
 
 Full story on F3News: [Trump, Moon ‘conceptually’ agree on revising ballistic missile treaty & arms supplies](http://www.f3nws.com/n/BaBuqE)
 
-> Posted on: Saturday, September 2, 2017 3:48:21 AM
+> Posted on: Saturday, September 2, 2017 3:48:00 AM
