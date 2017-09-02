@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump returns to Harvey flood zone"
-date: 2017-09-02 16:17:48Z
+date: 2017-09-02 17:46:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Texas struggles with Harvey flooding, could still see water rise CNN (CNN) A
 
 Full story on F3News: [Trump returns to Harvey flood zone](http://www.f3nws.com/n/rccNjB)
 
-> Posted on: Saturday, September 2, 2017 4:17:48 PM
+> Posted on: Saturday, September 2, 2017 5:46:33 PM
