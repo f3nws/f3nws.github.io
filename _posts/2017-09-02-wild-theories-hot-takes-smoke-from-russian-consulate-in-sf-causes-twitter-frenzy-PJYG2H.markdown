@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wild theories & hot takes: Smoke from Russian consulate in SF causes Twitter frenzy"
-date: 2017-09-02 00:52:27Z
+date: 2017-09-02 00:52:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Smoke billowing from the roof of the Russian consulate in San Francisco can only
 
 Full story on F3News: [Wild theories & hot takes: Smoke from Russian consulate in SF causes Twitter frenzy](http://www.f3nws.com/n/PJYG2H)
 
-> Posted on: Saturday, September 2, 2017 12:52:27 AM
+> Posted on: Saturday, September 2, 2017 12:52:00 AM
