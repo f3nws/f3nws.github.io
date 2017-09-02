@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meet the forensics queen debunking 'NCIS,' 'Silent Witness'     - CNET"
-date: 2017-09-02 00:12:08Z
+date: 2017-09-02 04:14:32Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Xanthe Mallett, a university professor of forensic anthropology and criminology,
 
 Full story on F3News: [Meet the forensics queen debunking 'NCIS,' 'Silent Witness'     - CNET](http://www.f3nws.com/n/BS2KME)
 
-> Posted on: Saturday, September 2, 2017 12:12:08 AM
+> Posted on: Saturday, September 2, 2017 4:14:32 AM

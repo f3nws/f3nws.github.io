@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NKorea missile fear sets pre-emptive strike debate in Japan"
-date: 2017-09-02 04:15:55Z
+date: 2017-09-02 04:55:55Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TOKYO (AP) — Japan is debating whether to develop a limited pre-emptive strike
 
 Full story on F3News: [NKorea missile fear sets pre-emptive strike debate in Japan](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 2, 2017 4:15:55 AM
+> Posted on: Saturday, September 2, 2017 4:55:55 AM

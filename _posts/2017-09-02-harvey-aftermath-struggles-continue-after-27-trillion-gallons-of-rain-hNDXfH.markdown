@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey aftermath: Struggles continue after 27 trillion gallons of rain"
-date: 2017-09-02 01:55:05Z
+date: 2017-09-02 04:24:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The rain mercifully has stopped in southnp east Texas. But a week after Hurrican
 
 Full story on F3News: [Harvey aftermath: Struggles continue after 27 trillion gallons of rain](http://www.f3nws.com/n/hNDXfH)
 
-> Posted on: Saturday, September 2, 2017 1:55:05 AM
+> Posted on: Saturday, September 2, 2017 4:24:22 AM
