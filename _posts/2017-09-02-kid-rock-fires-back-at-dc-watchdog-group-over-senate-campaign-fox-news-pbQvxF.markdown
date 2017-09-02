@@ -5,7 +5,7 @@ date: 2017-09-02 10:49:16Z
 categories: fox-news
 ---
 
-Fox News Kid Rock fires back at DC watchdog group over Senate 'campaign' Fox News Kid Rock, who has been tossing around the idea of a U.S. Senate run since July, fired back in his own colorful way Friday against a Washington-based watchdog group that claimed he was in violation of campaign finance law. “Go f--- yourself,” the rocker ... Kid Rock lashes out over alleged campaign finance violation The Hill (blog) Kid Rock slams claims of election law violations, while GOP lawmaker encourages him to run for Congress ABC News Kid Rock Fires Back after Complaint of Possible Campaign Violations: 'Go F**k Yourselves' Breitbart News Us Weekly - American Thinker (blog) - Michigan Radio - The Independent all 50 news articles »
+Fox News Kid Rock fires back at DC watchdog group over Senate 'campaign' Fox News Kid Rock, who has been tossing around the idea of a U.S. Senate run since July, fired back in his own colorful way Friday against a Washington-based watchdog group that claimed he was in violation of campaign finance law. “Go f--- yourself,” the rocker ... Kid Rock comes under fire from watchdog over rumored Senate bid Washington Times Kid Rock Responds To Accusations That He's Breaking Campaign Finance Laws In Trademark Kid Rock Fashion UPROXX Kid Rock slams claims of election law violations, while GOP lawmaker encourages him to run for Congress ABC News WJLA - The Hill - SPIN - American Thinker (blog) all 55 news articles »
 
 
 Full story on F3News: [Kid Rock fires back at DC watchdog group over Senate 'campaign' - Fox News](http://www.f3nws.com/n/pbQvxF)
