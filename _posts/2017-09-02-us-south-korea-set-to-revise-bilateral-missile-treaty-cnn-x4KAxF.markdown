@@ -7,7 +7,7 @@ categories: cnn-com-world
 
 ![US, South Korea set to revise bilateral missile treaty - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170817072641-01-moon-jae-in-presser-0817-super-tease.jpg)
 
-CNN US, South Korea set to revise bilateral missile treaty CNN (CNN) South Korean President Moon Jae-in and US President Donald Trump have agreed "in principle" to revise a bilateral treaty that limits the weight and range of the South's ballistic missiles. They spoke in a phone call Friday. "President Moon and ... US, South Korea To Revise Missile Treaty in Face of North Korean Threats NBCNews.com Wary of North Korea, Japan mulls additional military options Fox News Trump Is Mishandling North Korea and Yet the Stock Market Doesn't Care TheStreet.com The Independent - The Detroit News - New York Times - Japan Today all 3,439 news articles »
+CNN US, South Korea set to revise bilateral missile treaty CNN (CNN) South Korean President Moon Jae-in and President Donald Trump have agreed "in principle" to revise a bilateral treaty that limits the weight and range of the South's ballistic missiles. The move could give South Korea more independence from the ... NKorea missile fear sets pre-emptive strike debate in Japan Washington Post Wary of North Korea, Japan mulls additional military options Fox News Donald Trump Agrees South Korea Should Have Bigger Warheads to Face North Korea Newsweek TheStreet.com - The Detroit News - The Independent - New York Times all 2,458 news articles »
 
 
 Full story on F3News: [US, South Korea set to revise bilateral missile treaty - CNN](http://www.f3nws.com/n/x4KAxF)

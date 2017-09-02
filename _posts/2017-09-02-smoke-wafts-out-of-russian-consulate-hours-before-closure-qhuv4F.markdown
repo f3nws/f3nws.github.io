@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Smoke wafts out of Russian consulate hours before closure"
-date: 2017-09-02 09:54:42Z
+date: 2017-09-02 13:25:20Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Black smoke could be seen billowing out of a chimney at the Russian consulate in
 
 Full story on F3News: [Smoke wafts out of Russian consulate hours before closure](http://www.f3nws.com/n/qhuv4F)
 
-> Posted on: Saturday, September 2, 2017 9:54:42 AM
+> Posted on: Saturday, September 2, 2017 1:25:20 PM
