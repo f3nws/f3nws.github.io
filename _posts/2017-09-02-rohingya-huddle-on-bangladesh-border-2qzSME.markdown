@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya huddle on Bangladesh border"
-date: 2017-09-02 06:57:30Z
+date: 2017-09-02 18:58:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They have come in their thousands, crossing hills and rivers, marshes and rice p
 
 Full story on F3News: [Rohingya huddle on Bangladesh border](http://www.f3nws.com/n/2qzSME)
 
-> Posted on: Saturday, September 2, 2017 6:57:30 AM
+> Posted on: Saturday, September 2, 2017 6:58:28 PM

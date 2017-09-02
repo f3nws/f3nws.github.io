@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Watch Chance the Rapper Announce $2.2 Million Fund for Chicago Schools - RollingStone.com](http://img.wennermedia.com/social/c-58d3059d-cf79-4eb1-bafc-db890dc28b7a.jpg)
 
-RollingStone.com Watch Chance the Rapper Announce $2.2 Million Fund for Chicago Schools RollingStone.com Chance the Rapper announced Friday that his SocialWorks organization has raised $2.2 million for the Chicago Public Schools' arts programs. By Daniel Kreps. 2 hours ago. More News. See Barack Obama's Empowering Video Message at Chance the ... Chance the Rapper Announces Education-Themed Awards Show Billboard Chance The Rapper Shows His Love For Chicago With $2.2. Million For Its Schools MTV.com Chance The Rapper Raised $2.2 Million For Chicago Public Schools The FADER Pitchfork - The BoomBox - Stereogum - XXLMAG.COM all 39 news articles »
+RollingStone.com Watch Chance the Rapper Announce $2.2 Million Fund for Chicago Schools RollingStone.com Chance the Rapper announced Friday that his SocialWorks organization has raised $2.2 million for the Chicago Public Schools' arts programs. By Daniel Kreps. 4 hours ago. More News. See Barack Obama's Empowering Video Message at Chance the ... Chance the Rapper Announces Education-Themed Awards Show Billboard Chance The Rapper Shows His Love For Chicago With $2.2. Million For Its Schools MTV.com Chance The Rapper Raised $2.2 Million For Chicago Public Schools The FADER Pitchfork - The BoomBox - Stereogum - XXLMAG.COM all 39 news articles »
 
 
 Full story on F3News: [Watch Chance the Rapper Announce $2.2 Million Fund for Chicago Schools - RollingStone.com](http://www.f3nws.com/n/zzvcNC)

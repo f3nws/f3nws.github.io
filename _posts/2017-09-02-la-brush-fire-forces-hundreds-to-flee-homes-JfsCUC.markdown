@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "LA brush fire forces hundreds to flee homes"
-date: 2017-09-02 18:01:53Z
+date: 2017-09-02 19:17:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ About 200 homes were evacuated Friday after a brush fire broke out near Los Ange
 
 Full story on F3News: [LA brush fire forces hundreds to flee homes](http://www.f3nws.com/n/JfsCUC)
 
-> Posted on: Saturday, September 2, 2017 6:01:53 PM
+> Posted on: Saturday, September 2, 2017 7:17:13 PM
