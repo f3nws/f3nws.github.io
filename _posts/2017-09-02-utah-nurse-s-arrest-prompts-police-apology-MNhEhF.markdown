@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Utah nurse's arrest prompts police apology"
-date: 2017-09-02 10:10:52Z
+date: 2017-09-02 11:31:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Salt Lake City police apologized Friday for arresting a nurse who, citing hospit
 
 Full story on F3News: [Utah nurse's arrest prompts police apology](http://www.f3nws.com/n/MNhEhF)
 
-> Posted on: Saturday, September 2, 2017 10:10:52 AM
+> Posted on: Saturday, September 2, 2017 11:31:04 AM
