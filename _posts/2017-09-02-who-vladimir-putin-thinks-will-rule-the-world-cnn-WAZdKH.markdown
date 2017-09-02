@@ -7,7 +7,7 @@ categories: cnn-com-world
 
 ![Who Vladimir Putin thinks will rule the world - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170901220108-01-putin-in-yaroslavl-super-tease.jpg)
 
-CNN Who Vladimir Putin thinks will rule the world CNN (CNN) On the first day of the new school year in Russia, students learned an important lesson directly from their president -- who he thinks will rule the world. Speaking to students during a national "open lesson" from the city of Yaroslavl, northeast ... North Korea and the US Are on 'Brink of Large-Scale Conflict,' Putin Warns Newsweek Putin warns US against 'offensive rhetoric' on North Korea The Hill Russia Sees Artificial Intelligence as Key to World Domination Voice of America Breitbart News - The Sydney Morning Herald - Independent.ie - The Straits Times all 212 news articles »
+CNN Who Vladimir Putin thinks will rule the world CNN (CNN) On the first day of the new school year in Russia, students learned an important lesson directly from their president -- who he thinks will rule the world. Speaking to students during a national "open lesson" from the city of Yaroslavl, northeast ... Russia Sees Artificial Intelligence as Key to World Domination Voice of America Putin: US and North Korea Are 'Balanced on the Verge of a Large-Scale Conflict' Breitbart News North Korea and United States on brink of war, warns Vladimir Putin The Sydney Morning Herald Independent.ie - Zee News - RadioFreeEurope/RadioLiberty - euronews all 244 news articles »
 
 
 Full story on F3News: [Who Vladimir Putin thinks will rule the world - CNN](http://www.f3nws.com/n/WAZdKH)
