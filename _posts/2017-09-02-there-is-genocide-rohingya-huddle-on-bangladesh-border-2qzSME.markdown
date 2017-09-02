@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'There is genocide': Rohingya huddle on Bangladesh border"
-date: 2017-09-02 03:16:07Z
+date: 2017-09-02 06:57:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They have come in their thousands, crossing hills and rivers, marshes and rice p
 
 Full story on F3News: ['There is genocide': Rohingya huddle on Bangladesh border](http://www.f3nws.com/n/2qzSME)
 
-> Posted on: Saturday, September 2, 2017 3:16:07 AM
+> Posted on: Saturday, September 2, 2017 6:57:30 AM
