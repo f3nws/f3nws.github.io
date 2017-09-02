@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Texas struggles with Harvey flooding, could still see water rise - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170901183720-02-crosby-texas-chemical-plant-screengrab-super-tease.jpg)
 
-CNN Texas struggles with Harvey flooding, could still see water rise CNN (CNN) A week after Hurricane Harvey slammed into the Texas coast, some residents are returning home to assess the storm's damage while others are bracing for rising water levels. Fires broke out over two days at a Texas chemical plant flooded by Harvey ... Problems plague Texas after Harvey as funerals for dead begin CBS News Houston tries to safeguard some areas by flooding others The Denver Post Storm Harvey: Trump to make second visit to Texas BBC News The Hill - ABC News - Salon - ESPN all 13,122 news articles »
+CNN Texas struggles with Harvey flooding, could still see water rise CNN (CNN) A week after Hurricane Harvey slammed into the Texas coast, some residents are returning home to assess the storm's damage while others are bracing for rising water levels. Fires broke out over two days at a Texas chemical plant flooded by Harvey ... Houston tries to safeguard some areas by flooding others The Denver Post Problems plague Texas after Harvey as funerals for dead begin CBS News Storm Harvey: Trump to make second visit to Texas BBC News Fox News - The Hill - ABC News - New York Daily News all 13,057 news articles »
 
 
 Full story on F3News: [Texas struggles with Harvey flooding, could still see water rise - CNN](http://www.f3nws.com/n/rccNjB)
