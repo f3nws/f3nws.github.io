@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Adelaideans wake to meteorological mystery and the earthquake that 'didn't happen' - ABC Online](http://www.abc.net.au/news/image/8569822-1x1-700x700.jpg)
 
-ABC Online Adelaideans wake to meteorological mystery and the earthquake that 'didn't happen' ABC Online Loud rumbles and shaking windows woke hundreds of residents across Adelaide overnight but the cause of the disturbance remains a meteorological mystery. Geoscience Australia initially said there was a 1.4-magnitude quake near Mount Compass but ... South Australians awoken by mysterious tremor - but Geoscience Australia says it wasn't an earthquake The Advertiser 'Everything was shaking': Debate over 'earthquake in South Australia overnight' Yahoo7 News Mystery as hundreds of people in Adelaide are awoken by a huge tremor - but geological experts say it WASN'T an ... Daily Mail all 6 news articles »
+ABC Online Adelaideans wake to meteorological mystery and the earthquake that 'didn't happen' ABC Online Loud rumbles and shaking windows woke hundreds of residents across Adelaide overnight but the cause of the disturbance remains a meteorological mystery. Geoscience Australia initially said there was a 1.4-magnitude quake near Mount Compass but ... South Australians awoken by mysterious tremor - but Geoscience Australia says it wasn't an earthquake The Advertiser 'Everything was shaking': Debate over 'earthquake in South Australia overnight' Yahoo7 News 'Extremely Loud Thunder' Shakes Adelaide With Earthquake-Like Force Huffington Post Australia all 6 news articles »
 
 
 Full story on F3News: [Adelaideans wake to meteorological mystery and the earthquake that 'didn't happen' - ABC Online](http://www.f3nws.com/n/RsgJuC)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pentagon wants to search 80% of world’s IP addresses for viruses – DARPA docs"
-date: 2017-09-02 00:46:40Z
+date: 2017-09-02 00:46:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The US Department of Defense wants to identify and neutralize cyber viruses by d
 
 Full story on F3News: [Pentagon wants to search 80% of world’s IP addresses for viruses – DARPA docs](http://www.f3nws.com/n/Gx3FAD)
 
-> Posted on: Saturday, September 2, 2017 12:46:40 AM
+> Posted on: Saturday, September 2, 2017 12:46:00 AM

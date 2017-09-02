@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'There is genocide': Almost 50,000 Rohingya flee violence"
-date: 2017-09-02 00:36:44Z
+date: 2017-09-02 03:16:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ They have come in their thousands, crossing hills and rivers, marshes and rice p
 
 Full story on F3News: ['There is genocide': Almost 50,000 Rohingya flee violence](http://www.f3nws.com/n/2qzSME)
 
-> Posted on: Saturday, September 2, 2017 12:36:44 AM
+> Posted on: Saturday, September 2, 2017 3:16:07 AM
