@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Multiple injuries at Red CentreNATS racing event in Alice Springs - ABC Online](http://www.abc.net.au/news/image/8868064-1x1-700x700.jpg)
 
-ABC Online Multiple injuries at Red CentreNATS racing event in Alice Springs ABC Online There have been multiple injuries at the Red Centre NATS in Alice Springs after flash flames exploded from a competition car over the crowd. The event has been cancelled. Read more here: http://ab.co/2vVQ5iY ... Red Centre NATS crowd injured as burnout car fires burning fuel The Australian One critical after fire at NT drag race Sky News Australia Spectators seriously injured after fire at Red CentreNats in Alice Springs NT News Speedcafe - Wide World of Sports - myGC.com.au - ExpressNewsline all 16 news articles »
+ABC Online Multiple injuries at Red CentreNATS racing event in Alice Springs ABC Online There have been multiple injuries at the Red Centre NATS in Alice Springs after flash flames exploded from a competition car over the crowd. The event has been cancelled. Read more here: http://ab.co/2vVQ5iY ... Red Centre NATS crowd injured as burnout car fires burning fuel The Australian Father and son among 12 injured after burnout goes wrong at racing event 9news.com.au Monday Pulse: Two men airlifted to Adelaide after NT drag race burnout The Advertiser NT News - Speedcafe - Yahoo7 News - myGC.com.au all 18 news articles »
 
 
 Full story on F3News: [Multiple injuries at Red CentreNATS racing event in Alice Springs - ABC Online](http://www.f3nws.com/n/fjYGpF)
