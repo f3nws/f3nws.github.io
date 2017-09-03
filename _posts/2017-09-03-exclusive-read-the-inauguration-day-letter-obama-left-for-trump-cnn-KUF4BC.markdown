@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Exclusive: Read the Inauguration Day letter Obama left for Trump - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170902232255-obama-trump-letter-super-tease.jpg)
 
-CNN Exclusive: Read the Inauguration Day letter Obama left for Trump CNN (CNN) During his final moments in the Oval Office, President Barack Obama folded into thirds a handwritten letter to Donald Trump, slid it into an envelope, and in neat capital letters addressed it to "Mr. President." Now, the contents of that letter ... Obama's Letter to President Trump on Inauguration Day New York Times Obama offered 'reflections' instead of advice to Trump in Inauguration Day letter The Hill Barack Obama Offers Trump Advice In Inauguration Letter: 'American Leadership in This World Really is Indispensable' TIME Slate Magazine (blog) - Newsweek - AOL - The Guardian all 45 news articles »
+CNN Exclusive: Read the Inauguration Day letter Obama left for Trump CNN (CNN) During his final moments in the Oval Office, President Barack Obama folded into thirds a handwritten letter to Donald Trump, slid it into an envelope, and in neat capital letters addressed it to "Mr. President." Now, the contents of that letter ... Obama offered 'reflections' instead of advice to Trump in Inauguration Day letter The Hill Here's what Obama wrote to Trump in his Inauguration Day letter New York Post Barack Obama Offers Trump Advice In Inauguration Letter: 'American Leadership in This World Really is Indispensable' TIME Slate Magazine (blog) - Newsweek - AOL - The Guardian all 49 news articles »
 
 
 Full story on F3News: [Exclusive: Read the Inauguration Day letter Obama left for Trump - CNN](http://www.f3nws.com/n/KUF4BC)
