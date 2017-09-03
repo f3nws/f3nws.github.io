@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Frankfurt evacuated for World War II bomb disposal"
-date: 2017-09-03 11:51:05Z
+date: 2017-09-03 12:51:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Central Frankfurt looked like a ghost town Sunday after tens of thousands of peo
 
 Full story on F3News: [Frankfurt evacuated for World War II bomb disposal](http://www.f3nws.com/n/SXdPZH)
 
-> Posted on: Sunday, September 3, 2017 11:51:05 AM
+> Posted on: Sunday, September 3, 2017 12:51:45 PM
