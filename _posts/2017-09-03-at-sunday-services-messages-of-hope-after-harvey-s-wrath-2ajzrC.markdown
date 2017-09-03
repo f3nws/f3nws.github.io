@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At Sunday services, messages of hope after Harvey's wrath"
-date: 2017-09-03 22:20:30Z
+date: 2017-09-03 22:48:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Debris and muck were all that remained where homes once stood, tens of thousands
 
 Full story on F3News: [At Sunday services, messages of hope after Harvey's wrath](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 3, 2017 10:20:30 PM
+> Posted on: Sunday, September 3, 2017 10:48:10 PM
