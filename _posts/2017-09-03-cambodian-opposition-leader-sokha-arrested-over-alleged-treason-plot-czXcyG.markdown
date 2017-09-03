@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Cambodian opposition leader Sokha arrested over alleged treason plot](http://www.abc.net.au/news/image/8867530-1x1-700x700.jpg)
 
-The Government says it has a video clip and other evidence pointing to "secret plans of conspiracy between Kem Sokha, others and foreigners to harm the Kingdom of Cambodia", but critics suggest otherwise.
+The arrest of Cambodian opposition leader Kem Sokha marks a new escalation in a campaign against critics, independent media and any potential threats to Hun Sen's hold on power ahead of an election next year.
 
 
 Full story on F3News: [Cambodian opposition leader Sokha arrested over alleged treason plot](http://www.f3nws.com/n/czXcyG)

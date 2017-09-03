@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Soyuz spacecraft brings Space Station crew back to Earth (PHOTOS, VIDEOS)](https://img.rt.com/files/2017.09/article/59ab567fdda4c843668b4567.jpg)
 
-The Soyuz MS-04 spacecraft has reentered the atmosphere after 135 days in orbit, carrying three Expedition 52 crew members from the International Space Station back to Earth. Read Full Article at RT.com
+The Soyuz MS-04 spacecraft has successfully landed in Kazakhstan after 135 days in orbit, carrying members of Expedition 52 back from the International Space Station (ISS). Read Full Article at RT.com
 
 
 Full story on F3News: [Soyuz spacecraft brings Space Station crew back to Earth (PHOTOS, VIDEOS)](http://www.f3nws.com/n/vdYEyD)
