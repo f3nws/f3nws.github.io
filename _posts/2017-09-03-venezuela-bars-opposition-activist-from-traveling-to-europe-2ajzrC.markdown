@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela bars opposition activist from traveling to Europe"
-date: 2017-09-03 02:17:12Z
+date: 2017-09-03 02:49:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CARACAS, Venezuela (AP) — A prominent anti-government activist was barred from
 
 Full story on F3News: [Venezuela bars opposition activist from traveling to Europe](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 3, 2017 2:17:12 AM
+> Posted on: Sunday, September 3, 2017 2:49:15 AM

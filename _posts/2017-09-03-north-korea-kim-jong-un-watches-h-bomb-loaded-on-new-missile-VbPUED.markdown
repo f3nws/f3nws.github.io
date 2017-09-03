@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: Kim Jong Un watches 'H-Bomb' loaded on new missile"
-date: 2017-09-03 01:42:55Z
+date: 2017-09-03 02:35:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's regime has "succeeded in making a more developed nuke," according 
 
 Full story on F3News: [North Korea: Kim Jong Un watches 'H-Bomb' loaded on new missile](http://www.f3nws.com/n/VbPUED)
 
-> Posted on: Sunday, September 3, 2017 1:42:55 AM
+> Posted on: Sunday, September 3, 2017 2:35:25 AM
