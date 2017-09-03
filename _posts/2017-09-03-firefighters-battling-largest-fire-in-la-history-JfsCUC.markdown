@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Firefighters battling largest fire in LA history"
-date: 2017-09-03 10:50:33Z
+date: 2017-09-03 18:26:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ About 200 homes were evacuated Friday after a brush fire broke out near Los Ange
 
 Full story on F3News: [Firefighters battling largest fire in LA history](http://www.f3nws.com/n/JfsCUC)
 
-> Posted on: Sunday, September 3, 2017 10:50:33 AM
+> Posted on: Sunday, September 3, 2017 6:26:50 PM

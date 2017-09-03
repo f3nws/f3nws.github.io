@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea tests most powerful nuclear bomb yet"
-date: 2017-09-03 16:11:05Z
+date: 2017-09-03 18:34:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea claims to have successfully tested a hydrogen bomb, the country's si
 
 Full story on F3News: [North Korea tests most powerful nuclear bomb yet](http://www.f3nws.com/n/BQQpsF)
 
-> Posted on: Sunday, September 3, 2017 4:11:05 PM
+> Posted on: Sunday, September 3, 2017 6:34:04 PM
