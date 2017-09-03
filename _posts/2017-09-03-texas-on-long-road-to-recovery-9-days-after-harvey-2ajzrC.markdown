@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas on long road to recovery 9 days after Harvey"
-date: 2017-09-03 07:22:41Z
+date: 2017-09-03 07:50:12Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — A city that lost its drinking water system is struggling to res
 
 Full story on F3News: [Texas on long road to recovery 9 days after Harvey](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 3, 2017 7:22:41 AM
+> Posted on: Sunday, September 3, 2017 7:50:12 AM
