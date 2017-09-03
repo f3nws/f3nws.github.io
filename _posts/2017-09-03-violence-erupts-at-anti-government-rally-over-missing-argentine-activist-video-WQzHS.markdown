@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Violence erupts at anti-government rally over missing Argentine activist (VIDEO)"
-date: 2017-09-03 00:06:55Z
+date: 2017-09-03 00:06:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Clashes have broken out between police and protesters at a mass Buenos Aires ral
 
 Full story on F3News: [Violence erupts at anti-government rally over missing Argentine activist (VIDEO)](http://www.f3nws.com/n/WQzHS)
 
-> Posted on: Sunday, September 3, 2017 12:06:55 AM
+> Posted on: Sunday, September 3, 2017 12:06:00 AM
