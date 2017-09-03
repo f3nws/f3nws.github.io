@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Three homes burned as foothills wildfire grows to 5800 acres - Los Angeles Times](http://www.trbimg.com/img-59aad4c7/turbine/la-me-la-tuna-fire-wildfire-20170902)
 
-Los Angeles Times Three homes burned as foothills wildfire grows to 5800 acres Los Angeles Times Hundreds of firefighters fought for control over a 5,800-acre brush fire Saturday in the Verdugo Mountains north of downtown Los Angeles that forced the evacuations of hundreds of homes and shut down a nine-mile stretch of the 210 Freeway. The La Tuna ... Fires rage through West; Los Angeles declares state of emergency Fox News La Tuna Fire Prompts New Evacuations NBC Southern California La Tuna Fire chars 5800 acres, continues to threaten communities KABC-TV NBCNews.com - The Mercury News - New York Daily News - KTLA all 209 news articles »
+Los Angeles Times Three homes burned as foothills wildfire grows to 5800 acres Los Angeles Times Hundreds of firefighters fought for control over a 5,800-acre brush fire Saturday in the Verdugo Mountains north of downtown Los Angeles that forced the evacuations of hundreds of homes and shut down a nine-mile stretch of the 210 Freeway. The La Tuna ... Fires rage through West; Los Angeles declares state of emergency Fox News La Tuna Fire chars 5800 acres, continues to threaten communities KABC-TV Wildfires surge amid scorching heat across US West ABC News NBCNews.com - fox2now.com - SFGate - NBC Southern California all 257 news articles »
 
 
 Full story on F3News: [Three homes burned as foothills wildfire grows to 5800 acres - Los Angeles Times](http://www.f3nws.com/n/Kh4H3G)
