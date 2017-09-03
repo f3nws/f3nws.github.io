@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Walter Becker, Steely Dan Co-Founder, Dead at 67 - RollingStone.com](http://img.wennermedia.com/social/gettyimages-469301230-ca3bfa78-f37b-49ab-ab17-d027f652dcea.jpg)
 
-RollingStone.com Walter Becker, Steely Dan Co-Founder, Dead at 67 RollingStone.com Walter Becker, bassist, guitarist and co-founder of the Rock and Roll Hall of Fame-inducted band Steely Dan, died Sunday at the age of 67. Credit: Tim Mosenfelder/WireImage. By Daniel Kreps. 4 hours ago ... Steely Dan's Biggest Billboard Hot 100 Hits Billboard Steely Dan's Walter Becker Dies At 67 NPR Walter Becker, Steely Dan guitarist, dead at 67 Chicago Tribune New York Daily News - New York Times - ABC News - Deadline all 109 news articles »
+RollingStone.com Walter Becker, Steely Dan Co-Founder, Dead at 67 RollingStone.com Walter Becker, bassist, guitarist and co-founder of the Rock and Roll Hall of Fame-inducted band Steely Dan, died Sunday at the age of 67. Credit: Tim Mosenfelder/WireImage. By Daniel Kreps. 5 hours ago ... Steely Dan Guitarist Walter Becker Dies At 67 HuffPost Walter Becker, Steely Dan Guitarist, Dies at 67 Variety Steely Dan's Biggest Billboard Hot 100 Hits Billboard NPR - New York Daily News - New York Times - Los Angeles Times all 122 news articles »
 
 
 Full story on F3News: [Walter Becker, Steely Dan Co-Founder, Dead at 67 - RollingStone.com](http://www.f3nws.com/n/MbvsUD)
