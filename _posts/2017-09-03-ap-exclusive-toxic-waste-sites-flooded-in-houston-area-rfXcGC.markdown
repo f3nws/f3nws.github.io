@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP EXCLUSIVE: Toxic waste sites flooded in Houston area"
-date: 2017-09-03 03:23:14Z
+date: 2017-09-03 15:15:20Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ HIGHLANDS, Texas (AP) — As Dwight Chandler sipped beer and swept out the thick
 
 Full story on F3News: [AP EXCLUSIVE: Toxic waste sites flooded in Houston area](http://www.f3nws.com/n/rfXcGC)
 
-> Posted on: Sunday, September 3, 2017 3:23:14 AM
+> Posted on: Sunday, September 3, 2017 3:15:20 PM
