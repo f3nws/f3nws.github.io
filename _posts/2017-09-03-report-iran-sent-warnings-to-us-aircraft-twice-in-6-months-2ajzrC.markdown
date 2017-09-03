@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Iran sent warnings to US aircraft twice in 6 months"
-date: 2017-09-03 12:19:42Z
+date: 2017-09-03 12:49:13Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — Iran's Arabic language TV station al-Alam is reporting tha
 
 Full story on F3News: [Report: Iran sent warnings to US aircraft twice in 6 months](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 3, 2017 12:19:42 PM
+> Posted on: Sunday, September 3, 2017 12:49:13 PM
