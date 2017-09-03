@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia's power play in N Korea aimed at China, US"
-date: 2017-09-03 00:18:26Z
+date: 2017-09-03 12:07:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Russia sent its bombers flying over the Korean peninsula last week, it was 
 
 Full story on F3News: [Russia's power play in N Korea aimed at China, US](http://www.f3nws.com/n/ESQ2TH)
 
-> Posted on: Sunday, September 3, 2017 12:18:26 AM
+> Posted on: Sunday, September 3, 2017 12:07:49 PM
