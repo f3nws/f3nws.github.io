@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Upbeat Trump pitches in at shelter for Harvey victims"
-date: 2017-09-03 03:25:54Z
+date: 2017-09-03 03:53:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — President Donald Trump cupped a boy's face in his hands and the
 
 Full story on F3News: [Upbeat Trump pitches in at shelter for Harvey victims](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 3, 2017 3:25:54 AM
+> Posted on: Sunday, September 3, 2017 3:53:16 AM
