@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "State of emergency issued for L.A. wildfire"
-date: 2017-09-04 00:11:14Z
+date: 2017-09-04 00:54:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ California Gov. Jerry Brown issued a state of emergency for Los Angeles County o
 
 Full story on F3News: [State of emergency issued for L.A. wildfire](http://www.f3nws.com/n/JfsCUC)
 
-> Posted on: Monday, September 4, 2017 12:11:14 AM
+> Posted on: Monday, September 4, 2017 12:54:27 AM
