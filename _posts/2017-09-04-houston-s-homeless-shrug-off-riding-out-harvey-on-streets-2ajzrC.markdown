@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Houston's homeless shrug off riding out Harvey on streets"
-date: 2017-09-04 00:50:13Z
+date: 2017-09-04 01:17:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — To the masses, it was a vicious blast of nature's cruelty, a br
 
 Full story on F3News: [Houston's homeless shrug off riding out Harvey on streets](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 4, 2017 12:50:13 AM
+> Posted on: Monday, September 4, 2017 1:17:22 AM
