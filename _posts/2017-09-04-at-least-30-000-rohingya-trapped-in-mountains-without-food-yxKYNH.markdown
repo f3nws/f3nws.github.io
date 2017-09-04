@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 30,000 Rohingya trapped in mountains without food"
-date: 2017-09-04 09:43:06Z
+date: 2017-09-04 18:55:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of refugees are trapped on the border into Bangladesh without 
 
 Full story on F3News: [At least 30,000 Rohingya trapped in mountains without food](http://www.f3nws.com/n/yxKYNH)
 
-> Posted on: Monday, September 4, 2017 9:43:06 AM
+> Posted on: Monday, September 4, 2017 6:55:14 PM
