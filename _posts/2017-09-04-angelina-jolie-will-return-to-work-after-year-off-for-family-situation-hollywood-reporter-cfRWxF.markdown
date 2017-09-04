@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Angelina Jolie Will Return to Work After Year Off for 'Family Situation' - Hollywood Reporter"
-date: 2017-09-04 00:34:00Z
+date: 2017-09-04 00:34:56Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ Hollywood Reporter Angelina Jolie Will Return to Work After Year Off for "Family
 
 Full story on F3News: [Angelina Jolie Will Return to Work After Year Off for "Family Situation" - Hollywood Reporter](http://www.f3nws.com/n/cfRWxF)
 
-> Posted on: Monday, September 4, 2017 12:34:00 AM
+> Posted on: Monday, September 4, 2017 12:34:56 AM
