@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Gig - Billboard](http://www.billboard.com/files/media/lil-wayne-bbmas-2017-carpet-1548.jpg)
 
-Billboard Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Gig Billboard Lil Wayne is recovering in hospital after he suffered multiple seizures in a Chicago hotel room, according to reports. The 34-year-old rapper, who has epilepsy, missed a performance in Las Vegas on Sunday night after enduring a number of fits, TMZ reports. Lil Wayne Hospitalized for Seizures ... Vegas Gig Canceled TMZ.com Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Show E! Online Lil Wayne taken to hospital for multiple seizures: reports Page Six PEOPLE.com - HuffPost - New York Daily News - WJLA all 89 news articles »
+Billboard Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Gig Billboard Lil Wayne is recovering in hospital after he suffered multiple seizures in a Chicago hotel room, according to reports. The 34-year-old rapper, who has epilepsy, missed a performance in Las Vegas on Sunday night after enduring a number of fits, TMZ reports. Lil Wayne Hospitalized for Seizures ... Vegas Gig Canceled TMZ.com Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Show E! Online Lil Wayne taken to hospital for multiple seizures: reports Page Six PEOPLE.com - HuffPost - New York Daily News - WJLA all 94 news articles »
 
 
 Full story on F3News: [Lil Wayne Hospitalized After Suffering Multiple Seizures, Cancels Las Vegas Gig - Billboard](http://www.f3nws.com/n/JpDugC)
