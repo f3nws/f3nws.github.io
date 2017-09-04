@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Lyon on LBW streak to put Australia on top in Chittagong](http://www.abc.net.au/news/image/8856996-1x1-700x700.jpg)
 
-Nathan Lyon takes all four wickets so far — all LBW — to put Australia well on top on day one of the second Test. Follow along with our live blog.
+Bangladesh are in a world of bother after Nathan Lyon traps four batsmen LBW to put Australia well on top on day one of the second Test. Follow along with our live blog.
 
 
 Full story on F3News: [Live: Lyon on LBW streak to put Australia on top in Chittagong](http://www.f3nws.com/n/QfZtPC)
