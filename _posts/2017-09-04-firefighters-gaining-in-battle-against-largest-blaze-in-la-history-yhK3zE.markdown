@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Firefighters gaining in battle against largest blaze in LA history"
-date: 2017-09-04 19:22:31Z
+date: 2017-09-04 21:07:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Firefighters gained ground Sunday in their battle against the La Tuna brush fire
 
 Full story on F3News: [Firefighters gaining in battle against largest blaze in LA history](http://www.f3nws.com/n/yhK3zE)
 
-> Posted on: Monday, September 4, 2017 7:22:31 PM
+> Posted on: Monday, September 4, 2017 9:07:24 PM
