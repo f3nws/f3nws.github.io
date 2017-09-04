@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DACA: Trump expected to end 'Dreamers' immigration program"
-date: 2017-09-04 14:00:09Z
+date: 2017-09-04 16:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump is expected to announce the end of a President Obama-era 
 
 Full story on F3News: [DACA: Trump expected to end 'Dreamers' immigration program](http://www.f3nws.com/n/DmtEyD)
 
-> Posted on: Monday, September 4, 2017 2:00:09 PM
+> Posted on: Monday, September 4, 2017 4:00:02 PM
