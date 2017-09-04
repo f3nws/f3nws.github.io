@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Taringa: Over 28 Million Users' Data Exposed in Massive Data Breach"
-date: 2017-09-04 15:45:35Z
+date: 2017-09-04 16:53:16Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Exclusive — If you have an account on Taringa, also known as "The Latin Americ
 
 Full story on F3News: [Taringa: Over 28 Million Users' Data Exposed in Massive Data Breach](http://www.f3nws.com/n/2uzkrE)
 
-> Posted on: Monday, September 4, 2017 3:45:35 PM
+> Posted on: Monday, September 4, 2017 4:53:16 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palace announces Prince William, Kate expecting third child"
-date: 2017-09-04 16:27:16Z
+date: 2017-09-04 16:45:54Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — Prince William and his wife, the Duchess of Cambridge, will soon
 
 Full story on F3News: [Palace announces Prince William, Kate expecting third child](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 4, 2017 4:27:16 PM
+> Posted on: Monday, September 4, 2017 4:45:54 PM
