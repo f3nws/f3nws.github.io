@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Ambassador to the UN Nikki Haley: Kim Jong Un 'begging for war'"
-date: 2017-09-04 19:35:09Z
+date: 2017-09-04 20:33:43Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to the United Nations Nikki Haley said Monday that North Korean le
 
 Full story on F3News: [US Ambassador to the UN Nikki Haley: Kim Jong Un 'begging for war'](http://www.f3nws.com/n/njvXx)
 
-> Posted on: Monday, September 4, 2017 7:35:09 PM
+> Posted on: Monday, September 4, 2017 8:33:43 PM
