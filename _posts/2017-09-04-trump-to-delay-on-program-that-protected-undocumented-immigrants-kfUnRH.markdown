@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to delay on program that protected undocumented immigrants"
-date: 2017-09-04 03:32:09Z
+date: 2017-09-04 04:46:25Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is expected to end a program that protected undocumented 
 
 Full story on F3News: [Trump to delay on program that protected undocumented immigrants](http://www.f3nws.com/n/kfUnRH)
 
-> Posted on: Monday, September 4, 2017 3:32:09 AM
+> Posted on: Monday, September 4, 2017 4:46:25 AM
