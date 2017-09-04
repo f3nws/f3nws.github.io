@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Siri saves sick girl from Harvey floodwaters"
-date: 2017-09-04 11:37:38Z
+date: 2017-09-04 15:41:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Stranded outside in the rising waters of Hurricane Harvey, feverish and in great
 
 Full story on F3News: [Siri saves sick girl from Harvey floodwaters](http://www.f3nws.com/n/GDb2UE)
 
-> Posted on: Monday, September 4, 2017 11:37:38 AM
+> Posted on: Monday, September 4, 2017 3:41:48 PM
