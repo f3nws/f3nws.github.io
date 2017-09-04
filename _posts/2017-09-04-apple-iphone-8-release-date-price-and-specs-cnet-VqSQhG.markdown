@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone 8 Release Date, Price and Specs     - CNET"
-date: 2017-09-04 01:20:04Z
+date: 2017-09-04 01:51:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ New rumors point to "iPhone X" or "iPhone Edition" names being the current favor
 
 Full story on F3News: [Apple iPhone 8 Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/VqSQhG)
 
-> Posted on: Monday, September 4, 2017 1:20:04 AM
+> Posted on: Monday, September 4, 2017 1:51:35 AM
