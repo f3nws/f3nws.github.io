@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Toxic waste sites flooded in Texas, EPA says"
-date: 2017-09-04 02:48:13Z
+date: 2017-09-04 06:58:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 13 toxic waste sites in Texas were flooded or damaged by Hurricane Harv
 
 Full story on F3News: [Toxic waste sites flooded in Texas, EPA says](http://www.f3nws.com/n/KrvcxB)
 
-> Posted on: Monday, September 4, 2017 2:48:13 AM
+> Posted on: Monday, September 4, 2017 6:58:20 AM

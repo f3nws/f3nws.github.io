@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "9,400 resumes of US military & intel contractors exposed in massive security lapse – reports"
-date: 2017-09-04 00:23:52Z
+date: 2017-09-04 00:23:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Thousands of files containing personal data on former military, intelligence and
 
 Full story on F3News: [9,400 resumes of US military & intel contractors exposed in massive security lapse – reports](http://www.f3nws.com/n/PSBWVD)
 
-> Posted on: Monday, September 4, 2017 12:23:52 AM
+> Posted on: Monday, September 4, 2017 12:23:00 AM
