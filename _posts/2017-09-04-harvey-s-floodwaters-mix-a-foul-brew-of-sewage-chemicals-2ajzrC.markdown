@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey's floodwaters mix a foul brew of sewage, chemicals"
-date: 2017-09-04 09:56:13Z
+date: 2017-09-04 10:23:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Harvey's filthy floodwaters pose significant dangers to human safety and the env
 
 Full story on F3News: [Harvey's floodwaters mix a foul brew of sewage, chemicals](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 4, 2017 9:56:13 AM
+> Posted on: Monday, September 4, 2017 10:23:27 AM
