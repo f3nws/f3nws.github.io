@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Where is Hurricane Irma going?"
-date: 2017-09-04 08:58:34Z
+date: 2017-09-04 13:53:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma is churning west across the Atlantic, putting parts of the Caribb
 
 Full story on F3News: [Where is Hurricane Irma going?](http://www.f3nws.com/n/YfygGJ)
 
-> Posted on: Monday, September 4, 2017 8:58:34 AM
+> Posted on: Monday, September 4, 2017 1:53:10 PM
