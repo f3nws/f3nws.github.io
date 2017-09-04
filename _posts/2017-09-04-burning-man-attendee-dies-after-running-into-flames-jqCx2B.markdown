@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Burning Man attendee dies after running into flames"
-date: 2017-09-04 02:08:29Z
+date: 2017-09-04 02:39:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man has died after running into the towering blaze for which the Burning Man f
 
 Full story on F3News: [Burning Man attendee dies after running into flames](http://www.f3nws.com/n/jqCx2B)
 
-> Posted on: Monday, September 4, 2017 2:08:29 AM
+> Posted on: Monday, September 4, 2017 2:39:22 AM
