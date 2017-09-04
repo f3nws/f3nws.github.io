@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Mario Is Officially No Longer A Plumber - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--vBmGntba--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/rlset4skuxqi9oexubn9.png)
 
-Kotaku Mario Is Officially No Longer A Plumber Kotaku According to Mario's newly updated, official Japanese-language profile, the iconic character isn't working as a plumber. This shouldn't be a total surprise, because the character seems to do everything but plumbing. But doesn't going down Warp Pipes count? Mario is no longer a plumber, Nintendo officially says The Independent Super Mario isn't a plumber and hasn't been for a long time Videogamer.com Mario is a plumber no more, Nintendo confirms Blasting News Eurogamer.net - Kotaku Australia - TechRaptor - CW33 NewsFix all 11 news articles »
+Kotaku Mario Is Officially No Longer A Plumber Kotaku According to Mario's newly updated, official Japanese-language profile, the iconic character isn't working as a plumber. This shouldn't be a total surprise, because the character seems to do everything but plumbing. But doesn't going down Warp Pipes count? Mario hasn't been a plumber for a long time, Nintendo says Mashable Mario is no longer a plumber, Nintendo officially says The Independent Nintendo Says Mario isn't a Plumber Anymore, Proving Everything is a Lie Gizmodo UK Videogamer.com - Blasting News - Eurogamer.net - Kotaku Australia all 13 news articles »
 
 
 Full story on F3News: [Mario Is Officially No Longer A Plumber - Kotaku](http://www.f3nws.com/n/esREnE)
