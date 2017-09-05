@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma 'extremely dangerous' Category 5 storm, evacuations ordered for Florida Keys"
-date: 2017-09-05 17:13:00Z
+date: 2017-09-05 18:13:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma continued to strengthen Tuesday as an "extremely dangerous" Categ
 
 Full story on F3News: [Hurricane Irma 'extremely dangerous' Category 5 storm, evacuations ordered for Florida Keys](http://www.f3nws.com/n/4RhsVE)
 
-> Posted on: Tuesday, September 5, 2017 5:13:00 PM
+> Posted on: Tuesday, September 5, 2017 6:13:00 PM

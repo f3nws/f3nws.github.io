@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump Moves to End DACA and Calls on Congress to Act - New York Times"
-date: 2017-09-05 15:09:15Z
+date: 2017-09-05 17:35:06Z
 categories: google-news-top-stories
 ---
 
 ![Trump Moves to End DACA and Calls on Congress to Act - New York Times](https://static01.nyt.com/images/2017/09/06/us/06daca-sessions-file/06daca-sessions-file-facebookJumbo.jpg)
 
-New York Times Trump Moves to End DACA and Calls on Congress to Act New York Times The Obama-era program, Deferred Action for Childhood Arrivals, shields young undocumented immigrants from deportation. By THE ASSOCIATED PRESS. Photo by Zach Gibson for The New York Times. Watch in Times Video ». embed. WASHINGTON ... Don't be fooled by the scam that Trump will pull today on DACA Washington Post Trump Ends DACA, Calls On Congress To Act NPR Trump ends DACA, but gives Congress window to save it CNN The Hill (blog) - Politico - Los Angeles Times - NBCNews.com all 711 news articles »
+New York Times Trump Moves to End DACA and Calls on Congress to Act New York Times As President Trump moves to end the Obama-era program that shields young undocumented immigrants from deportation, listen to a few of the 800,000 affected by the program. By A.J. CHAVAR on Publish Date September 5, 2017. . Watch in Times Video ». Trump ends Dreamers program — and pressures Congress to pass immigration reform Politico 'We are America': DACA recipients, supporters say they are not going anywhere Washington Post Trump rescinding DACA program The Hill CNN - ABC News - NBCNews.com - The Atlantic all 1,762 news articles »
 
 
 Full story on F3News: [Trump Moves to End DACA and Calls on Congress to Act - New York Times](http://www.f3nws.com/n/Gs3cgG)
 
-> Posted on: Tuesday, September 5, 2017 3:09:15 PM
+> Posted on: Tuesday, September 5, 2017 5:35:06 PM

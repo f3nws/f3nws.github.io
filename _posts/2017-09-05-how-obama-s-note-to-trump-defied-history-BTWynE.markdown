@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Obama's note to Trump defied history"
-date: 2017-09-05 13:00:23Z
+date: 2017-09-05 18:37:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The election had been bitter, and the outgoing President was miffed at the victo
 
 Full story on F3News: [How Obama's note to Trump defied history](http://www.f3nws.com/n/BTWynE)
 
-> Posted on: Tuesday, September 5, 2017 1:00:23 PM
+> Posted on: Tuesday, September 5, 2017 6:37:03 PM
