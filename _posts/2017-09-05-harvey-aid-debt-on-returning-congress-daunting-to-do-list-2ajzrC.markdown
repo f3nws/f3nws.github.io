@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey aid, debt on returning Congress' daunting to-do list"
-date: 2017-09-05 14:24:34Z
+date: 2017-09-05 14:52:09Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Congress ends its five-week summer recess Tuesday as storm-r
 
 Full story on F3News: [Harvey aid, debt on returning Congress' daunting to-do list](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 5, 2017 2:24:34 PM
+> Posted on: Tuesday, September 5, 2017 2:52:09 PM

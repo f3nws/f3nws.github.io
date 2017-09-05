@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White nationalist Christopher Cantwell denied bond on felony charges in Charlottesville rally"
-date: 2017-09-05 12:00:01Z
+date: 2017-09-05 15:00:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ After an appeal by prosecutors, a judge has denied bond for white supremacist Ch
 
 Full story on F3News: [White nationalist Christopher Cantwell denied bond on felony charges in Charlottesville rally](http://www.f3nws.com/n/cFXk)
 
-> Posted on: Tuesday, September 5, 2017 12:00:01 PM
+> Posted on: Tuesday, September 5, 2017 3:00:01 PM
