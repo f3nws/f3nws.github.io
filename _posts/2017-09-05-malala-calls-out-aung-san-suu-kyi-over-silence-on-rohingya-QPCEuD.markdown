@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Malala calls out Aung San Suu Kyi over silence on Rohingya"
-date: 2017-09-05 11:24:12Z
+date: 2017-09-05 11:28:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Malala Yousafzai, the youngest recipient of a Nobel Peace Prize, called on fello
 
 Full story on F3News: [Malala calls out Aung San Suu Kyi over silence on Rohingya](http://www.f3nws.com/n/QPCEuD)
 
-> Posted on: Tuesday, September 5, 2017 11:24:12 AM
+> Posted on: Tuesday, September 5, 2017 11:28:05 AM

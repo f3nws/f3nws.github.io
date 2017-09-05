@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple, Google, Facebook and more speak out on DACA     - CNET"
-date: 2017-09-05 06:00:48Z
+date: 2017-09-05 11:32:58Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Silicon Valley once again is speaking out against President Donald Trump, this 
 
 Full story on F3News: [Apple, Google, Facebook and more speak out on DACA     - CNET](http://www.f3nws.com/n/bNVpvC)
 
-> Posted on: Tuesday, September 5, 2017 6:00:48 AM
+> Posted on: Tuesday, September 5, 2017 11:32:58 AM
