@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What happens if Kim attacks? 5 things to know about North Korea"
-date: 2017-09-05 10:38:45Z
+date: 2017-09-05 12:35:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea tested a hydrogen bomb on Sunday, raising fears that Pyongyang is ge
 
 Full story on F3News: [What happens if Kim attacks? 5 things to know about North Korea](http://www.f3nws.com/n/GG3YYB)
 
-> Posted on: Tuesday, September 5, 2017 10:38:45 AM
+> Posted on: Tuesday, September 5, 2017 12:35:49 PM
