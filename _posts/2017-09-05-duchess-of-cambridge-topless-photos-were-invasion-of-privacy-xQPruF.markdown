@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Duchess of Cambridge topless photos were 'invasion of privacy'"
-date: 2017-09-05 14:59:26Z
+date: 2017-09-05 21:13:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A French court has ruled that six people invaded the privacy of Britain's Duches
 
 Full story on F3News: [Duchess of Cambridge topless photos were 'invasion of privacy'](http://www.f3nws.com/n/xQPruF)
 
-> Posted on: Tuesday, September 5, 2017 2:59:26 PM
+> Posted on: Tuesday, September 5, 2017 9:13:40 PM
