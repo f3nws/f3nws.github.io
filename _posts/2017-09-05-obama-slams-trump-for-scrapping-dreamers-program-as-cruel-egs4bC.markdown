@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obama slams Trump for scrapping Dreamers program as 'cruel'"
-date: 2017-09-05 19:38:27Z
+date: 2017-09-05 20:30:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former President Barack Obama on Tuesday bashed his successor's decision to resc
 
 Full story on F3News: [Obama slams Trump for scrapping Dreamers program as 'cruel'](http://www.f3nws.com/n/egs4bC)
 
-> Posted on: Tuesday, September 5, 2017 7:38:27 PM
+> Posted on: Tuesday, September 5, 2017 8:30:00 PM
