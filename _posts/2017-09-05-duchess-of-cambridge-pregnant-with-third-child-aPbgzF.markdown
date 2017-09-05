@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Duchess of Cambridge pregnant with third child"
-date: 2017-09-05 03:41:20Z
+date: 2017-09-05 05:36:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's Prince William and his wife, Catherine, are expecting their third chil
 
 Full story on F3News: [Duchess of Cambridge pregnant with third child](http://www.f3nws.com/n/aPbgzF)
 
-> Posted on: Tuesday, September 5, 2017 3:41:20 AM
+> Posted on: Tuesday, September 5, 2017 5:36:19 AM

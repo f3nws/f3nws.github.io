@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Trump's base could get us into a nuclear war"
-date: 2017-09-05 03:36:19Z
+date: 2017-09-05 05:26:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Not every campaign promise is worth keeping. But to please his base, Donald Trum
 
 Full story on F3News: [How Trump's base could get us into a nuclear war](http://www.f3nws.com/n/FghNWD)
 
-> Posted on: Tuesday, September 5, 2017 3:36:19 AM
+> Posted on: Tuesday, September 5, 2017 5:26:17 AM

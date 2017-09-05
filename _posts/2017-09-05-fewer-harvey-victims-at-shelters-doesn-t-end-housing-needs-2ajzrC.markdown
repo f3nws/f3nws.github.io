@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fewer Harvey victims at shelters doesn't end housing needs"
-date: 2017-09-05 05:18:48Z
+date: 2017-09-05 05:45:45Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — One couple displaced by Harvey managed to get a hotel room, but
 
 Full story on F3News: [Fewer Harvey victims at shelters doesn't end housing needs](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 5, 2017 5:18:48 AM
+> Posted on: Tuesday, September 5, 2017 5:45:45 AM
