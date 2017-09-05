@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma strengthens to Category 5 as Florida braces"
-date: 2017-09-05 21:16:21Z
+date: 2017-09-05 21:52:51Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma has strengthened into an "extremely dangerous" Category 5 storm, 
 
 Full story on F3News: [Hurricane Irma strengthens to Category 5 as Florida braces](http://www.f3nws.com/n/3unvMH)
 
-> Posted on: Tuesday, September 5, 2017 9:16:21 PM
+> Posted on: Tuesday, September 5, 2017 9:52:51 PM
