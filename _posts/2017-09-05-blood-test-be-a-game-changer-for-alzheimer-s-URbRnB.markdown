@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blood test be a game-changer for Alzheimer's?"
-date: 2017-09-05 05:39:25Z
+date: 2017-09-05 09:57:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An experimental blood test can accurately diagnose Alzheimer's disease, the most
 
 Full story on F3News: [Blood test be a game-changer for Alzheimer's?](http://www.f3nws.com/n/URbRnB)
 
-> Posted on: Tuesday, September 5, 2017 5:39:25 AM
+> Posted on: Tuesday, September 5, 2017 9:57:46 AM

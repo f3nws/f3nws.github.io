@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Accepting North Korean nukes is not an option"
-date: 2017-09-05 08:36:14Z
+date: 2017-09-05 09:55:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Over the weekend, North Korea successfully tested what it claims to be a hydroge
 
 Full story on F3News: [Accepting North Korean nukes is not an option](http://www.f3nws.com/n/uyazRJ)
 
-> Posted on: Tuesday, September 5, 2017 8:36:14 AM
+> Posted on: Tuesday, September 5, 2017 9:55:42 AM

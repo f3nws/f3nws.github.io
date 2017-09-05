@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Scared to death' nurse in Utah video: 'I stood my ground'"
-date: 2017-09-05 05:32:11Z
+date: 2017-09-05 09:54:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Utah nurse arrested when she refused to let police officers draw blood from 
 
 Full story on F3News: ['Scared to death' nurse in Utah video: 'I stood my ground'](http://www.f3nws.com/n/McPuRD)
 
-> Posted on: Tuesday, September 5, 2017 5:32:11 AM
+> Posted on: Tuesday, September 5, 2017 9:54:32 AM

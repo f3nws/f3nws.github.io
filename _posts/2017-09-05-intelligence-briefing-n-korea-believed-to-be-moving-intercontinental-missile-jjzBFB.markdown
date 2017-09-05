@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Intelligence briefing: N. Korea believed to be moving intercontinental missile"
-date: 2017-09-05 09:32:11Z
+date: 2017-09-05 10:04:19Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea is believed to be moving an intercontinental ballistic missile (ICBM
 
 Full story on F3News: [Intelligence briefing: N. Korea believed to be moving intercontinental missile](http://www.f3nws.com/n/jjzBFB)
 
-> Posted on: Tuesday, September 5, 2017 9:32:11 AM
+> Posted on: Tuesday, September 5, 2017 10:04:19 AM
