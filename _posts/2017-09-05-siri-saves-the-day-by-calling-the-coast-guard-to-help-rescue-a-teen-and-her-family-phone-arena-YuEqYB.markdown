@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Siri saves the day by calling the Coast Guard to help rescue a teen and her family - Phone Arena"
-date: 2017-09-05 00:01:00Z
+date: 2017-09-05 00:05:08Z
 categories: google-news-technology
 ---
 
@@ -10,4 +10,4 @@ Phone Arena Siri saves the day by calling the Coast Guard to help rescue a teen 
 
 Full story on F3News: [Siri saves the day by calling the Coast Guard to help rescue a teen and her family - Phone Arena](http://www.f3nws.com/n/YuEqYB)
 
-> Posted on: Tuesday, September 5, 2017 12:01:00 AM
+> Posted on: Tuesday, September 5, 2017 12:05:08 AM
