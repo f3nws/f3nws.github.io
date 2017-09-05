@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian President urges against 'military hysteria' in solving North Korea crisis"
-date: 2017-09-05 10:54:48Z
+date: 2017-09-05 11:01:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin has urged North Korea to learn from the demise 
 
 Full story on F3News: [Russian President urges against 'military hysteria' in solving North Korea crisis](http://www.f3nws.com/n/kcQDBJ)
 
-> Posted on: Tuesday, September 5, 2017 10:54:48 AM
+> Posted on: Tuesday, September 5, 2017 11:01:23 AM

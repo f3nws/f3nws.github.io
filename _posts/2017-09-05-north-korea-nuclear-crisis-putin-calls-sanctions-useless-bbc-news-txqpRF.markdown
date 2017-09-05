@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![North Korea nuclear crisis: Putin calls sanctions useless - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/144AD/production/_97671138_mediaitem97671135.jpg)
 
-BBC News North Korea nuclear crisis: Putin calls sanctions useless BBC News Russian President Vladimir Putin has said pursuing further sanctions against North Korea is "useless", saying "they'd rather eat grass than give up their nuclear programme". The US said on Monday it would table a new UN resolution on tougher sanctions ... Putin Echoes China in Rejecting Tougher North Korea Sanctions Bloomberg The North Korean chessboard: What next for the main players? Washington Post North Korea Crisis: Russia's Putin Warns of 'Global Catastrophe' NBCNews.com Reuters - USA TODAY - ABC News - CNN International all 292 news articles »
+BBC News North Korea nuclear crisis: Putin calls sanctions useless BBC News Russian President Vladimir Putin has said pursuing further sanctions against North Korea is "useless", saying "they'd rather eat grass than give up their nuclear programme". The US said on Monday it would table a new UN resolution on tougher sanctions ... South Korea moves to boost weaponry amid threats from North Washington Post Putin Echoes China in Rejecting Tougher North Korea Sanctions Bloomberg Reverberations continue after North Korea's latest nuclear test CBS News NBCNews.com - U.S. News & World Report - The Hill - USA TODAY all 6,416 news articles »
 
 
 Full story on F3News: [North Korea nuclear crisis: Putin calls sanctions useless - BBC News](http://www.f3nws.com/n/txqpRF)
