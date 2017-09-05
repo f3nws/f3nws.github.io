@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK Navy tests air defense system against supersonic missiles"
-date: 2017-09-05 00:30:49Z
+date: 2017-09-05 00:30:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The Royal Navy has carried out the first tests of its new generation air missile
 
 Full story on F3News: [UK Navy tests air defense system against supersonic missiles](http://www.f3nws.com/n/jvDdDE)
 
-> Posted on: Tuesday, September 5, 2017 12:30:49 AM
+> Posted on: Tuesday, September 5, 2017 12:30:00 AM

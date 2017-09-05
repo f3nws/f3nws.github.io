@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New class of drugs could help keep you young"
-date: 2017-09-05 09:52:53Z
+date: 2017-09-05 12:23:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Researchers have turned the spotlight on a new class of drugs that they say coul
 
 Full story on F3News: [New class of drugs could help keep you young](http://www.f3nws.com/n/RNJrND)
 
-> Posted on: Tuesday, September 5, 2017 9:52:53 AM
+> Posted on: Tuesday, September 5, 2017 12:23:43 PM

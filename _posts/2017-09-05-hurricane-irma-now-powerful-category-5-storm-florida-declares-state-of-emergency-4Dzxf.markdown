@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Hurricane Irma now powerful Category 5 storm, Florida declares state of emergency"
-date: 2017-09-05 11:45:00Z
+date: 2017-09-05 12:02:00Z
 categories: fox-news
 ---
 
 ![Hurricane Irma now powerful Category 5 storm, Florida declares state of emergency](http://a57.foxnews.com/images.foxnews.com/content/dam/fox-news/images/2017/09/05/irmaradar.jpg.img.png/0/0/1504611944616.png?ve=1)
 
-Hurricane Irma continued to strengthen Tuesday as a powerful Category 5 storm, prompting states of emergency in Puerto Rico, the U.S. Virgin Islands and Florida, sending residents to stores to prepare for the worst.
+Hurricane Irma continued to strengthen Tuesday as an "extremely dangerous" Category 5 storm, prompting states of emergency in Puerto Rico, the U.S. Virgin Islands and Florida, sending residents to stores to prepare for the worst.
 
 
 Full story on F3News: [Hurricane Irma now powerful Category 5 storm, Florida declares state of emergency](http://www.f3nws.com/n/4Dzxf)
 
-> Posted on: Tuesday, September 5, 2017 11:45:00 AM
+> Posted on: Tuesday, September 5, 2017 12:02:00 PM
