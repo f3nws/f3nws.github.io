@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Fire authorities brace for 'elevated' risk across much of eastern Australia - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/a/1/s/p/image.related.socialLead.620x349.gyatqp.png/1504575987599.jpg)
 
-The Sydney Morning Herald Fire authorities brace for 'elevated' risk across much of eastern Australia The Sydney Morning Herald An arc of eastern Australia ranging from western Victoria to central Queensland faces a more active bushfire season following another unusually mild and dry winter. The seasonal bushfire outlook for southern Australia, released on Tuesday by the ... South eastern Australia's freezing snap set to last all week NEWS.com.au South-eastern states warned to expect spring cold snap 9news.com.au Spring outlook tilts towards wetter conditions eventually Queensland Country Life Daily Mail - Hit 107 all 7 news articles »
+The Sydney Morning Herald Fire authorities brace for 'elevated' risk across much of eastern Australia The Sydney Morning Herald An arc of eastern Australia ranging from western Victoria to central Queensland faces a more active bushfire season following another unusually mild and dry winter. The seasonal bushfire outlook for southern Australia, released on Tuesday by the ... and more »
 
 
 Full story on F3News: [Fire authorities brace for 'elevated' risk across much of eastern Australia - The Sydney Morning Herald](http://www.f3nws.com/n/EKDbcD)
