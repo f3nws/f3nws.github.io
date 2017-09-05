@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New class of drugs targets aging"
-date: 2017-09-05 02:28:45Z
+date: 2017-09-05 03:42:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Researchers have turned the spotlight on a new class of drugs that they say coul
 
 Full story on F3News: [New class of drugs targets aging](http://www.f3nws.com/n/RNJrND)
 
-> Posted on: Tuesday, September 5, 2017 2:28:45 AM
+> Posted on: Tuesday, September 5, 2017 3:42:29 AM
