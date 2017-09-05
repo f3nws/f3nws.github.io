@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powerful Category 4 Hurricane Irma aims at Caribbean islands"
-date: 2017-09-05 04:24:15Z
+date: 2017-09-05 04:51:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN JUAN, Puerto Rico (AP) — Officials across the northeastern Caribbean cance
 
 Full story on F3News: [Powerful Category 4 Hurricane Irma aims at Caribbean islands](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 5, 2017 4:24:15 AM
+> Posted on: Tuesday, September 5, 2017 4:51:21 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NY Caribbean fest revels amid security; some violence nearby"
-date: 2017-09-05 01:43:45Z
+date: 2017-09-05 03:56:56Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ NEW YORK (AP) — Revelry, cultural pride and newly tightened security mixed Mon
 
 Full story on F3News: [NY Caribbean fest revels amid security; some violence nearby](http://www.f3nws.com/n/pnWuxC)
 
-> Posted on: Tuesday, September 5, 2017 1:43:45 AM
+> Posted on: Tuesday, September 5, 2017 3:56:56 AM
