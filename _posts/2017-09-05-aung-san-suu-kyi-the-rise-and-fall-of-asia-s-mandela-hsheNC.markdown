@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aung San Suu Kyi: The rise and fall of Asia's Mandela?"
-date: 2017-09-05 12:11:56Z
+date: 2017-09-05 14:10:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For years she was the epitome of the peaceful protester, steadfast in her devoti
 
 Full story on F3News: [Aung San Suu Kyi: The rise and fall of Asia's Mandela?](http://www.f3nws.com/n/hsheNC)
 
-> Posted on: Tuesday, September 5, 2017 12:11:56 PM
+> Posted on: Tuesday, September 5, 2017 2:10:26 PM
