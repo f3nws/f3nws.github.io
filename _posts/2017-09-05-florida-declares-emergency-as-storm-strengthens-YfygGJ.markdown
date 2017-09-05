@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Florida declares emergency as storm strengthens"
-date: 2017-09-05 03:38:26Z
+date: 2017-09-05 07:56:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma is churning west across the Atlantic, putting parts of the Caribb
 
 Full story on F3News: [Florida declares emergency as storm strengthens](http://www.f3nws.com/n/YfygGJ)
 
-> Posted on: Tuesday, September 5, 2017 3:38:26 AM
+> Posted on: Tuesday, September 5, 2017 7:56:40 AM
