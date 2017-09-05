@@ -7,7 +7,7 @@ categories: fortune
 
 ![A Staple Voice in New York, the Daily News, Was Just Sold to Tronc](https://fortunedotcom.files.wordpress.com/2017/09/182604118.jpg?w=720)
 
-Tronc will assume roughly $30 million worth of liabilities.
+Newspaper company also owns the 'Chicago Tribune' and the 'Los Angeles Times.'
 
 
 Full story on F3News: [A Staple Voice in New York, the Daily News, Was Just Sold to Tronc](http://www.f3nws.com/n/Thr2tE)
