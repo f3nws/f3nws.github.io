@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Congress returns, faces pressing issues including Harvey aid"
-date: 2017-09-05 15:58:47Z
+date: 2017-09-05 16:28:11Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Lawmakers returned to Washington Tuesday facing fast-approac
 
 Full story on F3News: [Congress returns, faces pressing issues including Harvey aid](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 5, 2017 3:58:47 PM
+> Posted on: Tuesday, September 5, 2017 4:28:11 PM

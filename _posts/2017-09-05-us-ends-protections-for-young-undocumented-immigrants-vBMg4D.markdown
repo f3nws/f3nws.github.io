@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US ends protections for young undocumented immigrants"
-date: 2017-09-05 15:32:04Z
+date: 2017-09-05 16:10:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration on Tuesday formally announced the end of DACA -- a prog
 
 Full story on F3News: [US ends protections for young undocumented immigrants](http://www.f3nws.com/n/vBMg4D)
 
-> Posted on: Tuesday, September 5, 2017 3:32:04 PM
+> Posted on: Tuesday, September 5, 2017 4:10:22 PM
