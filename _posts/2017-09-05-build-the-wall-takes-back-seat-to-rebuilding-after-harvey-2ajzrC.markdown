@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Build the wall' takes back seat to rebuilding after Harvey"
-date: 2017-09-05 16:55:52Z
+date: 2017-09-05 17:24:55Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — The U.S. government carefully designed a path of least resistan
 
 Full story on F3News: ['Build the wall' takes back seat to rebuilding after Harvey](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 5, 2017 4:55:52 PM
+> Posted on: Tuesday, September 5, 2017 5:24:55 PM
