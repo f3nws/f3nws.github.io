@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Authorities: California woman kidnapped by ex-boyfriend"
-date: 2017-09-05 00:33:37Z
+date: 2017-09-05 06:35:17Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A man considered armed and dangerous kidnapped his former girlfriend in Californ
 
 Full story on F3News: [Authorities: California woman kidnapped by ex-boyfriend](http://www.f3nws.com/n/NfRgAH)
 
-> Posted on: Tuesday, September 5, 2017 12:33:37 AM
+> Posted on: Tuesday, September 5, 2017 6:35:17 AM
