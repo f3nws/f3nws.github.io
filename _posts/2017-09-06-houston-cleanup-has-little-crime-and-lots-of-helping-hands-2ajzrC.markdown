@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Houston cleanup has little crime and lots of helping hands"
-date: 2017-09-06 21:17:45Z
+date: 2017-09-06 21:58:19Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — After riding out Hurricane Harvey in a motel and waiting an ago
 
 Full story on F3News: [Houston cleanup has little crime and lots of helping hands](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 6, 2017 9:17:45 PM
+> Posted on: Wednesday, September 6, 2017 9:58:19 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New 'Dancing With the Stars' cast revealed"
-date: 2017-09-06 16:55:05Z
+date: 2017-09-06 18:39:30Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A former teen pop idol, a part-time race car driver, two married couples going h
 
 Full story on F3News: [New 'Dancing With the Stars' cast revealed](http://www.f3nws.com/n/PeQPP)
 
-> Posted on: Wednesday, September 6, 2017 4:55:05 PM
+> Posted on: Wednesday, September 6, 2017 6:39:30 PM
