@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump strikes ‘deal’ with Dems on Harvey aid and debt limit, over Ryan’s objections"
-date: 2017-09-06 13:00:00Z
+date: 2017-09-06 19:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump struck a deal Wednesday with Democratic leaders to raise the fed
 
 Full story on F3News: [Trump strikes ‘deal’ with Dems on Harvey aid and debt limit, over Ryan’s objections](http://www.f3nws.com/n/MMFcu)
 
-> Posted on: Wednesday, September 6, 2017 1:00:00 PM
+> Posted on: Wednesday, September 6, 2017 7:00:00 PM
