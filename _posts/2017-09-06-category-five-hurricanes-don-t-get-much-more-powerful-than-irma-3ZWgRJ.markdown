@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Category five hurricanes don't get much more powerful than Irma](http://www.abc.net.au/news/image/8877732-1x1-700x700.jpg)
 
-Texas is still recovering from Hurricane Harvey, but an even more powerful storm is already bearing down on the United States, and meteorologists are lost for words.
+Texas is still recovering from Hurricane Harvey, but an even more powerful storm is already bearing down on the Caribbean and US coast, and meteorologists are lost for words.
 
 
 Full story on F3News: [Category five hurricanes don't get much more powerful than Irma](http://www.f3nws.com/n/3ZWgRJ)
