@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Wars: Episode IX' director Colin Trevorrow steps down     - CNET"
-date: 2017-09-06 01:06:37Z
+date: 2017-09-06 07:42:58Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Another big change hits the Star Wars galaxy, this one involving the final film 
 
 Full story on F3News: ['Star Wars: Episode IX' director Colin Trevorrow steps down     - CNET](http://www.f3nws.com/n/hZSStF)
 
-> Posted on: Wednesday, September 6, 2017 1:06:37 AM
+> Posted on: Wednesday, September 6, 2017 7:42:58 AM

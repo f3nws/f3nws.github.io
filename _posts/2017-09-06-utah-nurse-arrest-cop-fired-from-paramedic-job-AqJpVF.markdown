@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Utah nurse arrest: Cop fired from paramedic job"
-date: 2017-09-06 14:01:27Z
+date: 2017-09-06 14:59:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Salt Lake City, Utah, detective who arrested a nurse after she refused to let 
 
 Full story on F3News: [Utah nurse arrest: Cop fired from paramedic job](http://www.f3nws.com/n/AqJpVF)
 
-> Posted on: Wednesday, September 6, 2017 2:01:27 PM
+> Posted on: Wednesday, September 6, 2017 2:59:00 PM
