@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Buildings on St. Martin have been destroyed, officials say"
-date: 2017-09-06 16:00:20Z
+date: 2017-09-06 17:25:42Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ As Hurricane Irma's eye roars away from the tiny island of Barbuda and toward St
 
 Full story on F3News: [Buildings on St. Martin have been destroyed, officials say](http://www.f3nws.com/n/FC33NB)
 
-> Posted on: Wednesday, September 6, 2017 4:00:20 PM
+> Posted on: Wednesday, September 6, 2017 5:25:42 PM
