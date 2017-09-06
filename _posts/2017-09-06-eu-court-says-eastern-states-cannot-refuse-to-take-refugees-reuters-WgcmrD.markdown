@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![EU court says Eastern states cannot refuse to take refugees - Reuters](https://s3.reutersmedia.net/resources/r/?m=02&d=20170906&t=2&i=1200179705&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXNPED850RL)
 
-Reuters EU court says Eastern states cannot refuse to take refugees Reuters The entrance of the European Court of Justice is pictured in Luxembourg, January 26, 2017. REUTERS/Francois Lenoir. Michele Sinner. 5 Min Read. LUXEMBOURG (Reuters) - The European Union's top court roundly dismissed complaints on Wednesday by ... The Latest: Slovakia says it respects EU's migrant ruling Washington Post The Latest: Hungary Condemns EU Court Ruling on Migrants U.S. News & World Report Europe migrant crisis: EU court rejects quota challenge BBC News New York Times - Telegraph.co.uk - The Guardian - Financial Times all 43 news articles »
+Reuters EU court says Eastern states cannot refuse to take refugees Reuters The entrance of the European Court of Justice is pictured in Luxembourg, January 26, 2017. REUTERS/Francois Lenoir. Michele Sinner. 5 Min Read. LUXEMBOURG (Reuters) - The European Union's top court roundly dismissed complaints on Wednesday by ... Hungary and Slovakia Lose Fight Over EU Migrant Quotas New York Times The Latest: EU-Turkey deal cut migrant arrivals 97 percent Washington Post Top EU court rejects Hungary and Slovakia migrant relocation case CNN USA TODAY - Yahoo News - U.S. News & World Report - Voice of America all 73 news articles »
 
 
 Full story on F3News: [EU court says Eastern states cannot refuse to take refugees - Reuters](http://www.f3nws.com/n/WgcmrD)
