@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Category 5 Hurricane Irma one of strongest storms ever"
-date: 2017-09-06 02:53:02Z
+date: 2017-09-06 04:43:31Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma has strengthened into an "extremely dangerous" Category 5 storm, 
 
 Full story on F3News: [Category 5 Hurricane Irma one of strongest storms ever](http://www.f3nws.com/n/3unvMH)
 
-> Posted on: Wednesday, September 6, 2017 2:53:02 AM
+> Posted on: Wednesday, September 6, 2017 4:43:31 AM
