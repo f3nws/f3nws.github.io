@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma approaches St. Croix"
-date: 2017-09-06 16:02:48Z
+date: 2017-09-06 19:17:25Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [Irma approaches St. Croix](http://www.f3nws.com/n/CpYmyG)
 
-> Posted on: Wednesday, September 6, 2017 4:02:48 PM
+> Posted on: Wednesday, September 6, 2017 7:17:25 PM
