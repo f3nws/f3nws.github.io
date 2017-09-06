@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boat with Rohingya refugees capsizes, killing 5 as more flee"
-date: 2017-09-06 10:47:23Z
+date: 2017-09-06 11:28:05Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ KUTUPALONG, Bangladesh (AP) — A trawler carrying Rohingya Muslims fleeing viol
 
 Full story on F3News: [Boat with Rohingya refugees capsizes, killing 5 as more flee](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 6, 2017 10:47:23 AM
+> Posted on: Wednesday, September 6, 2017 11:28:05 AM
