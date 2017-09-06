@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Why Do 'Star Wars' Films Keep Losing Directors? - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2016/05/gettyimages-501401582-h_2016.jpg)
 
-Hollywood Reporter Why Do 'Star Wars' Films Keep Losing Directors? Hollywood Reporter Call it the curse of a galaxy far, far away. With the announcement Tuesday that Lucasfilm and Colin Trevorrow have parted ways, the Star Wars franchise continues its streak as the most troubled blockbuster series around when it comes to keeping directors. Might Rian Johnson Return For 'Star Wars: Episode IX'? Deadline Colin Trevorrow Out as 'Star Wars: Episode IX' Director Variety Star Wars: Episode IX just lost its director The Verge Comicbook.com - New York Times - Washington Post - Vanity Fair all 226 news articles »
+Hollywood Reporter Why Do 'Star Wars' Films Keep Losing Directors? Hollywood Reporter Call it the curse of a galaxy far, far away. With the announcement Tuesday that Lucasfilm and Colin Trevorrow have parted ways, the Star Wars franchise continues its streak as the most troubled blockbuster series around when it comes to keeping directors. Might Rian Johnson Return For 'Star Wars: Episode IX'? Deadline Colin Trevorrow Out as 'Star Wars: Episode IX' Director Variety Star Wars: Episode IX just lost its director The Verge Comicbook.com - New York Times - Washington Post - Vanity Fair all 231 news articles »
 
 
 Full story on F3News: [Why Do 'Star Wars' Films Keep Losing Directors? - Hollywood Reporter](http://www.f3nws.com/n/p3qJYF)
