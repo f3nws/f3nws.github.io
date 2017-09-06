@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8 price, release date, news and rumors"
-date: 2017-09-06 03:41:20Z
+date: 2017-09-06 16:39:20Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The iPhone 8 launch date is set, with Apple ready to unveil its new iPhone and a
 
 Full story on F3News: [iPhone 8 price, release date, news and rumors](http://www.f3nws.com/n/ebV2MB)
 
-> Posted on: Wednesday, September 6, 2017 3:41:20 AM
+> Posted on: Wednesday, September 6, 2017 4:39:20 PM
