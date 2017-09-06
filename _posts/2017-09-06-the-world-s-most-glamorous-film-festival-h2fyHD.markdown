@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The world's most glamorous film festival?"
-date: 2017-09-06 02:50:09Z
+date: 2017-09-06 02:55:32Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ When it comes to fashion, architecture and the arts, the Venice Film Festival re
 
 Full story on F3News: [The world's most glamorous film festival?](http://www.f3nws.com/n/h2fyHD)
 
-> Posted on: Wednesday, September 6, 2017 2:50:09 AM
+> Posted on: Wednesday, September 6, 2017 2:55:32 AM
