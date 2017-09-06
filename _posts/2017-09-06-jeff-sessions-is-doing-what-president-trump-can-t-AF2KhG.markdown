@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jeff Sessions is doing what President Trump can't"
-date: 2017-09-06 11:14:19Z
+date: 2017-09-06 14:36:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ His White House in a perpetual state of soap operatic turmoil, President Donald 
 
 Full story on F3News: [Jeff Sessions is doing what President Trump can't](http://www.f3nws.com/n/AF2KhG)
 
-> Posted on: Wednesday, September 6, 2017 11:14:19 AM
+> Posted on: Wednesday, September 6, 2017 2:36:06 PM

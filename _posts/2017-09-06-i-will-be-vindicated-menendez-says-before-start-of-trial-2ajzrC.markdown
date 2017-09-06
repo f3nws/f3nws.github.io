@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I will be vindicated,' Menendez says before start of trial"
-date: 2017-09-06 14:25:35Z
+date: 2017-09-06 14:52:38Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEWARK, N.J. (AP) — U.S. Sen. Bob Menendez told reporters, "Not once have I di
 
 Full story on F3News: ['I will be vindicated,' Menendez says before start of trial](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 6, 2017 2:25:35 PM
+> Posted on: Wednesday, September 6, 2017 2:52:38 PM
