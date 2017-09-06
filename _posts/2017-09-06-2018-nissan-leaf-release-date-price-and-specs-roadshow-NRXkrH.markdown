@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2018 Nissan Leaf Release Date, Price and Specs     - Roadshow"
-date: 2017-09-06 01:37:49Z
+date: 2017-09-06 02:32:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Encore for the world's best-selling EV pins its hopes on a stress-reducing tech,
 
 Full story on F3News: [2018 Nissan Leaf Release Date, Price and Specs     - Roadshow](http://www.f3nws.com/n/NRXkrH)
 
-> Posted on: Wednesday, September 6, 2017 1:37:49 AM
+> Posted on: Wednesday, September 6, 2017 2:32:01 AM
