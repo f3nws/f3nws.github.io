@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Poor design, construction blamed in damage to California dam"
-date: 2017-09-06 00:39:08Z
+date: 2017-09-06 02:08:13Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ SAN FRANCISCO (AP) — Bad design and construction of the tallest U.S. dam a hal
 
 Full story on F3News: [Poor design, construction blamed in damage to California dam](http://www.f3nws.com/n/tsvTJE)
 
-> Posted on: Wednesday, September 6, 2017 12:39:08 AM
+> Posted on: Wednesday, September 6, 2017 2:08:13 AM

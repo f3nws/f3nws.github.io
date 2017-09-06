@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Only Six Days Left to Apply for Startup Battlefield Australia"
-date: 2017-09-06 00:24:54Z
+date: 2017-09-06 02:15:54Z
 categories: techcrunch
 ---
 
@@ -12,4 +12,4 @@ Ready to give your Startup the global recognition it deserves? Founders, there a
 
 Full story on F3News: [Only Six Days Left to Apply for Startup Battlefield Australia](http://www.f3nws.com/n/RF4NsB)
 
-> Posted on: Wednesday, September 6, 2017 12:24:54 AM
+> Posted on: Wednesday, September 6, 2017 2:15:54 AM
