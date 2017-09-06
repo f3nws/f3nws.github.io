@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New York's de Blasio hints there should be a parade in his honor"
-date: 2017-09-06 01:30:02Z
+date: 2017-09-06 02:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Mayor de Blasio claims he’s running the city so well that “you’d assume th
 
 Full story on F3News: [New York's de Blasio hints there should be a parade in his honor](http://www.f3nws.com/n/tpfSvH)
 
-> Posted on: Wednesday, September 6, 2017 1:30:02 AM
+> Posted on: Wednesday, September 6, 2017 2:00:03 AM

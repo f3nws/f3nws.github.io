@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![23andMe is raising about $200 million, led by Sequoia](https://tctechcrunch2011.files.wordpress.com/2013/11/23andme-blimp.jpg)
 
-23andMe is raising close to $200 million in a funding round led by Sequoia, multiple sources tell us. We’re also hearing that Fidelity is looking to participate. We’ve heard for a while the personal genetics company was looking for more money to expand its genetics research arm and develop new products. The added cash will also allow 23andMe to continue growing its revenue, without… Read More
+23andMe, the Mountain View-based genetic testing and analysis company, is raising close to $200 million in a funding round led by Sequoia Capital, multiple sources tell us. Sources say that Fidelity is also looking to participate. We’d first heard in spring that 11-year-old company was looking for more money to expand its genetics research arm and develop new products. The fresh… Read More
 
 
 Full story on F3News: [23andMe is raising about $200 million, led by Sequoia](http://www.f3nws.com/n/vrP4TC)
