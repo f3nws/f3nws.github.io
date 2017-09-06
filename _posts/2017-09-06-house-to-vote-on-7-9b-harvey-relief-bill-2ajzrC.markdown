@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House to vote on $7.9B Harvey relief bill"
-date: 2017-09-06 13:17:30Z
+date: 2017-09-06 13:58:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — With federal disaster reserves running out, the House is swi
 
 Full story on F3News: [House to vote on $7.9B Harvey relief bill](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 6, 2017 1:17:30 PM
+> Posted on: Wednesday, September 6, 2017 1:58:21 PM
