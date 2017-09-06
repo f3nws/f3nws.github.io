@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two Houstons emerge from Harvey aftermath: one wet, one dry"
-date: 2017-09-06 05:20:11Z
+date: 2017-09-06 05:47:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOUSTON (AP) — In a quest to help Harvey victims, Kelli Shofstall and her son 
 
 Full story on F3News: [Two Houstons emerge from Harvey aftermath: one wet, one dry](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 6, 2017 5:20:11 AM
+> Posted on: Wednesday, September 6, 2017 5:47:21 AM
