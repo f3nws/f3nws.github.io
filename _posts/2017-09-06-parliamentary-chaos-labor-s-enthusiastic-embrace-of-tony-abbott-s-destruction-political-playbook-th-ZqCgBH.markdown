@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parliamentary chaos: Labor's enthusiastic embrace of Tony Abbott's destruction political playbook - The Sydney Morning Herald"
-date: 2017-09-06 05:34:54Z
+date: 2017-09-06 05:48:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Parliamentary chaos: Labor's enthusiastic embrace of T
 
 Full story on F3News: [Parliamentary chaos: Labor's enthusiastic embrace of Tony Abbott's destruction political playbook - The Sydney Morning Herald](http://www.f3nws.com/n/ZqCgBH)
 
-> Posted on: Wednesday, September 6, 2017 5:34:54 AM
+> Posted on: Wednesday, September 6, 2017 5:48:00 AM
