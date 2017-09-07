@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New phase in Russia probe as Trump Jr. heads to Capitol"
-date: 2017-09-07 12:58:47Z
+date: 2017-09-07 13:26:28Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Donald Trump Jr.'s scheduled visit to Capitol Hill on Thursd
 
 Full story on F3News: [New phase in Russia probe as Trump Jr. heads to Capitol](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 12:58:47 PM
+> Posted on: Thursday, September 7, 2017 1:26:28 PM
