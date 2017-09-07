@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Bangladesh trying to bat its way out of trouble in Chittagong](http://www.abc.net.au/news/image/8881734-1x1-700x700.jpg)
 
-Bangladesh leads Australia but remains in a heap of trouble in the second Test as Nathan Lyon claims a 10-wicket match haul on day four in Chittagong. Follow our live blog.
+Bangladesh leads Australia on day four of the second Test in Chittagong as Nathan Lyon claims his third-straight five-wicket haul. Follow our live blog.
 
 
 Full story on F3News: [Live: Bangladesh trying to bat its way out of trouble in Chittagong](http://www.f3nws.com/n/hxuDsC)
