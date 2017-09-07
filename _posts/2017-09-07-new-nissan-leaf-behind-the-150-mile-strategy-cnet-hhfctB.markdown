@@ -7,7 +7,7 @@ categories: cnet
 
 ![New Nissan Leaf: Behind the 150 mile strategy - CNET](https://cnet3.cbsistatic.com/img/teot1wXOi75D4UIxeA3uY_byUys=/2017/09/07/8e79d817-f52d-4f88-9516-508dbbc2acf4/2018-nissan-leaf-us-16.jpg)
 
-CNET New Nissan Leaf: Behind the 150 mile strategy CNET The new Nissan Leaf is here and a single number stands out: 150. That's the number of miles it can travel on a charge, much less than the 220 miles of Tesla's Model 3 or the Chevy Bolt EV's stout 238 miles. At first blush, it would appear Nissan's ... Nissan's Next-Gen Leaf Drives Farther, Thinks Deeper IEEE Spectrum Redesigned 2018 Nissan Leaf Boasts More Power, Improved Range Edmunds.com Driving The 2018 Nissan Leaf: ProPilot And E-Pedal FTW InsideEVs The Mercury News - CleanTechnica - AutoGuide.com - Business Insider all 91 news articles »
+CNET New Nissan Leaf: Behind the 150 mile strategy CNET The new Nissan Leaf is here and a single number stands out: 150. That's the number of miles it can travel on a charge, much less than the 220 miles of Tesla's Model 3 or the Chevy Bolt EV's stout 238 miles. At first blush, it would appear Nissan's ... Nissan's Next-Gen Leaf Drives Farther, Thinks Deeper IEEE Spectrum Redesigned 2018 Nissan Leaf Boasts More Power, Improved Range Edmunds.com Nissan Electric SUV & Sedan Coming Based On New LEAF CleanTechnica The Mercury News - InsideEVs - AutoGuide.com - Business Insider all 95 news articles »
 
 
 Full story on F3News: [New Nissan Leaf: Behind the 150 mile strategy - CNET](http://www.f3nws.com/n/hhfctB)
