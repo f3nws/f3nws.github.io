@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane watch issued for South Florida ahead of Irma, governor says fuel shortages 'top priority'"
-date: 2017-09-07 15:51:00Z
+date: 2017-09-07 17:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A hurricane watch was issued Thursday morning as Irma, a Category 5 storm with 1
 
 Full story on F3News: [Hurricane watch issued for South Florida ahead of Irma, governor says fuel shortages 'top priority'](http://www.f3nws.com/n/ahdFrF)
 
-> Posted on: Thursday, September 7, 2017 3:51:00 PM
+> Posted on: Thursday, September 7, 2017 5:15:00 PM
