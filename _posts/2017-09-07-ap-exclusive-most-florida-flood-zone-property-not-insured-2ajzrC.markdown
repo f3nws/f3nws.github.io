@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP Exclusive: Most Florida flood zone property not insured"
-date: 2017-09-07 21:26:08Z
+date: 2017-09-07 21:52:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ FORT LAUDERDALE, Fla. (AP) — As Hurricane Irma bears down on Florida, an Assoc
 
 Full story on F3News: [AP Exclusive: Most Florida flood zone property not insured](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 9:26:08 PM
+> Posted on: Thursday, September 7, 2017 9:52:22 PM
