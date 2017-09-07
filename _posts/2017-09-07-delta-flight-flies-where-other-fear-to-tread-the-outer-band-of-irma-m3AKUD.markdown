@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Delta flight flies where other fear to tread: the 'outer band' of Irma"
-date: 2017-09-07 14:30:03Z
+date: 2017-09-07 15:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A Delta Airlines flight — with 173 passengers on board each time — took off 
 
 Full story on F3News: [Delta flight flies where other fear to tread: the 'outer band' of Irma](http://www.f3nws.com/n/m3AKUD)
 
-> Posted on: Thursday, September 7, 2017 2:30:03 PM
+> Posted on: Thursday, September 7, 2017 3:00:03 PM

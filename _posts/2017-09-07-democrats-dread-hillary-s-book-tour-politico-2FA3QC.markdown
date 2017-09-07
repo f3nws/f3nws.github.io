@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Democrats dread Hillary's book tour - Politico](http://static.politico.com/69/9d/0889f9d74f8c9f8af6771f5993bc/11-hillary-clinton-24-gty-1160.jpg)
 
-Politico Democrats dread Hillary's book tour Politico President Donald Trump may be the only person in politics truly excited about Hillary Clinton's book tour. Democratic operatives can't stand the thought of her picking the scabs of 2016, again — the Bernie Sanders divide, the Jim Comey complaints, the ... The Struggle Between Clinton and Sanders Is Not Over New York Times Clinton's score-settling frustrates Democrats The Hill Clinton regrets not hammering Comey 'hard' over email statements Fox News CNBC - Vanity Fair - Slate Magazine (blog) - Newsday all 215 news articles »
+Politico Democrats dread Hillary's book tour Politico President Donald Trump may be the only person in politics truly excited about Hillary Clinton's book tour. Democratic operatives can't stand the thought of her picking the scabs of 2016, again — the Bernie Sanders divide, the Jim Comey complaints, the ... Hanson: Beware of media misinformation, narratives The Mercury News By bashing Bernie Sanders in her new book, Hillary Clinton proves she still doesn't get it CNBC “The Final Torture”: Democrats Bemoan Clinton's Book Tour Vanity Fair Slate Magazine (blog) - Newsday - Voice of America - Washington Examiner all 228 news articles »
 
 
 Full story on F3News: [Democrats dread Hillary's book tour - Politico](http://www.f3nws.com/n/2FA3QC)
