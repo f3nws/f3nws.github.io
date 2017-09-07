@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FEMA still focused on responding to Harvey as Irma looms"
-date: 2017-09-07 00:00:07Z
+date: 2017-09-07 00:28:45Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Faced with the looming threat of dual disasters, the Federal
 
 Full story on F3News: [FEMA still focused on responding to Harvey as Irma looms](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 12:00:07 AM
+> Posted on: Thursday, September 7, 2017 12:28:45 AM
