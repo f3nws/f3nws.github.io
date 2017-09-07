@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Barbuda is literally rubble’: Shocked PM says Irma destroyed 90% of homes on tiny Caribbean island"
-date: 2017-09-07 00:44:05Z
+date: 2017-09-07 00:44:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Houses and infrastructure on Barbuda have been “totally demolished,” Antigua
 
 Full story on F3News: [‘Barbuda is literally rubble’: Shocked PM says Irma destroyed 90% of homes on tiny Caribbean island](http://www.f3nws.com/n/PJKGeF)
 
-> Posted on: Thursday, September 7, 2017 12:44:05 AM
+> Posted on: Thursday, September 7, 2017 12:44:00 AM
