@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barbuda 'is literally rubble,' Prime Minister says"
-date: 2017-09-07 20:22:09Z
+date: 2017-09-07 21:16:04Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Reports of fatalities and widespread damage in northern Caribbean islands began 
 
 Full story on F3News: [Barbuda 'is literally rubble,' Prime Minister says](http://www.f3nws.com/n/nNuv2E)
 
-> Posted on: Thursday, September 7, 2017 8:22:09 PM
+> Posted on: Thursday, September 7, 2017 9:16:04 PM
