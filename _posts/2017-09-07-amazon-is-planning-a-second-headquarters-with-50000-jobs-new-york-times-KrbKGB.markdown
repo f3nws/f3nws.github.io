@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Amazon Is Planning a Second Headquarters With 50000 Jobs - New York Times](https://static01.nyt.com/images/2017/09/08/business/08amazon/08amazon-facebookJumbo.jpg)
 
-New York Times Amazon Is Planning a Second Headquarters With 50000 Jobs New York Times Amazon said on Thursday that it was searching for a second headquarters in North America, a huge new development that would cost as much as $5 billion to build and run, and would house as many as 50,000 employees. The announcement is likely to set ... Amazon is seeking a home for its HQ2, a $5 billion second headquarters somewhere in North America Washington Post Amazon's search for second headquarters likely to set off a race among cities; LA will be in the running Los Angeles Times Cities already want to host Amazon's second headquarters CNNMoney Chicago Tribune - GeekWire - Reuters - Quartz all 204 news articles »
+New York Times Amazon Is Planning a Second Headquarters With 50000 Jobs New York Times Amazon said on Thursday that it was searching for a second headquarters in North America, a huge new development that would cost as much as $5 billion to build and run, and would house as many as 50,000 employees. The announcement is likely to set ... Amazon is seeking a home for its HQ2, a $5 billion second headquarters somewhere in North America Washington Post Chicago eyes big headquarters prize: Amazon's HQ2 Chicago Tribune Amazon's search for second headquarters likely to set off a race among cities; LA will be in the running Los Angeles Times USA TODAY - CNNMoney - GeekWire - CNBC all 218 news articles »
 
 
 Full story on F3News: [Amazon Is Planning a Second Headquarters With 50000 Jobs - New York Times](http://www.f3nws.com/n/KrbKGB)
