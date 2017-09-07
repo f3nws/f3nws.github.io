@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israeli jets reportedly launch strikes on Syrian military facility"
-date: 2017-09-07 11:26:39Z
+date: 2017-09-07 16:39:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Israeli jets fired missiles at a military facility in Syria on Thursday, killing
 
 Full story on F3News: [Israeli jets reportedly launch strikes on Syrian military facility](http://www.f3nws.com/n/qcEdBD)
 
-> Posted on: Thursday, September 7, 2017 11:26:39 AM
+> Posted on: Thursday, September 7, 2017 4:39:45 PM
