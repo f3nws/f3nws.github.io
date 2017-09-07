@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump overrules GOP with deal on spending, debt, Harvey aid"
-date: 2017-09-07 04:19:06Z
+date: 2017-09-07 05:27:50Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump briskly overruled congressional Repub
 
 Full story on F3News: [Trump overrules GOP with deal on spending, debt, Harvey aid](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 4:19:06 AM
+> Posted on: Thursday, September 7, 2017 5:27:50 AM
