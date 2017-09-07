@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma leaves trail of death, destruction as Haiti, Dominican Republic brace for impact"
-date: 2017-09-07 09:25:00Z
+date: 2017-09-07 11:36:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Hurricane Irma – a Category 5 storm with winds as strong as 185 mph -- continu
 
 Full story on F3News: [Irma leaves trail of death, destruction as Haiti, Dominican Republic brace for impact](http://www.f3nws.com/n/Hb3MkD)
 
-> Posted on: Thursday, September 7, 2017 9:25:00 AM
+> Posted on: Thursday, September 7, 2017 11:36:00 AM

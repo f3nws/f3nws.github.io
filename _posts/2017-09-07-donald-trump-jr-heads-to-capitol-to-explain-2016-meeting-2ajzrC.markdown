@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump Jr. heads to Capitol to explain 2016 meeting"
-date: 2017-09-07 11:23:01Z
+date: 2017-09-07 11:50:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's oldest son is scheduled to make his
 
 Full story on F3News: [Donald Trump Jr. heads to Capitol to explain 2016 meeting](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 11:23:01 AM
+> Posted on: Thursday, September 7, 2017 11:50:10 AM
