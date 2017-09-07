@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook: Accounts from Russia bought ads during US campaign"
-date: 2017-09-07 02:57:45Z
+date: 2017-09-07 03:52:52Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Hundreds of fake Facebook accounts, probably run from Russia
 
 Full story on F3News: [Facebook: Accounts from Russia bought ads during US campaign](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 2:57:45 AM
+> Posted on: Thursday, September 7, 2017 3:52:52 AM
