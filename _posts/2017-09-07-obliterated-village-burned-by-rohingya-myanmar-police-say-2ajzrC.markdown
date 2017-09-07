@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obliterated village burned by Rohingya, Myanmar police say"
-date: 2017-09-07 07:17:51Z
+date: 2017-09-07 07:58:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BANGKOK (AP) — Myanmar security officials on Thursday took journalists to a st
 
 Full story on F3News: [Obliterated village burned by Rohingya, Myanmar police say](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 7, 2017 7:17:51 AM
+> Posted on: Thursday, September 7, 2017 7:58:10 AM
