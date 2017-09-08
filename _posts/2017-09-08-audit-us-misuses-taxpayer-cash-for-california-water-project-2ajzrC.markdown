@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Audit: US misuses taxpayer cash for California water project"
-date: 2017-09-08 19:58:06Z
+date: 2017-09-08 20:25:20Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — The U.S. Department of Interior improperly contributed te
 
 Full story on F3News: [Audit: US misuses taxpayer cash for California water project](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 7:58:06 PM
+> Posted on: Friday, September 8, 2017 8:25:20 PM
