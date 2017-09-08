@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Love Your Sister founder Connie Johnson dies](http://www.abc.net.au/news/image/8514328-1x1-700x700.jpg)
 
-Connie Johnson, the founder of the Love Your Sister cancer charity, dies in hospital. Her brother Samuel Johnson has confirmed the news on the charity's Facebook page.
+Connie Johnson, the founder of the Love Your Sister cancer charity, dies in hospital. Connie's death comes just hours after being awarded a Medal of the Order of Australia by the Governor-General.
 
 
 Full story on F3News: [Love Your Sister founder Connie Johnson dies](http://www.f3nws.com/n/2hChEE)
