@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No collusion with Russians, Trump Jr. insists to Congress"
-date: 2017-09-08 01:46:13Z
+date: 2017-09-08 02:26:35Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's eldest son cast his meeting with a 
 
 Full story on F3News: [No collusion with Russians, Trump Jr. insists to Congress](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 1:46:13 AM
+> Posted on: Friday, September 8, 2017 2:26:35 AM
