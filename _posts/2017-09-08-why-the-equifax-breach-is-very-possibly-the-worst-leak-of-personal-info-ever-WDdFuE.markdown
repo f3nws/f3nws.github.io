@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Why the Equifax breach is very possibly the worst leak of personal info ever](https://cdn.arstechnica.net/wp-content/uploads/2015/07/leak-640x215.jpg)
 
-Consumer's most sensitve data is now in the open and will remain so for years to come.
+Consumers' most sensitive data is now in the open and will remain so for years to come.
 
 
 Full story on F3News: [Why the Equifax breach is very possibly the worst leak of personal info ever](http://www.f3nws.com/n/WDdFuE)
