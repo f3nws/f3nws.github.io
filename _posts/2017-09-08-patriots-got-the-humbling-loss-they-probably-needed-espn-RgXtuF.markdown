@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Patriots got the humbling loss they probably needed - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0907%2Fr255282_1296x729_16%2D9.jpg)
 
-ESPN Patriots got the humbling loss they probably needed ESPN FOXBOROUGH, Mass. -- More than any sports franchise on American soil, the New England Patriots refuse to bask in the glories of their past. Bill Belichick won a record fifth Super Bowl title on a record comeback in February, and before he even boarded ... The Patriots' loss to the Chiefs revealed the glaring weakness they may not be able to fix Washington Post Alex Smith Made the Patriots Look Like Clowns Sports Illustrated Patriots' rare, disheartening loss offers harsh dose of reality NFL.com NBCSports.com - NJ.com - USA TODAY - Los Angeles Times all 793 news articles »
+ESPN Patriots got the humbling loss they probably needed ESPN FOXBOROUGH, Mass. -- More than any sports franchise on American soil, the New England Patriots refuse to bask in the glories of their past. Bill Belichick won a record fifth Super Bowl title on a record comeback in February, and before he even boarded ... The Patriots' loss to the Chiefs revealed the glaring weakness they may not be able to fix Washington Post Kareem Hunt's Career Night Comes in First Game Sports Illustrated Patriots know they have to 'be better' in short yardage NFL.com Boston.com - Yahoo Sports - ABC News - Deadline all 838 news articles »
 
 
 Full story on F3News: [Patriots got the humbling loss they probably needed - ESPN](http://www.f3nws.com/n/RgXtuF)

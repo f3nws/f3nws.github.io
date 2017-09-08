@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S. Korea braces for another possible N. Korea missile test"
-date: 2017-09-08 14:17:12Z
+date: 2017-09-08 14:47:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — South Korea is closely watching North Korea over the
 
 Full story on F3News: [S. Korea braces for another possible N. Korea missile test](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 2:17:12 PM
+> Posted on: Friday, September 8, 2017 2:47:22 PM
