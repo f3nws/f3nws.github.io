@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Jose strengthens to a Category 4"
-date: 2017-09-08 15:43:22Z
+date: 2017-09-08 17:04:32Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Jose strengthened to a Category 4 storm Friday with maximum sustained 
 
 Full story on F3News: [Hurricane Jose strengthens to a Category 4](http://www.f3nws.com/n/gcNCeH)
 
-> Posted on: Friday, September 8, 2017 3:43:22 PM
+> Posted on: Friday, September 8, 2017 5:04:32 PM
