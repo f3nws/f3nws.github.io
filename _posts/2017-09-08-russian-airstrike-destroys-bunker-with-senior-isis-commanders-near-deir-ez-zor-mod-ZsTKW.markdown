@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian airstrike destroys bunker with senior ISIS commanders near Deir ez-Zor – MoD"
-date: 2017-09-08 06:02:09Z
+date: 2017-09-08 06:02:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Some 40 Islamic State terrorists, including the so-called “emir of Deir ez-Zor
 
 Full story on F3News: [Russian airstrike destroys bunker with senior ISIS commanders near Deir ez-Zor – MoD](http://www.f3nws.com/n/ZsTKW)
 
-> Posted on: Friday, September 8, 2017 6:02:09 AM
+> Posted on: Friday, September 8, 2017 6:02:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Here's your guide to surviving the Equifax data breach     - CNET"
-date: 2017-09-08 05:30:14Z
+date: 2017-09-08 06:44:34Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ If you think your data was exposed, read this.
 
 Full story on F3News: [Here's your guide to surviving the Equifax data breach     - CNET](http://www.f3nws.com/n/ukCGTF)
 
-> Posted on: Friday, September 8, 2017 5:30:14 AM
+> Posted on: Friday, September 8, 2017 6:44:34 AM
