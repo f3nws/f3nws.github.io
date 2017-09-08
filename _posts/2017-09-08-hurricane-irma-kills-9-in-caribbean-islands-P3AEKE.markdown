@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma kills 9 in Caribbean islands"
-date: 2017-09-08 00:37:41Z
+date: 2017-09-08 01:22:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma hammered a string of northeast Caribbean islands, thrashing them 
 
 Full story on F3News: [Hurricane Irma kills 9 in Caribbean islands](http://www.f3nws.com/n/P3AEKE)
 
-> Posted on: Friday, September 8, 2017 12:37:41 AM
+> Posted on: Friday, September 8, 2017 1:22:21 AM
