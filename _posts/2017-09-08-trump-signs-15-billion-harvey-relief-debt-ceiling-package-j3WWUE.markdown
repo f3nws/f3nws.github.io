@@ -5,6 +5,8 @@ date: 2017-09-08 21:11:00Z
 categories: fox-news
 ---
 
+![Trump signs $15 billion Harvey relief, debt ceiling package](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 President Trump has signed a $15 billion Hurricane Harvey relief bill that includes a short-term suspension of the debt ceiling and funding to keep the government running for the next three months.
 
 
