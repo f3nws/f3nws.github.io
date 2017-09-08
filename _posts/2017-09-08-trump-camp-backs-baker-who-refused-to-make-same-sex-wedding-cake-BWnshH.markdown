@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump camp backs baker who refused to make same-sex wedding cake"
-date: 2017-09-08 07:15:42Z
+date: 2017-09-08 10:41:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration is backing a Colorado baker who refused to create a cak
 
 Full story on F3News: [Trump camp backs baker who refused to make same-sex wedding cake](http://www.f3nws.com/n/BWnshH)
 
-> Posted on: Friday, September 8, 2017 7:15:42 AM
+> Posted on: Friday, September 8, 2017 10:41:23 AM

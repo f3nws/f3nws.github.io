@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Desmond Tutu breaks vow of silence to make Rohingya plea"
-date: 2017-09-08 10:06:23Z
+date: 2017-09-08 10:42:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dozens of Rohingya women and children desperate to flee the violence in Myanmar 
 
 Full story on F3News: [Desmond Tutu breaks vow of silence to make Rohingya plea](http://www.f3nws.com/n/fYhvDJ)
 
-> Posted on: Friday, September 8, 2017 10:06:23 AM
+> Posted on: Friday, September 8, 2017 10:42:48 AM

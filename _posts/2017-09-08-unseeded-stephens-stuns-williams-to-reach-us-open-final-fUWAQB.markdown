@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Unseeded Stephens stuns Williams to reach US Open final"
-date: 2017-09-08 06:24:57Z
+date: 2017-09-08 10:43:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The meteoric rise of Sloane Stephens continues.
 
 Full story on F3News: [Unseeded Stephens stuns Williams to reach US Open final](http://www.f3nws.com/n/fUWAQB)
 
-> Posted on: Friday, September 8, 2017 6:24:57 AM
+> Posted on: Friday, September 8, 2017 10:43:52 AM
