@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Devastating images from the Caribbean"
-date: 2017-09-08 16:22:27Z
+date: 2017-09-08 18:22:43Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma barrels through the Caribbean, leaving catastrophic damage to isl
 
 Full story on F3News: [Devastating images from the Caribbean](http://www.f3nws.com/n/3vChT)
 
-> Posted on: Friday, September 8, 2017 4:22:27 PM
+> Posted on: Friday, September 8, 2017 6:22:43 PM
