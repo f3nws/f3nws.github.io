@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New York's Cardinal Dolan rips Bannon's 'insulting' remarks about church, DACA"
-date: 2017-09-08 12:30:02Z
+date: 2017-09-08 14:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ New York archbishop Cardinal Timothy Dolan fired back Thursday at President Trum
 
 Full story on F3News: [New York's Cardinal Dolan rips Bannon's 'insulting' remarks about church, DACA](http://www.f3nws.com/n/XCyVWF)
 
-> Posted on: Friday, September 8, 2017 12:30:02 PM
+> Posted on: Friday, September 8, 2017 2:00:03 PM
