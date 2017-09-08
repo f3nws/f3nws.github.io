@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mexico Earthquake, Strongest in a Century, Kills Dozens - New York Times](https://static01.nyt.com/images/2017/09/09/world/09mexico-1/09mexico-1-facebookJumbo.jpg)
 
-New York Times Mexico Earthquake, Strongest in a Century, Kills Dozens New York Times The country was struck by an 8.2-magnitude quake, the strongest in decades, killing at least 30 people and leveling areas in some southern states. By CAMILLA SCHICK on Publish Date September 8, 2017. Photo by Pedro Pardo/Agence France-Presse ... Powerful Earthquake Off Southern Mexico Kills At Least 15 People NPR The Latest: Mexico quake matches force of 1932 temblor Washington Post The Latest: Mexico Quake Death Toll Jumps to 32 U.S. News & World Report Chicago Tribune - Reuters - NBCNews.com - Los Angeles Times all 699 news articles »
+New York Times Mexico Earthquake, Strongest in a Century, Kills Dozens New York Times The country was struck by an 8.2-magnitude quake, the strongest in decades, killing at least 30 people and leveling areas in some southern states. By CAMILLA SCHICK on Publish Date September 8, 2017. Photo by Pedro Pardo/Agence France-Presse ... Powerful Earthquake Off Southern Mexico Kills At Least 15 People NPR Mexico hit by biggest quake in a century, at least 32 dead Chicago Tribune From toppled buildings to at least 32 deaths, Mexico's most powerful quake in years prompts chaos Los Angeles Times Washington Post - Reuters - NBCNews.com - Business Insider all 719 news articles »
 
 
 Full story on F3News: [Mexico Earthquake, Strongest in a Century, Kills Dozens - New York Times](http://www.f3nws.com/n/AJfECJ)

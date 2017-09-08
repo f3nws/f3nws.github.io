@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Connie Johnson's long fight to cure cancer"
-date: 2017-09-08 09:22:49Z
+date: 2017-09-08 14:21:16Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ Faced with a terminal cancer diagnosis, Connie Johnson didn't retreat. She vowed
 
 Full story on F3News: [Connie Johnson's long fight to cure cancer](http://www.f3nws.com/n/HvuUd)
 
-> Posted on: Friday, September 8, 2017 9:22:49 AM
+> Posted on: Friday, September 8, 2017 2:21:16 PM
