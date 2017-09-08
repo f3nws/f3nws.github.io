@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Strongest quake to hit Mexico in a century kills at least 16"
-date: 2017-09-08 12:21:02Z
+date: 2017-09-08 13:16:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An 8.1-magnitude earthquake struck off the coast of southern Mexico early Friday
 
 Full story on F3News: [Strongest quake to hit Mexico in a century kills at least 16](http://www.f3nws.com/n/2cFADC)
 
-> Posted on: Friday, September 8, 2017 12:21:02 PM
+> Posted on: Friday, September 8, 2017 1:16:56 PM

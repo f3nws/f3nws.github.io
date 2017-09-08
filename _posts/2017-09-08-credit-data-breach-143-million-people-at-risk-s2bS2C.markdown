@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Credit data breach: 143 million people at risk"
-date: 2017-09-08 08:53:59Z
+date: 2017-09-08 13:23:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Credit data breach: 143 million people at risk](http://www.f3nws.com/n/s2bS2C)
 
-> Posted on: Friday, September 8, 2017 8:53:59 AM
+> Posted on: Friday, September 8, 2017 1:23:45 PM
