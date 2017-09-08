@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Equifax data breach may affect nearly half the US population     - CNET"
-date: 2017-09-08 01:38:39Z
+date: 2017-09-08 02:51:13Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Hackers steal sensitive personal information on up to 143 million people from th
 
 Full story on F3News: [Equifax data breach may affect nearly half the US population     - CNET](http://www.f3nws.com/n/eJQutE)
 
-> Posted on: Friday, September 8, 2017 1:38:39 AM
+> Posted on: Friday, September 8, 2017 2:51:13 AM
