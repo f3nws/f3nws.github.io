@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As travelers flee Irma, police shoot man at Miami airport"
-date: 2017-09-08 06:46:12Z
+date: 2017-09-08 07:27:14Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Police shot a man who wielded a knife and tried to get into a Miami airport term
 
 Full story on F3News: [As travelers flee Irma, police shoot man at Miami airport](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 6:46:12 AM
+> Posted on: Friday, September 8, 2017 7:27:14 AM
