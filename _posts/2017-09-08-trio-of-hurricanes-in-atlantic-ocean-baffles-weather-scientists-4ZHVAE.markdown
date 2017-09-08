@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Trio of hurricanes in Atlantic Ocean baffles weather scientists](http://www.abc.net.au/news/image/8885308-1x1-700x700.jpg)
 
-Three hurricanes in the Atlantic Ocean could all make landfall simultaneously in a weather event scientists say is "unparalleled here and totally ridiculous".
+Three hurricanes in the Atlantic Ocean could all make landfall simultaneously in a weather event scientists say is "unparalleled and totally ridiculous".
 
 
 Full story on F3News: [Trio of hurricanes in Atlantic Ocean baffles weather scientists](http://www.f3nws.com/n/4ZHVAE)
