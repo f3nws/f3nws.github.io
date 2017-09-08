@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Why Hurricane Irma Could Hurt, a Lot: Much Lies in Harm's Way - New York Times](https://static01.nyt.com/images/2017/09/08/climate/08HURRICANERISK-miami-beach/miami-beach-facebookJumbo.jpg)
 
-New York Times Why Hurricane Irma Could Hurt, a Lot: Much Lies in Harm's Way New York Times Miami Beach a year before the Category 4 storm of 1926, and this year. The reinsurance firm Swiss Re estimates that a similar storm would inflict more than $200 billion in damage if it hit Miami today. Credit Left, via State Archives of Florida; right ... Hurricane Irma will batter Florida and 'devastate the United States,' officials warn Washington Post Evacuate now and avoid Irma's wrath: 'You can always party later' CNN Hurricane Irma puts Florida directly in its path as time to evacuate is running out Los Angeles Times CBS News - BBC News - Baltimore Sun - The Atlantic all 12,869 news articles »
+New York Times Why Hurricane Irma Could Hurt, a Lot: Much Lies in Harm's Way New York Times Miami Beach a year before the Category 4 storm of 1926, and this year. The reinsurance firm Swiss Re estimates that a similar storm would inflict more than $200 billion in damage if it hit Miami today. Credit Left, via State Archives of Florida; right ... The deadly danger from Miami's ubiquitous cranes BBC News Wait and see for fliers at Miami airport: Some depart, others stranded for Irma USA TODAY At Miami Construction Sites, the Cleanup Begins Before Irma Hits Bloomberg NPR - ABC News - SFGate - BuzzFeed News all 417 news articles »
 
 
 Full story on F3News: [Why Hurricane Irma Could Hurt, a Lot: Much Lies in Harm's Way - New York Times](http://www.f3nws.com/n/eB3CfH)

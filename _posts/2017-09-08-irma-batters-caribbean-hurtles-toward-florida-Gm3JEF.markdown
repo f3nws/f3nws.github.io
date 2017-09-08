@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma batters Caribbean, hurtles toward Florida"
-date: 2017-09-08 18:38:36Z
+date: 2017-09-08 19:44:49Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma, a Category 5 storm, hurtled through the Caribbean, leaving catas
 
 Full story on F3News: [Irma batters Caribbean, hurtles toward Florida](http://www.f3nws.com/n/Gm3JEF)
 
-> Posted on: Friday, September 8, 2017 6:38:36 PM
+> Posted on: Friday, September 8, 2017 7:44:49 PM
