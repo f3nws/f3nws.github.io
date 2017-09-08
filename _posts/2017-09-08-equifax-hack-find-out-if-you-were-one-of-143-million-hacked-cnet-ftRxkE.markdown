@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Equifax hack: Find out if you were one of 143 million hacked     - CNET"
-date: 2017-09-08 00:56:50Z
+date: 2017-09-08 01:33:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ This breach of personal data potentially affects a vast number of people in the 
 
 Full story on F3News: [Equifax hack: Find out if you were one of 143 million hacked     - CNET](http://www.f3nws.com/n/ftRxkE)
 
-> Posted on: Friday, September 8, 2017 12:56:50 AM
+> Posted on: Friday, September 8, 2017 1:33:43 AM
