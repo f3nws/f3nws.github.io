@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: US taxpayer money misused for water project"
-date: 2017-09-08 18:49:39Z
+date: 2017-09-08 19:17:04Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — The U.S. government improperly spent $84 million to help 
 
 Full story on F3News: [APNewsBreak: US taxpayer money misused for water project](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 6:49:39 PM
+> Posted on: Friday, September 8, 2017 7:17:04 PM

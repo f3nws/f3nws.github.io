@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly 8.1-magnitude quake strikes off southern Mexico coast"
-date: 2017-09-08 17:39:15Z
+date: 2017-09-08 19:03:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A strong earthquake hit off the coast of southern Mexico, near the border with G
 
 Full story on F3News: [Deadly 8.1-magnitude quake strikes off southern Mexico coast](http://www.f3nws.com/n/2cFADC)
 
-> Posted on: Friday, September 8, 2017 5:39:15 PM
+> Posted on: Friday, September 8, 2017 7:03:32 PM
