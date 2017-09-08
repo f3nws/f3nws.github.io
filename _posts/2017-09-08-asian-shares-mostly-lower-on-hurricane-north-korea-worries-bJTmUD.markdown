@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asian shares mostly lower on hurricane, North Korea worries"
-date: 2017-09-08 02:22:43Z
+date: 2017-09-08 03:00:15Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ TOKYO (AP) — Asian shares mostly slipped Friday as worries remained about the 
 
 Full story on F3News: [Asian shares mostly lower on hurricane, North Korea worries](http://www.f3nws.com/n/bJTmUD)
 
-> Posted on: Friday, September 8, 2017 2:22:43 AM
+> Posted on: Friday, September 8, 2017 3:00:15 AM
