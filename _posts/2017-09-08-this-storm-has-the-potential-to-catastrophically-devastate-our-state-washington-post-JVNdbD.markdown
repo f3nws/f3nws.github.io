@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['This storm has the potential to catastrophically devastate our state' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/08/Others/Images/2017-09-07/_NN26204-2.jpg?t=20170517)
 
-Fortune 'This storm has the potential to catastrophically devastate our state' Washington Post MIAMI — Florida officials urged residents in flood-prone coastal communities to get out while they can, ordering evacuations in the face of oncoming Hurricane Irma, which could make landfall Sunday and inflict massive destruction not seen in the state ... Seminoles, Gators cancel games as Hurricane Irma approaches Florida ESPN Devastation in the Caribbean as Hurricane Irma Heads Toward Miami New York Times Hurricane Irma: Hurricane and storm surge warning issued for south Florida CBS News CNN - ABC News - Fox News - Los Angeles Times all 9,968 news articles »
+Pittsburgh Post-Gazette 'This storm has the potential to catastrophically devastate our state' Washington Post MIAMI — Florida officials urged residents in flood-prone coastal communities to get out while they can, ordering evacuations in the face of oncoming Hurricane Irma, which could make landfall Sunday and inflict massive destruction not seen in the state ... Seminoles, Gators cancel games as Hurricane Irma approaches Florida ESPN Hurricane Irma: Hurricane and storm surge warning issued for south Florida CBS News Floridians jam highways to flee wrath of Hurricane Irma CNN New York Times - ABC News - Chicago Tribune - USA TODAY all 11,458 news articles »
 
 
 Full story on F3News: ['This storm has the potential to catastrophically devastate our state' - Washington Post](http://www.f3nws.com/n/JVNdbD)
