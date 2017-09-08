@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Residents cough, rub eyes in Harvey pollution spike"
-date: 2017-09-08 15:52:45Z
+date: 2017-09-08 16:20:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ GALENA PARK, Texas (AP) — Cindy Sanchez began to feel ill while barbecuing jus
 
 Full story on F3News: [Residents cough, rub eyes in Harvey pollution spike](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 3:52:45 PM
+> Posted on: Friday, September 8, 2017 4:20:03 PM
