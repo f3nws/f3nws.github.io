@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Equifax breach exposes 143 million people to identity theft"
-date: 2017-09-08 05:23:54Z
+date: 2017-09-08 05:51:23Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — Credit monitoring company Equifax has been hit by a high-
 
 Full story on F3News: [Equifax breach exposes 143 million people to identity theft](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 5:23:54 AM
+> Posted on: Friday, September 8, 2017 5:51:23 AM
