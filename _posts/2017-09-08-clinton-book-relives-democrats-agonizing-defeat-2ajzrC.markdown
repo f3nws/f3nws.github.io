@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton book relives Democrats' agonizing defeat"
-date: 2017-09-08 22:16:10Z
+date: 2017-09-08 22:55:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — In a candid and pointed new book, Hillary Clinton relives her 
 
 Full story on F3News: [Clinton book relives Democrats' agonizing defeat](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 10:16:10 PM
+> Posted on: Friday, September 8, 2017 10:55:16 PM
