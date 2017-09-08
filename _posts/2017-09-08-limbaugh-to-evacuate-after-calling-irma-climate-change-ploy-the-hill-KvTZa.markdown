@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Limbaugh to evacuate after calling Irma climate change ploy - The Hill](http://thehill.com/sites/default/files/climateflooding_hurricaneharvey_082717.jpg)
 
-The Inquisitr Limbaugh to evacuate after calling Irma climate change ploy The Hill Rush Limbaugh will be evacuating his home in Palm Beach, Fla., just days after stating that creating panic around hurricanes helps advance a climate change agenda. “May as well announce this. I'm not going to get into details because of the security ... Rush Limbaugh Says Hurricane Irma Is Conspiracy, Evacuates Anyway HuffPost Rush Limbaugh Is Now Running From Irma, Days After Mocking Storm as Liberal Conspiracy Mother Jones Hurricane Irma meets Hurricane Limbaugh in battle of the mighty winds MyPalmBeachPost Business Insider - Death and Taxes - Splinter (blog) - Fox News all 68 news articles »
+Salon Limbaugh to evacuate after calling Irma climate change ploy The Hill Rush Limbaugh will be evacuating his home in Palm Beach, Fla., just days after stating that creating panic around hurricanes helps advance a climate change agenda. “May as well announce this. I'm not going to get into details because of the security ... Limbaugh evacuates South Florida after claiming Hurricane Irma was a liberal hoax ThinkProgress Rush Limbaugh flees South Florida after telling listeners Hurricane Irma is a liberal hoax Death and Taxes Rush Limbaugh Is Evacuating from Florida, Despite Insisting that Hurricane Irma is a Hoax Splinter (blog) Washington Post all 71 news articles »
 
 
 Full story on F3News: [Limbaugh to evacuate after calling Irma climate change ploy - The Hill](http://www.f3nws.com/n/KvTZa)
