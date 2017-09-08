@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House heads toward passage of Harvey aid bill, debt hike"
-date: 2017-09-08 08:49:23Z
+date: 2017-09-08 09:16:31Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Conservative grumbling aside, the House is heading toward ba
 
 Full story on F3News: [House heads toward passage of Harvey aid bill, debt hike](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 8, 2017 8:49:23 AM
+> Posted on: Friday, September 8, 2017 9:16:31 AM
