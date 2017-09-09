@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt unveils newly-found ancient tomb"
-date: 2017-09-09 13:15:45Z
+date: 2017-09-09 18:45:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Egyptian authorities unveiled a previously undiscovered ancient tomb belonging t
 
 Full story on F3News: [Egypt unveils newly-found ancient tomb](http://www.f3nws.com/n/yXxgPF)
 
-> Posted on: Saturday, September 9, 2017 1:15:45 PM
+> Posted on: Saturday, September 9, 2017 6:45:07 PM
