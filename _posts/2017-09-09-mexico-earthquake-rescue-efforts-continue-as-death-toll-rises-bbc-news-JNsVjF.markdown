@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mexico earthquake: Rescue efforts continue as death toll rises - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05fk8bx.jpg)
 
-BBC News Mexico earthquake: Rescue efforts continue as death toll rises BBC News The race to rescue those trapped in the rubble continues, more than 24 hours after a powerful earthquake struck off Mexico's southern coast. The 8.1 magnitude quake left at least 61 people dead, according to officials. Another 200 people were injured, ... Mexico Earthquake, Strongest in a Century, Kills Dozens New York Times Mexico Earthquake Death Toll Climbs as Dozens Sleep on Streets NBCNews.com Hurricane versus earthquake: A reporter contemplates natural disasters Los Angeles Times NPR - Sacramento Bee - The Mercury News - Daily Beast all 1,124 news articles »
+BBC News Mexico earthquake: Rescue efforts continue as death toll rises BBC News The race to rescue those trapped in the rubble continues, more than 24 hours after a powerful earthquake struck off Mexico's southern coast. The 8.1 magnitude quake left at least 61 people dead, according to officials. Another 200 people were injured, ... Death toll rises in aftermath of powerful earthquake in Mexico CBS News Hurricane Katia makes landfall in Mexico following deadly earthquake Fox News Mexico Earthquake, Strongest in a Century, Kills Dozens New York Times Los Angeles Times - NPR - ABC Online - NBCNews.com all 1,155 news articles »
 
 
 Full story on F3News: [Mexico earthquake: Rescue efforts continue as death toll rises - BBC News](http://www.f3nws.com/n/JNsVjF)
