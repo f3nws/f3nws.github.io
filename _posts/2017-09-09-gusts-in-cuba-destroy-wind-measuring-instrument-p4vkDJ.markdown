@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gusts in Cuba destroy wind-measuring instrument"
-date: 2017-09-09 15:35:46Z
+date: 2017-09-09 17:38:25Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma slammed northern Cuba on Saturday, continuing its path of devasta
 
 Full story on F3News: [Gusts in Cuba destroy wind-measuring instrument](http://www.f3nws.com/n/p4vkDJ)
 
-> Posted on: Saturday, September 9, 2017 3:35:46 PM
+> Posted on: Saturday, September 9, 2017 5:38:25 PM
