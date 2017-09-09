@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Christian school urges 'no' to same-sex marriage in letter to parents as 'yes' supporters rally - ABC Online](http://www.abc.net.au/news/image/8888834-1x1-700x700.jpg)
 
-ABC Online Christian school urges 'no' to same-sex marriage in letter to parents as 'yes' supporters rally ABC Online An Adelaide Christian school has sent a letter home to parents urging them to vote 'no' in the upcoming postal survey on same-sex marriage. The letter came to light as groups on the other side of the debate rallied in support of same-sex marriage ... and more »
+ABC Online Christian school urges 'no' to same-sex marriage in letter to parents as 'yes' supporters rally ABC Online An Adelaide Christian school has sent a letter home to parents urging them to vote 'no' in the upcoming postal survey on same-sex marriage. The letter came to light as groups on the other side of the debate rallied in support of same-sex marriage ... Adelaide principal 'disgusts' parents with no vote letter, as Christians unite to say yes Yahoo7 News all 2 news articles »
 
 
 Full story on F3News: [Christian school urges 'no' to same-sex marriage in letter to parents as 'yes' supporters rally - ABC Online](http://www.f3nws.com/n/2RJhQE)
