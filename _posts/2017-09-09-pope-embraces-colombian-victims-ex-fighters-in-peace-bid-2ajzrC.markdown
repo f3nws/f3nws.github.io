@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope embraces Colombian victims, ex-fighters in peace bid"
-date: 2017-09-09 10:18:21Z
+date: 2017-09-09 10:46:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ VILLAVICENCIO, Colombia (AP) — Pope Francis brought together thousands of vict
 
 Full story on F3News: [Pope embraces Colombian victims, ex-fighters in peace bid](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 9, 2017 10:18:21 AM
+> Posted on: Saturday, September 9, 2017 10:46:27 AM
