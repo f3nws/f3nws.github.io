@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Demolished by Irma, Barbuda braces for Jose"
-date: 2017-09-09 06:36:27Z
+date: 2017-09-09 16:19:28Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The tiny Caribbean island of Barbuda has no time to clean up the major devastati
 
 Full story on F3News: [Demolished by Irma, Barbuda braces for Jose](http://www.f3nws.com/n/bNZyND)
 
-> Posted on: Saturday, September 9, 2017 6:36:27 AM
+> Posted on: Saturday, September 9, 2017 4:19:28 PM
