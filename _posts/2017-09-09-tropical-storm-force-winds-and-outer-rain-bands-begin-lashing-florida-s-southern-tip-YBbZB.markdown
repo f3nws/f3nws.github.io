@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical storm force-winds and outer rain bands begin lashing Florida's southern tip"
-date: 2017-09-09 16:26:31Z
+date: 2017-09-09 16:49:39Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma tore through northern Cuba during its long, destructive march tow
 
 Full story on F3News: [Tropical storm force-winds and outer rain bands begin lashing Florida's southern tip](http://www.f3nws.com/n/YBbZB)
 
-> Posted on: Saturday, September 9, 2017 4:26:31 PM
+> Posted on: Saturday, September 9, 2017 4:49:39 PM
