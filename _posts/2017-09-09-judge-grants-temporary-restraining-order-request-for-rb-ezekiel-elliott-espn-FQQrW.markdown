@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Judge grants temporary restraining order request for RB Ezekiel Elliott - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0811%2Fr242748_1296x729_16%2D9.jpg)
 
-ESPN Judge grants temporary restraining order request for RB Ezekiel Elliott ESPN FRISCO, Texas -- Federal judge Amos Mazzant on Friday granted a request by the NFL Players Association for a temporary restraining order and preliminary injunction to prevent the implementation of the six-game suspension for Dallas Cowboys running ... Ezekiel Elliott gets preliminary injunction; ban on hold NFL.com What the Ezekiel Elliott Decision Means for Him, the NFL and Other Players Sports Illustrated Federal judge grants injunction keeping Cowboys' Ezekiel Elliott eligible to play Washington Post Bleacher Report - CBSSports.com - New York Post - SB Nation all 159 news articles »
+ESPN Judge grants temporary restraining order request for RB Ezekiel Elliott ESPN FRISCO, Texas -- Federal judge Amos Mazzant on Friday granted a request by the NFL Players Association for a temporary restraining order and preliminary injunction to prevent the implementation of the six-game suspension for Dallas Cowboys running ... Ezekiel Elliott gets preliminary injunction; ban on hold NFL.com Federal judge grants injunction keeping Cowboys' Ezekiel Elliott eligible to play Washington Post What the Ezekiel Elliott Decision Means for Him, the NFL and Other Players Sports Illustrated NBCSports.com - Bleacher Report - FOXSports.com - Dallas News (blog) all 182 news articles »
 
 
 Full story on F3News: [Judge grants temporary restraining order request for RB Ezekiel Elliott - ESPN](http://www.f3nws.com/n/FQQrW)
