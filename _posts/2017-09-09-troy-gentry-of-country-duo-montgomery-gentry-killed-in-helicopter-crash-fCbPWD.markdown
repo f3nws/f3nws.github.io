@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Troy Gentry, of country duo Montgomery Gentry, killed in helicopter crash"
-date: 2017-09-09 02:15:36Z
+date: 2017-09-09 02:28:13Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Troy Gentry, one half of country duo Montgomery Gentry, has died following a hel
 
 Full story on F3News: [Troy Gentry, of country duo Montgomery Gentry, killed in helicopter crash](http://www.f3nws.com/n/fCbPWD)
 
-> Posted on: Saturday, September 9, 2017 2:15:36 AM
+> Posted on: Saturday, September 9, 2017 2:28:13 AM

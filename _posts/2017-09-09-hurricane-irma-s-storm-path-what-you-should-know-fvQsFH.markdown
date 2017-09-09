@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma's storm path: What you should know"
-date: 2017-09-09 00:00:00Z
+date: 2017-09-09 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The National Hurricane Center has warned that Hurricane Irma is likely to slam i
 
 Full story on F3News: [Hurricane Irma's storm path: What you should know](http://www.f3nws.com/n/fvQsFH)
 
-> Posted on: Saturday, September 9, 2017 12:00:00 AM
+> Posted on: Saturday, September 9, 2017 2:15:00 AM

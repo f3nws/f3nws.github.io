@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What would happen if North Korea fires a missile at the US"
-date: 2017-09-09 00:15:00Z
+date: 2017-09-09 02:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Last month, Defense Secretary Jim Mattis said if North Korea follows through on 
 
 Full story on F3News: [What would happen if North Korea fires a missile at the US](http://www.f3nws.com/n/vdhnGB)
 
-> Posted on: Saturday, September 9, 2017 12:15:00 AM
+> Posted on: Saturday, September 9, 2017 2:45:00 AM
