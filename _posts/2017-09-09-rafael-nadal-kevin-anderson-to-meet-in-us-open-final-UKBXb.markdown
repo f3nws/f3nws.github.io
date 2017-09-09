@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rafael Nadal, Kevin Anderson to meet in US Open final"
-date: 2017-09-09 03:22:00Z
+date: 2017-09-09 03:43:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rafael Nadal made sure there wouldn't be a repeat of 2009.
 
 Full story on F3News: [Rafael Nadal, Kevin Anderson to meet in US Open final](http://www.f3nws.com/n/UKBXb)
 
-> Posted on: Saturday, September 9, 2017 3:22:00 AM
+> Posted on: Saturday, September 9, 2017 3:43:01 AM
