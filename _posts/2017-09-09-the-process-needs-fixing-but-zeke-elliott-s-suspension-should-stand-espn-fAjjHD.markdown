@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The process needs fixing, but Zeke Elliott's suspension should stand - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0510%2Fr208458_1296x729_16%2D9.jpg)
 
-ESPN The process needs fixing, but Zeke Elliott's suspension should stand ESPN The federal judge in the Ezekiel Elliott case just Richard Berman-ed the NFL. You remember Berman, right? He was the U.S. District Court judge who temporarily sucked the air out of Deflategate, setting Tom Brady free to play the 2015 season while ... Elliott ruling points to “varying” nature of Lisa Friel's testimony NBCSports.com Ezekiel Elliott gets preliminary injunction; ban on hold NFL.com What the Ezekiel Elliott Decision Means for Him, the NFL and Other Players Sports Illustrated Washington Post - Bleacher Report - Dallas News (blog) - SB Nation all 179 news articles »
+ESPN The process needs fixing, but Zeke Elliott's suspension should stand ESPN The federal judge in the Ezekiel Elliott case just Richard Berman-ed the NFL. You remember Berman, right? He was the U.S. District Court judge who temporarily sucked the air out of Deflategate, setting Tom Brady free to play the 2015 season while ... Ezekiel Elliott gets preliminary injunction; ban on hold NFL.com Elliott ruling points to “varying” nature of Lisa Friel's testimony NBCSports.com Federal judge grants injunction keeping Cowboys' Ezekiel Elliott eligible to play Washington Post Sports Illustrated - Dallas News (blog) - FOXSports.com - Bleacher Report all 182 news articles »
 
 
 Full story on F3News: [The process needs fixing, but Zeke Elliott's suspension should stand - ESPN](http://www.f3nws.com/n/fAjjHD)
