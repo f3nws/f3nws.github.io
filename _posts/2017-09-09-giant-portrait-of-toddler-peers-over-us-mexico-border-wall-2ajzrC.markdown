@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Giant portrait of toddler peers over US-Mexico border wall"
-date: 2017-09-09 04:50:16Z
+date: 2017-09-09 05:17:25Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TECATE, Calif. (AP) — A photo of a giant toddler stands in Mexico and peers ov
 
 Full story on F3News: [Giant portrait of toddler peers over US-Mexico border wall](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 9, 2017 4:50:16 AM
+> Posted on: Saturday, September 9, 2017 5:17:25 AM
