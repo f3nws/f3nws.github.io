@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Construction cranes loom as dangerous hazard as Irma approaches Florida - New York Post](https://thenypost.files.wordpress.com/2017/09/cranesfeature.jpg?quality=90&strip=all&w=1200)
 
-New York Post Construction cranes loom as dangerous hazard as Irma approaches Florida New York Post MIAMI — As Hurricane Irma threatens to pound Miami with winds of mind-boggling power, a heavyweight hazard looms over the city's skyline: two dozen enormous construction cranes. follow the story. Construction cranes loom as dangerous hazard as Irma ... 'It's All Hands on Deck.' Inside Miami's Hurricane Response Hub TIME Patience in short supply as desperation sets in among South Florida residents still in Hurricane Irma's path Los Angeles Times Evacuees go to Miami-Dade shelters, but find closed doors at some, others full Miami Herald Washington Post - Fox News - NPR - Washington Examiner all 486 news articles »
+New York Post Construction cranes loom as dangerous hazard as Irma approaches Florida New York Post MIAMI — As Hurricane Irma threatens to pound Miami with winds of mind-boggling power, a heavyweight hazard looms over the city's skyline: two dozen enormous construction cranes. follow the story. Irma could wreak havoc on Florida superfund sites ... 'It's All Hands on Deck.' Inside Miami's Hurricane Response Hub TIME In Florida, Anyone With a Plane Is Flying Away From Irma Bloomberg The deadly danger from Miami's ubiquitous cranes BBC News Local 10 - Fox News - NPR - Los Angeles Times all 458 news articles »
 
 
 Full story on F3News: [Construction cranes loom as dangerous hazard as Irma approaches Florida - New York Post](http://www.f3nws.com/n/c3kp3)
