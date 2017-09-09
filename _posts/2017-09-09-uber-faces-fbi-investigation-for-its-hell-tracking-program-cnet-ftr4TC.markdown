@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber faces FBI investigation for its 'Hell' tracking program     - CNET"
-date: 2017-09-09 00:02:37Z
+date: 2017-09-09 00:37:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The authorities are looking into whether the ride-hailing company illegally used
 
 Full story on F3News: [Uber faces FBI investigation for its 'Hell' tracking program     - CNET](http://www.f3nws.com/n/ftr4TC)
 
-> Posted on: Saturday, September 9, 2017 12:02:37 AM
+> Posted on: Saturday, September 9, 2017 12:37:16 AM

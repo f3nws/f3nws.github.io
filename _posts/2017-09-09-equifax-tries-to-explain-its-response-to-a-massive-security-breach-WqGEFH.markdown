@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Equifax tries to explain its response to a massive security breach"
+date: 2017-09-09 01:38:00Z
+categories: engadget
+---
+
+![Equifax tries to explain its response to a massive security breach](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D6000%252C4000%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1067%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F37860559270de944440ea68dfcd519cc%252F203151753%252Fstock-photo-a-penetrated-lock-security-with-a-hole-on-computer-circuit-board-background-275967710.jpg%26client%3Da1acac3e1b3290917d92%26signature%3Dd8723e3e4eda4fed618aef38499e3c4ff3602b2e&client=cbc79c14efcebee57402&signature=c05daee87c06add7e30c6e13e90f562baf643b5a)
+
+A day after announcing that hackers stole personal information tied to 143 million people in the US , Equifax's response to the breach has come under scrutiny. Language on the website where people could find out if they were affected seemed to say that by signing up they would waive any right to join a class action suit against the company -- something New York Attorney General Eric Schneiderman said is "unacceptable and unenforceable." The company has since explained it does not apply to the data breach at all, but that hasn't stopped misinformation from spreading. After conversations w my office, @Equifax has clarified its policy re: arbitration. We are continuing to closely review. pic.twitter.com/WcPZ9OqMcL — Eric Schneiderman (@AGSchneiderman) September 8, 2017 Equifax: In response to consumer inquiries, we have made it clear that the arbitration clause and class action waiver included in the Equifax and TrustedID Premier terms of use does not apply to this cybersecurity incident, Of course, considering the extent of what has leaked and the number of people affected, a hyperbolic reaction to anything surrounding this incident is understandable. Still, there are a few steps that people can and should take, now that we know someone has stolen more than enough information to perpetrate identity theft on a massive scale. Now that the language has been clarified, it appears legally clear to use Equifax's website to check things out. Among Engadget staff, a few of us received notices that we aren't among those impacted, but most weren't so lucky. Still, there are questions about how secure the site itself is, since it requests the last six digits of each person' social security number (and guessing first three isn't as hard as you might think). Also, it doesn't appear to work particularly well , responding to test and "gibberish" input with a claim that it's part of the breach also. The best information on how to respond is available from the FTC . The government agency lays out solid next steps, like checking your credit report for any suspicious entries, a...
+
+
+Full story on F3News: [Equifax tries to explain its response to a massive security breach](http://www.f3nws.com/n/WqGEFH)
+
+> Posted on: Saturday, September 9, 2017 1:38:00 AM
