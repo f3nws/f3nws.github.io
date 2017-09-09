@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['Trump betrays everyone': The president has a long record as an unpredictable ally - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/07/National-Politics/Videos/Images/t_1504807979560_name_843388456.jpg?t=20170517)
 
-Washington Post 'Trump betrays everyone': The president has a long record as an unpredictable ally Washington Post President Trump prepared for the pivotal meeting with congressional leaders by huddling with his senior team — his chief of staff, his legislative director and the heads of Treasury and the Office of Management and Budget — to game out various ... GOP struggles to control its own agenda Politico THE MEMO: Trump puts the GOP on notice The Hill House Passes Hurricane Aid and Raises Debt Ceiling New York Times Los Angeles Times - U.S. News & World Report - Bloomberg - Newsweek all 391 news articles »
+Washington Post 'Trump betrays everyone': The president has a long record as an unpredictable ally Washington Post President Trump prepared for the pivotal meeting with congressional leaders by huddling with his senior team — his chief of staff, his legislative director and the heads of Treasury and the Office of Management and Budget — to game out various ... GOP struggles to control its own agenda Politico House Passes Hurricane Aid and Raises Debt Ceiling New York Times House Republicans Fume At Trump Administration In Private Meeting NPR Los Angeles Times - U.S. News & World Report - Bloomberg - ABC News all 1,893 news articles »
 
 
 Full story on F3News: ['Trump betrays everyone': The president has a long record as an unpredictable ally - Washington Post](http://www.f3nws.com/n/QnqVEH)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricanes drive addiction issues into public square"
-date: 2017-09-09 18:28:49Z
+date: 2017-09-09 18:56:01Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ In the whirr of preparations for Hurricane Irma, a needle exchange program in Mi
 
 Full story on F3News: [Hurricanes drive addiction issues into public square](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 9, 2017 6:28:49 PM
+> Posted on: Saturday, September 9, 2017 6:56:01 PM
