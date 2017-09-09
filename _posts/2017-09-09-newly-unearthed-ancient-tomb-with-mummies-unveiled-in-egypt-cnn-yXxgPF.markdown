@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Newly unearthed ancient tomb with mummies unveiled in Egypt - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170909112110-egypt-tomb-3-super-tease.jpeg)
 
-CNN Newly unearthed ancient tomb with mummies unveiled in Egypt CNN Luxor, Egypt (CNN) Egyptian authorities unveiled a previously undiscovered ancient tomb belonging to a goldsmith and his wife near Luxor in southern Egypt on Saturday. The tomb, at the Draa Abul Nagaa necropolis, contains "mummies, sarcophagi, ... New mummies discovered in tomb near Luxor, Egypt BBC News Ancient Goldsmith's Tomb Filled with Mummies Discovered in Luxor Live Science Egypt announces discovery of 3500-years old tomb in Luxor ABC News U.S. News & World Report - Independent.ie - TIME - Daily Mail all 37 news articles »
+CNN Newly unearthed ancient tomb with mummies unveiled in Egypt CNN Luxor, Egypt (CNN) Egyptian authorities unveiled a previously undiscovered ancient tomb belonging to a goldsmith and his wife near Luxor in southern Egypt on Saturday. The tomb, at the Draa Abul Nagaa necropolis, contains "mummies, sarcophagi, ... New mummies discovered in tomb near Luxor, Egypt BBC News Egypt announces discovery of 3500-years old tomb in Luxor Sacramento Bee 3500-year-old tomb discovered in Egypt Fox News Live Science - Independent.ie - Los Angeles Times - Daily Mail all 37 news articles »
 
 
 Full story on F3News: [Newly unearthed ancient tomb with mummies unveiled in Egypt - CNN](http://www.f3nws.com/n/yXxgPF)
