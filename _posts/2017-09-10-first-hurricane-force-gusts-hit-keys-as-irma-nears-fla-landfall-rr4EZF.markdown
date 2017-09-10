@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First hurricane-force gusts hit Keys as Irma nears Fla. landfall"
-date: 2017-09-10 06:00:03Z
+date: 2017-09-10 06:30:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A hurricane-force wind gust was recorded in the Florida Keys late Saturday night
 
 Full story on F3News: [First hurricane-force gusts hit Keys as Irma nears Fla. landfall](http://www.f3nws.com/n/rr4EZF)
 
-> Posted on: Sunday, September 10, 2017 6:00:03 AM
+> Posted on: Sunday, September 10, 2017 6:30:02 AM
