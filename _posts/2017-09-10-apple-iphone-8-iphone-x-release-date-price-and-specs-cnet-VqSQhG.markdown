@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone 8 / iPhone X Release Date, Price and Specs     - CNET"
-date: 2017-09-10 18:57:33Z
+date: 2017-09-10 20:12:20Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ New leaks reveal phone names, lift the curtain on Animojis.
 
 Full story on F3News: [Apple iPhone 8 / iPhone X Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/VqSQhG)
 
-> Posted on: Sunday, September 10, 2017 6:57:33 PM
+> Posted on: Sunday, September 10, 2017 8:12:20 PM
