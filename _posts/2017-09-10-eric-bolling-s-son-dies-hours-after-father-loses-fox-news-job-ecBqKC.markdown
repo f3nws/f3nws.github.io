@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eric Bolling's son dies hours after father loses Fox News job"
-date: 2017-09-10 00:33:37Z
+date: 2017-09-10 01:32:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The cause of death has not been announced. According to a family friend, an auto
 
 Full story on F3News: [Eric Bolling's son dies hours after father loses Fox News job](http://www.f3nws.com/n/ecBqKC)
 
-> Posted on: Sunday, September 10, 2017 12:33:37 AM
+> Posted on: Sunday, September 10, 2017 1:32:03 AM
