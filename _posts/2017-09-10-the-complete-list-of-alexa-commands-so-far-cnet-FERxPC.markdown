@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The complete list of Alexa commands so far     - CNET"
-date: 2017-09-10 13:00:05Z
+date: 2017-09-10 20:48:19Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Here are all the things you can ask Alexa to do. (Dad jokes included.)
 
 Full story on F3News: [The complete list of Alexa commands so far     - CNET](http://www.f3nws.com/n/FERxPC)
 
-> Posted on: Sunday, September 10, 2017 1:00:05 PM
+> Posted on: Sunday, September 10, 2017 8:48:19 PM
