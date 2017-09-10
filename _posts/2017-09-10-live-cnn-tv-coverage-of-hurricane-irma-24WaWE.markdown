@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Live CNN TV coverage of Hurricane Irma"
-date: 2017-09-10 13:43:17Z
+date: 2017-09-10 21:18:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Live CNN TV coverage of Hurricane Irma](http://www.f3nws.com/n/24WaWE)
 
-> Posted on: Sunday, September 10, 2017 1:43:17 PM
+> Posted on: Sunday, September 10, 2017 9:18:43 PM
