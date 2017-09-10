@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma back to Category 4, threatens west coast of Florida with storm surge"
-date: 2017-09-10 06:33:45Z
+date: 2017-09-10 07:32:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The day Florida has been dreading is finally here.
 
 Full story on F3News: [Irma back to Category 4, threatens west coast of Florida with storm surge](http://www.f3nws.com/n/ERMmpH)
 
-> Posted on: Sunday, September 10, 2017 6:33:45 AM
+> Posted on: Sunday, September 10, 2017 7:32:26 AM
