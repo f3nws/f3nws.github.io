@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Federal Coalition pork-barrels own seats up to 138:1 - The Sydney Morning Herald"
-date: 2017-09-10 06:35:00Z
+date: 2017-09-10 07:41:54Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Federal Coalition pork-barrels own seats up to 138:1 T
 
 Full story on F3News: [Federal Coalition pork-barrels own seats up to 138:1 - The Sydney Morning Herald](http://www.f3nws.com/n/pDdRaG)
 
-> Posted on: Sunday, September 10, 2017 6:35:00 AM
+> Posted on: Sunday, September 10, 2017 7:41:54 AM

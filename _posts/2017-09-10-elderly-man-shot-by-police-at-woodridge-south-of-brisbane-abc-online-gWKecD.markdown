@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Elderly man shot by police at Woodridge, south of Brisbane - ABC Online](http://www.abc.net.au/news/image/8890052-1x1-700x700.jpg)
 
-ABC Online Elderly man shot by police at Woodridge, south of Brisbane ABC Online A 72-year-old man has been shot in the shoulder by a police officer after he allegedly came at officers with knives and threw rocks in an incident south of Brisbane. The incident happened during a disturbance on Station Road, Woodridge in the driveway ... Elderly man rushed to hospital with gunshot wound following disturbance at Woodridge NEWS.com.au Police shoot 72-year-old man who was armed with knives Brisbane Times Elderly man shot by police after disturbance Sky News Australia SBS - Daily Mail all 6 news articles »
+ABC Online Elderly man shot by police at Woodridge, south of Brisbane ABC Online A 72-year-old man has been shot in the shoulder by a police officer after he allegedly came at officers with knives and threw rocks in an incident south of Brisbane. The incident happened during a disturbance on Station Road, Woodridge in the driveway ... Elderly man rushed to hospital with gunshot wound following disturbance at Woodridge NEWS.com.au Police shoot 72-year-old man who was armed with knives Brisbane Times Elderly man shot by police after disturbance Sky News Australia SBS all 6 news articles »
 
 
 Full story on F3News: [Elderly man shot by police at Woodridge, south of Brisbane - ABC Online](http://www.f3nws.com/n/gWKecD)
