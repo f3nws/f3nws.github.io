@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Live updates: Miami Beach pummeled overnight"
-date: 2017-09-10 17:08:54Z
+date: 2017-09-10 18:40:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Live updates: Miami Beach pummeled overnight](http://www.f3nws.com/n/JRuXNH)
 
-> Posted on: Sunday, September 10, 2017 5:08:54 PM
+> Posted on: Sunday, September 10, 2017 6:40:10 PM
