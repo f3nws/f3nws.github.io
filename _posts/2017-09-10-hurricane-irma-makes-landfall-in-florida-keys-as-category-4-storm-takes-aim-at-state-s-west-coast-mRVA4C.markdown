@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma makes landfall in Florida Keys as Category 4 storm, takes aim at state's west coast"
-date: 2017-09-10 17:00:00Z
+date: 2017-09-10 18:10:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma roared onto the Florida Keys Sunday morning, making landfall as a
 
 Full story on F3News: [Hurricane Irma makes landfall in Florida Keys as Category 4 storm, takes aim at state's west coast](http://www.f3nws.com/n/mRVA4C)
 
-> Posted on: Sunday, September 10, 2017 5:00:00 PM
+> Posted on: Sunday, September 10, 2017 6:10:00 PM

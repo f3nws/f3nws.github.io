@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The man bringing Sanders-style politics to Moscow"
-date: 2017-09-10 10:45:18Z
+date: 2017-09-10 18:20:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Self-described political junkie Vitali Shkliarov likes to pepper his conversatio
 
 Full story on F3News: [The man bringing Sanders-style politics to Moscow](http://www.f3nws.com/n/BtpuSG)
 
-> Posted on: Sunday, September 10, 2017 10:45:18 AM
+> Posted on: Sunday, September 10, 2017 6:20:30 PM
