@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cuba records 23-foot waves"
-date: 2017-09-10 09:15:06Z
+date: 2017-09-10 09:58:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Cuba records 23-foot waves](http://www.f3nws.com/n/JRuXNH)
 
-> Posted on: Sunday, September 10, 2017 9:15:06 AM
+> Posted on: Sunday, September 10, 2017 9:58:30 AM
