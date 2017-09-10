@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma sucks away water from coast in Bahamas"
-date: 2017-09-10 17:26:52Z
+date: 2017-09-10 21:29:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma storm winds pushed water away from the coast and into the core of
 
 Full story on F3News: [Irma sucks away water from coast in Bahamas](http://www.f3nws.com/n/cDgKBC)
 
-> Posted on: Sunday, September 10, 2017 5:26:52 PM
+> Posted on: Sunday, September 10, 2017 9:29:22 PM
