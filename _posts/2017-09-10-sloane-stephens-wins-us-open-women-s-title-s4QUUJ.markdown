@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sloane Stephens wins US Open women's title"
-date: 2017-09-10 00:38:42Z
+date: 2017-09-10 13:47:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sloane Stephens' epic comeback is complete.
 
 Full story on F3News: [Sloane Stephens wins US Open women's title](http://www.f3nws.com/n/s4QUUJ)
 
-> Posted on: Sunday, September 10, 2017 12:38:42 AM
+> Posted on: Sunday, September 10, 2017 1:47:51 PM

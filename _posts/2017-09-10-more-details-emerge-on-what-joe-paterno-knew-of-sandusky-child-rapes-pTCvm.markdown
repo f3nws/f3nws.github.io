@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More details emerge on what Joe Paterno knew of Sandusky child rapes"
-date: 2017-09-10 11:00:50Z
+date: 2017-09-10 14:01:40Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A previously unreleased police report written 10 years after the most infamous i
 
 Full story on F3News: [More details emerge on what Joe Paterno knew of Sandusky child rapes](http://www.f3nws.com/n/pTCvm)
 
-> Posted on: Sunday, September 10, 2017 11:00:50 AM
+> Posted on: Sunday, September 10, 2017 2:01:40 PM
