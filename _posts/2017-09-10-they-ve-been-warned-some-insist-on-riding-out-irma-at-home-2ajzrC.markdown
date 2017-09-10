@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "They've been warned: Some insist on riding out Irma at home"
-date: 2017-09-10 02:26:04Z
+date: 2017-09-10 02:53:25Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ REDINGTON SHORES, Fla. (AP) — Carl Roberts has Chinese food, a case of water a
 
 Full story on F3News: [They've been warned: Some insist on riding out Irma at home](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 10, 2017 2:26:04 AM
+> Posted on: Sunday, September 10, 2017 2:53:25 AM
