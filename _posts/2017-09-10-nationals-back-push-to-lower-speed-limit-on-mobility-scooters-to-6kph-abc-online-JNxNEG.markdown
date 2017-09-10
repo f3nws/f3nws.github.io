@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Nationals back push to lower speed limit on mobility scooters to 6kph - ABC Online](http://www.abc.net.au/news/image/8889966-1x1-700x700.jpg)
 
-ABC Online Nationals back push to lower speed limit on mobility scooters to 6kph ABC Online If you see these guys rolling down the Esplanade in Hervey Bay give them a wave! They're attempting to set a new record... #waitforthedrop. 15. Comment · Share · Related Story: 'Complete rubbish': Senator's claims of speeding scooters are false ... and more »
+ABC Online Nationals back push to lower speed limit on mobility scooters to 6kph ABC Online If you see these guys rolling down the Esplanade in Hervey Bay give them a wave! They're attempting to set a new record... #waitforthedrop. 15. Comment · Share · Related Story: 'Complete rubbish': Senator's claims of speeding scooters are false ... Battle for our footpaths: Nationals senator pushes for scooter speed clampdown Bunbury Mail all 3 news articles »
 
 
 Full story on F3News: [Nationals back push to lower speed limit on mobility scooters to 6kph - ABC Online](http://www.f3nws.com/n/JNxNEG)
