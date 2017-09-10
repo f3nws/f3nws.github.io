@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Irma powers up as it nears Florida Keys, back to Category 4 storm"
-date: 2017-09-10 09:25:00Z
+date: 2017-09-10 11:40:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma gathered new strength early Sunday as it approached the Florida K
 
 Full story on F3News: [Hurricane Irma powers up as it nears Florida Keys, back to Category 4 storm](http://www.f3nws.com/n/SXSC2F)
 
-> Posted on: Sunday, September 10, 2017 9:25:00 AM
+> Posted on: Sunday, September 10, 2017 11:40:00 AM

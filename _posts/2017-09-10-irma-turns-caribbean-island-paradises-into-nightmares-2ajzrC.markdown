@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma turns Caribbean island paradises into nightmares"
-date: 2017-09-10 11:18:51Z
+date: 2017-09-10 12:27:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. JOHN'S, Antigua (AP) — Strung like beads along the northeast edge of the C
 
 Full story on F3News: [Irma turns Caribbean island paradises into nightmares](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 10, 2017 11:18:51 AM
+> Posted on: Sunday, September 10, 2017 12:27:15 PM
