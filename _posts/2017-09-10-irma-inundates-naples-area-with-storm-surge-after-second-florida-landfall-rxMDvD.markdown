@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma inundates Naples area with storm surge after second Florida landfall"
-date: 2017-09-10 21:43:00Z
+date: 2017-09-10 22:31:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Storm surges are expected in Naples and other areas of Florida after Hurricane I
 
 Full story on F3News: [Irma inundates Naples area with storm surge after second Florida landfall](http://www.f3nws.com/n/rxMDvD)
 
-> Posted on: Sunday, September 10, 2017 9:43:00 PM
+> Posted on: Sunday, September 10, 2017 10:31:00 PM
