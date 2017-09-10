@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya insurgents call for humanitarian ceasefire"
-date: 2017-09-10 02:38:57Z
+date: 2017-09-10 03:50:18Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Rohingya insurgents call for humanitarian ceasefire](http://www.f3nws.com/n/Z43pAD)
 
-> Posted on: Sunday, September 10, 2017 2:38:57 AM
+> Posted on: Sunday, September 10, 2017 3:50:18 AM

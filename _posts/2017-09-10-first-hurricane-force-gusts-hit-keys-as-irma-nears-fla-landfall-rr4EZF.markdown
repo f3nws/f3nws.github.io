@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "First hurricane-force gusts hit Keys as Irma nears Fla. landfall"
-date: 2017-09-10 03:30:01Z
+date: 2017-09-10 04:00:06Z
 categories: fox-news
 ---
 
-The first hurricane-force wind gust has ben recorded in the Florida Keys, the National Weather Service said late Saturday night, according to the Associated Press.
+A hurricane-force wind gust was recorded in the Florida Keys late Saturday night -- the first sign of deadly Hurricane Irma's impending landfall on the United States.
 
 
 Full story on F3News: [First hurricane-force gusts hit Keys as Irma nears Fla. landfall](http://www.f3nws.com/n/rr4EZF)
 
-> Posted on: Sunday, September 10, 2017 3:30:01 AM
+> Posted on: Sunday, September 10, 2017 4:00:06 AM

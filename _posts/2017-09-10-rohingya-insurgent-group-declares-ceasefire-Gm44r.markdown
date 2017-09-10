@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya insurgent group declares ceasefire"
-date: 2017-09-10 01:21:06Z
+date: 2017-09-10 03:39:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After more than two weeks of violence in Myanmar's Rakhine state, the insurgent 
 
 Full story on F3News: [Rohingya insurgent group declares ceasefire](http://www.f3nws.com/n/Gm44r)
 
-> Posted on: Sunday, September 10, 2017 1:21:06 AM
+> Posted on: Sunday, September 10, 2017 3:39:18 AM
