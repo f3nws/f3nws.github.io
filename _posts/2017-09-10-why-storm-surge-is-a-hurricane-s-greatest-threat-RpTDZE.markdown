@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why storm surge is a hurricane's greatest threat"
-date: 2017-09-10 00:00:47Z
+date: 2017-09-10 14:35:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Florida Gov. Rick Scott warned residents that Hurricane Irma could bring a poten
 
 Full story on F3News: [Why storm surge is a hurricane's greatest threat](http://www.f3nws.com/n/RpTDZE)
 
-> Posted on: Sunday, September 10, 2017 12:00:47 AM
+> Posted on: Sunday, September 10, 2017 2:35:49 PM
