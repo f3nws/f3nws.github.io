@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane brings the threat of severe storm surge"
-date: 2017-09-10 16:16:35Z
+date: 2017-09-10 16:59:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma strengthened into a Category 4 storm as it inched closer to Flori
 
 Full story on F3News: [Hurricane brings the threat of severe storm surge](http://www.f3nws.com/n/ERMmpH)
 
-> Posted on: Sunday, September 10, 2017 4:16:35 PM
+> Posted on: Sunday, September 10, 2017 4:59:12 PM
