@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane expected to pass over the Keys on Sunday morning"
-date: 2017-09-10 14:45:27Z
+date: 2017-09-10 15:40:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma strengthened into a Category 4 storm as it inched closer to Flori
 
 Full story on F3News: [Hurricane expected to pass over the Keys on Sunday morning](http://www.f3nws.com/n/ERMmpH)
 
-> Posted on: Sunday, September 10, 2017 2:45:27 PM
+> Posted on: Sunday, September 10, 2017 3:40:43 PM
