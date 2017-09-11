@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Most revealing lines of Bannon interview"
-date: 2017-09-11 12:34:47Z
+date: 2017-09-11 13:17:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Trump White House chief strategist Steve Bannon sat down with "60 Minutes
 
 Full story on F3News: [Most revealing lines of Bannon interview](http://www.f3nws.com/n/XNbGzC)
 
-> Posted on: Monday, September 11, 2017 12:34:47 PM
+> Posted on: Monday, September 11, 2017 1:17:08 PM
