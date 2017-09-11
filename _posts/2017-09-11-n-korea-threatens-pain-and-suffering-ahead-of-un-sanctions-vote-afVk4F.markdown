@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea threatens 'pain and suffering' ahead of UN sanctions vote"
-date: 2017-09-11 10:49:14Z
+date: 2017-09-11 11:15:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States will pay a "due price" if harsh sanctions against North Korea 
 
 Full story on F3News: [N. Korea threatens 'pain and suffering' ahead of UN sanctions vote](http://www.f3nws.com/n/afVk4F)
 
-> Posted on: Monday, September 11, 2017 10:49:14 AM
+> Posted on: Monday, September 11, 2017 11:15:12 AM
