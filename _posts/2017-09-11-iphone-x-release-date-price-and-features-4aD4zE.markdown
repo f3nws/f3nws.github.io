@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X: release date, price and features"
-date: 2017-09-11 01:19:09Z
+date: 2017-09-11 01:30:09Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The iPhone X may be the name of Apple's 2017 smartphone, and we have information
 
 Full story on F3News: [iPhone X: release date, price and features](http://www.f3nws.com/n/4aD4zE)
 
-> Posted on: Monday, September 11, 2017 1:19:09 AM
+> Posted on: Monday, September 11, 2017 1:30:09 AM
