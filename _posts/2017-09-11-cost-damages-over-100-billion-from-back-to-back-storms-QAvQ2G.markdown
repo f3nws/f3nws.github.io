@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cost: Damages over $100 billion from back-to-back storms"
-date: 2017-09-11 07:55:30Z
+date: 2017-09-11 12:20:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Cost: Damages over $100 billion from back-to-back storms](http://www.f3nws.com/n/QAvQ2G)
 
-> Posted on: Monday, September 11, 2017 7:55:30 AM
+> Posted on: Monday, September 11, 2017 12:20:25 PM
