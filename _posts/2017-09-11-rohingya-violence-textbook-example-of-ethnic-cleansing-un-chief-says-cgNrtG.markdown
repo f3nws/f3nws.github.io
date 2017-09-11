@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya violence 'textbook example of ethnic cleansing,' UN chief says"
-date: 2017-09-11 13:17:52Z
+date: 2017-09-11 14:18:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The ongoing Myanmar military operation against the minority Rohingya people appe
 
 Full story on F3News: [Rohingya violence 'textbook example of ethnic cleansing,' UN chief says](http://www.f3nws.com/n/cgNrtG)
 
-> Posted on: Monday, September 11, 2017 1:17:52 PM
+> Posted on: Monday, September 11, 2017 2:18:40 PM
