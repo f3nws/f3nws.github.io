@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon, allies to challenge GOP senators in primaries, source says"
-date: 2017-09-11 01:45:32Z
+date: 2017-09-11 03:32:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon and his allies are preparing pr
 
 Full story on F3News: [Bannon, allies to challenge GOP senators in primaries, source says](http://www.f3nws.com/n/MbdTD)
 
-> Posted on: Monday, September 11, 2017 1:45:32 AM
+> Posted on: Monday, September 11, 2017 3:32:11 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hong Kong's millionaire party pads"
-date: 2017-09-11 02:02:00Z
+date: 2017-09-11 03:40:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Hong Kong's millionaire party pads](http://www.f3nws.com/n/PG24mG)
 
-> Posted on: Monday, September 11, 2017 2:02:00 AM
+> Posted on: Monday, September 11, 2017 3:40:16 AM

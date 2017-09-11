@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Three cranes at South Florida construction sites have snapped in Irma's howling winds - Miami Herald](http://www.miamiherald.com/news/weather/hurricane/t76uie/picture172420672/alternates/LANDSCAPE_1140/IMG_3127)
 
-Miami Herald Three cranes at South Florida construction sites have snapped in Irma's howling winds Miami Herald The wildly swinging booms of three cranes at under-construction residential buildings in South Florida bent and collapsed in Hurricane Irma's heavy winds Sunday. The first to go was a crane at an apartment building in downtown Miami around 10:30 a.m. ... Irma's Winds Buckle Two Giant Cranes in Miami U.S. News & World Report Hurricane Irma gives Florida a coast-to-coast pummeling seattlepi.com High-rise cranes collapse in downtown Miami in hurricane-strength winds USA TODAY NBCNews.com - WNCN - New York Post - South Florida Business Journal all 98 news articles »
+Miami Herald Three cranes at South Florida construction sites have snapped in Irma's howling winds Miami Herald The wildly swinging booms of three cranes at under-construction residential buildings in South Florida bent and collapsed in Hurricane Irma's heavy winds Sunday. The first to go was a crane at an apartment building in downtown Miami around 10:30 a.m. ... Irma's Winds Buckle Three Giant Cranes in South Florida U.S. News & World Report Hurricane Irma: Punishing winds, rain lash much of Florida seattlepi.com Miami: Symbols of Human Ingenuity and Ambition Wrecked by Wrathful Nature Slate Magazine USA TODAY - New York Times - NBCNews.com - WNCN all 103 news articles »
 
 
 Full story on F3News: [Three cranes at South Florida construction sites have snapped in Irma's howling winds - Miami Herald](http://www.f3nws.com/n/ySRFCB)

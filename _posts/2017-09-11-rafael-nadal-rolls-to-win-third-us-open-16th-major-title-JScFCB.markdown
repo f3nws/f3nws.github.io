@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rafael Nadal rolls to win third US Open, 16th major title"
-date: 2017-09-11 00:45:51Z
+date: 2017-09-11 03:24:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The King of Clay has once again assumed his throne -- this time on a hard court.
 
 Full story on F3News: [Rafael Nadal rolls to win third US Open, 16th major title](http://www.f3nws.com/n/JScFCB)
 
-> Posted on: Monday, September 11, 2017 12:45:51 AM
+> Posted on: Monday, September 11, 2017 3:24:37 AM

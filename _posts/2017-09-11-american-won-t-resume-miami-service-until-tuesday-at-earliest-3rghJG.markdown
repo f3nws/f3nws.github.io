@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American won't resume Miami service until Tuesday at earliest"
-date: 2017-09-11 02:13:32Z
+date: 2017-09-11 03:27:14Z
 categories: yahoo-news
 ---
 
@@ -12,4 +12,4 @@ American Airlines Group Inc will not resume commercial flights at its Miami Inte
 
 Full story on F3News: [American won't resume Miami service until Tuesday at earliest](http://www.f3nws.com/n/3rghJG)
 
-> Posted on: Monday, September 11, 2017 2:13:32 AM
+> Posted on: Monday, September 11, 2017 3:27:14 AM
