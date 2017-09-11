@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Indian government lodges official diplomatic protest about 'offensive' Australian lamb ad - The Sydney Morning Herald"
+date: 2017-09-11 03:59:04Z
+categories: google-news-australia
+---
+
+![Indian government lodges official diplomatic protest about 'offensive' Australian lamb ad - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/e/y/s/o/image.related.socialLead.620x349.gyewh6.png/1505106522290.jpg)
+
+The Sydney Morning Herald Indian government lodges official diplomatic protest about 'offensive' Australian lamb ad The Sydney Morning Herald The Indian high commission in Canberra has made a "demarche" to three government departments - Foreign Affairs, Communications and Agriculture - over the Meat and Livestock Australia ad that features the Hindu deity Ganesha eating lamb. Indian government lodges complaint over lamb ad 9news.com.au Indian High Commission Lodges Diplomatic Complaint Over Lamb Ad Huffington Post Australia Advertising watchdog investigates complaints about Meat & Livestock Australia campaign The Drum Sputnik International - Daily Mail - SmartCompany.com.au all 8 news articles »
+
+
+Full story on F3News: [Indian government lodges official diplomatic protest about 'offensive' Australian lamb ad - The Sydney Morning Herald](http://www.f3nws.com/n/TAGnxF)
+
+> Posted on: Monday, September 11, 2017 3:59:04 AM
