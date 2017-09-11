@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya insurgent group declares temporary ceasefire"
-date: 2017-09-11 01:28:22Z
+date: 2017-09-11 09:33:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Militants in Myanmar's Rakhine state have declared a temporary ceasefire startin
 
 Full story on F3News: [Rohingya insurgent group declares temporary ceasefire](http://www.f3nws.com/n/Gm44r)
 
-> Posted on: Monday, September 11, 2017 1:28:22 AM
+> Posted on: Monday, September 11, 2017 9:33:59 AM
