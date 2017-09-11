@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials begin surveying damage in Florida cities"
-date: 2017-09-11 16:16:28Z
+date: 2017-09-11 19:23:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Officials begin surveying damage in Florida cities](http://www.f3nws.com/n/JRuXNH)
 
-> Posted on: Monday, September 11, 2017 4:16:28 PM
+> Posted on: Monday, September 11, 2017 7:23:46 PM
