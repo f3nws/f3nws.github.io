@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['It': Meet the Man Behind Killer Clown Pennywise - RollingStone.com](http://img.wennermedia.com/social/stephen-king-it-movie-clown-pennywise-bill-skarsgard-c3568c85-b373-4cce-8eea-894d65810286.jpg)
 
-RollingStone.com 'It': Meet the Man Behind Killer Clown Pennywise RollingStone.com "This will sound really bizarre," explains Bill Skarsgård, the gentleman behind the iconic razor-toothed clown in the new big-screen adaptation of Stephen King's It. "But I was just sitting there going through the scenes in different voices – and I was ... Box Office: Stephen King's 'It' Officially Opens to Massive $123 Million Variety 'It' floats away with record-breaking $117.2 million weekend CNBC What the New Movie Misses About Stephen King's “It” The New Yorker The Columbus Dispatch - EW.com - Vanity Fair - Independent.ie all 241 news articles »
+RollingStone.com 'It': Meet the Man Behind Killer Clown Pennywise RollingStone.com "This will sound really bizarre," explains Bill Skarsgård, the gentleman behind the iconic razor-toothed clown in the new big-screen adaptation of Stephen King's It. "But I was just sitting there going through the scenes in different voices – and I was ... Stephen King's It: Pennywise vs. 'The Losers' is a parable for a tormented nation EW.com (blog) The Parts of Stephen King's Unfilmable It I Missed the Most in the Movie Slate Magazine (blog) The Man Behind the Clown: Bill Skarsgard on It Den of Geek US /FILM - Forbes - Bustle - Washington Post all 286 news articles »
 
 
 Full story on F3News: ['It': Meet the Man Behind Killer Clown Pennywise - RollingStone.com](http://www.f3nws.com/n/nnbXrD)
