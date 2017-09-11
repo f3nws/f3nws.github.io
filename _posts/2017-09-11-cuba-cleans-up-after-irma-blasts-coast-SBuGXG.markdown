@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cuba cleans up after Irma blasts coast"
-date: 2017-09-11 00:00:12Z
+date: 2017-09-11 00:49:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Recovery efforts are underway in Cuba a day after Hurricane Irma smashed into th
 
 Full story on F3News: [Cuba cleans up after Irma blasts coast](http://www.f3nws.com/n/SBuGXG)
 
-> Posted on: Monday, September 11, 2017 12:00:12 AM
+> Posted on: Monday, September 11, 2017 12:49:18 AM
