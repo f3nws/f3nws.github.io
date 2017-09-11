@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan's stateless Rohingya"
-date: 2017-09-11 05:38:09Z
+date: 2017-09-11 07:21:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For more than 20 years, Mohammad Rasheed has eked out a living selling fish on t
 
 Full story on F3News: [Pakistan's stateless Rohingya](http://www.f3nws.com/n/hZTvkC)
 
-> Posted on: Monday, September 11, 2017 5:38:09 AM
+> Posted on: Monday, September 11, 2017 7:21:45 AM
