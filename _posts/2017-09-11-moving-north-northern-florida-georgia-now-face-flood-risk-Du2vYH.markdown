@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moving north: Northern Florida, Georgia now face flood risk"
-date: 2017-09-11 09:48:41Z
+date: 2017-09-11 10:03:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Editor's note: This is a developing story that is being constantly updated as th
 
 Full story on F3News: [Moving north: Northern Florida, Georgia now face flood risk](http://www.f3nws.com/n/Du2vYH)
 
-> Posted on: Monday, September 11, 2017 9:48:41 AM
+> Posted on: Monday, September 11, 2017 10:03:56 AM
