@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Trek: Discovery' fights for more than Trekkies' hearts     - CNET"
-date: 2017-09-11 01:52:21Z
+date: 2017-09-11 02:57:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Following Star Trek's legacy, the new show reminds us about the power of inclusi
 
 Full story on F3News: ['Star Trek: Discovery' fights for more than Trekkies' hearts     - CNET](http://www.f3nws.com/n/gnQKvE)
 
-> Posted on: Monday, September 11, 2017 1:52:21 AM
+> Posted on: Monday, September 11, 2017 2:57:15 AM
