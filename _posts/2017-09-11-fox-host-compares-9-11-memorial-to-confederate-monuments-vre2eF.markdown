@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fox host compares 9/11 memorial to Confederate monuments"
-date: 2017-09-11 17:25:24Z
+date: 2017-09-11 20:05:01Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Fox host compares 9/11 memorial to Confederate monuments](http://www.f3nws.com/n/vre2eF)
 
-> Posted on: Monday, September 11, 2017 5:25:24 PM
+> Posted on: Monday, September 11, 2017 8:05:01 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon: Comey firing was worst mistake"
-date: 2017-09-11 16:27:42Z
+date: 2017-09-11 19:57:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon believes President Donald Trump
 
 Full story on F3News: [Bannon: Comey firing was worst mistake](http://www.f3nws.com/n/2njKgH)
 
-> Posted on: Monday, September 11, 2017 4:27:42 PM
+> Posted on: Monday, September 11, 2017 7:57:47 PM
