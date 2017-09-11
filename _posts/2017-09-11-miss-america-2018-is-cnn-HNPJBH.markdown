@@ -7,7 +7,7 @@ categories: cnn-com-entertainment
 
 ![Miss America 2018 is... - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170911113350-01-miss-america-2018-super-tease.jpg)
 
-CNN Miss America 2018 is... CNN (CNN) There she is... a history-making Miss America! For the first time ever in the pageant, a contestant from North Dakota won the crown. Cara Mund, 23, was also the first woman from her state to ever place in the top five. The Brown University ... Miss North Dakota wins the Miss America pageant for the first time in history Washington Post Miss America 2018: Miss North Dakota, Cara Mund, wins pageant, makes history NJ.com Miss America 2018: 6 highlights of the pageant EW.com New York Daily News - Philly.com - Newsmax - Reuters all 107 news articles »
+CNN Miss America 2018 is... CNN (CNN) There she is... a history-making Miss America! For the first time ever in the pageant, a contestant from North Dakota won the crown. Cara Mund, 23, was also the first woman from her state to ever place in the top five. The Brown University ... Miss North Dakota wins the Miss America pageant for the first time in history Washington Post Miss America 2018: Miss North Dakota, Cara Mund, wins pageant, makes history NJ.com Miss North Dakota, Cara Mund, wins Miss America 2018 New York Daily News EW.com - Philly.com - ABC News - The Daily Caller all 117 news articles »
 
 
 Full story on F3News: [Miss America 2018 is... - CNN](http://www.f3nws.com/n/HNPJBH)
