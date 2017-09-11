@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Solemn, personal ceremonies as US commemorates 9/11"
-date: 2017-09-11 10:11:00Z
+date: 2017-09-11 10:50:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Holding photos and reading names of loved ones lost 16 years a
 
 Full story on F3News: [Solemn, personal ceremonies as US commemorates 9/11](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 11, 2017 10:11:00 AM
+> Posted on: Monday, September 11, 2017 10:50:00 AM
