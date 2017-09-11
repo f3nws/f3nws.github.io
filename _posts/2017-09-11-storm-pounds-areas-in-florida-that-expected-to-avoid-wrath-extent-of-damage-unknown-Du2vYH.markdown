@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Storm pounds areas in Florida that expected to avoid wrath; extent of damage unknown"
-date: 2017-09-11 14:44:44Z
+date: 2017-09-11 16:19:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Editor's note: This is a developing story that is being constantly updated as th
 
 Full story on F3News: [Storm pounds areas in Florida that expected to avoid wrath; extent of damage unknown](http://www.f3nws.com/n/Du2vYH)
 
-> Posted on: Monday, September 11, 2017 2:44:44 PM
+> Posted on: Monday, September 11, 2017 4:19:43 PM
