@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eight people shot to death in Texas home, police say"
-date: 2017-09-11 02:12:00Z
+date: 2017-09-11 02:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Eight people were found shot to death Sunday at a home in Plano, Texas, police r
 
 Full story on F3News: [Eight people shot to death in Texas home, police say](http://www.f3nws.com/n/VBMCjD)
 
-> Posted on: Monday, September 11, 2017 2:12:00 AM
+> Posted on: Monday, September 11, 2017 2:30:00 AM
