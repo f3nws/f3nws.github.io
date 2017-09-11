@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China wants to ban gas and diesel cars"
-date: 2017-09-11 05:48:40Z
+date: 2017-09-11 09:18:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [China wants to ban gas and diesel cars](http://www.f3nws.com/n/AyXtxC)
 
-> Posted on: Monday, September 11, 2017 5:48:40 AM
+> Posted on: Monday, September 11, 2017 9:18:39 AM
