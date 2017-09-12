@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8: Price, release date, news and rumors"
-date: 2017-09-12 09:15:21Z
+date: 2017-09-12 13:45:21Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Apple will unveil the iPhone 8 in a matter of hours. What will it look like? Wha
 
 Full story on F3News: [iPhone 8: Price, release date, news and rumors](http://www.f3nws.com/n/ebV2MB)
 
-> Posted on: Tuesday, September 12, 2017 9:15:21 AM
+> Posted on: Tuesday, September 12, 2017 1:45:21 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple's iPhone event: Join CNET today for a live blog     - CNET"
-date: 2017-09-12 12:07:38Z
+date: 2017-09-12 13:29:47Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The unveiling starts at 10 a.m. PT Tuesday. CNET's live blog kicks off an hour b
 
 Full story on F3News: [Apple's iPhone event: Join CNET today for a live blog     - CNET](http://www.f3nws.com/n/tVTEcG)
 
-> Posted on: Tuesday, September 12, 2017 12:07:38 PM
+> Posted on: Tuesday, September 12, 2017 1:29:47 PM
