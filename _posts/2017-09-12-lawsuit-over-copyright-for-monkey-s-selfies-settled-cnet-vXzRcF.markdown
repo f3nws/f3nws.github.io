@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawsuit over copyright for monkey's selfies settled     - CNET"
-date: 2017-09-12 04:00:27Z
+date: 2017-09-12 04:34:19Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ PETA argued the monkey owned the photos' copyright, and it should administer the
 
 Full story on F3News: [Lawsuit over copyright for monkey's selfies settled     - CNET](http://www.f3nws.com/n/vXzRcF)
 
-> Posted on: Tuesday, September 12, 2017 4:00:27 AM
+> Posted on: Tuesday, September 12, 2017 4:34:19 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1mn Catalans mark national day with massive pro-independence march in Barcelona (PHOTOS, VIDEOS)"
-date: 2017-09-12 00:38:09Z
+date: 2017-09-12 00:38:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Just weeks ahead of a regional independence referendum, nearly one million Catal
 
 Full story on F3News: [1mn Catalans mark national day with massive pro-independence march in Barcelona (PHOTOS, VIDEOS)](http://www.f3nws.com/n/NxPdSF)
 
-> Posted on: Tuesday, September 12, 2017 12:38:09 AM
+> Posted on: Tuesday, September 12, 2017 12:38:00 AM
