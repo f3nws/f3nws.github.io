@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple Watch 3 release date, news and rumors"
-date: 2017-09-12 10:18:07Z
+date: 2017-09-12 12:18:07Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The Apple Watch 3 may not even need an iPhone. Here's what we know so far.
 
 Full story on F3News: [Apple Watch 3 release date, news and rumors](http://www.f3nws.com/n/jcsY3C)
 
-> Posted on: Tuesday, September 12, 2017 10:18:07 AM
+> Posted on: Tuesday, September 12, 2017 12:18:07 PM

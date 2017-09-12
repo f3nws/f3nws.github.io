@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico pulls Texas aid offer as it grapples with earthquake"
-date: 2017-09-12 09:49:51Z
+date: 2017-09-12 12:49:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Mexico will no longer send the emergency aid offered to Texas after Hurricane Ha
 
 Full story on F3News: [Mexico pulls Texas aid offer as it grapples with earthquake](http://www.f3nws.com/n/RWJMm)
 
-> Posted on: Tuesday, September 12, 2017 9:49:51 AM
+> Posted on: Tuesday, September 12, 2017 12:49:24 PM
