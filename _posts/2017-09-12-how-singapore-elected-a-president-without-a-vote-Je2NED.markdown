@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Singapore elected a president without a vote"
-date: 2017-09-12 02:28:02Z
+date: 2017-09-12 04:18:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Singaporeans were meant to go to the polls at the end of next week to vote for a
 
 Full story on F3News: [How Singapore elected a president without a vote](http://www.f3nws.com/n/Je2NED)
 
-> Posted on: Tuesday, September 12, 2017 2:28:02 AM
+> Posted on: Tuesday, September 12, 2017 4:18:00 AM

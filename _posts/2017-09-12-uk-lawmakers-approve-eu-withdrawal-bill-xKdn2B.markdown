@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK lawmakers approve EU withdrawal bill"
-date: 2017-09-12 00:13:20Z
+date: 2017-09-12 04:25:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British lawmakers voted early Tuesday in favor of giving the European Union (Wit
 
 Full story on F3News: [UK lawmakers approve EU withdrawal bill](http://www.f3nws.com/n/xKdn2B)
 
-> Posted on: Tuesday, September 12, 2017 12:13:20 AM
+> Posted on: Tuesday, September 12, 2017 4:25:59 AM
