@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FEMA estimates 25 percent of Florida Keys homes are gone"
-date: 2017-09-12 16:15:00Z
+date: 2017-09-12 17:26:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOWER MATECUMBE KEY, Fla. (AP) — Search-and-rescue teams made their way into t
 
 Full story on F3News: [FEMA estimates 25 percent of Florida Keys homes are gone](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 12, 2017 4:15:00 PM
+> Posted on: Tuesday, September 12, 2017 5:26:00 PM
