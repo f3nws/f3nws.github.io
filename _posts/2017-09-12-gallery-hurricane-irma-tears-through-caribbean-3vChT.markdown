@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GALLERY: Hurricane Irma tears through Caribbean"
-date: 2017-09-12 17:01:36Z
+date: 2017-09-12 20:02:01Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hurricane Irma barreled through the Caribbean, leaving catastrophic damage on is
 
 Full story on F3News: [GALLERY: Hurricane Irma tears through Caribbean](http://www.f3nws.com/n/3vChT)
 
-> Posted on: Tuesday, September 12, 2017 5:01:36 PM
+> Posted on: Tuesday, September 12, 2017 8:02:01 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yes, sitting too long can kill you, even if you exercise"
-date: 2017-09-12 12:46:34Z
+date: 2017-09-12 19:57:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Take a movement break every 30 minutes, say experts. No matter how much you exer
 
 Full story on F3News: [Yes, sitting too long can kill you, even if you exercise](http://www.f3nws.com/n/qstSWF)
 
-> Posted on: Tuesday, September 12, 2017 12:46:34 PM
+> Posted on: Tuesday, September 12, 2017 7:57:20 PM
