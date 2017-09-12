@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "St. Martin's residents struggle with desperate conditions"
-date: 2017-09-12 04:52:00Z
+date: 2017-09-12 06:53:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PHILIPSBURG, St. Martin (AP) — Dominga Tejera picked her way around fallen pal
 
 Full story on F3News: [St. Martin's residents struggle with desperate conditions](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 12, 2017 4:52:00 AM
+> Posted on: Tuesday, September 12, 2017 6:53:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Monkey selfie' case reaches settlement"
-date: 2017-09-12 08:40:41Z
+date: 2017-09-12 10:19:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The case of the world's most litigious selfie has come to a close.
 
 Full story on F3News: ['Monkey selfie' case reaches settlement](http://www.f3nws.com/n/tKBWHF)
 
-> Posted on: Tuesday, September 12, 2017 8:40:41 AM
+> Posted on: Tuesday, September 12, 2017 10:19:40 AM
