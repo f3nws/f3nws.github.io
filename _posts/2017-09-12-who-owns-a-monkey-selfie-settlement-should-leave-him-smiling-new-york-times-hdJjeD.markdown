@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Who Owns a Monkey Selfie? Settlement Should Leave Him Smiling - New York Times](https://static01.nyt.com/images/2017/09/12/us/12xp-monkey1/12xp-monkey1-facebookJumbo.jpg)
 
-New York Times Who Owns a Monkey Selfie? Settlement Should Leave Him Smiling New York Times In 2011, Naruto, a curious 6-year-old monkey in Indonesia, peered into a camera lens, grinned and pressed the shutter button on the unattended camera. Little did the endangered crested macaque know that he may have been providing for his future. Photographer and PETA reach settlement over rights to monkey's selfie Los Angeles Times Lawsuit settled over rights to monkey's selfie photo SFGate PETA drops lawsuit demanding animals the right to own property Ars Technica Boston Herald - KIRO Seattle - Engadget - KGO-TV all 132 news articles »
+New York Times Who Owns a Monkey Selfie? Settlement Should Leave Him Smiling New York Times In 2011, Naruto, a curious 6-year-old monkey in Indonesia, peered into a camera lens, grinned and pressed the shutter button on the unattended camera. Little did the endangered crested macaque know that he may have been providing for his future. Suit settled over 'selfie monkey' photo copyright New York Post It's bananas! Monkey wins selfie lawsuit Boston Herald Lawsuit over copyright for monkey's selfies settled CNET Channel NewsAsia - TheWrap - Telegraph.co.uk - KGO-TV all 152 news articles »
 
 
 Full story on F3News: [Who Owns a Monkey Selfie? Settlement Should Leave Him Smiling - New York Times](http://www.f3nws.com/n/hdJjeD)
