@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Irma unleashes record flooding in Jacksonville, 'incredible' floods in Charleston"
-date: 2017-09-12 00:04:00Z
+date: 2017-09-12 02:17:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ While Irma’s strong winds were predicted to cause widespread damage, meteorolo
 
 Full story on F3News: [Irma unleashes record flooding in Jacksonville, 'incredible' floods in Charleston](http://www.f3nws.com/n/uFcCTF)
 
-> Posted on: Tuesday, September 12, 2017 12:04:00 AM
+> Posted on: Tuesday, September 12, 2017 2:17:00 AM
