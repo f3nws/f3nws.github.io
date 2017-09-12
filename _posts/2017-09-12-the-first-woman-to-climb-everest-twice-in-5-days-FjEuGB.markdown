@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The first woman to climb Everest twice in 5 days"
-date: 2017-09-12 08:10:12Z
+date: 2017-09-12 18:26:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Most people don't make it to the top of the world once.
 
 Full story on F3News: [The first woman to climb Everest twice in 5 days](http://www.f3nws.com/n/FjEuGB)
 
-> Posted on: Tuesday, September 12, 2017 8:10:12 AM
+> Posted on: Tuesday, September 12, 2017 6:26:08 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iOS 11 release date, news and features"
-date: 2017-09-12 02:34:19Z
+date: 2017-09-12 18:18:19Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ iOS 11 is bringing new features to your iPhone and iPad, and we have all the det
 
 Full story on F3News: [iOS 11 release date, news and features](http://www.f3nws.com/n/vMfpBD)
 
-> Posted on: Tuesday, September 12, 2017 2:34:19 AM
+> Posted on: Tuesday, September 12, 2017 6:18:19 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Florida looting crackdown is 'white supremacy,' claims author Sarah Jaffe"
-date: 2017-09-12 18:12:23Z
+date: 2017-09-12 19:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The journalist was criticized on Twitter Monday.
 
 Full story on F3News: [Florida looting crackdown is 'white supremacy,' claims author Sarah Jaffe](http://www.f3nws.com/n/MebnaD)
 
-> Posted on: Tuesday, September 12, 2017 6:12:23 PM
+> Posted on: Tuesday, September 12, 2017 7:00:03 PM
