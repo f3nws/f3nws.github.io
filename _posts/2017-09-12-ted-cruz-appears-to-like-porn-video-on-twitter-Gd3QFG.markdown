@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Ted Cruz appears to 'like' porn video on Twitter](http://www.abc.net.au/news/image/8902568-1x1-700x700.jpg)
 
-Conservative Republican politician Ted Cruz is lampooned on social media after appearing to "like" a pornographic video clip on his official Twitter account.
+Conservative Republican politician Ted Cruz is lampooned on social media after appearing to "like" a pornographic video clip on his Twitter account.
 
 
 Full story on F3News: [Ted Cruz appears to 'like' porn video on Twitter](http://www.f3nws.com/n/Gd3QFG)
