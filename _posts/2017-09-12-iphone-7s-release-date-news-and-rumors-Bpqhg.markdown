@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 7S release date, news and rumors"
-date: 2017-09-12 01:30:41Z
+date: 2017-09-12 14:45:41Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ All of the latest iPhone 7S rumors, from the release date to the price, make us 
 
 Full story on F3News: [iPhone 7S release date, news and rumors](http://www.f3nws.com/n/Bpqhg)
 
-> Posted on: Tuesday, September 12, 2017 1:30:41 AM
+> Posted on: Tuesday, September 12, 2017 2:45:41 PM

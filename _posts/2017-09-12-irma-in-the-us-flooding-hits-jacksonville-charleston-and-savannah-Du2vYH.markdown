@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "IRMA IN THE US: Flooding hits Jacksonville, Charleston and Savannah"
-date: 2017-09-12 04:35:32Z
+date: 2017-09-12 14:01:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Editor's note: This is a developing story that is being constantly updated as th
 
 Full story on F3News: [IRMA IN THE US: Flooding hits Jacksonville, Charleston and Savannah](http://www.f3nws.com/n/Du2vYH)
 
-> Posted on: Tuesday, September 12, 2017 4:35:32 AM
+> Posted on: Tuesday, September 12, 2017 2:01:33 PM
