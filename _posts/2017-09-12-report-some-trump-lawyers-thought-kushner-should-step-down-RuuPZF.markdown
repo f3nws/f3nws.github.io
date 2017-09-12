@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Some Trump lawyers thought Kushner should step down"
-date: 2017-09-12 20:55:58Z
+date: 2017-09-12 21:35:16Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Some of President Donald Trump's legal team believed that his son-in-law Jared K
 
 Full story on F3News: [Report: Some Trump lawyers thought Kushner should step down](http://www.f3nws.com/n/RuuPZF)
 
-> Posted on: Tuesday, September 12, 2017 8:55:58 PM
+> Posted on: Tuesday, September 12, 2017 9:35:16 PM
