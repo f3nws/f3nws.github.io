@@ -5,7 +5,7 @@ date: 2017-09-12 00:36:24Z
 categories: fox-news
 ---
 
-Fox News Holly Bobo murder trial: Prosecutors describe chilling details in death of Tennessee nursing student Fox News A man who lived in a "dark, dark world" of methamphetamine and morphine abducted a Tennessee nursing student from her rural home, then drugged, raped and shot her before dumping her body and bragging about it to friends, prosecutors said Monday. and more »
+Fox News Holly Bobo murder trial: Prosecutors describe chilling details in death of Tennessee nursing student Fox News A man who lived in a "dark, dark world" of methamphetamine and morphine abducted a Tennessee nursing student from her rural home, then drugged, raped and shot her before dumping her body and bragging about it to friends, prosecutors said Monday. Holly Bobo murder trial begins with chilling details from prosecutor New York Daily News all 73 news articles »
 
 
 Full story on F3News: [Holly Bobo murder trial: Prosecutors describe chilling details in death of Tennessee nursing student - Fox News](http://www.f3nws.com/n/tDh2VC)
