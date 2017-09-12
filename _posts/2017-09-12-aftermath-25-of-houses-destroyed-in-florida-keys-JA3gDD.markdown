@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AFTERMATH: 25% of houses destroyed in Florida Keys"
-date: 2017-09-12 15:21:28Z
+date: 2017-09-12 18:15:35Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: google-news-top-stories
 
 Full story on F3News: [AFTERMATH: 25% of houses destroyed in Florida Keys](http://www.f3nws.com/n/JA3gDD)
 
-> Posted on: Tuesday, September 12, 2017 3:21:28 PM
+> Posted on: Tuesday, September 12, 2017 6:15:35 PM
