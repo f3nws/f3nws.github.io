@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Bushfires burn out of control in NSW, school evacuated](http://www.abc.net.au/news/image/8940734-1x1-700x700.jpg)
 
-Firefighters battle to control several blazes on a hot and windy day in NSW, with schools evacuated, homes threatened and former PM Tony Abbott lending a hand.
+Firefighters spent Friday battling several blazes in NSW, with schools evacuated, homes threatened and former PM Tony Abbott lending a hand.
 
 
 Full story on F3News: [Bushfires burn out of control in NSW, school evacuated](http://www.f3nws.com/n/4CjUvF)
