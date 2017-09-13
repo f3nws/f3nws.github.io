@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Jose is still churning out at sea"
-date: 2017-09-13 07:24:31Z
+date: 2017-09-13 11:11:59Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ First Harvey, then Irma and now ... Jose?
 
 Full story on F3News: [Hurricane Jose is still churning out at sea](http://www.f3nws.com/n/mMtdHB)
 
-> Posted on: Wednesday, September 13, 2017 7:24:31 AM
+> Posted on: Wednesday, September 13, 2017 11:11:59 AM
