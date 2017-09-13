@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNET asks: What do you think about Apple's shiny new toys?     - CNET"
-date: 2017-09-13 01:08:37Z
+date: 2017-09-13 03:48:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Apple debuted three new iPhones, a new Watch and a 4K Apple TV at its live event
 
 Full story on F3News: [CNET asks: What do you think about Apple's shiny new toys?     - CNET](http://www.f3nws.com/n/fujth)
 
-> Posted on: Wednesday, September 13, 2017 1:08:37 AM
+> Posted on: Wednesday, September 13, 2017 3:48:01 AM
