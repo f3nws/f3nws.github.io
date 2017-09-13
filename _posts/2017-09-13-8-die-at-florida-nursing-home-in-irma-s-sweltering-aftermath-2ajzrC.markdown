@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "8 die at Florida nursing home in Irma's sweltering aftermath"
-date: 2017-09-13 17:12:00Z
+date: 2017-09-13 18:16:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HOLLYWOOD, Fla. (AP) — Eight patients at a sweltering nursing home died after 
 
 Full story on F3News: [8 die at Florida nursing home in Irma's sweltering aftermath](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 13, 2017 5:12:00 PM
+> Posted on: Wednesday, September 13, 2017 6:16:00 PM
