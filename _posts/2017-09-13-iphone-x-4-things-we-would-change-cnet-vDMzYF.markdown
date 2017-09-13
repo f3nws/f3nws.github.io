@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X: 4 things we would change     - CNET"
-date: 2017-09-13 05:00:13Z
+date: 2017-09-13 07:52:09Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Four major drawbacks of the iPhone X that will make you think twice about emptyi
 
 Full story on F3News: [iPhone X: 4 things we would change     - CNET](http://www.f3nws.com/n/vDMzYF)
 
-> Posted on: Wednesday, September 13, 2017 5:00:13 AM
+> Posted on: Wednesday, September 13, 2017 7:52:09 AM
