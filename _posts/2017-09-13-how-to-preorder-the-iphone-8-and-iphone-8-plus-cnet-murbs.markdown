@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to preorder the iPhone 8 and iPhone 8 Plus     - CNET"
-date: 2017-09-13 00:06:30Z
+date: 2017-09-13 00:55:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Here's how you can order Apple's new iPhone 8 and 8 Plus.
 
 Full story on F3News: [How to preorder the iPhone 8 and iPhone 8 Plus     - CNET](http://www.f3nws.com/n/murbs)
 
-> Posted on: Wednesday, September 13, 2017 12:06:30 AM
+> Posted on: Wednesday, September 13, 2017 12:55:15 AM

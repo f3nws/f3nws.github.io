@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Apple's Face ID works     - CNET"
-date: 2017-09-13 00:28:57Z
+date: 2017-09-13 01:00:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It's like a tiny Microsoft Kinect embedded in your phone, plus machine learning.
 
 Full story on F3News: [How Apple's Face ID works     - CNET](http://www.f3nws.com/n/TaZ3xC)
 
-> Posted on: Wednesday, September 13, 2017 12:28:57 AM
+> Posted on: Wednesday, September 13, 2017 1:00:56 AM
