@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suu Kyi skips UN General Assembly amid criticism over Rohingya"
-date: 2017-09-13 12:49:31Z
+date: 2017-09-13 15:20:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Myanmar's de facto leader, State Counsellor Aung San Suu Kyi, has canceled a tri
 
 Full story on F3News: [Suu Kyi skips UN General Assembly amid criticism over Rohingya](http://www.f3nws.com/n/2q2GXH)
 
-> Posted on: Wednesday, September 13, 2017 12:49:31 PM
+> Posted on: Wednesday, September 13, 2017 3:20:59 PM
