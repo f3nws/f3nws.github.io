@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aung San Suu Kyi cancels trip to UN amid growing Rohingya crisis"
-date: 2017-09-13 06:34:02Z
+date: 2017-09-13 07:07:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Myanmar's de facto leader, State Counsellor Aung San Suu Kyi, has canceled a tri
 
 Full story on F3News: [Aung San Suu Kyi cancels trip to UN amid growing Rohingya crisis](http://www.f3nws.com/n/2q2GXH)
 
-> Posted on: Wednesday, September 13, 2017 6:34:02 AM
+> Posted on: Wednesday, September 13, 2017 7:07:33 AM
