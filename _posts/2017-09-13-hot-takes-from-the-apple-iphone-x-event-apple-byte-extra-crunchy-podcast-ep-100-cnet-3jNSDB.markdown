@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hot takes from the Apple iPhone X Event (Apple Byte Extra Crunchy Podcast, Ep. 100)     - CNET"
-date: 2017-09-13 03:21:09Z
+date: 2017-09-13 03:46:14Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We dive into some of our raw reactions after Apple's keynote, and what stood out
 
 Full story on F3News: [Hot takes from the Apple iPhone X Event (Apple Byte Extra Crunchy Podcast, Ep. 100)     - CNET](http://www.f3nws.com/n/3jNSDB)
 
-> Posted on: Wednesday, September 13, 2017 3:21:09 AM
+> Posted on: Wednesday, September 13, 2017 3:46:14 AM
