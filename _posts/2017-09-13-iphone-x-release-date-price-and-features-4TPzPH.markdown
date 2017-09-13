@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X release date, price and features"
-date: 2017-09-13 11:15:28Z
+date: 2017-09-13 20:24:28Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The iPhone X is expensive, but feature-packed. Is there enough here to warrant i
 
 Full story on F3News: [iPhone X release date, price and features](http://www.f3nws.com/n/4TPzPH)
 
-> Posted on: Wednesday, September 13, 2017 11:15:28 AM
+> Posted on: Wednesday, September 13, 2017 8:24:28 PM
