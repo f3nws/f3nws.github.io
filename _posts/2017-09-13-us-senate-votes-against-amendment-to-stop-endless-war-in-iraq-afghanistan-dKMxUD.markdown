@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![US Senate votes against amendment to stop 'endless' war in Iraq & Afghanistan](https://img.rt.com/files/static.en/article/breaking.jpg)
 
-The US Senate has voted 61-36 to kill the amendment, proposed by Senator Rand Paul (R-Kentucky) which would repeal the 2001 and 2002 Authorizations for Use of Military Force (AUMF) against Afghanistan and Iraq. Read Full Article at RT.com
+The US Senate has voted 61-36 to kill the amendment, proposed by Senator Rand Paul (R-Kentucky) which would repeal the 2001 and 2002 Authorizations for Use of Military Force (AUMF) in Afghanistan and Iraq. Read Full Article at RT.com
 
 
 Full story on F3News: [US Senate votes against amendment to stop 'endless' war in Iraq & Afghanistan](http://www.f3nws.com/n/dKMxUD)
