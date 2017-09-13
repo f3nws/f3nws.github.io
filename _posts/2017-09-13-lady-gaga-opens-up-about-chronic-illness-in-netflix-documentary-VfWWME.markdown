@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lady Gaga opens up about chronic illness in Netflix documentary"
-date: 2017-09-13 06:19:25Z
+date: 2017-09-13 09:36:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Lady Gaga is hoping her forthcoming Netflix documentary will raise awareness of 
 
 Full story on F3News: [Lady Gaga opens up about chronic illness in Netflix documentary](http://www.f3nws.com/n/VfWWME)
 
-> Posted on: Wednesday, September 13, 2017 6:19:25 AM
+> Posted on: Wednesday, September 13, 2017 9:36:47 AM
