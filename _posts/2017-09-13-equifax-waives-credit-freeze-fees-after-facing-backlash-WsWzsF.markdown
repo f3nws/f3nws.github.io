@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Equifax waives credit freeze fees after facing backlash"
+date: 2017-09-13 04:33:00Z
+categories: engadget
+---
+
+![Equifax waives credit freeze fees after facing backlash](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D3680%252C2456%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1068%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F95aa241810ed45e4baeb46ecdcc5c3c2%252F205660960%252Fmanish-sinha-ceo-of-equifax-poses-during-an-exclusive-interview-on-picture-id535870278%26client%3Da1acac3e1b3290917d92%26signature%3D635092f747ba685fafabe714abfcd840023af4d8&client=cbc79c14efcebee57402&signature=2c222a03326afcb19abe499daeeade1b92a1a2b8)
+
+Equifax has learned the hard way that people that people don't appreciate having to pay $10 for protection when it's not their fault their personal details were compromised. Especially if that $10 solution has its own security flaw . That's why it's now offering to waive all credit freeze fees to prevent identity thieves from opening credit lines in the names of the 143 million Americans affected by the massive cyberattack it suffered . You won't even have to give up your right to join a class action by taking up the bureau on its offer. The bad news is that it will only waive fees for the next 30 days, so you may want to tell your friends to tell their friends to take advantage of the offer while it lasts. @mariocataldo In response to consumer feedback, we are waiving fees for removing and placing Security Freezes for the next 30 days. -Tim — Equifax Inc. (@Equifax) September 12, 2017 The oldest credit bureau in the US admitted earlier this month that attackers got into its system and stayed there to access 143 million US citizens' info from mid-May through July 29th. It originally offered free credit monitoring for a year and charged a fee if you wanted to freeze your credit report. Pretty soon, though, those who forked 10 bucks over discovered that the PIN codes they got to lock their accounts were generated using the time and date they made their request. If you bought a PIN on September 11th, 4:20 PM, for instance, your code would have the numbers "0911" and "1620" in it. That method makes the PINs easier to crack. In addition to making its credit freezes free going forward, Equifax says it will give you a refund if you already paid for a PIN code. However, to be completely sure that nobody opens a credit line in your name, you'll have to pay to freeze your info with Experian and TransUnion, as well. A reader forwarded an email exchange with Equifax to the The New York Times , wherein the credit bureau said it's preparing a service that can lock your Equifax, Experian and TransUnion files at the same time. The company rep told the NYT reader that the s...
+
+
+Full story on F3News: [Equifax waives credit freeze fees after facing backlash](http://www.f3nws.com/n/WsWzsF)
+
+> Posted on: Wednesday, September 13, 2017 4:33:00 AM
