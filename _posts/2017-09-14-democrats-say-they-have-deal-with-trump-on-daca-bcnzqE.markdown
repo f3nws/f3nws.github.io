@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Democrats say they have deal with Trump on DACA](http://timesofindia.indiatimes.com/photo/msid-60506095/60506095.jpg?287192)
 
-US President Donald Trump ended the DACA program earlier this month and had given Congress six months to come up with a legislative fix before the statuses of the so-called "Dreamers" begin to expire.
+US President Donald Trump ended the DACA programme earlier this month and had given Congress six months to come up with a legislative fix before the statuses of the so-called "Dreamers" begin to expire.
 
 
 Full story on F3News: [Democrats say they have deal with Trump on DACA](http://www.f3nws.com/n/bcnzqE)
