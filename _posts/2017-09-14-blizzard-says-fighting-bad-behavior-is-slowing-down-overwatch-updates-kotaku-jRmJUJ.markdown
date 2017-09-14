@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Blizzard Says Fighting Bad Behavior Is Slowing Down Overwatch Updates - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--PquAbPBU--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/h5muklp327g902o9wsuq.jpg)
 
-Kotaku Blizzard Says Fighting Bad Behavior Is Slowing Down Overwatch Updates Kotaku Overwatch has serious issues with toxic players, and in recent months, those problems only seem to have gotten worse. Blizzard swears up and down that it's working to improve player behavior, but according to game director Jeff Kaplan, those efforts ... Overwatch Addressing "Rising Tide Of Toxicity" In The Game, Here's How GameSpot Overwatch Report System Helped Penalize 340000 Accounts Twinfinite Blizzard's Jeff Kaplan says toxic behaviour is slowing Overwatch development Eurogamer.net PCGamesN - Mirror Daily - Critical Hit - eSports Pro all 23 news articles »
+Kotaku Blizzard Says Fighting Bad Behavior Is Slowing Down Overwatch Updates Kotaku Overwatch has serious issues with toxic players, and in recent months, those problems only seem to have gotten worse. Blizzard swears up and down that it's working to improve player behavior, but according to game director Jeff Kaplan, those efforts ... 'Overwatch' player toxicity is delaying game updates Engadget Overwatch Addressing "Rising Tide Of Toxicity" In The Game, Here's How GameSpot Overwatch's Jeff Kaplan on toxic behavior: 'the community needs to take a deep look inwards' PC Gamer Tech Times - Twinfinite - SegmentNext - Eurogamer.net all 27 news articles »
 
 
 Full story on F3News: [Blizzard Says Fighting Bad Behavior Is Slowing Down Overwatch Updates - Kotaku](http://www.f3nws.com/n/jRmJUJ)

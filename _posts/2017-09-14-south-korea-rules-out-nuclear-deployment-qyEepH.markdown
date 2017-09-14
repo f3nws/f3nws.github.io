@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea rules out nuclear deployment"
-date: 2017-09-14 09:21:13Z
+date: 2017-09-14 13:19:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korean President Moon Jae-in has dismissed the possibility of deploying nu
 
 Full story on F3News: [South Korea rules out nuclear deployment](http://www.f3nws.com/n/qyEepH)
 
-> Posted on: Thursday, September 14, 2017 9:21:13 AM
+> Posted on: Thursday, September 14, 2017 1:19:29 PM

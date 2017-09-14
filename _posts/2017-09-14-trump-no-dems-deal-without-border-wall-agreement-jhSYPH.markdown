@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: No Dems deal without border wall agreement"
-date: 2017-09-14 12:02:01Z
+date: 2017-09-14 13:14:18Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Democratic leaders Sen. Chuck Schumer and Rep. Nancy Pelosi said following a Wed
 
 Full story on F3News: [Trump: No Dems deal without border wall agreement](http://www.f3nws.com/n/jhSYPH)
 
-> Posted on: Thursday, September 14, 2017 12:02:01 PM
+> Posted on: Thursday, September 14, 2017 1:14:18 PM
