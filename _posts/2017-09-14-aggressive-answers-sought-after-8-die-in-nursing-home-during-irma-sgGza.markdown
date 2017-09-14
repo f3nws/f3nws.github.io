@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Aggressive answers' sought after 8 die in nursing home during Irma"
-date: 2017-09-14 10:22:26Z
+date: 2017-09-14 16:22:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A nursing home in Hollywood, Florida prepped with seven days of food, water and 
 
 Full story on F3News: ['Aggressive answers' sought after 8 die in nursing home during Irma](http://www.f3nws.com/n/sgGza)
 
-> Posted on: Thursday, September 14, 2017 10:22:26 AM
+> Posted on: Thursday, September 14, 2017 4:22:06 PM
