@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tattooed, shirtless looters arrested for stealing power pole as police turn up the heat"
-date: 2017-09-14 13:04:00Z
+date: 2017-09-14 13:22:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Two men were arrested Wednesday after an officer found a utility pole strapped t
 
 Full story on F3News: [Tattooed, shirtless looters arrested for stealing power pole as police turn up the heat](http://www.f3nws.com/n/3zdXyD)
 
-> Posted on: Thursday, September 14, 2017 1:04:00 PM
+> Posted on: Thursday, September 14, 2017 1:22:00 PM
