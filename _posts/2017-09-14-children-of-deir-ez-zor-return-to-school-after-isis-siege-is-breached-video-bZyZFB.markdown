@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Children of Deir ez-Zor return to school after ISIS siege is breached (VIDEO)"
-date: 2017-09-14 00:06:49Z
+date: 2017-09-14 00:06:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Schools in the liberated areas of Deir ez-Zor city have started the new school y
 
 Full story on F3News: [Children of Deir ez-Zor return to school after ISIS siege is breached (VIDEO)](http://www.f3nws.com/n/bZyZFB)
 
-> Posted on: Thursday, September 14, 2017 12:06:49 AM
+> Posted on: Thursday, September 14, 2017 12:06:00 AM
