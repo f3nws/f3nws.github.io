@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma - New York Times](https://static01.nyt.com/images/2017/09/13/us/13storm-alpha3/13storm-alpha3-facebookJumbo-v3.jpg)
 
-New York Times Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma New York Times Emergency workers at Memorial Regional Hospital in Hollywood, Fla., on Wednesday, where residents of a sweltering nursing home were taken. Credit Jason Henry for The New York Times. HOLLYWOOD, Fla. — The first patient was rushed into the ... Eight dead after South Florida nursing home's air conditioning fails following Hurricane Irma Washington Post 8 dead after Irma knocks out air conditioning at Florida nursing home ABC News Irma: Eight dead at Florida nursing home left without power BBC News Los Angeles Times - NBCNews.com - NPR - Chicago Tribune all 325 news articles »
+New York Times Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma New York Times Emergency workers at Memorial Regional Hospital in Hollywood, Fla., on Wednesday, where residents of a sweltering nursing home were taken. Credit Jason Henry for The New York Times. HOLLYWOOD, Fla. — The first patient was rushed into the ... Eight dead after South Florida nursing home's air conditioning fails following Hurricane Irma Washington Post Irma: Eight dead at Florida nursing home left without power BBC News 8 dead after Irma knocks out air conditioning at Florida nursing home ABC News Los Angeles Times - NBCNews.com - NPR - Chicago Tribune all 329 news articles »
 
 
 Full story on F3News: [Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma - New York Times](http://www.f3nws.com/n/bTGNKD)
