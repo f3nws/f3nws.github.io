@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spicer talks crowd size and facts on late night show"
-date: 2017-09-14 07:48:20Z
+date: 2017-09-14 20:36:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House press secretary Sean Spicer discusses the remarks he made abo
 
 Full story on F3News: [Spicer talks crowd size and facts on late night show](http://www.f3nws.com/n/ZFK2yD)
 
-> Posted on: Thursday, September 14, 2017 7:48:20 AM
+> Posted on: Thursday, September 14, 2017 8:36:35 PM
