@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jennifer Lawrence Is a Deadly Seductress in First 'Red Sparrow' Trailer (Watch) - Variety](https://pmcvariety.files.wordpress.com/2017/09/red-sparrow.png?w=1000&h=562&crop=1)
 
-Variety Jennifer Lawrence Is a Deadly Seductress in First 'Red Sparrow' Trailer (Watch) Variety Jennifer Lawrence is a deadly seductress in Fox's first teaser trailer for spy thriller “Red Sparrow.” The footage, unveiled Thursday, shows her in a brunette wig and a low-cut red dress on a bed with a drink, followed by a man placing a mobile phone ... Jennifer Lawrence is the ultimate femme fatale in first Red Sparrow trailer EW.com (blog) Jennifer Lawrence Spy Thriller 'Red Sparrow' Teaser Trailer Released Hollywood Reporter Watch Jennifer Lawrence Seduce and Destroy Men in Sleek Red Sparrow Vanity Fair TheWrap - Cinema Blend - PerezHilton.com - Refinery29 all 52 news articles »
+Variety Jennifer Lawrence Is a Deadly Seductress in First 'Red Sparrow' Trailer (Watch) Variety Jennifer Lawrence is a deadly seductress in Fox's first teaser trailer for spy thriller “Red Sparrow.” The footage, unveiled Thursday, shows her in a brunette wig and a low-cut red dress on a bed with a drink, followed by a man placing a mobile phone ... 'Red Sparrow' Trailer: Jennifer Lawrence Goes Full-On Femme Fatale Deadline Watch Jennifer Lawrence Seduce and Destroy Men in Sleek Red Sparrow Vanity Fair Jennifer Lawrence is the ultimate femme fatale in first Red Sparrow trailer EW.com (blog) TheWrap - Bleeding Cool News - Cinema Blend - Business Insider all 62 news articles »
 
 
 Full story on F3News: [Jennifer Lawrence Is a Deadly Seductress in First 'Red Sparrow' Trailer (Watch) - Variety](http://www.f3nws.com/n/aAQhDE)
