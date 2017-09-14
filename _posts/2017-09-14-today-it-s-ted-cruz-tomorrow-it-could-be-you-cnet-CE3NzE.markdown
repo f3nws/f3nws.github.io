@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Today it's Ted Cruz, tomorrow it could be you     - CNET"
-date: 2017-09-14 00:10:47Z
+date: 2017-09-14 01:58:34Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: The Texas senator became the laughing stock of Twitter this week aft
 
 Full story on F3News: [Today it's Ted Cruz, tomorrow it could be you     - CNET](http://www.f3nws.com/n/CE3NzE)
 
-> Posted on: Thursday, September 14, 2017 12:10:47 AM
+> Posted on: Thursday, September 14, 2017 1:58:34 AM

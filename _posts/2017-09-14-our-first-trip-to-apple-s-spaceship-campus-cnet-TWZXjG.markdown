@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Our first trip to Apple’s spaceship campus     - CNET"
-date: 2017-09-14 01:18:44Z
+date: 2017-09-14 01:55:42Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CNET made its first visit to Apple Park for the iPhone X announcement. We saw th
 
 Full story on F3News: [Our first trip to Apple’s spaceship campus     - CNET](http://www.f3nws.com/n/TWZXjG)
 
-> Posted on: Thursday, September 14, 2017 1:18:44 AM
+> Posted on: Thursday, September 14, 2017 1:55:42 AM
