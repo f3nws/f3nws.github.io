@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Police say three teenagers murdered man in 'carjacking gone wrong' - The Age"
+date: 2017-09-14 05:57:02Z
+categories: google-news-australia
+---
+
+![Police say three teenagers murdered man in 'carjacking gone wrong' - The Age](http://www.theage.com.au/content/dam/images/g/x/4/u/t/m/image.related.articleLeadwide.620x349.gyhh5n.png/1505368250365.jpg)
+
+The Age Police say three teenagers murdered man in 'carjacking gone wrong' The Age Police will allege three teenagers murdered Paul Costa in a Brunswick West reserve in a carjacking gone wrong. Homicide Squad detectives arrested a 17-year-old boy and an 18-year-old man in Thomastown on Thursday morning. Teen trio charged over Vic park murder The Australian Trio charged with murder over Paul Costa's death ABC Online Teen trio charged over murder of Melbourne man in a designer suit SBS Herald Sun - Newcastle Herald - Triple M - 3AW all 10 news articles »
+
+
+Full story on F3News: [Police say three teenagers murdered man in 'carjacking gone wrong' - The Age](http://www.f3nws.com/n/RvDWeD)
+
+> Posted on: Thursday, September 14, 2017 5:57:02 AM
