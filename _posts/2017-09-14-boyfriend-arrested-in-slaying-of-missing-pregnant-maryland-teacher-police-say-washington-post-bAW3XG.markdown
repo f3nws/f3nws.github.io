@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Boyfriend arrested in slaying of missing pregnant Maryland teacher, police say - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/09/Local/Images/missingteacher.JPG?t=20170517)
 
-Washington Post Boyfriend arrested in slaying of missing pregnant Maryland teacher, police say Washington Post Police in Maryland found the body of missing teacher Laura Wallen in a shallow grave Wednesday in Damascus and hours later charged her boyfriend in her killing.,. The suspect, Tyler Tessier, also was believed to be the father of Wallen's unborn child, ... Missing Md. teacher found dead; boyfriend in custody WTOP Pregnant Maryland teacher who went missing found dead; boyfriend arrested Fox News Missing Pregnant Teacher Found Dead; Boyfriend Arrested: Police NBC4 Washington all 45 news articles »
+Washington Post Boyfriend arrested in slaying of missing pregnant Maryland teacher, police say Washington Post Police in Maryland found the body of missing teacher Laura Wallen in a shallow grave Wednesday in Damascus and hours later charged her boyfriend in her killing.,. The suspect, Tyler Tessier, also was believed to be the father of Wallen's unborn child, ... Wilde Lake teacher Laura Wallen found dead; boyfriend arrested, police say Baltimore Sun Missing Md. teacher found dead; boyfriend in custody WTOP Pregnant Maryland teacher who went missing found dead; boyfriend arrested Fox News NBC4 Washington - WBAL Baltimore all 49 news articles »
 
 
 Full story on F3News: [Boyfriend arrested in slaying of missing pregnant Maryland teacher, police say - Washington Post](http://www.f3nws.com/n/bAW3XG)
