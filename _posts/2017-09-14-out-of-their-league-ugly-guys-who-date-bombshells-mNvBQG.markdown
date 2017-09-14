@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Out of their league: Ugly guys who date bombshells"
-date: 2017-09-14 08:00:02Z
+date: 2017-09-14 09:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ How do these odd-looking guys attract such lovely ladies?
 
 Full story on F3News: [Out of their league: Ugly guys who date bombshells](http://www.f3nws.com/n/mNvBQG)
 
-> Posted on: Thursday, September 14, 2017 8:00:02 AM
+> Posted on: Thursday, September 14, 2017 9:00:00 AM
