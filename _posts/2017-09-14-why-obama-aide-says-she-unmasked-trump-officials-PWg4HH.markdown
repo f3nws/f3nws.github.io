@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why Obama aide says she unmasked Trump officials"
-date: 2017-09-14 10:53:33Z
+date: 2017-09-14 10:54:15Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former national security adviser Susan Rice privately told House investigators t
 
 Full story on F3News: [Why Obama aide says she unmasked Trump officials](http://www.f3nws.com/n/PWg4HH)
 
-> Posted on: Thursday, September 14, 2017 10:53:33 AM
+> Posted on: Thursday, September 14, 2017 10:54:15 AM
