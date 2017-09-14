@@ -5,6 +5,8 @@ date: 2017-09-14 00:35:00Z
 categories: fox-news
 ---
 
+![California grandpa throws man off roof to end hours-long police standoff](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 A California grandfather took matters into his own hands when a stranger jumping on rooftops caused an hours-long police standoff on Tuesday.
 
 
