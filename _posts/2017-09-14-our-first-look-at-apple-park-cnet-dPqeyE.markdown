@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Our first look at Apple Park     - CNET"
-date: 2017-09-14 02:28:10Z
+date: 2017-09-14 04:15:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Apple's spaceship has touched down in Cupertino, California. We visited its land
 
 Full story on F3News: [Our first look at Apple Park     - CNET](http://www.f3nws.com/n/dPqeyE)
 
-> Posted on: Thursday, September 14, 2017 2:28:10 AM
+> Posted on: Thursday, September 14, 2017 4:15:57 AM
