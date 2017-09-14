@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![US citizen fighting for ISIS captured in Syria - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/151127115607-isis-flag-super-tease.jpg)
 
-CNN US citizen fighting for ISIS captured in Syria CNN (CNN) The US-backed Syrian Democratic Forces have detained a US citizen who had been fighting with ISIS in Syria, a US military official told CNN Thursday. The official added that it appeared that the American citizen surrendered to Kurdish elements of ... American ISIS fighter captured in Syria New York Post Steady Progress Marks Success in Iraqis' Fight Against ISIS, Official Says Department of Defense Syrian Democratic Forces hold two-thirds of Raqqa: Monitor Arab News Daily Sabah - Sky News - Daily Beast all 39 news articles »
+CNN US citizen fighting for ISIS captured in Syria CNN (CNN) The US military has detained a US citizen who had been fighting with ISIS in Syria, a Pentagon spokesman confirmed to CNN Thursday. "Syrian Democratic Forces turned over to US forces an American citizen who surrendered to the SDF on or around ... US Military: American Fighting for ISIS 'Surrenders' Daily Beast American ISIS Fighter in US Custody After Surrender in Syria NBCNews.com American ISIS fighter captured in Syria New York Post Department of Defense - Washington Examiner - Washington Free Beacon - Arab News all 40 news articles »
 
 
 Full story on F3News: [US citizen fighting for ISIS captured in Syria - CNN](http://www.f3nws.com/n/zZSJXF)
