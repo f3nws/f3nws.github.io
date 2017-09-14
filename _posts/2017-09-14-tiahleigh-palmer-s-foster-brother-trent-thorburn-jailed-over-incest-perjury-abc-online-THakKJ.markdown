@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Tiahleigh Palmer's foster brother Trent Thorburn jailed over incest, perjury - ABC Online](http://www.abc.net.au/news/image/7865292-1x1-700x700.jpg)
 
-ABC Online Tiahleigh Palmer's foster brother Trent Thorburn jailed over incest, perjury ABC Online The foster brother who had sex with Queensland schoolgirl Tiahleigh Palmer before her alleged murder is sentenced to four years in jail for incest, perjury and attempting to pervert the course of justice. Trent Thorburn, 20, pleaded guilty at the ... Tiahleigh Palmer's foster brother Trent Thorburn pleads guilty Courier Mail Tiahleigh Palmer's foster brother jailed for incest Brisbane Times Tiahleigh Palmer's foster brother pleads guilty Mackay Daily Mercury Shepparton News - Newcastle Star - Hit 107 all 8 news articles »
+ABC Online Tiahleigh Palmer's foster brother Trent Thorburn jailed over incest, perjury ABC Online The foster brother who had sex with Queensland schoolgirl Tiahleigh Palmer before her alleged murder is sentenced to four years in jail for incest, perjury and attempting to pervert the course of justice. Trent Thorburn, 20, pleaded guilty at the ... Tiahleigh Palmer's foster brother Trent Thorburn pleads guilty Courier Mail Tiahleigh Palmer's foster brother jailed for incest Brisbane Times Tiahleigh Palmer's foster brother pleads guilty Mackay Daily Mercury Triple M - Now To Love - Newcastle Star all 8 news articles »
 
 
 Full story on F3News: [Tiahleigh Palmer's foster brother Trent Thorburn jailed over incest, perjury - ABC Online](http://www.f3nws.com/n/THakKJ)

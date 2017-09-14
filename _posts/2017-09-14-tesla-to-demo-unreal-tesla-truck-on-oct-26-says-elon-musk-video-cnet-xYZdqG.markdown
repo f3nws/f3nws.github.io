@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla to demo 'unreal' Tesla truck on Oct. 26, says Elon Musk video     - CNET"
-date: 2017-09-14 03:46:20Z
+date: 2017-09-14 06:24:40Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It's a month off schedule, but Elon Musk has confirmed Tesla will demo its "beas
 
 Full story on F3News: [Tesla to demo 'unreal' Tesla truck on Oct. 26, says Elon Musk video     - CNET](http://www.f3nws.com/n/xYZdqG)
 
-> Posted on: Thursday, September 14, 2017 3:46:20 AM
+> Posted on: Thursday, September 14, 2017 6:24:40 AM
