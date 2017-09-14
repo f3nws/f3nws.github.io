@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma - New York Times"
-date: 2017-09-14 00:14:00Z
+date: 2017-09-14 00:14:01Z
 categories: google-news-top-stories
 ---
 
 ![Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma - New York Times](https://static01.nyt.com/images/2017/09/13/us/13storm-alpha3/13storm-alpha3-facebookJumbo-v3.jpg)
 
-New York Times Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma New York Times Emergency workers at Memorial Regional Hospital in Hollywood, Fla., on Wednesday, where residents of a sweltering nursing home were taken. Credit Jason Henry for The New York Times. HOLLYWOOD, Fla. — The first patient was rushed into the ... Eight dead after South Florida nursing home's air conditioning fails following Hurricane Irma Washington Post Authorities seek answers after Florida nursing home deaths CNN 8 dead after Irma knocks out air conditioning at Florida nursing home ABC News Los Angeles Times - NBCNews.com - CBS News - NPR all 358 news articles »
+New York Times Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma New York Times Emergency workers at Memorial Regional Hospital in Hollywood, Fla., on Wednesday, where residents of a sweltering nursing home were taken. Credit Jason Henry for The New York Times. HOLLYWOOD, Fla. — The first patient was rushed into the ... Eight dead after South Florida nursing home's air conditioning fails following Hurricane Irma Washington Post Post-Irma nursing home tragedy sets off alarms across Florida CBS News 8 dead after Irma knocks out air conditioning at Florida nursing home ABC News Los Angeles Times - NPR - U.S. News & World Report - Reuters all 384 news articles »
 
 
 Full story on F3News: [Eight Dead From Sweltering Nursing Home as Florida Struggles After Irma - New York Times](http://www.f3nws.com/n/bTGNKD)
 
-> Posted on: Thursday, September 14, 2017 12:14:00 AM
+> Posted on: Thursday, September 14, 2017 12:14:01 AM
