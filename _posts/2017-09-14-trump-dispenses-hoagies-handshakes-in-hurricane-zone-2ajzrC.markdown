@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump dispenses hoagies, handshakes in hurricane zone"
-date: 2017-09-14 15:24:00Z
+date: 2017-09-14 17:29:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAPLES, Fla. (AP) — President Donald Trump doled out hoagies and handshakes in
 
 Full story on F3News: [Trump dispenses hoagies, handshakes in hurricane zone](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 14, 2017 3:24:00 PM
+> Posted on: Thursday, September 14, 2017 5:29:00 PM
