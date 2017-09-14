@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Pixel 2 release date, news and rumors"
-date: 2017-09-14 11:44:50Z
+date: 2017-09-14 16:36:50Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The Pixel 2 is likely to land soon, but can it deliver on the promise of the fir
 
 Full story on F3News: [Google Pixel 2 release date, news and rumors](http://www.f3nws.com/n/yZZUcF)
 
-> Posted on: Thursday, September 14, 2017 11:44:50 AM
+> Posted on: Thursday, September 14, 2017 4:36:50 PM
