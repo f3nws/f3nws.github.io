@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Passengers may wait days as high winds close Sydney Airport runways](http://www.abc.net.au/news/image/8944754-1x1-700x700.jpg)
 
-Up to 100 flights in and out of Sydney Airport are delayed and dozens more are cancelled as wind gusts hit the runways, with passengers at the airport being told it could take days to clear the backlog.
+Up to 100 flights in and out of Sydney Airport are cancelled and dozens more are delayed as wind gusts hit the runways, with stranded passengers being told it could take days to clear the backlog.
 
 
 Full story on F3News: [Passengers may wait days as high winds close Sydney Airport runways](http://www.f3nws.com/n/4DApKB)
