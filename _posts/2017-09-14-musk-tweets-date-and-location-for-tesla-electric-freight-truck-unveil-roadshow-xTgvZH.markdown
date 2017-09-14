@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Musk tweets date and location for Tesla electric freight truck unveil     - Roadshow"
-date: 2017-09-14 00:04:58Z
+date: 2017-09-14 03:46:59Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In a tweet today, Tesla CEO Elon Musk named the date and location for the unveil
 
 Full story on F3News: [Musk tweets date and location for Tesla electric freight truck unveil     - Roadshow](http://www.f3nws.com/n/xTgvZH)
 
-> Posted on: Thursday, September 14, 2017 12:04:58 AM
+> Posted on: Thursday, September 14, 2017 3:46:59 AM
