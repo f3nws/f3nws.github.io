@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "They fled for their lives. He didn't survive"
-date: 2017-09-15 06:19:40Z
+date: 2017-09-15 07:36:45Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A young mother in a mustard-colored veil cradles the infant's lifeless body as t
 
 Full story on F3News: [They fled for their lives. He didn't survive](http://www.f3nws.com/n/jCjpPG)
 
-> Posted on: Friday, September 15, 2017 6:19:40 AM
+> Posted on: Friday, September 15, 2017 7:36:45 AM
