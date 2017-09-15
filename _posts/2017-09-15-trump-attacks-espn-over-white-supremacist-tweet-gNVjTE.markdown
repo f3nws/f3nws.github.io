@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump attacks ESPN over 'white supremacist' tweet"
-date: 2017-09-15 19:52:30Z
+date: 2017-09-15 21:15:45Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ President Trump has a new target in the media -- ESPN.
 
 Full story on F3News: [Trump attacks ESPN over 'white supremacist' tweet](http://www.f3nws.com/n/gNVjTE)
 
-> Posted on: Friday, September 15, 2017 7:52:30 PM
+> Posted on: Friday, September 15, 2017 9:15:45 PM
