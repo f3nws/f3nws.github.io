@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NASA spacecraft completes 20-year mission with 'death dive' into Saturn"
-date: 2017-09-15 12:53:46Z
+date: 2017-09-15 13:17:41Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Contact has been lost with the Cassini spacecraft after it completed a "death di
 
 Full story on F3News: [NASA spacecraft completes 20-year mission with 'death dive' into Saturn](http://www.f3nws.com/n/zuYWnH)
 
-> Posted on: Friday, September 15, 2017 12:53:46 PM
+> Posted on: Friday, September 15, 2017 1:17:41 PM
