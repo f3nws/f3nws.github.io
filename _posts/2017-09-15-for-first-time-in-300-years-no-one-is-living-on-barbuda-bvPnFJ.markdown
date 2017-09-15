@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "For first time in 300 years, no one is living on Barbuda"
-date: 2017-09-15 17:44:46Z
+date: 2017-09-15 18:41:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Hurricane Irma ravaged the island of Barbuda in the Caribbean, the ferociou
 
 Full story on F3News: [For first time in 300 years, no one is living on Barbuda](http://www.f3nws.com/n/bvPnFJ)
 
-> Posted on: Friday, September 15, 2017 5:44:46 PM
+> Posted on: Friday, September 15, 2017 6:41:36 PM
