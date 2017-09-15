@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![North Korea launches missile over Japan - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170908154017-nk-icbm-3-super-tease.jpg)
 
-CNN North Korea launches missile over Japan CNN (CNN) In a major show of defiance to the international community, North Korea fired a ballistic missile over the northern Japanese island of Hokkaido Friday. The launch is the second to fly over Japan in less than a month, and the first since North ... Kim Jong Un — smart and strategic? Washington Post N.Korea fires missile over Japan that lands far out in the Pacific Reuters Can America Live With a Nuclear North Korea? The Atlantic BBC News - New York Times - U.S. News & World Report - CNBC all 784 news articles »
+CNN North Korea launches missile over Japan CNN (CNN) In a major show of defiance to the international community, North Korea fired a ballistic missile over the northern Japanese island of Hokkaido Friday. The launch is the second to fly over Japan in less than a month, and the first since North ... Kim Jong Un — smart and strategic? Washington Post Korean Markets Show Resilience After Missile Launch Bloomberg North Korea's 2nd missile launch over Japan sparks angry response Press Herald New York Times - Nasdaq - MarketWatch - ABC News all 1,062 news articles »
 
 
 Full story on F3News: [North Korea launches missile over Japan - CNN](http://www.f3nws.com/n/YvEjuC)
