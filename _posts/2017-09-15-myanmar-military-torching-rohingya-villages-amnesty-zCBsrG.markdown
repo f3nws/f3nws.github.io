@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Myanmar military torching Rohingya villages: Amnesty"
-date: 2017-09-15 02:30:22Z
+date: 2017-09-15 06:13:27Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Myanmar military torching Rohingya villages: Amnesty](http://www.f3nws.com/n/zCBsrG)
 
-> Posted on: Friday, September 15, 2017 2:30:22 AM
+> Posted on: Friday, September 15, 2017 6:13:27 AM
