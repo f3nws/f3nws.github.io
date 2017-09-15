@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alphabet reportedly mulling $1B investment in Lyft     - CNET"
-date: 2017-09-15 00:21:01Z
+date: 2017-09-15 00:32:32Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Meanwhile, Waymo, Alphabet's self-driving car division, is in a bitter legal bat
 
 Full story on F3News: [Alphabet reportedly mulling $1B investment in Lyft     - CNET](http://www.f3nws.com/n/BdKmYG)
 
-> Posted on: Friday, September 15, 2017 12:21:01 AM
+> Posted on: Friday, September 15, 2017 12:32:32 AM

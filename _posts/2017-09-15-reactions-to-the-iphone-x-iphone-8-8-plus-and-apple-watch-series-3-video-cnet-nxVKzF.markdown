@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reactions to the iPhone X, iPhone 8/8 Plus and Apple Watch Series 3 video     - CNET"
-date: 2017-09-15 00:19:18Z
+date: 2017-09-15 00:28:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It's our breakdown after Apple officially announces the new iPhone X, iPhone 8 a
 
 Full story on F3News: [Reactions to the iPhone X, iPhone 8/8 Plus and Apple Watch Series 3 video     - CNET](http://www.f3nws.com/n/nxVKzF)
 
-> Posted on: Friday, September 15, 2017 12:19:18 AM
+> Posted on: Friday, September 15, 2017 12:28:56 AM
