@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump again seizes on terror incident to call for travel ban"
-date: 2017-09-15 18:08:01Z
+date: 2017-09-15 20:40:22Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Friday again called for the implementation of his trav
 
 Full story on F3News: [Trump again seizes on terror incident to call for travel ban](http://www.f3nws.com/n/nHhYvF)
 
-> Posted on: Friday, September 15, 2017 6:08:01 PM
+> Posted on: Friday, September 15, 2017 8:40:22 PM

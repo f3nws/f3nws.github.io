@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Selena Gomez's best friend gave her a kidney"
-date: 2017-09-15 15:31:29Z
+date: 2017-09-15 20:36:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Selena Gomez revealed on Thursday that she received a kidney transplant from her
 
 Full story on F3News: [Selena Gomez's best friend gave her a kidney](http://www.f3nws.com/n/zGbdvF)
 
-> Posted on: Friday, September 15, 2017 3:31:29 PM
+> Posted on: Friday, September 15, 2017 8:36:42 PM
