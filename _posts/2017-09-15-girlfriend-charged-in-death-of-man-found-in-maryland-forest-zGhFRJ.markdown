@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Girlfriend charged in death of man found in Maryland forest"
-date: 2017-09-15 02:34:12Z
+date: 2017-09-15 03:19:38Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The girlfriend of a man whose body was found in the western Maryland woods has b
 
 Full story on F3News: [Girlfriend charged in death of man found in Maryland forest](http://www.f3nws.com/n/zGhFRJ)
 
-> Posted on: Friday, September 15, 2017 2:34:12 AM
+> Posted on: Friday, September 15, 2017 3:19:38 AM

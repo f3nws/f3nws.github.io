@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea fires missile over Japan in longest-ever flight"
-date: 2017-09-15 00:12:00Z
+date: 2017-09-15 01:13:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — North Korea fired an intermediate-range missile over
 
 Full story on F3News: [North Korea fires missile over Japan in longest-ever flight](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 15, 2017 12:12:00 AM
+> Posted on: Friday, September 15, 2017 1:13:00 AM
