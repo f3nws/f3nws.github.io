@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Ipswich council's deputy mayor Paul Tully to stand down - ABC Online](http://www.abc.net.au/news/image/8948474-1x1-700x700.jpg)
 
-ABC Online Ipswich council's deputy mayor Paul Tully to stand down ABC Online Ipswich Mayor Andrew Antoniolli has announced his deputy Paul Tully has "agreed to stand down" from the position amid a week which has "shocked and rocked" the council, west of Brisbane. The newly-elected Mayor vowed on Friday morning to deliver ... New Qld mayor rocked by corruption claims The Australian 'No intention of stepping down': Mayor on council crisis The Queensland Times all 9 news articles »
+ABC Online Ipswich council's deputy mayor Paul Tully to stand down ABC Online Ipswich Mayor Andrew Antoniolli has announced his deputy Paul Tully has "agreed to stand down" from the position amid a week which has "shocked and rocked" the council, west of Brisbane. The newly-elected Mayor vowed on Friday morning to deliver ... New Qld mayor rocked by corruption claims The Australian 'No intention of stepping down': Mayor on council crisis The Queensland Times all 10 news articles »
 
 
 Full story on F3News: [Ipswich council's deputy mayor Paul Tully to stand down - ABC Online](http://www.f3nws.com/n/bBJahB)
