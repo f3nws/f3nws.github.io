@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At WH dinner, Pelosi asks, 'Do women get to talk here?'"
-date: 2017-09-15 12:05:30Z
+date: 2017-09-15 17:45:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ House Minority Leader Nancy Pelosi asked "Do the women get to talk around here?"
 
 Full story on F3News: [At WH dinner, Pelosi asks, 'Do women get to talk here?'](http://www.f3nws.com/n/NkntqG)
 
-> Posted on: Friday, September 15, 2017 12:05:30 PM
+> Posted on: Friday, September 15, 2017 5:45:10 PM
