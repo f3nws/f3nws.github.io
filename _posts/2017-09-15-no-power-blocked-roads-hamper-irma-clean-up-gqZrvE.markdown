@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No power, blocked roads hamper Irma clean-up"
-date: 2017-09-15 04:09:17Z
+date: 2017-09-15 11:23:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Days after Hurricane Irma tore through Florida and left millions without power, 
 
 Full story on F3News: [No power, blocked roads hamper Irma clean-up](http://www.f3nws.com/n/gqZrvE)
 
-> Posted on: Friday, September 15, 2017 4:09:17 AM
+> Posted on: Friday, September 15, 2017 11:23:11 AM
