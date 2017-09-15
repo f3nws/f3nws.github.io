@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London Tube partially shut after 'security situation'"
-date: 2017-09-15 08:40:28Z
+date: 2017-09-15 09:13:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London's transport body shut down part of an underground train line Friday morni
 
 Full story on F3News: [London Tube partially shut after 'security situation'](http://www.f3nws.com/n/rnMNTF)
 
-> Posted on: Friday, September 15, 2017 8:40:28 AM
+> Posted on: Friday, September 15, 2017 9:13:46 AM

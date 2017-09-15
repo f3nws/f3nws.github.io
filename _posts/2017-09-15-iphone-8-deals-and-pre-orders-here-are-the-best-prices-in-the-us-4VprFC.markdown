@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8 deals and pre-orders: here are the best prices in the US"
-date: 2017-09-15 07:57:12Z
+date: 2017-09-15 09:08:12Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ There's no such thing as a cheap iPhone 8 yet, but you can find better prices to
 
 Full story on F3News: [iPhone 8 deals and pre-orders: here are the best prices in the US](http://www.f3nws.com/n/4VprFC)
 
-> Posted on: Friday, September 15, 2017 7:57:12 AM
+> Posted on: Friday, September 15, 2017 9:08:12 AM

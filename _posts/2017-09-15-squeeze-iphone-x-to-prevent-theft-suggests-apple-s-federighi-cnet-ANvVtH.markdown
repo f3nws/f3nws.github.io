@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Squeeze iPhone X to prevent theft, suggests Apple's Federighi     - CNET"
-date: 2017-09-15 05:05:00Z
+date: 2017-09-15 08:27:07Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: In an email to a developer, Apple's SVP of software engineering offe
 
 Full story on F3News: [Squeeze iPhone X to prevent theft, suggests Apple's Federighi     - CNET](http://www.f3nws.com/n/ANvVtH)
 
-> Posted on: Friday, September 15, 2017 5:05:00 AM
+> Posted on: Friday, September 15, 2017 8:27:07 AM
