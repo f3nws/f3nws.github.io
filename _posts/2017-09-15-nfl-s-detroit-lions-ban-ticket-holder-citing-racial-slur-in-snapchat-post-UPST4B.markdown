@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NFL's Detroit Lions ban ticket holder, citing racial slur in Snapchat post"
-date: 2017-09-15 09:30:04Z
+date: 2017-09-15 10:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The NFL's Detroit Lions say they have canceled the season tickets of a fan who a
 
 Full story on F3News: [NFL's Detroit Lions ban ticket holder, citing racial slur in Snapchat post](http://www.f3nws.com/n/UPST4B)
 
-> Posted on: Friday, September 15, 2017 9:30:04 AM
+> Posted on: Friday, September 15, 2017 10:00:03 AM

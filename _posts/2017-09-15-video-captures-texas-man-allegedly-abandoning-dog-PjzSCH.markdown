@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Video captures Texas man allegedly abandoning dog"
-date: 2017-09-15 08:30:03Z
+date: 2017-09-15 10:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A Texas man was reportedly captured on video on Monday abandoning a 1-year-old d
 
 Full story on F3News: [Video captures Texas man allegedly abandoning dog](http://www.f3nws.com/n/PjzSCH)
 
-> Posted on: Friday, September 15, 2017 8:30:03 AM
+> Posted on: Friday, September 15, 2017 10:00:02 AM

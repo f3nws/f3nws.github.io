@@ -7,7 +7,7 @@ categories: cnet
 
 ![Dave Bautista battles thugs in 'Blade Runner: 2049' short - CNET](https://cnet2.cbsistatic.com/img/OxL2KCLrTImCkPkiAdpH9NY2mxo=/670x503/2017/09/14/0224e605-82f0-412c-8be7-e0634d5a4a6f/davebautista2.jpg)
 
-CNET Dave Bautista battles thugs in 'Blade Runner: 2049' short CNET #BladeRunner2049's @DaveBautista is a replicant on the run in this never-before-seen in-world prequel. Watch it now. pic.twitter.com/xGn3WfjATF. — iTunes Trailers (@iTunesTrailers) September 14, 2017. Replicants are more than just complex androids ... Dave Bautista Is A Replicant On The Run In The Latest 'Blade Runner 2049' Prequel Short UPROXX Blade Runner Is Getting A Short Anime From Cowboy Bebop's Director Kotaku A second prequel short introduces a new character from Blade Runner 2049 The Verge Bleeding Cool News - Cinema Blend - Hollywood Reporter - Gizmodo all 60 news articles »
+CNET Dave Bautista battles thugs in 'Blade Runner: 2049' short CNET #BladeRunner2049's @DaveBautista is a replicant on the run in this never-before-seen in-world prequel. Watch it now. pic.twitter.com/xGn3WfjATF. — iTunes Trailers (@iTunesTrailers) September 14, 2017. Replicants are more than just complex androids ... Dave Bautista Is A Replicant On The Run In The Latest 'Blade Runner 2049' Prequel Short UPROXX Blade Runner Is Getting A Short Anime From Cowboy Bebop's Director Kotaku A second prequel short introduces a new character from Blade Runner 2049 The Verge Cinema Blend - Hollywood Reporter - Bleeding Cool News - Gizmodo all 62 news articles »
 
 
 Full story on F3News: [Dave Bautista battles thugs in 'Blade Runner: 2049' short - CNET](http://www.f3nws.com/n/mzkRMF)

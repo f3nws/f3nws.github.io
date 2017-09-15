@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celeb style: How low can they go?"
-date: 2017-09-15 08:30:05Z
+date: 2017-09-15 09:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Some stars aren't scared to wear a dress cut down to waaaaaaaay down there.
 
 Full story on F3News: [Celeb style: How low can they go?](http://www.f3nws.com/n/BRGaBG)
 
-> Posted on: Friday, September 15, 2017 8:30:05 AM
+> Posted on: Friday, September 15, 2017 9:00:00 AM

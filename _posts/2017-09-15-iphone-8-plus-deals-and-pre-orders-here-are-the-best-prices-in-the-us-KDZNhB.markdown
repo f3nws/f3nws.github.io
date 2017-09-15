@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8 Plus deals and pre-orders: here are the best prices in the US"
-date: 2017-09-15 07:58:04Z
+date: 2017-09-15 09:33:04Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The iPhone 8 Plus won't be the most expensive iPhone, thanks to the iPhone X, bu
 
 Full story on F3News: [iPhone 8 Plus deals and pre-orders: here are the best prices in the US](http://www.f3nws.com/n/KDZNhB)
 
-> Posted on: Friday, September 15, 2017 7:58:04 AM
+> Posted on: Friday, September 15, 2017 9:33:04 AM
