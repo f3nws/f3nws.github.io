@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean missile flies over Japan"
-date: 2017-09-15 08:17:03Z
+date: 2017-09-15 08:40:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The South Korean Joint Chiefs of Staff said Friday that, "North Korea fired an u
 
 Full story on F3News: [North Korean missile flies over Japan](http://www.f3nws.com/n/YvEjuC)
 
-> Posted on: Friday, September 15, 2017 8:17:03 AM
+> Posted on: Friday, September 15, 2017 8:40:27 AM
