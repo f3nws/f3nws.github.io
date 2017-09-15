@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US bans Kaspersky software from government agencies     - CNET"
-date: 2017-09-15 03:24:59Z
+date: 2017-09-15 07:42:50Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Department of Homeland Security says it's worried the Moscow-based company m
 
 Full story on F3News: [US bans Kaspersky software from government agencies     - CNET](http://www.f3nws.com/n/FgZWpB)
 
-> Posted on: Friday, September 15, 2017 3:24:59 AM
+> Posted on: Friday, September 15, 2017 7:42:50 AM
