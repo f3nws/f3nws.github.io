@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "11-year-old Frank does a 'great job' mowing White House lawn"
-date: 2017-09-15 13:46:00Z
+date: 2017-09-15 16:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Eleven-year-old yard services entrepreneur Frank Giaccio locked down his biggest
 
 Full story on F3News: [11-year-old Frank does a 'great job' mowing White House lawn](http://www.f3nws.com/n/WAQkaC)
 
-> Posted on: Friday, September 15, 2017 1:46:00 PM
+> Posted on: Friday, September 15, 2017 4:15:00 PM
