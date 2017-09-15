@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passengers flee after reports of 'explosion'"
-date: 2017-09-15 11:50:36Z
+date: 2017-09-15 12:29:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London's transport body shut down part of an underground train line Friday morni
 
 Full story on F3News: [Passengers flee after reports of 'explosion'](http://www.f3nws.com/n/rnMNTF)
 
-> Posted on: Friday, September 15, 2017 11:50:36 AM
+> Posted on: Friday, September 15, 2017 12:29:20 PM
