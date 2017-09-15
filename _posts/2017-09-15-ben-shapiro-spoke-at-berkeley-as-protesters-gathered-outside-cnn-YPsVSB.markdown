@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ben Shapiro spoke at Berkeley as protesters gathered outside - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170914151728-ben-shapiro-intv-super-tease.jpg)
 
-CNN Ben Shapiro spoke at Berkeley as protesters gathered outside CNN (CNN) As conservative radio host Ben Shapiro spoke at the University of California Berkeley, protesters swarmed outside chanting various slogans. Police stood in full riot gear, standing guard as the school took extensive security measures, shutting ... Four arrested as protesters gather at UC Berkeley for talk by conservative speaker Ben Shapiro Los Angeles Times UC-Berkeley braces for protests as conservative writer Ben Shapiro speaks on campus Washington Post Berkeley closes streets, police in riot gear for speech by former Breitbart editor Chicago Tribune The Mercury News - SFGate - CBS News - ABC News all 190 news articles »
+CNN Ben Shapiro spoke at Berkeley as protesters gathered outside CNN (CNN) As conservative radio host Ben Shapiro spoke at the University of California Berkeley, protesters swarmed outside chanting various slogans. Police stood in full riot gear, standing guard as the school took extensive security measures, shutting ... Four arrested as protesters gather at UC Berkeley for talk by conservative speaker Ben Shapiro Los Angeles Times Ben Shapiro: Amid hundreds of protesters and riot police, right-wing provocateur makes his appearance The Mercury News Ben Shapiro hits 'pathetic, lying, stupid jackasses' protesting Berkeley speech The Hill (blog) ABC News - Fox News - Washington Examiner - Washington Times all 191 news articles »
 
 
 Full story on F3News: [Ben Shapiro spoke at Berkeley as protesters gathered outside - CNN](http://www.f3nws.com/n/YPsVSB)
