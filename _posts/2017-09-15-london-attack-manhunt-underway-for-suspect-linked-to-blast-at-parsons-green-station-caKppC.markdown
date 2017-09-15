@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London attack manhunt underway for suspect linked to blast at Parsons Green station"
-date: 2017-09-15 17:00:00Z
+date: 2017-09-15 19:52:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A manhunt was underway for any suspects linked to the bucket bomb that detonated
 
 Full story on F3News: [London attack manhunt underway for suspect linked to blast at Parsons Green station](http://www.f3nws.com/n/caKppC)
 
-> Posted on: Friday, September 15, 2017 5:00:00 PM
+> Posted on: Friday, September 15, 2017 7:52:00 PM

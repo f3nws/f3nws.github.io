@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manhunt launched for London Tube bomber"
-date: 2017-09-15 19:13:04Z
+date: 2017-09-15 19:51:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A major manhunt is underway after a rush hour blast caused by an improvised expl
 
 Full story on F3News: [Manhunt launched for London Tube bomber](http://www.f3nws.com/n/rnMNTF)
 
-> Posted on: Friday, September 15, 2017 7:13:04 PM
+> Posted on: Friday, September 15, 2017 7:51:32 PM

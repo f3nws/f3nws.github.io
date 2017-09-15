@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple iPhone X Release Date, Price and Specs     - CNET"
-date: 2017-09-15 18:07:30Z
+date: 2017-09-15 19:24:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Apple’s flagship iPhone for 2017 takes on Samsung’s finest with all-new spec
 
 Full story on F3News: [Apple iPhone X Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/Adq3yE)
 
-> Posted on: Friday, September 15, 2017 6:07:30 PM
+> Posted on: Friday, September 15, 2017 7:24:48 PM

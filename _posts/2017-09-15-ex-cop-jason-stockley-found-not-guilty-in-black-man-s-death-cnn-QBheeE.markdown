@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ex-cop Jason Stockley found not guilty in black man's death - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170915100051-jason-stockley-tease-super-tease.jpg)
 
-CNN Ex-cop Jason Stockley found not guilty in black man's death CNN (CNN) A St. Louis judge on Friday found former police officer Jason Stockley not guilty of first-degree murder in the 2011 shooting death of black motorist Anthony Lamar Smith. "This Court, in conscience, cannot say that the State has proven every ... Former St. Louis police officer found not guilty in murder trial Washington Post St. Louis ex-officer Jason Stockley acquitted in killing of black man, city braces for protests Fox News Latest: Protesters face off with police in St. Louis SFGate Reuters - NPR - USA TODAY - ABC News all 385 news articles »
+CNN Ex-cop Jason Stockley found not guilty in black man's death CNN (CNN) Protests broke out in downtown St. Louis on Friday afternoon hours after a judge found former police officer Jason Stockley not guilty of first-degree murder in the 2011 shooting death of black motorist Anthony Lamar Smith. "This Court, in ... Latest: St. Louis lawmaker joins protesters SFGate Protesters pour into St Louis streets after murder acquittal for ex-cop Reuters St. Louis protests as judge acquits white cop of murder in shooting of black man USA TODAY ABC News - BBC News - Philly.com - KSDK all 230 news articles »
 
 
 Full story on F3News: [Ex-cop Jason Stockley found not guilty in black man's death - CNN](http://www.f3nws.com/n/QBheeE)
