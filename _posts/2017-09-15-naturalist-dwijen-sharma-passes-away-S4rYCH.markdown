@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Naturalist Dwijen Sharma passes away"
-date: 2017-09-15 03:25:21Z
+date: 2017-09-15 06:47:53Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Naturalist Dwijen Sharma passes away](http://www.f3nws.com/n/S4rYCH)
 
-> Posted on: Friday, September 15, 2017 3:25:21 AM
+> Posted on: Friday, September 15, 2017 6:47:53 AM
