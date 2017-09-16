@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Crayola's new color name draws criticism"
-date: 2017-09-16 00:45:16Z
+date: 2017-09-16 09:41:19Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ Color no one surprised: These days, even a new crayon name draws criticism.
 
 Full story on F3News: [Crayola's new color name draws criticism](http://www.f3nws.com/n/h4eJRE)
 
-> Posted on: Saturday, September 16, 2017 12:45:16 AM
+> Posted on: Saturday, September 16, 2017 9:41:19 AM

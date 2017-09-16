@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on NK: Military options 'effective and overwhelming'"
-date: 2017-09-16 02:00:48Z
+date: 2017-09-16 09:43:51Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and his top national security advisers said Friday there 
 
 Full story on F3News: [Trump on NK: Military options 'effective and overwhelming'](http://www.f3nws.com/n/SSBQNJ)
 
-> Posted on: Saturday, September 16, 2017 2:00:48 AM
+> Posted on: Saturday, September 16, 2017 9:43:51 AM
