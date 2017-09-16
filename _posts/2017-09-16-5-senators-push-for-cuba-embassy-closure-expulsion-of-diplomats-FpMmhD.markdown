@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 senators push for Cuba embassy closure, expulsion of diplomats"
-date: 2017-09-16 01:19:23Z
+date: 2017-09-16 01:19:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A group of hard-line Republican senators are urging Secretary of State Rex Tille
 
 Full story on F3News: [5 senators push for Cuba embassy closure, expulsion of diplomats](http://www.f3nws.com/n/FpMmhD)
 
-> Posted on: Saturday, September 16, 2017 1:19:23 AM
+> Posted on: Saturday, September 16, 2017 1:19:00 AM

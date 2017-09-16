@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How big is iPhone X? We made these pics to show you     - CNET"
-date: 2017-09-16 00:27:53Z
+date: 2017-09-16 01:26:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Spoiler alert: It's nearly as small as a regular iPhone, but with a *bigger* scr
 
 Full story on F3News: [How big is iPhone X? We made these pics to show you     - CNET](http://www.f3nws.com/n/MXtZg)
 
-> Posted on: Saturday, September 16, 2017 12:27:53 AM
+> Posted on: Saturday, September 16, 2017 1:26:00 AM
