@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "St. Louis cop's acquittal triggers second day of protests"
-date: 2017-09-16 16:26:00Z
+date: 2017-09-16 17:09:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. LOUIS (AP) — Noisy demonstrators marched through two malls in an upscale a
 
 Full story on F3News: [St. Louis cop's acquittal triggers second day of protests](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 16, 2017 4:26:00 PM
+> Posted on: Saturday, September 16, 2017 5:09:00 PM
