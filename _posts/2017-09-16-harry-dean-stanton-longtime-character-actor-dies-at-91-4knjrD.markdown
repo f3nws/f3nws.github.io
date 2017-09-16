@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harry Dean Stanton, longtime character actor, dies at 91"
-date: 2017-09-16 14:48:28Z
+date: 2017-09-16 21:36:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harry Dean Stanton, the longtime character actor whose face had its own unique c
 
 Full story on F3News: [Harry Dean Stanton, longtime character actor, dies at 91](http://www.f3nws.com/n/4knjrD)
 
-> Posted on: Saturday, September 16, 2017 2:48:28 PM
+> Posted on: Saturday, September 16, 2017 9:36:50 PM
