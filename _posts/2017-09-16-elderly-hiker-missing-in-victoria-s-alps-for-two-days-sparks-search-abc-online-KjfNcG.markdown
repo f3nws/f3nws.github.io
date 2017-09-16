@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Elderly hiker missing in Victoria's Alps for two days sparks search - ABC Online](http://www.abc.net.au/news/image/8952378-1x1-700x700.jpg)
 
-ABC Online Elderly hiker missing in Victoria's Alps for two days sparks search ABC Online A major search is underway to find an elderly hiker who has gone missing in Victoria's Alps. Leslie Southwell, 88, had been hiking with friends in the state's north-east Alpine region over the past eight days. He went missing on Thursday, after he ... Elderly hiker Leslie Southwell missing in Victoria's alpine region Herald Sun Elderly man missing on Vic hiking trip SBS all 3 news articles »
+ABC Online Elderly hiker missing in Victoria's Alps for two days sparks search ABC Online A major search is underway to find an elderly hiker who has gone missing in Victoria's Alps. Leslie Southwell, 88, had been hiking with friends in the state's north-east Alpine region over the past eight days. He went missing on Thursday, after he ... Elderly hiker Leslie Southwell missing in Victoria's alpine region Herald Sun Police search for missing elderly hiker 9news.com.au Elderly man missing on Vic hiking trip SBS all 4 news articles »
 
 
 Full story on F3News: [Elderly hiker missing in Victoria's Alps for two days sparks search - ABC Online](http://www.f3nws.com/n/KjfNcG)
