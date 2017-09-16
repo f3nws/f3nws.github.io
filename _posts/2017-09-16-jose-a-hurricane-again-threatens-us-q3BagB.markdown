@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jose, a hurricane again, threatens US"
-date: 2017-09-16 11:51:11Z
+date: 2017-09-16 17:20:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tropical Storm Jose has strengthened back into a hurricane, according to a 5 p.m
 
 Full story on F3News: [Jose, a hurricane again, threatens US](http://www.f3nws.com/n/q3BagB)
 
-> Posted on: Saturday, September 16, 2017 11:51:11 AM
+> Posted on: Saturday, September 16, 2017 5:20:18 PM
