@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wanna peer into Pharma Bro’s mind? Look at his eBay listing     - CNET"
-date: 2017-09-16 00:01:27Z
+date: 2017-09-16 11:55:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Martin Shkreli opens up a little in the Q&A section of his eBay auction page for
 
 Full story on F3News: [Wanna peer into Pharma Bro’s mind? Look at his eBay listing     - CNET](http://www.f3nws.com/n/cG34qC)
 
-> Posted on: Saturday, September 16, 2017 12:01:27 AM
+> Posted on: Saturday, September 16, 2017 11:55:35 AM
