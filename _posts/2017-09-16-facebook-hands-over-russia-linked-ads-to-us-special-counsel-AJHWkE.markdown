@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook hands over Russia-linked ads to US Special counsel"
-date: 2017-09-16 01:03:14Z
+date: 2017-09-16 10:12:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNNMoney Facebook handed Russia-linked ads over to Mueller under search warrant 
 
 Full story on F3News: [Facebook hands over Russia-linked ads to US Special counsel](http://www.f3nws.com/n/AJHWkE)
 
-> Posted on: Saturday, September 16, 2017 1:03:14 AM
+> Posted on: Saturday, September 16, 2017 10:12:17 AM

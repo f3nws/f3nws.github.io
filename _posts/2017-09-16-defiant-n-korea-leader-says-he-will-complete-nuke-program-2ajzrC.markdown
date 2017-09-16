@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Defiant N. Korea leader says he will complete nuke program"
-date: 2017-09-16 05:33:00Z
+date: 2017-09-16 06:21:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — North Korean leader Kim Jong Un said his country is 
 
 Full story on F3News: [Defiant N. Korea leader says he will complete nuke program](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 16, 2017 5:33:00 AM
+> Posted on: Saturday, September 16, 2017 6:21:00 AM
