@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1 dead, several missing after children’s camp burns down in Odessa, Ukraine (VIDEOS)"
-date: 2017-09-16 00:50:21Z
+date: 2017-09-16 00:50:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ At least one person has been killed and several are missing after a building at 
 
 Full story on F3News: [1 dead, several missing after children’s camp burns down in Odessa, Ukraine (VIDEOS)](http://www.f3nws.com/n/dTFajD)
 
-> Posted on: Saturday, September 16, 2017 12:50:21 AM
+> Posted on: Saturday, September 16, 2017 12:50:00 AM
