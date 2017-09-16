@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook gives investigators new details on Russian ads     - CNET"
-date: 2017-09-16 00:52:27Z
+date: 2017-09-16 05:27:18Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social networking giant has given copies of ads and other information involv
 
 Full story on F3News: [Facebook gives investigators new details on Russian ads     - CNET](http://www.f3nws.com/n/S4GaZB)
 
-> Posted on: Saturday, September 16, 2017 12:52:27 AM
+> Posted on: Saturday, September 16, 2017 5:27:18 AM
