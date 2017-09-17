@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mystery surrounds 19-year-old's freezer death"
-date: 2017-09-17 02:29:37Z
+date: 2017-09-17 21:13:52Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Surveillance video may shed light on the mysterious death of a young Chicago wom
 
 Full story on F3News: [Mystery surrounds 19-year-old's freezer death](http://www.f3nws.com/n/3reHcC)
 
-> Posted on: Sunday, September 17, 2017 2:29:37 AM
+> Posted on: Sunday, September 17, 2017 9:13:52 PM

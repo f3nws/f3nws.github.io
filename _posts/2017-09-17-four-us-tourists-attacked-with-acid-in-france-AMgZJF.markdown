@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Four US tourists attacked with acid in France"
-date: 2017-09-17 19:16:15Z
+date: 2017-09-17 21:08:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Four American female tourists were attacked with acid Sunday at a Marseille trai
 
 Full story on F3News: [Four US tourists attacked with acid in France](http://www.f3nws.com/n/AMgZJF)
 
-> Posted on: Sunday, September 17, 2017 7:16:15 PM
+> Posted on: Sunday, September 17, 2017 9:08:29 PM
