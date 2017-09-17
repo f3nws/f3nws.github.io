@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parents demanding answers over deadly camp fire clash with police in Odessa (VIDEOS)"
-date: 2017-09-17 04:45:37Z
+date: 2017-09-17 04:45:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Angry parents have clashed with police outside the Odessa City Hall over the dea
 
 Full story on F3News: [Parents demanding answers over deadly camp fire clash with police in Odessa (VIDEOS)](http://www.f3nws.com/n/ZsurxG)
 
-> Posted on: Sunday, September 17, 2017 4:45:37 AM
+> Posted on: Sunday, September 17, 2017 4:45:00 AM
