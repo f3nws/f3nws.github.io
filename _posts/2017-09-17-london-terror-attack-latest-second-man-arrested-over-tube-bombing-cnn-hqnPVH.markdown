@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![London terror attack latest: Second man arrested over tube bombing - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170915073710-19-london-train-incident-0915-super-tease.jpg)
 
-CNN London terror attack latest: Second man arrested over tube bombing CNN London (CNN) British authorities have arrested a second man in connection with the bombing of a London Underground train on Friday, officials said Sunday. The 21-year-old man was arrested late Saturday in Hounslow, west London, by detectives from the ... Britain Lowers Threat Level After Arrest of 2nd Man in London Subway Bombing New York Times Second suspect in London subway attack arrested; terror threat level downgraded to 'severe' Fox News London Subway Attack: UK Lowers Threat Level After Second Arrest NBCNews.com Chicago Tribune - Washington Post - NPR - BBC News all 3,163 news articles »
+CNN London terror attack latest: Second man arrested over tube bombing CNN London (CNN) British authorities have arrested a second man in connection with the bombing of a London Underground train on Friday, officials said Sunday. The 21-year-old man was arrested late Saturday in Hounslow, west London, by detectives from the ... Britain Lowers Threat Level After Arrest of 2nd Man in London Subway Bombing New York Times British police arrest second man in connection with London subway attack Washington Post UK lowers official terrorist threat level after 2nd arrest Chicago Tribune Fox News - NBCNews.com - Reuters - NPR all 3,181 news articles »
 
 
 Full story on F3News: [London terror attack latest: Second man arrested over tube bombing - CNN](http://www.f3nws.com/n/hqnPVH)

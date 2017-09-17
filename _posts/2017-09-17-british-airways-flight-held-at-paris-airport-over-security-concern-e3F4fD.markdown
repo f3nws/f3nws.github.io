@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British Airways flight held at Paris airport over security concern"
-date: 2017-09-17 11:40:45Z
+date: 2017-09-17 15:59:48Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ A British Airways flight was briefly grounded in Paris and passengers deplaned e
 
 Full story on F3News: [British Airways flight held at Paris airport over security concern](http://www.f3nws.com/n/e3F4fD)
 
-> Posted on: Sunday, September 17, 2017 11:40:45 AM
+> Posted on: Sunday, September 17, 2017 3:59:48 PM

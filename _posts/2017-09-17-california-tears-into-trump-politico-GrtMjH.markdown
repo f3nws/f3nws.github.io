@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![California tears into Trump - Politico](http://static.politico.com/57/3b/f17ba9c24313be4c6679c1c69b7c/170915-mcguire-calif-ap-1160.jpg)
 
-Politico California tears into Trump Politico SACRAMENTO — Ripping into Donald Trump in the final hours of this year's legislative session, California lawmakers passed measures urging Congress to censure the president, bucking his immigration policies and seeking to force him to release his tax ... Why Did Trump Work Again With Democrats? 'He Likes Us,' Schumer Says New York Times How Democrats won the presidency Washington Post Cuomo urges Dems to use 'extreme caution' when bargaining with Trump to protect the DACA New York Daily News Los Angeles Times - U.S. News & World Report - Fox News - Slate Magazine (blog) all 4,394 news articles »
+Politico California tears into Trump Politico SACRAMENTO — Ripping into Donald Trump in the final hours of this year's legislative session, California lawmakers passed measures urging Congress to censure the president, bucking his immigration policies and seeking to force him to release his tax ... Republicans Are Happy Trump Ended DACA. They're Less Sure About Deporting DREAMers NPR Sen. Cotton Says Trump Assured Him There's No Deal With Democrats on Immigration NBCNews.com Eric Cantor: How to End the Immigration Wars New York Times New York Daily News - Los Angeles Times - Bloomberg - National Review all 1,093 news articles »
 
 
 Full story on F3News: [California tears into Trump - Politico](http://www.f3nws.com/n/GrtMjH)
