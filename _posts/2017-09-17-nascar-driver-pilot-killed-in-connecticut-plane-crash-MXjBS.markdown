@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NASCAR driver, pilot killed in Connecticut plane crash"
-date: 2017-09-17 15:01:54Z
+date: 2017-09-17 12:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Modified championship racer Ted Christopher was one of two people killed when a 
 
 Full story on F3News: [NASCAR driver, pilot killed in Connecticut plane crash](http://www.f3nws.com/n/MXjBS)
 
-> Posted on: Sunday, September 17, 2017 3:01:54 PM
+> Posted on: Sunday, September 17, 2017 12:00:00 PM

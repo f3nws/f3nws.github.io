@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Florida Governor Imposes New Rules After Nursing Home Deaths - New York Times](https://static01.nyt.com/images/2017/09/17/us/17NURSING/17NURSING-facebookJumbo.jpg)
 
-New York Times Florida Governor Imposes New Rules After Nursing Home Deaths New York Times Emergency workers at the Rehabilitation Center at Hollywood Hills, where eight residents died after the center lost air-conditioning. Credit Amy Beth Bennett/South Florida Sun-Sentinel, via Associated Press. Gov. Rick Scott of Florida announced new ... Faulty AC may have factored into deaths at Florida nursing home New York Post Consumer fleecing is the new normal Salon Irma needed little hurricane fury to smash Orlando area Orlando Sentinel New York's PIX11 / WPIX-TV - CNN all 3,392 news articles »
+New York Times Florida Governor Imposes New Rules After Nursing Home Deaths New York Times Emergency workers at the Rehabilitation Center at Hollywood Hills, where eight residents died after the center lost air-conditioning. Credit Amy Beth Bennett/South Florida Sun-Sentinel, via Associated Press. Gov. Rick Scott of Florida announced new ... More Florida Keys Residents Return Home to Survey Irma's Destruction U.S. News & World Report Faulty AC may have factored into deaths at Florida nursing home New York Post Irma needed little hurricane fury to smash Orlando area Orlando Sentinel New York's PIX11 / WPIX-TV - Forbes all 3,076 news articles »
 
 
 Full story on F3News: [Florida Governor Imposes New Rules After Nursing Home Deaths - New York Times](http://www.f3nws.com/n/fjnXnC)
