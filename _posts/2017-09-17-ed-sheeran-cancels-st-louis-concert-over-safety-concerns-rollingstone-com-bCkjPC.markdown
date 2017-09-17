@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Ed Sheeran Cancels St. Louis Concert Over Safety Concerns - RollingStone.com](http://img.wennermedia.com/social/gettyimages-840017742-23a62487-9c3f-49fa-a568-2416ed1ad104.jpg)
 
-RollingStone.com Ed Sheeran Cancels St. Louis Concert Over Safety Concerns RollingStone.com "After consulting with local officials... we felt it was in everyone's best interest to cancel Sunday night's show," promoters say. Ed Sheeran canceled his sold-out Sunday night concert at St. Louis' Scottrade Center due to safety concerns stemming ... U2, Ed Sheeran cancel St. Louis concerts in wake of heated protests New York Daily News Ed Sheeran Yeah, I'm Not Playing St. Louis Either ... Cancels Show Amid Protests TMZ.com U2 and Ed Sheeran cancel St Louis shows due to security concerns The Guardian 9NEWS.com - KPBS - Waterloo Cedar Falls Courier - NME.com all 76 news articles »
+RollingStone.com Ed Sheeran Cancels St. Louis Concert Over Safety Concerns RollingStone.com "After consulting with local officials... we felt it was in everyone's best interest to cancel Sunday night's show," promoters say. Ed Sheeran canceled his sold-out Sunday night concert at St. Louis' Scottrade Center due to safety concerns stemming ... U2, Ed Sheeran cancel St. Louis concerts in wake of heated protests New York Daily News Ed Sheeran's Sunday concert cancelled WXIA-TV Ed Sheeran Yeah, I'm Not Playing St. Louis Either ... Cancels Show Amid Protests TMZ.com The Guardian - 9NEWS.com - KPBS - Newser all 121 news articles »
 
 
 Full story on F3News: [Ed Sheeran Cancels St. Louis Concert Over Safety Concerns - RollingStone.com](http://www.f3nws.com/n/bCkjPC)
