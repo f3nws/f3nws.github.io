@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Protests Flare in St. Louis for Second Night After Ex-Officer's Acquittal - New York Times](https://static01.nyt.com/images/2017/09/17/us/17stlouis-0916-wire1/17stlouis-0916-wire1-facebookJumbo.jpg)
 
-New York Times Protests Flare in St. Louis for Second Night After Ex-Officer's Acquittal New York Times Police officers in St. Louis watched as protesters marched on Saturday, a day after the acquittal of a white former officer who killed a black man in 2011. Credit Joshua Lott/Reuters. ST. LOUIS — On edge after a night of protests that led to dozens of ... Violent unrest in St. Louis continues after cop's acquittal, nine arrested New York Daily News St. Louis braces for third day of protests after officer's acquittal USA TODAY The Latest: Authorities outline charges against protesters SFGate Fox News - NBCNews.com - KTLA - Boston Herald all 1,101 news articles »
+New York Times Protests Flare in St. Louis for Second Night After Ex-Officer's Acquittal New York Times Police officers in St. Louis watched as protesters marched on Saturday, a day after the acquittal of a white former officer who killed a black man in 2011. Credit Joshua Lott/Reuters. ST. LOUIS — On edge after a night of protests that led to dozens of ... Violent unrest in St. Louis continues after cop's acquittal, nine arrested New York Daily News St. Louis braces for third day of protests after officer's acquittal USA TODAY St. Louis protesters march in upscale malls, suburbs during day; evening turns violent Chicago Tribune ABC News - Fox News - SFGate - NBCNews.com all 1,141 news articles »
 
 
 Full story on F3News: [Protests Flare in St. Louis for Second Night After Ex-Officer's Acquittal - New York Times](http://www.f3nws.com/n/b3ZbRC)
