@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WH: US staying out of climate accord"
-date: 2017-09-17 02:16:20Z
+date: 2017-09-17 17:21:07Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump still plans to withdraw the United States from the Paris 
 
 Full story on F3News: [WH: US staying out of climate accord](http://www.f3nws.com/n/yYYeMD)
 
-> Posted on: Sunday, September 17, 2017 2:16:20 AM
+> Posted on: Sunday, September 17, 2017 5:21:07 PM
