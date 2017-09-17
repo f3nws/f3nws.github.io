@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New storm could hit devastated Caribbean"
-date: 2017-09-17 06:19:05Z
+date: 2017-09-17 10:31:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three storms are swaggering through the Atlantic, with one already a hurricane a
 
 Full story on F3News: [New storm could hit devastated Caribbean](http://www.f3nws.com/n/cANypE)
 
-> Posted on: Sunday, September 17, 2017 6:19:05 AM
+> Posted on: Sunday, September 17, 2017 10:31:04 AM
