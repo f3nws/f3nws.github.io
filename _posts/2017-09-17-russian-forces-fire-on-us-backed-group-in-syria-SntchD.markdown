@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian forces fire on US-backed group in Syria"
-date: 2017-09-17 16:10:14Z
+date: 2017-09-17 21:42:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Russian strike wounded members of the US-backed Syrian Democratic Forces, the 
 
 Full story on F3News: [Russian forces fire on US-backed group in Syria](http://www.f3nws.com/n/SntchD)
 
-> Posted on: Sunday, September 17, 2017 4:10:14 PM
+> Posted on: Sunday, September 17, 2017 9:42:01 PM
