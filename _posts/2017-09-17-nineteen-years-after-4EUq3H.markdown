@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nineteen years after ..."
-date: 2017-09-17 07:38:22Z
+date: 2017-09-17 08:58:55Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Nineteen years after ...](http://www.f3nws.com/n/4EUq3H)
 
-> Posted on: Sunday, September 17, 2017 7:38:22 AM
+> Posted on: Sunday, September 17, 2017 8:58:55 AM

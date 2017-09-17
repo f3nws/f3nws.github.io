@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Dragon Ball Z' Reveals Brand-New Android 21 - Comicbook.com](http://media.comicbook.com/2017/09/dragon-ball-1021024-640x320.png)
 
-Comicbook.com 'Dragon Ball Z' Reveals Brand-New Android 21 Comicbook.com Dragon Ball Z wrapped some years ago, but the franchise's creator isn't done with its story just yet. Earlier today, Akira Toriyama's designs for a brand-new Android went live, and the anime fandom is freaking out over Dr. Gero's latest creation. With ... Dragon Ball Super Episode 33 Review: Surprise, Sixth Universe! This Is Super Saiyan Goku! Den of Geek US 'Dragon Ball FighterZ' to debut Android 21 Inquirer.net Dragon Ball FighterZ Adds Yamcha and Tien as Playable Fighters IGN Blasting News - EventHubs - Korea Portal (English Edition) - Newburgh Gazette all 46 news articles »
+Comicbook.com 'Dragon Ball Z' Reveals Brand-New Android 21 Comicbook.com Dragon Ball Z wrapped some years ago, but the franchise's creator isn't done with its story just yet. Earlier today, Akira Toriyama's designs for a brand-new Android went live, and the anime fandom is freaking out over Dr. Gero's latest creation. With ... Dragon Ball FighterZ Gets An Original Character Named Android 21 Kotaku Dragon Ball Super Episode 33 Review: Surprise, Sixth Universe! This Is Super Saiyan Goku! Den of Geek US 'Dragon Ball FighterZ' to debut Android 21 Inquirer.net IGN - Blasting News - EventHubs - Korea Portal (English Edition) all 46 news articles »
 
 
 Full story on F3News: ['Dragon Ball Z' Reveals Brand-New Android 21 - Comicbook.com](http://www.f3nws.com/n/tVv42G)
