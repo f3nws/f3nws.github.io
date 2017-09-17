@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea says Moon, Trump plan stronger N. Korea sanctions"
-date: 2017-09-17 07:48:23Z
+date: 2017-09-17 13:28:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump talked with his South Korean counterpart and agreed to
 
 Full story on F3News: [South Korea says Moon, Trump plan stronger N. Korea sanctions](http://www.f3nws.com/n/EZadaH)
 
-> Posted on: Sunday, September 17, 2017 7:48:23 AM
+> Posted on: Sunday, September 17, 2017 1:28:36 PM

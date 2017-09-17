@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters smash windows in 2nd violent night near St. Louis"
-date: 2017-09-17 08:05:00Z
+date: 2017-09-17 09:04:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. LOUIS (AP) — Protests turned violent for a second night near St. Louis fol
 
 Full story on F3News: [Protesters smash windows in 2nd violent night near St. Louis](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 17, 2017 8:05:00 AM
+> Posted on: Sunday, September 17, 2017 9:04:00 AM

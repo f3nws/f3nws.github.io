@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Canelo Alvarez, Gennady Golovkin fight to draw; both call for rematch - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F0916%2Fr259578_1296x729_16%2D9.jpg)
 
-ESPN Canelo Alvarez, Gennady Golovkin fight to draw; both call for rematch ESPN LAS VEGAS -- Everyone expected Gennady Golovkin and Canelo Alvarez to deliver an action-packed classic, and they did just that in a ferocious battle. What lacked, however, was any consistency from the judges, who ruled the fight a split draw. Golovkin ... Canelo Alvarez-Gennady Golovkin Fight Ruled Split Draw After Going Distance Bleacher Report Despite obvious drawbacks, the GGG-Canelo fight was all that Los Angeles Times Awful judging mars Alvarez-Golovkin as boxing continues to embarrass itself by refusing to change Yahoo Sports Sports Illustrated - CBSSports.com - Sherdog.com - Newsday all 914 news articles »
+ESPN Canelo Alvarez, Gennady Golovkin fight to draw; both call for rematch ESPN LAS VEGAS -- Everyone expected Gennady Golovkin and Canelo Alvarez to deliver an action-packed classic, and they did just that in a ferocious battle. What lacked, however, was any consistency from the judges, who ruled the fight a split draw. Golovkin ... Canelo Alvarez-Gennady Golovkin Fight Ruled Split Draw After Going Distance Bleacher Report Despite obvious drawbacks, the GGG-Canelo fight was all that Los Angeles Times Awful judging mars Alvarez-Golovkin as boxing continues to embarrass itself by refusing to change Yahoo Sports New York Times - Boston Herald - Sports Illustrated - BoxingScene.com all 918 news articles »
 
 
 Full story on F3News: [Canelo Alvarez, Gennady Golovkin fight to draw; both call for rematch - ESPN](http://www.f3nws.com/n/hVCtrF)
