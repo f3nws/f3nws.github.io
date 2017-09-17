@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![SA Health Minister Jack Snelling resigns from Cabinet and will not contest March election - ABC Online](http://www.abc.net.au/news/image/8304712-1x1-700x700.jpg)
 
-ABC Online SA Health Minister Jack Snelling resigns from Cabinet and will not contest March election ABC Online SA Health Minister Jack Snelling has quit Cabinet less than two weeks after the opening of the new Royal Adelaide Hospital (nRAH) and will resign as a MP at the March election. Mr Snelling held a press conference to explain that after 20 years in ... SA ministers Snelling, Vlahos quit cabinet SBS Jack Snelling quits: family comes first for minister The Australian Health Minister Jack Snelling announces he is quitting Cabinet and State Parliament The Advertiser Barossa & Light Herald all 8 news articles »
+ABC Online SA Health Minister Jack Snelling resigns from Cabinet and will not contest March election ABC Online SA Health Minister Jack Snelling has quit Cabinet less than two weeks after the opening of the new Royal Adelaide Hospital (nRAH) and will resign as a MP at the March election. Mr Snelling held a press conference to explain that after 20 years in ... SA ministers Snelling, Vlahos quit cabinet SBS Jack Snelling quits: family comes first for minister The Australian Health Minister Jack Snelling announces he is quitting Cabinet and State Parliament The Advertiser all 8 news articles »
 
 
 Full story on F3News: [SA Health Minister Jack Snelling resigns from Cabinet and will not contest March election - ABC Online](http://www.f3nws.com/n/yZtpXF)

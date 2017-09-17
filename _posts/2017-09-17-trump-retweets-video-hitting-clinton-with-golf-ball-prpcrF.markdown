@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump retweets video hitting Clinton with golf ball"
-date: 2017-09-17 13:43:04Z
+date: 2017-09-17 19:16:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Trump retweeted a video that shows him striking Hillary Clinton in the
 
 Full story on F3News: [Trump retweets video hitting Clinton with golf ball](http://www.f3nws.com/n/prpcrF)
 
-> Posted on: Sunday, September 17, 2017 1:43:04 PM
+> Posted on: Sunday, September 17, 2017 7:16:08 PM
