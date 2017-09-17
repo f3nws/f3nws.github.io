@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mental health groups sound alarm over dramatic same-sex marriage survey spike - The Sydney Morning Herald"
-date: 2017-09-17 09:04:34Z
+date: 2017-09-17 09:33:02Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Mental health groups sound alarm over dramatic same-se
 
 Full story on F3News: [Mental health groups sound alarm over dramatic same-sex marriage survey spike - The Sydney Morning Herald](http://www.f3nws.com/n/2pVcR)
 
-> Posted on: Sunday, September 17, 2017 9:04:34 AM
+> Posted on: Sunday, September 17, 2017 9:33:02 AM
