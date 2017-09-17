@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump retweets GIF of him hitting Clinton with golf ball - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170917084446-trump-golf-ball-hillary-clinton-tweet-ip-00000000-super-tease.jpg)
 
-CNN Trump retweets GIF of him hitting Clinton with golf ball CNN (CNN) President Donald Trump retweeted an edited video Sunday morning that showed him swinging a golf club and appearing to hit his former presidential campaign rival Hillary Clinton with a golf ball. The animated GIF image Trump retweeted spliced ... Trump mocks Kim Jong Un and Hillary Clinton in Sunday tweetstorm USA TODAY Trump Hits Back at Clinton, With a Golf Ball, on Twitter U.S. News & World Report Trump shares edited clip of him knocking down Clinton with golf ball The Hill New York Daily News - New York Post - Daily Beast - BuzzFeed News all 28 news articles »
+CNN Trump retweets GIF of him hitting Clinton with golf ball CNN (CNN) President Donald Trump retweeted an edited video Sunday morning that showed him swinging a golf club and appearing to hit his former presidential campaign rival Hillary Clinton with a golf ball. The animated GIF image Trump retweeted spliced ... Trump mocks Kim Jong Un and Hillary Clinton in Sunday tweetstorm USA TODAY Trump hits back at Clinton, with a golf ball, on Twitter Reuters Trump shares edited clip of him knocking down Clinton with golf ball The Hill New York Daily News - NBCNews.com - Fortune - New York Post all 41 news articles »
 
 
 Full story on F3News: [Trump retweets GIF of him hitting Clinton with golf ball - CNN](http://www.f3nws.com/n/qDtFqC)

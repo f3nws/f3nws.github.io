@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Fire and fury': Trump's comments no 'empty threat' - Haley"
-date: 2017-09-17 13:34:47Z
+date: 2017-09-17 14:43:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US ambassador to the United Nations Nikki Haley said Sunday that President Donal
 
 Full story on F3News: ['Fire and fury': Trump's comments no 'empty threat' - Haley](http://www.f3nws.com/n/Wdv2JC)
 
-> Posted on: Sunday, September 17, 2017 1:34:47 PM
+> Posted on: Sunday, September 17, 2017 2:43:26 PM

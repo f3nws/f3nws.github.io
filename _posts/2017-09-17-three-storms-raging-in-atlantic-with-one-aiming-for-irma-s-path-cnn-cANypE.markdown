@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Three storms raging in Atlantic -- with one aiming for Irma's path - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170916230307-tropical-storm-maria-satellite-091617-1700-super-tease.jpg)
 
-CNN Three storms raging in Atlantic -- with one aiming for Irma's path CNN (CNN) Three storms are spinning in the Atlantic, with one already a hurricane and another one strengthening and forecast to threaten areas battered by Hurricane Irma last week. Tropical Storm Maria formed Saturday in the western Atlantic Ocean and is ... Maria expected to be a hurricane Sunday Miami Herald Tropical Storm Maria Is Latest Threat to Caribbean Islands New York Times Hurricane Jose and Tropical Storm Maria could dance the Fujiwara! Washington Post WRAL.com - Sun Sentinel - Newsday - Hartford Courant all 993 news articles »
+CNN Three storms raging in Atlantic -- with one aiming for Irma's path CNN (CNN) Three storms are spinning in the Atlantic, with one already a hurricane and another one strengthening and forecast to threaten areas battered by Hurricane Irma last week. Tropical Storm Maria formed Saturday in the western Atlantic Ocean and is ... Maria expected to be a hurricane Sunday Miami Herald Tropical Storm Maria Is Latest Threat to Caribbean Islands New York Times Hurricane Jose and Tropical Storm Maria could dance the Fujiwara! Washington Post 9NEWS.com - WBUR - Sun Sentinel - NOLA.com all 1,559 news articles »
 
 
 Full story on F3News: [Three storms raging in Atlantic -- with one aiming for Irma's path - CNN](http://www.f3nws.com/n/cANypE)
