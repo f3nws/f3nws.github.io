@@ -5,7 +5,7 @@ date: 2017-09-17 02:37:57Z
 categories: google-news-australia
 ---
 
-Listen to gays' tales: marriage advocates SBS Marriage equality advocate Christine Forster is urging Australians to talk to gay people they know before responding to the survey on same-sex marriage. Source: AAP. 12 MINS AGO. Tweet. Same-sex marriage advocates are urging Australians to listen to ... and more »
+Listen to gays' tales: marriage advocates SBS Marriage equality advocate Christine Forster is urging Australians to talk to gay people they know before responding to the survey on same-sex marriage. Source: AAP. 28 MINS AGO. Same-sex marriage advocates are urging Australians to listen to the ... and more »
 
 
 Full story on F3News: [Listen to gays' tales: marriage advocates - SBS](http://www.f3nws.com/n/tUsjEH)

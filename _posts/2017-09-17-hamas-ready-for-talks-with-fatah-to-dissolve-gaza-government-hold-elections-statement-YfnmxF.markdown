@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamas ready for talks with Fatah to dissolve Gaza government & hold elections – statement"
-date: 2017-09-17 02:51:56Z
+date: 2017-09-17 02:51:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Palestinian group Hamas, which is governing the Gaza Strip, has announced that i
 
 Full story on F3News: [Hamas ready for talks with Fatah to dissolve Gaza government & hold elections – statement](http://www.f3nws.com/n/YfnmxF)
 
-> Posted on: Sunday, September 17, 2017 2:51:56 AM
+> Posted on: Sunday, September 17, 2017 2:51:00 AM
