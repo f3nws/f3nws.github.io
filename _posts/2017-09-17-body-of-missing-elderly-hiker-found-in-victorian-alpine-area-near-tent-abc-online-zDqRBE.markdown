@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Body of missing elderly hiker found in Victorian Alpine area near tent - ABC Online"
-date: 2017-09-17 02:48:00Z
+date: 2017-09-17 02:50:21Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Body of missing elderly hiker found in Victorian Alpine area near ten
 
 Full story on F3News: [Body of missing elderly hiker found in Victorian Alpine area near tent - ABC Online](http://www.f3nws.com/n/zDqRBE)
 
-> Posted on: Sunday, September 17, 2017 2:48:00 AM
+> Posted on: Sunday, September 17, 2017 2:50:21 AM

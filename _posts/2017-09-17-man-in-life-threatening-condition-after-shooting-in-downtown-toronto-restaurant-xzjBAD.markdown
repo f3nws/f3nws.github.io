@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man in life-threatening condition after shooting in downtown Toronto restaurant"
-date: 2017-09-17 01:29:18Z
+date: 2017-09-17 01:29:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ A man was rushed to hospital Saturday after being found without vital signs foll
 
 Full story on F3News: [Man in life-threatening condition after shooting in downtown Toronto restaurant](http://www.f3nws.com/n/xzjBAD)
 
-> Posted on: Sunday, September 17, 2017 1:29:18 AM
+> Posted on: Sunday, September 17, 2017 1:29:00 AM
