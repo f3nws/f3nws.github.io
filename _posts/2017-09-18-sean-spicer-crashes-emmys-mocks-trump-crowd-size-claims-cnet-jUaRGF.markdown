@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sean Spicer crashes Emmys, mocks Trump crowd-size claims     - CNET"
-date: 2017-09-18 01:31:34Z
+date: 2017-09-18 01:47:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Too soon? Some on social media weren't ready to see the former White House press
 
 Full story on F3News: [Sean Spicer crashes Emmys, mocks Trump crowd-size claims     - CNET](http://www.f3nws.com/n/jUaRGF)
 
-> Posted on: Monday, September 18, 2017 1:31:34 AM
+> Posted on: Monday, September 18, 2017 1:47:17 AM
