@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three killed in stampede for aid near Rohingya refugee camp"
-date: 2017-09-18 00:22:29Z
+date: 2017-09-18 00:26:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One woman and two children were killed in a stampede for unofficial handouts of 
 
 Full story on F3News: [Three killed in stampede for aid near Rohingya refugee camp](http://www.f3nws.com/n/ukCBgE)
 
-> Posted on: Monday, September 18, 2017 12:22:29 AM
+> Posted on: Monday, September 18, 2017 12:26:17 AM
