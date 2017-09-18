@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All the red carpet looks"
-date: 2017-09-18 03:55:13Z
+date: 2017-09-18 04:51:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [All the red carpet looks](http://www.f3nws.com/n/ZQCu2E)
 
-> Posted on: Monday, September 18, 2017 3:55:13 AM
+> Posted on: Monday, September 18, 2017 4:51:37 AM

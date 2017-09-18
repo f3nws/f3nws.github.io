@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![Riots & vandalism grip St. Louis for 3rd day after ex-cop’s acquittal in fatal shooting (VIDEOS)](https://img.rt.com/files/2017.09/article/59bf08fffc7e93d53f8b4567.jpg)
 
-For a third consecutive day, hundreds of activists are protesting in the streets of St. Louis against the acquittal of a white former city police officer in the death of a black suspect. Two previous days of protest also ended with riots, clashes and vandalism. Read Full Article at RT.com
+Riot police in St. Louis said they have made “numerous” arrests to disperse the “unruly crowd” after a third consecutive day of mostly peaceful protests once again erupted into riots, clashes and vandalism overnight. Read Full Article at RT.com
 
 
 Full story on F3News: [Riots & vandalism grip St. Louis for 3rd day after ex-cop’s acquittal in fatal shooting (VIDEOS)](http://www.f3nws.com/n/vGXmCG)

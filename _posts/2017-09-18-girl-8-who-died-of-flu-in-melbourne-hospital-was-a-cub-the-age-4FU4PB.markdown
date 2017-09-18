@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Girl, 8 who died of flu in Melbourne hospital was a Cub - The Age](http://www.theage.com.au/content/dam/images/g/y/j/k/8/7/image.related.articleLeadwide.620x349.gyjdml.png/1505704824079.jpg)
 
-The Age Girl, 8 who died of flu in Melbourne hospital was a Cub The Age Victoria's deadly flu season has claimed the life of an eight-year-old girl and people have been warned not to dismiss symptoms as "simply a cold". The child died at Angliss Hospital in Upper Ferntree Gully in Melbourne's outer-east on Friday, a health ... Girl, 8, dies in Melbourne hospital in flu outbreak ABC Online Eight year old Melbourne girl dies of flu The Australian Girl latest 'horror' Vic flu season victim NEWS.com.au Herald Sun - The Guardian - SBS - Esperance Express all 17 news articles »
+The Age Girl, 8 who died of flu in Melbourne hospital was a Cub The Age Victoria's deadly flu season has claimed the life of an eight-year-old girl and people have been warned not to dismiss symptoms as "simply a cold". The child died at Angliss Hospital in Upper Ferntree Gully in Melbourne's outer-east on Friday, a health ... Girl, 8, dies in Melbourne hospital in flu outbreak ABC Online Eight year old Melbourne girl dies of flu The Australian Girl latest 'horror' Vic flu season victim NEWS.com.au Herald Sun - The Guardian - SBS - Cessnock Advertiser all 16 news articles »
 
 
 Full story on F3News: [Girl, 8 who died of flu in Melbourne hospital was a Cub - The Age](http://www.f3nws.com/n/4FU4PB)
