@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Julia Louis-Dreyfus makes Emmy history"
-date: 2017-09-18 02:54:03Z
+date: 2017-09-18 07:15:15Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Julia Louis-Dreyfus has made Emmy history.
 
 Full story on F3News: [Julia Louis-Dreyfus makes Emmy history](http://www.f3nws.com/n/CdyFqF)
 
-> Posted on: Monday, September 18, 2017 2:54:03 AM
+> Posted on: Monday, September 18, 2017 7:15:15 AM

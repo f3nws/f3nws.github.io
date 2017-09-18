@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Interior secretary recommends shrinking 6 national monuments"
-date: 2017-09-18 00:00:00Z
+date: 2017-09-18 03:14:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Interior Secretary Ryan Zinke is recommending that six of 27
 
 Full story on F3News: [Interior secretary recommends shrinking 6 national monuments](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 18, 2017 12:00:00 AM
+> Posted on: Monday, September 18, 2017 3:14:00 AM
