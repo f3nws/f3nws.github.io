@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Laura Ingraham joins Fox News' prime-time lineup"
-date: 2017-09-18 20:45:00Z
+date: 2017-09-18 22:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Laura Ingraham will host a new weeknight primetime show on FOX News Channel from
 
 Full story on F3News: [Laura Ingraham joins Fox News' prime-time lineup](http://www.f3nws.com/n/DaHbWC)
 
-> Posted on: Monday, September 18, 2017 8:45:00 PM
+> Posted on: Monday, September 18, 2017 10:00:00 PM
