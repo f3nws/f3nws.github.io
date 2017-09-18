@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Five award-worthy Emmy speeches"
-date: 2017-09-18 07:21:53Z
+date: 2017-09-18 08:39:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ This year's Emmy winners didn't waste their time in the spotlight.
 
 Full story on F3News: [Five award-worthy Emmy speeches](http://www.f3nws.com/n/NusQJD)
 
-> Posted on: Monday, September 18, 2017 7:21:53 AM
+> Posted on: Monday, September 18, 2017 8:39:38 AM
