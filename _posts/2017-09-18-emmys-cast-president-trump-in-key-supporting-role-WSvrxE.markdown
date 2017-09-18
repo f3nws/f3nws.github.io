@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmys cast President Trump in key supporting role"
-date: 2017-09-18 03:44:32Z
+date: 2017-09-18 04:26:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In terms of politics the Emmys join the award-show party late, after the Golden 
 
 Full story on F3News: [Emmys cast President Trump in key supporting role](http://www.f3nws.com/n/WSvrxE)
 
-> Posted on: Monday, September 18, 2017 3:44:32 AM
+> Posted on: Monday, September 18, 2017 4:26:09 AM

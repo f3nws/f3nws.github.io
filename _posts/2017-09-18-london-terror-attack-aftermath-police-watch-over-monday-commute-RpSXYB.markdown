@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London terror attack aftermath: Police watch over Monday commute"
-date: 2017-09-18 05:42:51Z
+date: 2017-09-18 06:47:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London commuters are beginning their working week with heavy security on transpo
 
 Full story on F3News: [London terror attack aftermath: Police watch over Monday commute](http://www.f3nws.com/n/RpSXYB)
 
-> Posted on: Monday, September 18, 2017 5:42:51 AM
+> Posted on: Monday, September 18, 2017 6:47:46 AM
