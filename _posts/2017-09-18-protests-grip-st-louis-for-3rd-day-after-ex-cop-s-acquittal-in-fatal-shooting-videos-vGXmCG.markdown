@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protests grip St. Louis for 3rd day after ex-cop’s acquittal in fatal shooting (VIDEOS)"
-date: 2017-09-18 00:24:26Z
+date: 2017-09-18 00:24:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ For a third consecutive day, hundreds of activists are marching through the stre
 
 Full story on F3News: [Protests grip St. Louis for 3rd day after ex-cop’s acquittal in fatal shooting (VIDEOS)](http://www.f3nws.com/n/vGXmCG)
 
-> Posted on: Monday, September 18, 2017 12:24:26 AM
+> Posted on: Monday, September 18, 2017 12:24:00 AM
