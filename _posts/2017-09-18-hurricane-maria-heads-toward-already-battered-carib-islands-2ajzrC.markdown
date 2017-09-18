@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria heads toward already battered Carib islands"
-date: 2017-09-18 00:08:00Z
+date: 2017-09-18 03:44:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SANTO DOMINGO, Dominican Republic (AP) — A strengthening Hurricane Maria swirl
 
 Full story on F3News: [Hurricane Maria heads toward already battered Carib islands](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 18, 2017 12:08:00 AM
+> Posted on: Monday, September 18, 2017 3:44:00 AM
