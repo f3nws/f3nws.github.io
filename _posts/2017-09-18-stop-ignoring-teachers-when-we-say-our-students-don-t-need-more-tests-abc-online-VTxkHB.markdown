@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Stop ignoring teachers when we say our students don't need more tests - ABC Online](http://www.abc.net.au/news/image/8957242-1x1-700x700.jpg)
 
-ABC Online Stop ignoring teachers when we say our students don't need more tests ABC Online In kindergarten, or prep, students are required to engage in a one-on-one assessment to determine their literacy and numeracy skills at school entry. In years 3 and 5, the students sit NAPLAN, a national standardised test administered annually with ... 'Anxiety in kids will rise': WA teachers warn against year one testing WAtoday New plan proposes grade one kids to undergo maths and reading tests The New Daily Queensland rejects new tests for Year 1 students Daily Telegraph The Australian - The Sydney Morning Herald - SBS - gulfnews.com all 23 news articles »
+ABC Online Stop ignoring teachers when we say our students don't need more tests ABC Online In kindergarten, or prep, students are required to engage in a one-on-one assessment to determine their literacy and numeracy skills at school entry. In years 3 and 5, the students sit NAPLAN, a national standardised test administered annually with ... 'Anxiety in kids will rise': WA teachers warn against year one testing WAtoday New plan proposes grade one kids to undergo maths and reading tests The New Daily Qld rejects Year 1 national test plan The Australian The Sydney Morning Herald - SBS - gulfnews.com - Ten Eyewitness News all 24 news articles »
 
 
 Full story on F3News: [Stop ignoring teachers when we say our students don't need more tests - ABC Online](http://www.f3nws.com/n/VTxkHB)
