@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![More than 80 arrested in third night of St. Louis protests - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170918202041-st-louis-sunday-arrests-super-tease.jpg)
 
-CNN More than 80 arrested in third night of St. Louis protests CNN (CNN) Protesters angry over the acquittal of St. Louis police officer Jason Stockley, a white cop acquitted of murder in the shooting death of a black man, attacked police, broke windows and flipped over trash cans Sunday night. More than 80 people ... More than 80 arrested amid violent St. Louis protests New York Post St. Louis Protests: A Guide to the Police-Shooting Case New York Times Cops arrest 80 in third night of St. Louis unrest after cop's acquittal New York Daily News TIME - Washington Post - ABC News - BuzzFeed News all 1,799 news articles »
+CNN More than 80 arrested in third night of St. Louis protests CNN (CNN) Protesters angry over the acquittal of St. Louis police officer Jason Stockley, a white cop acquitted of murder in the shooting death of a black man, attacked police, broke windows and flipped over trash cans Sunday night. More than 80 people ... St. Louis Protests: A Guide to the Police-Shooting Case New York Times Cops arrest 80 in third night of St. Louis unrest after cop's acquittal New York Daily News St. Louis officers chant 'whose streets, our streets' while arresting protesters Washington Post TIME - CBS News - SFGate - BBC News all 1,783 news articles »
 
 
 Full story on F3News: [More than 80 arrested in third night of St. Louis protests - CNN](http://www.f3nws.com/n/2KjDdF)

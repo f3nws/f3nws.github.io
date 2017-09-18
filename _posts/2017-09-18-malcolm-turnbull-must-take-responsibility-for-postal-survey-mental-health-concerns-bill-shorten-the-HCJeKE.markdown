@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Malcolm Turnbull must take responsibility for postal survey mental health concerns: Bill Shorten - The Sydney Morning Herald"
-date: 2017-09-18 06:41:00Z
+date: 2017-09-18 07:51:41Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Malcolm Turnbull must take responsibility for postal s
 
 Full story on F3News: [Malcolm Turnbull must take responsibility for postal survey mental health concerns: Bill Shorten - The Sydney Morning Herald](http://www.f3nws.com/n/HCJeKE)
 
-> Posted on: Monday, September 18, 2017 6:41:00 AM
+> Posted on: Monday, September 18, 2017 7:51:41 AM
