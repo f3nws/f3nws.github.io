@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton just floated the idea of contesting the election"
-date: 2017-09-18 20:08:59Z
+date: 2017-09-18 20:39:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In interviews over the last week surrounding the release of her 2016 memoir "Wha
 
 Full story on F3News: [Clinton just floated the idea of contesting the election](http://www.f3nws.com/n/CRZCGH)
 
-> Posted on: Monday, September 18, 2017 8:08:59 PM
+> Posted on: Monday, September 18, 2017 8:39:54 PM
