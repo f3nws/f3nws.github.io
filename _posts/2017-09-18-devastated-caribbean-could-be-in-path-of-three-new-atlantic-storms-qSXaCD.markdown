@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Devastated Caribbean could be in path of THREE new Atlantic storms"
-date: 2017-09-18 14:24:43Z
+date: 2017-09-18 15:13:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria is forecast to rapidly strengthen over the next two days as it t
 
 Full story on F3News: [Devastated Caribbean could be in path of THREE new Atlantic storms](http://www.f3nws.com/n/qSXaCD)
 
-> Posted on: Monday, September 18, 2017 2:24:43 PM
+> Posted on: Monday, September 18, 2017 3:13:36 PM
