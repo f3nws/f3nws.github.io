@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Girl, 14, receives death threats from school friend's father over same-sex marriage stance - Yahoo7 News"
-date: 2017-09-18 05:18:12Z
+date: 2017-09-18 05:49:43Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ Yahoo7 News Girl, 14, receives death threats from school friend's father over sa
 
 Full story on F3News: [Girl, 14, receives death threats from school friend's father over same-sex marriage stance - Yahoo7 News](http://www.f3nws.com/n/jPWXsB)
 
-> Posted on: Monday, September 18, 2017 5:18:12 AM
+> Posted on: Monday, September 18, 2017 5:49:43 AM

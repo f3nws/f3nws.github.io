@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Emmys cast President Trump in key supporting role - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170917204414-colbert-opening-ceremony-emmys-super-tease.jpg)
 
-CNN Emmys cast President Trump in key supporting role CNN (CNN) In terms of politics the Emmys join the award-show party late, after the Golden Globes, Grammys, Oscars and Tonys have all taken whacks at the Trump presidency. Yet the president's preferred medium provided fertile terrain for satirizing and ... Fear Not, 'Westworld' Fans: Season 2 is Primed to Dominate the Emmys — Even Against 'Game of Thrones' IndieWire Emmys TV Review: Donald Trump Overkill Stains Stephen Colbert's Hosting Debut Deadline Sean Spicer at the Emmys: Don't Make This Guy a Folk Hero Daily Beast ABC News - Los Angeles Times - Slate Magazine (blog) - TIME all 769 news articles »
+CNN Emmys cast President Trump in key supporting role CNN (CNN) In terms of politics the Emmys join the award-show party late, after the Golden Globes, Grammys, Oscars and Tonys have all taken whacks at the Trump presidency. Yet the president's preferred medium provided fertile terrain for satirizing and ... Fear Not, 'Westworld' Fans: Season 2 is Primed to Dominate the Emmys — Even Against 'Game of Thrones' IndieWire Deadline's Emmy Awards Live Blog Deadline (blog) Emmys 2017 Snubs and Surprises Variety Los Angeles Times - New York Daily News - TIME - USA TODAY all 725 news articles »
 
 
 Full story on F3News: [Emmys cast President Trump in key supporting role - CNN](http://www.f3nws.com/n/WSvrxE)
