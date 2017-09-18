@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Porsche plows into spectators at Idaho car show; 11 hurt"
-date: 2017-09-18 03:30:03Z
+date: 2017-09-18 03:47:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A Porsche plowed into a crowd of spectators at a Boise, Idaho, car show, injurin
 
 Full story on F3News: [Porsche plows into spectators at Idaho car show; 11 hurt](http://www.f3nws.com/n/G4tjUC)
 
-> Posted on: Monday, September 18, 2017 3:30:03 AM
+> Posted on: Monday, September 18, 2017 3:47:00 AM

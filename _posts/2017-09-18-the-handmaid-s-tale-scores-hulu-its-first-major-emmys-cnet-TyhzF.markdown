@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The Handmaid's Tale' scores Hulu its first major Emmys     - CNET"
-date: 2017-09-18 03:08:22Z
+date: 2017-09-18 03:39:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ After snagging a few Creative Arts Emmys, Hulu picks up several major awards for
 
 Full story on F3News: ['The Handmaid's Tale' scores Hulu its first major Emmys     - CNET](http://www.f3nws.com/n/TyhzF)
 
-> Posted on: Monday, September 18, 2017 3:08:22 AM
+> Posted on: Monday, September 18, 2017 3:39:30 AM
