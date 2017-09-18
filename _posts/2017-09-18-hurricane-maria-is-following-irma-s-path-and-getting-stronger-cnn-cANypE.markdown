@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Hurricane Maria is following Irma's path and getting stronger - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170916230307-tropical-storm-maria-satellite-091617-1700-super-tease.jpg)
 
-CNN Hurricane Maria is following Irma's path and getting stronger CNN (CNN) Hurricane Maria is forecast to rapidly strengthen over the next two days as it takes aim at Caribbean islands devastated by Hurricane Irma just days ago. The storm is expected to be a major hurricane when it hits the Leeward Islands over the next ... Threat to East Coast from Hurricane Jose increases; Maria upgraded to hurricane Washington Post Hurricane Maria to become major storm near Caribbean islands BBC News Hurricane Maria Takes Aim at Puerto Rico, Virgin Islands NBCNews.com TIME - Los Angeles Times - Sun Sentinel - CNBC all 1,668 news articles »
+CNN Hurricane Maria is following Irma's path and getting stronger CNN (CNN) Hurricane Maria is forecast to rapidly strengthen over the next two days as it takes aim at Caribbean islands devastated by Hurricane Irma just days ago. The storm is expected to be a major hurricane when it hits the Leeward Islands over the next ... Maria forecast to intensify to Category 4 'dangerous major hurricane' ABC News Threat to East Coast from Hurricane Jose increases; Maria upgraded to hurricane Washington Post Hurricane Maria to become major storm near Caribbean islands BBC News Newsweek - TIME - NBCNews.com - Los Angeles Times all 1,690 news articles »
 
 
 Full story on F3News: [Hurricane Maria is following Irma's path and getting stronger - CNN](http://www.f3nws.com/n/cANypE)

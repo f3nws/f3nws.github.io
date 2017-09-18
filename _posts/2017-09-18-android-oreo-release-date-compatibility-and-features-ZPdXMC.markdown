@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Android Oreo release date, compatibility and features"
-date: 2017-09-18 09:58:52Z
+date: 2017-09-18 10:19:52Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The next version of Android has landed. Here are the new Oreo features and the p
 
 Full story on F3News: [Android Oreo release date, compatibility and features](http://www.f3nws.com/n/ZPdXMC)
 
-> Posted on: Monday, September 18, 2017 9:58:52 AM
+> Posted on: Monday, September 18, 2017 10:19:52 AM

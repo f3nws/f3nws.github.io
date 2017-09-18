@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sean Spicer makes surprise cameo"
-date: 2017-09-18 07:18:28Z
+date: 2017-09-18 10:46:23Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Anyone could have predicted that Stephen Colbert's opening Emmy monologue would 
 
 Full story on F3News: [Sean Spicer makes surprise cameo](http://www.f3nws.com/n/MFyyMH)
 
-> Posted on: Monday, September 18, 2017 7:18:28 AM
+> Posted on: Monday, September 18, 2017 10:46:23 AM
