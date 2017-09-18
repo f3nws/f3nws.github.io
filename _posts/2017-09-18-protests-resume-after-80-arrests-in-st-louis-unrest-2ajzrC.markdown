@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protests resume after 80 arrests in St. Louis unrest"
-date: 2017-09-18 09:24:00Z
+date: 2017-09-18 10:11:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. LOUIS (AP) — A racially mixed crowd of demonstrators locked arms and march
 
 Full story on F3News: [Protests resume after 80 arrests in St. Louis unrest](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 18, 2017 9:24:00 AM
+> Posted on: Monday, September 18, 2017 10:11:00 AM

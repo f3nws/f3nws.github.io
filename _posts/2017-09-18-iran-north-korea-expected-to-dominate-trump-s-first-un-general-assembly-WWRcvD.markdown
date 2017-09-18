@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran, North Korea expected to dominate Trump's first UN General Assembly"
-date: 2017-09-18 05:28:34Z
+date: 2017-09-18 13:59:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will tote his "America First" stance this week to the Uni
 
 Full story on F3News: [Iran, North Korea expected to dominate Trump's first UN General Assembly](http://www.f3nws.com/n/WWRcvD)
 
-> Posted on: Monday, September 18, 2017 5:28:34 AM
+> Posted on: Monday, September 18, 2017 1:59:15 PM
