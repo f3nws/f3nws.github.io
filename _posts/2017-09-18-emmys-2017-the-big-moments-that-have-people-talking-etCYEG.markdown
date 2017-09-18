@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmys 2017: The big moments that have people talking"
-date: 2017-09-18 04:11:39Z
+date: 2017-09-18 05:04:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sunday is all about the 69th Primetime Emmy Awards, and you don't want to miss o
 
 Full story on F3News: [Emmys 2017: The big moments that have people talking](http://www.f3nws.com/n/etCYEG)
 
-> Posted on: Monday, September 18, 2017 4:11:39 AM
+> Posted on: Monday, September 18, 2017 5:04:37 AM
