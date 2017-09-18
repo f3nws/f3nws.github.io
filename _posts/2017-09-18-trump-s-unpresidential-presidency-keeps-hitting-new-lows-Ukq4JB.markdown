@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's unpresidential presidency keeps hitting new lows"
-date: 2017-09-18 10:49:20Z
+date: 2017-09-18 18:39:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On the eve of a critical week of foreign policy challenges, Donald Trump started
 
 Full story on F3News: [Trump's unpresidential presidency keeps hitting new lows](http://www.f3nws.com/n/Ukq4JB)
 
-> Posted on: Monday, September 18, 2017 10:49:20 AM
+> Posted on: Monday, September 18, 2017 6:39:53 PM

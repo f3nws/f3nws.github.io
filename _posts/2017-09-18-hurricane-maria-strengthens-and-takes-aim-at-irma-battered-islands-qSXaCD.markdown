@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria strengthens and takes aim at Irma-battered islands"
-date: 2017-09-18 17:40:10Z
+date: 2017-09-18 18:36:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria is forecast to rapidly strengthen over the next two days as it t
 
 Full story on F3News: [Hurricane Maria strengthens and takes aim at Irma-battered islands](http://www.f3nws.com/n/qSXaCD)
 
-> Posted on: Monday, September 18, 2017 5:40:10 PM
+> Posted on: Monday, September 18, 2017 6:36:00 PM
