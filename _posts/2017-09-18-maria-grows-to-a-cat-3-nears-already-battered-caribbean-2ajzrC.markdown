@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "Maria grows to a Cat 3, nears already battered Caribbean"
+date: 2017-09-18 14:07:00Z
+categories: associated-press-ap-top-headlines
+---
+
+SAN JUAN, Puerto Rico (AP) — Hurricane Maria grew into a Category 3 storm on Monday as it barreled toward a potentially devastating collision with islands in the eastern Caribbean. Forecasters warned it was likely to grow even stronger.
+
+
+Full story on F3News: [Maria grows to a Cat 3, nears already battered Caribbean](http://www.f3nws.com/n/2ajzrC)
+
+> Posted on: Monday, September 18, 2017 2:07:00 PM

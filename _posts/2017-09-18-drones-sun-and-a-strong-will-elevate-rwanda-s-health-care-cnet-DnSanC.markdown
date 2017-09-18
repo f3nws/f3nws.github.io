@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Drones, sun — and a strong will — elevate Rwanda's health care     - CNET"
-date: 2017-09-18 13:52:13Z
+date: 2017-09-18 16:37:54Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Infamous for its genocide, Rwanda is using every means it can to make itself Afr
 
 Full story on F3News: [Drones, sun — and a strong will — elevate Rwanda's health care     - CNET](http://www.f3nws.com/n/DnSanC)
 
-> Posted on: Monday, September 18, 2017 1:52:13 PM
+> Posted on: Monday, September 18, 2017 4:37:54 PM

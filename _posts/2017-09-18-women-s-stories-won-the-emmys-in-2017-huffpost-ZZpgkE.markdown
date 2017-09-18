@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Women's Stories Won The Emmys In 2017 - HuffPost](https://img.huffingtonpost.com/asset/59bfbb9c1900003a0056447f.jpeg?ops=1910_1000)
 
-HuffPost Women's Stories Won The Emmys In 2017 HuffPost It wasn't a perfect night, but like Reese Witherspoon said, let's continue to “bring women to the front of their own stories.” By Katherine Brooks. David Livingston via Getty Images. The women-dominated cast of “Big Little Lies” won big at the 2017 Emmys. Seeing Double! Reese Witherspoon Celebrates Big Little Lies' Emmys Success with Look-Alike Daughter Ava PEOPLE.com Keith Urban FaceTimes His Daughters to Share Nicole Kidman's Emmy Wins E! Online Nicole Kidman only thanked two of her children in Emmys speech Page Six Entertainment Tonight - Vogue.com - Jezebel - WWD all 356 news articles »
+HuffPost Women's Stories Won The Emmys In 2017 HuffPost It wasn't a perfect night, but like Reese Witherspoon said, let's continue to “bring women to the front of their own stories.” By Katherine Brooks. David Livingston via Getty Images. The women-dominated cast of “Big Little Lies” won big at the 2017 Emmys. How Nicole Kidman and Reese Witherspoon Celebrated Their Big Little Lies Emmy Wins Vanity Fair Seeing Double! Reese Witherspoon Celebrates Big Little Lies' Emmys Success with Look-Alike Daughter Ava PEOPLE.com Keith Urban FaceTimes His Daughters to Share Nicole Kidman's Emmy Wins E! Online Page Six - Washington Post - Entertainment Tonight - EW.com all 350 news articles »
 
 
 Full story on F3News: [Women's Stories Won The Emmys In 2017 - HuffPost](http://www.f3nws.com/n/ZZpgkE)
