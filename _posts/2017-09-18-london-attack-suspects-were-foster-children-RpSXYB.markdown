@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London attack suspects 'were foster children'"
-date: 2017-09-18 16:12:51Z
+date: 2017-09-18 16:58:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London commuters are beginning their working week with heavy security on transpo
 
 Full story on F3News: [London attack suspects 'were foster children'](http://www.f3nws.com/n/RpSXYB)
 
-> Posted on: Monday, September 18, 2017 4:12:51 PM
+> Posted on: Monday, September 18, 2017 4:58:27 PM
