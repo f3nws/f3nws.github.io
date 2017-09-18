@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sean Spicer sizes up Emmy audience"
-date: 2017-09-18 01:05:03Z
+date: 2017-09-18 02:29:10Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump’s former Press Secretary, Sean Spicer, joins host Steph
 
 Full story on F3News: [Sean Spicer sizes up Emmy audience](http://www.f3nws.com/n/PZrgCG)
 
-> Posted on: Monday, September 18, 2017 1:05:03 AM
+> Posted on: Monday, September 18, 2017 2:29:10 AM

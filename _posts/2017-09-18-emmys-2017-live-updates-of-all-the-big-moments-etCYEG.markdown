@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmys 2017: Live updates of all the big moments"
-date: 2017-09-18 01:19:58Z
+date: 2017-09-18 03:04:43Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sunday is all about the 69th Primetime Emmy Awards, and you don't want to miss o
 
 Full story on F3News: [Emmys 2017: Live updates of all the big moments](http://www.f3nws.com/n/etCYEG)
 
-> Posted on: Monday, September 18, 2017 1:19:58 AM
+> Posted on: Monday, September 18, 2017 3:04:43 AM
