@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmy 2017: The winners list"
-date: 2017-09-18 00:36:30Z
+date: 2017-09-18 01:02:50Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The 69th Primetime Emmy Awards, hosted by Stephen Colbert, aired Sunday on CBS.
 
 Full story on F3News: [Emmy 2017: The winners list](http://www.f3nws.com/n/3CXHpF)
 
-> Posted on: Monday, September 18, 2017 12:36:30 AM
+> Posted on: Monday, September 18, 2017 1:02:50 AM
