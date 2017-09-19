@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Hurricane Maria hits Dominica with Category 5 punch - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170916235146-tropical-storm-maria-screengrab-091617-2345-super-tease.jpg)
 
-CNN Hurricane Maria hits Dominica with Category 5 punch CNN (CNN) The "potentially catastrophic" Hurricane Maria, the strongest storm on record to make landfall in Dominica, is battering the Caribbean island, and is on course to score a direct hit on the US territory of Puerto Rico -- the first in 85 years. A ... Category 5 Hurricane Maria is a severe threat to the Caribbean and Puerto Rico; Jose to scrape Northeast coast Washington Post Hurricane Maria batters Dominica as a Category 5 storm Chicago Tribune Category 5 Hurricane Maria Powers Up for Another Blow to the Caribbean NBCNews.com BBC News - The Weather Channel - Wall Street Journal (subscription) - BuzzFeed News all 1,113 news articles »
+CNN Hurricane Maria hits Dominica with Category 5 punch CNN (CNN) The "potentially catastrophic" Hurricane Maria, the strongest storm on record to make landfall in Dominica, is battering the Caribbean island, and is on course to score a direct hit on the US territory of Puerto Rico -- the first in 85 years. A ... Category 5 Hurricane Maria is a severe threat to the Caribbean and Puerto Rico; Jose to scrape Northeast coast Washington Post Hurricane Maria Makes Landfall in Dominica as Other Islands Brace for Category 5 Storm New York Times Category 5 Maria Threatens Catastrophic Damage in the Caribbean NBCNews.com Fox News - Miami Herald - Philly.com - HuffPost all 1,420 news articles »
 
 
 Full story on F3News: [Hurricane Maria hits Dominica with Category 5 punch - CNN](http://www.f3nws.com/n/qSXaCD)
