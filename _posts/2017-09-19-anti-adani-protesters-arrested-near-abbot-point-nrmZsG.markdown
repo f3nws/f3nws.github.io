@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Anti-Adani protesters arrested near Abbot Point](http://www.abc.net.au/news/image/8959822-1x1-700x700.jpg)
 
-Police arrest 10 protestors they say were blockading a road to the Abbot Point Coal terminal near Bowen.
+Police arrest 10 protesters they say were blockading a road to the Abbot Point Coal terminal near Bowen, but are happy overall with the peaceful nature of the protest.
 
 
 Full story on F3News: [Anti-Adani protesters arrested near Abbot Point](http://www.f3nws.com/n/nrmZsG)
