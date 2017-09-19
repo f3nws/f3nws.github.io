@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US opens 1st permanent military base in Israel as tensions with Iran rise"
-date: 2017-09-19 01:09:31Z
+date: 2017-09-19 01:09:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Even though the US has routinely deployed forces to Israel, it is only now openi
 
 Full story on F3News: [US opens 1st permanent military base in Israel as tensions with Iran rise](http://www.f3nws.com/n/pPcT4C)
 
-> Posted on: Tuesday, September 19, 2017 1:09:31 AM
+> Posted on: Tuesday, September 19, 2017 1:09:00 AM

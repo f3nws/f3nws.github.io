@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Jr. requests scaling back his Secret Service detail"
-date: 2017-09-19 00:31:40Z
+date: 2017-09-19 01:44:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump Jr. is seeking to scale back his Secret Service protection, four so
 
 Full story on F3News: [Trump Jr. requests scaling back his Secret Service detail](http://www.f3nws.com/n/tDKdvH)
 
-> Posted on: Tuesday, September 19, 2017 12:31:40 AM
+> Posted on: Tuesday, September 19, 2017 1:44:41 AM
