@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powerful 7.1 earthquake hits central Mexico"
-date: 2017-09-19 20:23:53Z
+date: 2017-09-19 20:47:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A magnitude-7.1 earthquake struck the central Mexican state of Puebla on Tuesday
 
 Full story on F3News: [Powerful 7.1 earthquake hits central Mexico](http://www.f3nws.com/n/yedSnF)
 
-> Posted on: Tuesday, September 19, 2017 8:23:53 PM
+> Posted on: Tuesday, September 19, 2017 8:47:07 PM
