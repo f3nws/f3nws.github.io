@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Running in the desert for fun"
-date: 2017-09-19 03:51:46Z
+date: 2017-09-19 04:30:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's 35 degrees Celsius on the Islamic holiday of Eid al-Adha, and a group of wo
 
 Full story on F3News: [Running in the desert for fun](http://www.f3nws.com/n/AMKzBB)
 
-> Posted on: Tuesday, September 19, 2017 3:51:46 AM
+> Posted on: Tuesday, September 19, 2017 4:30:42 AM

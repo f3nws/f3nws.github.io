@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aung San Suu Kyi addresses nation over Rohingya crisis"
-date: 2017-09-19 03:53:48Z
+date: 2017-09-19 04:52:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Crowds gathered outside a large screen in Yangon, Myanmar as the nation's de fac
 
 Full story on F3News: [Aung San Suu Kyi addresses nation over Rohingya crisis](http://www.f3nws.com/n/hNsMJD)
 
-> Posted on: Tuesday, September 19, 2017 3:53:48 AM
+> Posted on: Tuesday, September 19, 2017 4:52:32 AM

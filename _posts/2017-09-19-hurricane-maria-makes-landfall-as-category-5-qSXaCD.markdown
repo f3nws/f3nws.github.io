@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria makes landfall as Category 5"
-date: 2017-09-19 03:45:20Z
+date: 2017-09-19 04:32:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria is forecast to rapidly strengthen over the next two days as it t
 
 Full story on F3News: [Hurricane Maria makes landfall as Category 5](http://www.f3nws.com/n/qSXaCD)
 
-> Posted on: Tuesday, September 19, 2017 3:45:20 AM
+> Posted on: Tuesday, September 19, 2017 4:32:24 AM
