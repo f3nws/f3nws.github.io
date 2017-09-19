@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Soft-Soaps the UN Of Course, It Was Only Day 1 . . . - New York Times](https://static01.nyt.com/images/2017/09/19/world/19Nations1/19Nations1-facebookJumbo.jpg)
 
-New York Times Trump Soft-Soaps the UN Of Course, It Was Only Day 1 . . . New York Times President Trump opened his visit to the United Nations by saying it had grown too bureaucratic. By REUTERS on Publish Date September 18, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. UNITED NATIONS — The ... The burning world crises that won't get solved this week at the UN Washington Post Trump sets sights on Iran, North Korea in major UN speech CNN Trump to hail Iranian people as a threat to regime's status quo Politico ABC News - USA TODAY - NPR - The Hill all 770 news articles »
+New York Times Trump Soft-Soaps the UN Of Course, It Was Only Day 1 . . . New York Times President Trump opened his visit to the United Nations by saying it had grown too bureaucratic. By REUTERS on Publish Date September 18, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. UNITED NATIONS — The ... The burning world crises that won't get solved this week at the UN Washington Post Trump sets sights on Iran, North Korea in major UN speech CNN Trump to hail Iranian people as a threat to regime's status quo Politico U.S. News & World Report - USA TODAY - NPR - Los Angeles Times all 765 news articles »
 
 
 Full story on F3News: [Trump Soft-Soaps the UN Of Course, It Was Only Day 1 . . . - New York Times](http://www.f3nws.com/n/RZCEzF)

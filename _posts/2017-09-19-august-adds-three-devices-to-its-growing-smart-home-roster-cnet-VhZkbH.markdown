@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "August adds three devices to its growing smart home roster     - CNET"
-date: 2017-09-19 04:01:13Z
+date: 2017-09-19 07:16:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ August just added two new smart locks and a doorbell to its product lineup.
 
 Full story on F3News: [August adds three devices to its growing smart home roster     - CNET](http://www.f3nws.com/n/VhZkbH)
 
-> Posted on: Tuesday, September 19, 2017 4:01:13 AM
+> Posted on: Tuesday, September 19, 2017 7:16:28 AM
