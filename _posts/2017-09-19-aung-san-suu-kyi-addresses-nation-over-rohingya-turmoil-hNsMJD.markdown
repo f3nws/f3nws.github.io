@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aung San Suu Kyi addresses nation over Rohingya turmoil"
-date: 2017-09-19 06:47:08Z
+date: 2017-09-19 08:13:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Crowds gathered outside a large screen in Yangon, Myanmar as the nation's de fac
 
 Full story on F3News: [Aung San Suu Kyi addresses nation over Rohingya turmoil](http://www.f3nws.com/n/hNsMJD)
 
-> Posted on: Tuesday, September 19, 2017 6:47:08 AM
+> Posted on: Tuesday, September 19, 2017 8:13:49 AM

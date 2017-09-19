@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 dubious claims Suu Kyi made in her speech"
-date: 2017-09-19 07:07:26Z
+date: 2017-09-19 08:10:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Myanmar's de facto leader Aung San Suu Kyi gave a much-anticipated address Tuesd
 
 Full story on F3News: [5 dubious claims Suu Kyi made in her speech](http://www.f3nws.com/n/r2yGPJ)
 
-> Posted on: Tuesday, September 19, 2017 7:07:26 AM
+> Posted on: Tuesday, September 19, 2017 8:10:33 AM
