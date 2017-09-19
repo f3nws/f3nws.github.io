@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Widespread Dominica devastation: 'We have lost all money can buy'"
-date: 2017-09-19 11:45:00Z
+date: 2017-09-19 13:09:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria, making its first landfall as a Category 5 storm, has blasted Do
 
 Full story on F3News: [Widespread Dominica devastation: 'We have lost all money can buy'](http://www.f3nws.com/n/33QkfD)
 
-> Posted on: Tuesday, September 19, 2017 11:45:00 AM
+> Posted on: Tuesday, September 19, 2017 1:09:52 PM
