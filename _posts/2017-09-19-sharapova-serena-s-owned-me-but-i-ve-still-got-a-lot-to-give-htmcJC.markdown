@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sharapova: Serena's 'owned me' but 'I've still got a lot to give'"
-date: 2017-09-19 09:44:50Z
+date: 2017-09-19 11:14:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the space of one hour and eighteen minutes, Maria Sharapova's life would chan
 
 Full story on F3News: [Sharapova: Serena's 'owned me' but 'I've still got a lot to give'](http://www.f3nws.com/n/htmcJC)
 
-> Posted on: Tuesday, September 19, 2017 9:44:50 AM
+> Posted on: Tuesday, September 19, 2017 11:14:48 AM
