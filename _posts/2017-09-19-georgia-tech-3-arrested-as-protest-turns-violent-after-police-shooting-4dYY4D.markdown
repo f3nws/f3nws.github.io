@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GEORGIA TECH: 3 arrested as protest turns violent after police shooting"
-date: 2017-09-19 10:32:25Z
+date: 2017-09-19 11:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Three people were arrested during violent protests at Georgia Tech Monday night 
 
 Full story on F3News: [GEORGIA TECH: 3 arrested as protest turns violent after police shooting](http://www.f3nws.com/n/4dYY4D)
 
-> Posted on: Tuesday, September 19, 2017 10:32:25 AM
+> Posted on: Tuesday, September 19, 2017 11:00:02 AM
