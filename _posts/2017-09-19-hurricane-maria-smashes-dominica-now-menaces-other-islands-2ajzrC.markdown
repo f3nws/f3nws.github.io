@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria smashes Dominica, now menaces other islands"
-date: 2017-09-19 07:26:00Z
+date: 2017-09-19 08:21:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ROSEAU, Dominica (AP) — Hurricane Maria smashed into Dominica with 160 mph win
 
 Full story on F3News: [Hurricane Maria smashes Dominica, now menaces other islands](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 19, 2017 7:26:00 AM
+> Posted on: Tuesday, September 19, 2017 8:21:00 AM

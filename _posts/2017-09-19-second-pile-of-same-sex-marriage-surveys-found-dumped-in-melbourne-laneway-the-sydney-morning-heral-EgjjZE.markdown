@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Second pile of same-sex marriage surveys found dumped in Melbourne laneway - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/k/h/y/w/image.related.articleLeadwide.620x349.gyklh2.png/1505806649497.jpg)
 
-The Sydney Morning Herald Second pile of same-sex marriage surveys found dumped in Melbourne laneway The Sydney Morning Herald A second batch of same-sex marriage surveys has been discovered dumped in Melbourne, with a pile of rain-damaged envelopes destined for East Brunswick discovered in the CBD. A woman found the pile of letters lying on the footpath between Collins and ... SSM: Same-sex marriage surveys found 'dumped in Brunswick', security concerns raised ABC Online A woman found 17 same-sex marriage voting forms dumped behind her carport in Melbourne Business Insider Australia all 3 news articles »
+The Sydney Morning Herald Second pile of same-sex marriage surveys found dumped in Melbourne laneway The Sydney Morning Herald A second batch of same-sex marriage surveys has been discovered dumped in Melbourne, with a pile of rain-damaged envelopes destined for East Brunswick discovered in the CBD. A woman found the pile of letters lying on the footpath between Collins and ... SSM: Same-sex marriage surveys found 'dumped in Brunswick', security concerns raised ABC Online 'Our postal votes stolen': Melbourne mum's anger to find dumped same-sex marriage envelopes in backyard Yahoo7 News Reports of same-sex marriage survey forms stolen from letterboxes 9news.com.au Business Insider Australia - Daily Mail all 6 news articles »
 
 
 Full story on F3News: [Second pile of same-sex marriage surveys found dumped in Melbourne laneway - The Sydney Morning Herald](http://www.f3nws.com/n/EgjjZE)
