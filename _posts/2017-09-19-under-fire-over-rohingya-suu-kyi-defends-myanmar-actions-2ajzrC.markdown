@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Under fire over Rohingya, Suu Kyi defends Myanmar actions"
-date: 2017-09-19 05:00:00Z
+date: 2017-09-19 05:37:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NAYPYITAW, Myanmar (AP) — With a mass exodus of Rohingya Muslims sparking accu
 
 Full story on F3News: [Under fire over Rohingya, Suu Kyi defends Myanmar actions](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 19, 2017 5:00:00 AM
+> Posted on: Tuesday, September 19, 2017 5:37:00 AM

@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Same-sex marriage: Turnbull says 'no' vote would rule the issue out for Coalition - The Sydney Morning Herald"
+date: 2017-09-19 08:25:00Z
+categories: google-news-australia
+---
+
+![Same-sex marriage: Turnbull says 'no' vote would rule the issue out for Coalition - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/y/h/g/k/g/image.related.articleLeadwide.620x349.gyknlq.png/1505810247489.jpg)
+
+The Sydney Morning Herald Same-sex marriage: Turnbull says 'no' vote would rule the issue out for Coalition The Sydney Morning Herald Prime Minister Malcolm Turnbull has declared a "no" vote in the same-sex marriage postal survey would see the Coalition rule it out of parliamentary consideration for both this term and the next, were he to win the 2019 election. Turnbull says same-sex marriage won't be an issue at next election The Australian Don't believe the tripe about a plague of rainbow locusts Courier Mail Gay marriage support declining: No campaign Sky News Australia The Guardian - Pro Bono Australia - Business Insider Australia - Junkee all 209 news articles »
+
+
+Full story on F3News: [Same-sex marriage: Turnbull says 'no' vote would rule the issue out for Coalition - The Sydney Morning Herald](http://www.f3nws.com/n/JuQYNB)
+
+> Posted on: Tuesday, September 19, 2017 8:25:00 AM

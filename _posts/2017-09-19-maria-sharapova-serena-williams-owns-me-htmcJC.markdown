@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maria Sharapova: Serena Williams 'owns me'"
-date: 2017-09-19 07:27:46Z
+date: 2017-09-19 09:44:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the space of one hour and eighteen minutes, Maria Sharapova's life would chan
 
 Full story on F3News: [Maria Sharapova: Serena Williams 'owns me'](http://www.f3nws.com/n/htmcJC)
 
-> Posted on: Tuesday, September 19, 2017 7:27:46 AM
+> Posted on: Tuesday, September 19, 2017 9:44:50 AM
