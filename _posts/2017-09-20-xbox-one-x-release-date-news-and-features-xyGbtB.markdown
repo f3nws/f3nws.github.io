@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Xbox One X release date, news, and features"
-date: 2017-09-20 07:18:42Z
+date: 2017-09-20 09:35:42Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Xbox One X, Microsoft's upcoming 4K HDR capable console, has no qualms breaking 
 
 Full story on F3News: [Xbox One X release date, news, and features](http://www.f3nws.com/n/xyGbtB)
 
-> Posted on: Wednesday, September 20, 2017 7:18:42 AM
+> Posted on: Wednesday, September 20, 2017 9:35:42 AM
