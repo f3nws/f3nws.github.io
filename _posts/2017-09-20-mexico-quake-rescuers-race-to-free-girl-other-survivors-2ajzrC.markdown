@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico quake rescuers race to free girl, other survivors"
-date: 2017-09-20 17:54:00Z
+date: 2017-09-20 18:12:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MEXICO CITY (AP) — The wiggling fingers of a young girl trapped in the rubble 
 
 Full story on F3News: [Mexico quake rescuers race to free girl, other survivors](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 5:54:00 PM
+> Posted on: Wednesday, September 20, 2017 6:12:00 PM
