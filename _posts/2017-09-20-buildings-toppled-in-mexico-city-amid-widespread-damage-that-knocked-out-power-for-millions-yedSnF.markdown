@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Buildings toppled in Mexico City amid widespread damage that knocked out power for millions"
-date: 2017-09-20 05:21:38Z
+date: 2017-09-20 05:52:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Central Mexico earthquake kills more than 140, topples buildings CNN (CNN) R
 
 Full story on F3News: [Buildings toppled in Mexico City amid widespread damage that knocked out power for millions](http://www.f3nws.com/n/yedSnF)
 
-> Posted on: Wednesday, September 20, 2017 5:21:38 AM
+> Posted on: Wednesday, September 20, 2017 5:52:08 AM
