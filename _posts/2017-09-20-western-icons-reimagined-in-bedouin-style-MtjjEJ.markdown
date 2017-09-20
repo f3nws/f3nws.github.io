@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Western icons reimagined in Bedouin style"
-date: 2017-09-20 02:54:22Z
+date: 2017-09-20 03:00:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Clad in Bedouin attire from head to toe, "Sheikh" William of Arabia is smiling, 
 
 Full story on F3News: [Western icons reimagined in Bedouin style](http://www.f3nws.com/n/MtjjEJ)
 
-> Posted on: Wednesday, September 20, 2017 2:54:22 AM
+> Posted on: Wednesday, September 20, 2017 3:00:48 AM
