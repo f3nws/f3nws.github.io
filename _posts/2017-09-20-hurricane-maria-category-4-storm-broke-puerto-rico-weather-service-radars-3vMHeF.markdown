@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria: Category 4 storm broke Puerto Rico weather service radars"
-date: 2017-09-20 16:53:09Z
+date: 2017-09-20 18:20:26Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of Puerto Ricans heeded the calls of government officials and have tak
 
 Full story on F3News: [Hurricane Maria: Category 4 storm broke Puerto Rico weather service radars](http://www.f3nws.com/n/3vMHeF)
 
-> Posted on: Wednesday, September 20, 2017 4:53:09 PM
+> Posted on: Wednesday, September 20, 2017 6:20:26 PM

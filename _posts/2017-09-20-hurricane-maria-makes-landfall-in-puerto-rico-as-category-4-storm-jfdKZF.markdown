@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria makes landfall in Puerto Rico as Category 4 storm"
-date: 2017-09-20 16:00:00Z
+date: 2017-09-20 18:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria roared onto Puerto Rico early Wednesday as an "extremely dangero
 
 Full story on F3News: [Hurricane Maria makes landfall in Puerto Rico as Category 4 storm](http://www.f3nws.com/n/jfdKZF)
 
-> Posted on: Wednesday, September 20, 2017 4:00:00 PM
+> Posted on: Wednesday, September 20, 2017 6:00:00 PM
