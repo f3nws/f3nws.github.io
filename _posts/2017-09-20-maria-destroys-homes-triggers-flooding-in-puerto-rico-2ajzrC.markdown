@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maria destroys homes, triggers flooding in Puerto Rico"
-date: 2017-09-20 15:22:00Z
+date: 2017-09-20 16:44:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN JUAN, Puerto Rico (AP) — The strongest hurricane to hit Puerto Rico in ove
 
 Full story on F3News: [Maria destroys homes, triggers flooding in Puerto Rico](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 3:22:00 PM
+> Posted on: Wednesday, September 20, 2017 4:44:00 PM
