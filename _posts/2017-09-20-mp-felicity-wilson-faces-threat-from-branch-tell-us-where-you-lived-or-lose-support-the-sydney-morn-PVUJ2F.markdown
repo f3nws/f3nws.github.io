@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![MP Felicity Wilson faces threat from branch: tell us where you lived or lose support - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/v/h/1/a/z/image.related.articleLeadwide.620x349.gyl27u.png/1505878310116.jpg)
 
-The Sydney Morning Herald MP Felicity Wilson faces threat from branch: tell us where you lived or lose support The Sydney Morning Herald A NSW government MP is facing a revolt from one of her own branches, which is threatening to withdraw support for her re-election over concerns about her "integrity and honesty" unless she addresses a mounting scandal about false claims to have lived ... and more »
+The Sydney Morning Herald MP Felicity Wilson faces threat from branch: tell us where you lived or lose support The Sydney Morning Herald A NSW government MP is facing a revolt from one of her own branches, which is threatening to withdraw support for her re-election over concerns about her "integrity and honesty" unless she addresses a mounting scandal about false claims to have lived ... Liberal Party members threaten to withdraw support for 'toxic' local MP Felicity Wilson ABC Online all 2 news articles »
 
 
 Full story on F3News: [MP Felicity Wilson faces threat from branch: tell us where you lived or lose support - The Sydney Morning Herald](http://www.f3nws.com/n/PVUJ2F)

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![With Combative Style and Epithets, Trump Takes America First to the UN - New York Times](https://static01.nyt.com/images/2017/09/20/world/20trump-live2/20trump-live2-facebookJumbo.jpg)
 
-New York Times With Combative Style and Epithets, Trump Takes America First to the UN New York Times President Trump threatened to “totally destroy” North Korea, and said that Iran masked a corrupt dictatorship under “the false guise of a democracy.” By THE ASSOCIATED PRESS. Photo by Chang W. Lee/The New York Times. Watch in Times Video ». embed. Trump defends 'America first' foreign policy at UN, threatens to 'totally destroy' North Korea Washington Post Anxious world lobbies Trump on Iran nuclear deal Politico Maduro Calls Trump 'Hitler' After US President Slams Venezuela at UN NBCNews.com Reuters - National Review - USA TODAY - BBC News all 2,635 news articles »
+New York Times With Combative Style and Epithets, Trump Takes America First to the UN New York Times President Trump threatened to “totally destroy” North Korea, and said that Iran masked a corrupt dictatorship under “the false guise of a democracy.” By THE ASSOCIATED PRESS. Photo by Chang W. Lee/The New York Times. Watch in Times Video ». embed. Trump defends 'America first' foreign policy at UN, threatens to 'totally destroy' North Korea Washington Post Maduro Calls Trump 'Hitler' After US President Slams Venezuela at UN NBCNews.com Trump at the UN National Review USA TODAY - Reuters - BBC News - Fox News all 2,520 news articles »
 
 
 Full story on F3News: [With Combative Style and Epithets, Trump Takes America First to the UN - New York Times](http://www.f3nws.com/n/CKXXQJ)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel: US senator lied to my face"
-date: 2017-09-20 04:25:52Z
+date: 2017-09-20 06:02:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Jimmy Kimmel: US senator lied to my face](http://www.f3nws.com/n/WebpHH)
 
-> Posted on: Wednesday, September 20, 2017 4:25:52 AM
+> Posted on: Wednesday, September 20, 2017 6:02:42 AM
