@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Puerto Rico governor: Still time to get to shelters before Hurricane Maria - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170918184447-hurricane-maria-0918-645pm-screengrab-super-tease.jpg)
 
-CNN Puerto Rico governor: Still time to get to shelters before Hurricane Maria CNN (CNN) There is still time for Puerto Ricans to get to a government-run shelter before powerful Hurricane Maria clobbers the island, Gov. Ricardo Rosselló told CNN late Tuesday. But the window of opportunity is closing. "There's still time ... but ... Hurricane Maria Does 'Mind-Boggling' Damage to Dominica, Leader Says New York Times Hurricane Maria gets more dangerous as 175 mph winds extend further nearing St. Croix Miami Herald Hurricane Maria rips through the eastern Caribbean on its way to Puerto Rico Los Angeles Times Washington Post - Fox News - The Weather Channel - ABC News all 3,686 news articles »
+CNN Puerto Rico governor: Still time to get to shelters before Hurricane Maria CNN (CNN) There is still time for Puerto Ricans to get to a government-run shelter before powerful Hurricane Maria clobbers the island, Gov. Ricardo Rosselló told CNN late Tuesday. But the window of opportunity is closing. "There's still time ... but ... Hurricane Maria Does 'Mind-Boggling' Damage to Dominica, Leader Says New York Times Hurricane Maria takes aim at Puerto Rico, US Virgin Islands as Category 5 storm strengthens Fox News Hurricane Maria rips through the eastern Caribbean on its way to Puerto Rico Los Angeles Times The Weather Channel - BBC News - Minneapolis Star Tribune - CBS News all 3,634 news articles »
 
 
 Full story on F3News: [Puerto Rico governor: Still time to get to shelters before Hurricane Maria - CNN](http://www.f3nws.com/n/33QkfD)
