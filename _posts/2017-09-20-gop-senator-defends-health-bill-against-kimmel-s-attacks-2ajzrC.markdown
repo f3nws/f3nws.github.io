@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP senator defends health bill against Kimmel's attacks"
-date: 2017-09-20 12:26:00Z
+date: 2017-09-20 14:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Sen. Bill Cassidy defended his health care bill Wednesday af
 
 Full story on F3News: [GOP senator defends health bill against Kimmel's attacks](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 12:26:00 PM
+> Posted on: Wednesday, September 20, 2017 2:43:00 PM
