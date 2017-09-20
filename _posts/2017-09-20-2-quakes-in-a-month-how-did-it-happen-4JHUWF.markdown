@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 quakes in a month: How did it happen?"
-date: 2017-09-20 15:36:44Z
+date: 2017-09-20 19:20:54Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ For the second time in two weeks, a powerful earthquake struck Mexico, toppling 
 
 Full story on F3News: [2 quakes in a month: How did it happen?](http://www.f3nws.com/n/4JHUWF)
 
-> Posted on: Wednesday, September 20, 2017 3:36:44 PM
+> Posted on: Wednesday, September 20, 2017 7:20:54 PM

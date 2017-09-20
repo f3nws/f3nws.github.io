@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In a collapsed Mexico school, a community digs for signs of life"
-date: 2017-09-20 16:12:39Z
+date: 2017-09-20 20:21:18Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ When the Enrique Rebsamen School fell, it did not do so lightly. The 7.1-magnitu
 
 Full story on F3News: [In a collapsed Mexico school, a community digs for signs of life](http://www.f3nws.com/n/kAKpg)
 
-> Posted on: Wednesday, September 20, 2017 4:12:39 PM
+> Posted on: Wednesday, September 20, 2017 8:21:18 PM

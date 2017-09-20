@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria: The entire island of Puerto Rico is without power"
-date: 2017-09-20 18:51:31Z
+date: 2017-09-20 20:22:28Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of Puerto Ricans heeded the calls of government officials and have tak
 
 Full story on F3News: [Hurricane Maria: The entire island of Puerto Rico is without power](http://www.f3nws.com/n/3vMHeF)
 
-> Posted on: Wednesday, September 20, 2017 6:51:31 PM
+> Posted on: Wednesday, September 20, 2017 8:22:28 PM

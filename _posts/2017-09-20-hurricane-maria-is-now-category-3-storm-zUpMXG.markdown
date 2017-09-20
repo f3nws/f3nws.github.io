@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria is now Category 3 storm"
-date: 2017-09-20 17:13:35Z
+date: 2017-09-20 19:58:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Hurricane Maria is now Category 3 storm](http://www.f3nws.com/n/zUpMXG)
 
-> Posted on: Wednesday, September 20, 2017 5:13:35 PM
+> Posted on: Wednesday, September 20, 2017 7:58:07 PM
