@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Free speech threatened in sex trafficking bill, Silicon Valley warns"
-date: 2017-09-20 01:52:55Z
+date: 2017-09-20 01:52:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Major tech companies are opposing sex trafficking legislation that would make th
 
 Full story on F3News: [Free speech threatened in sex trafficking bill, Silicon Valley warns](http://www.f3nws.com/n/qdWKPD)
 
-> Posted on: Wednesday, September 20, 2017 1:52:55 AM
+> Posted on: Wednesday, September 20, 2017 1:52:00 AM

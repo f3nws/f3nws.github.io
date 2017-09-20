@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7.1 magnitude earthquake kills more than 100 in Mexico, collapses buildings"
-date: 2017-09-20 01:16:00Z
+date: 2017-09-20 02:27:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A 7.1 magnitude earthquake struck near Mexico City Tuesday afternoon, the U.S. G
 
 Full story on F3News: [7.1 magnitude earthquake kills more than 100 in Mexico, collapses buildings](http://www.f3nws.com/n/PgEv4F)
 
-> Posted on: Wednesday, September 20, 2017 1:16:00 AM
+> Posted on: Wednesday, September 20, 2017 2:27:00 AM
