@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![KB Home CEO lashes out at Kathy Griffin in profanity-laced tirade - New York Post](https://thenypost.files.wordpress.com/2017/09/griffin.jpg?quality=90&strip=all&w=1200)
 
-New York Post KB Home CEO lashes out at Kathy Griffin in profanity-laced tirade New York Post The CEO and chairman of KB Home, one of the largest and most recognizable homebuilding companies in the country, was caught on tape hurling homophobic slurs and profanities at his neighbor — who just so happens to be dating Kathy Griffin. Millionaire CEO slams neighbor Kathy Griffin in potty-mouthed tirade after cops called on his grandkids Fox News Kathy Griffin Called a ”C–t' and 'Bald D–e' by Her Neighbor, the CEO of KB Home TheWrap CEO Of KB Home Calls Kathy Griffin A 'Bald D**e' And 'C**t' On Tape HuffPost Bloomberg - PerezHilton.com - Daily Mail all 8 news articles »
+New York Post KB Home CEO lashes out at Kathy Griffin in profanity-laced tirade New York Post The CEO and chairman of KB Home, one of the largest and most recognizable homebuilding companies in the country, was caught on tape hurling homophobic slurs and profanities at his neighbor — who just so happens to be dating Kathy Griffin. Millionaire CEO slams neighbor Kathy Griffin in potty-mouthed tirade after cops called on his grandkids Fox News Kathy Griffin Called a ”C–t' and 'Bald D–e' by Her Neighbor, the CEO of KB Home TheWrap KB Home CEO Apologizes for Profanities Against Comedian Kathy Griffin Bloomberg HuffPost - PerezHilton.com - Daily Mail all 8 news articles »
 
 
 Full story on F3News: [KB Home CEO lashes out at Kathy Griffin in profanity-laced tirade - New York Post](http://www.f3nws.com/n/ENSeGB)
