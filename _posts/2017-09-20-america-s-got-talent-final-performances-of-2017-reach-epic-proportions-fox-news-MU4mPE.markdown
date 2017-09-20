@@ -5,7 +5,7 @@ date: 2017-09-20 02:07:22Z
 categories: fox-news
 ---
 
-Fox News 'America's Got Talent' final performances of 2017 reach epic proportions Fox News The time has come for the remaining 10 acts on “America's Got Talent” to officially pull out all the stops and give their very last performance before a winner is crowned. With $1 million and a headlining show in Las Vegas on the line, everyone brought ... AGT's Mandy Harvey Wows With Original Song and Reveals She Chose to 'Stand up and Move Forward' After Hearing ... PEOPLE.com Mandy Harvey Tells Tragic Story About Losing Her Hearing Before 'AGT' Finale Performance Hollywood Life Chase Goehring's final 'America's Got Talent' performance: Heartthrob raps original song 'Mirror' [WATCH] Goldderby Just Jared - 9NEWS.com - TVLine - NBC4i.com all 61 news articles »
+Fox News 'America's Got Talent' final performances of 2017 reach epic proportions Fox News The time has come for the remaining 10 acts on “America's Got Talent” to officially pull out all the stops and give their very last performance before a winner is crowned. With $1 million and a headlining show in Las Vegas on the line, everyone brought ... AGT's Mandy Harvey Wows With Original Song and Reveals She Chose to 'Stand up and Move Forward' After Hearing ... PEOPLE.com Mandy Harvey Tells Tragic Story About Losing Her Hearing Before 'AGT' Finale Performance Hollywood Life EXCLUSIVE: Mandy Harvey Talks Emotional 'America's Got Talent' Finals: 'I Want to Inspire Other People' Entertainment Tonight Goldderby - Just Jared - NBC4i.com - TVLine all 62 news articles »
 
 
 Full story on F3News: ['America's Got Talent' final performances of 2017 reach epic proportions - Fox News](http://www.f3nws.com/n/MU4mPE)

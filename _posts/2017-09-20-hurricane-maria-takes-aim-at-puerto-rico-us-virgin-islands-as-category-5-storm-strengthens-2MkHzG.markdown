@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria takes aim at Puerto Rico, US Virgin Islands as Category 5 storm strengthens"
-date: 2017-09-20 00:04:00Z
+date: 2017-09-20 02:32:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria is taking aim at Puerto Rico as the Category 5 storm, which is e
 
 Full story on F3News: [Hurricane Maria takes aim at Puerto Rico, US Virgin Islands as Category 5 storm strengthens](http://www.f3nws.com/n/2MkHzG)
 
-> Posted on: Wednesday, September 20, 2017 12:04:00 AM
+> Posted on: Wednesday, September 20, 2017 2:32:00 AM
