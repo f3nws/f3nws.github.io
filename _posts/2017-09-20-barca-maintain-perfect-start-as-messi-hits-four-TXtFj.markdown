@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Barca maintain perfect start as Messi hits four"
-date: 2017-09-20 03:30:14Z
+date: 2017-09-20 03:31:16Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Barca maintain perfect start as Messi hits four](http://www.f3nws.com/n/TXtFj)
 
-> Posted on: Wednesday, September 20, 2017 3:30:14 AM
+> Posted on: Wednesday, September 20, 2017 3:31:16 AM
