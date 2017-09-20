@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Xbox One X deals: where to pre-order the 4K Xbox"
-date: 2017-09-20 03:42:44Z
+date: 2017-09-20 06:42:44Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We're rounding up all the latest Xbox One X pre-order info right here.
 
 Full story on F3News: [The best Xbox One X deals: where to pre-order the 4K Xbox](http://www.f3nws.com/n/tgZbSG)
 
-> Posted on: Wednesday, September 20, 2017 3:42:44 AM
+> Posted on: Wednesday, September 20, 2017 6:42:44 AM

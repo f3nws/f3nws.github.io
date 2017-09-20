@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel takes on new health care bill, says Sen. Cassidy lied 'right to my face'"
-date: 2017-09-20 06:02:42Z
+date: 2017-09-20 10:37:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jimmy Kimmel didn't pull any punches when it came to the Senate's new health car
 
 Full story on F3News: [Jimmy Kimmel takes on new health care bill, says Sen. Cassidy lied 'right to my face'](http://www.f3nws.com/n/WebpHH)
 
-> Posted on: Wednesday, September 20, 2017 6:02:42 AM
+> Posted on: Wednesday, September 20, 2017 10:37:45 AM
