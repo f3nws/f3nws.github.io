@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Continuing a fierce assault on 'sanctuary' policies, Sessions attacks California bill - Los Angeles Times](http://www.trbimg.com/img-59c1b02d/turbine/la-na-pol-sessions-sanctuary-20170919)
 
-Los Angeles Times Continuing a fierce assault on 'sanctuary' policies, Sessions attacks California bill Los Angeles Times In another shot in an ongoing battle over so-called sanctuary city polices, Atty. Gen. Jeff Sessions on Tuesday attacked California's new bill that affords some protections to undocumented immigrants across the state, calling it “unconscionable” and a ... Attorney General Sessions steps up anti-'sanctuary' rhetoric after setbacks Reuters Sessions Visits a Sanctuary City, Tells It to Stop NBCNews.com Sessions urges California governor not to sign 'sanctuary' bill into law Washington Times KATU - Fox News all 72 news articles »
+Los Angeles Times Continuing a fierce assault on 'sanctuary' policies, Sessions attacks California bill Los Angeles Times In another shot in the ongoing battle over so-called sanctuary city policies, Atty. Gen. Jeff Sessions on Tuesday attacked California's new bill that affords some protections to undocumented immigrants across the state, calling it “unconscionable” and ... Sessions Visits a Sanctuary City, Tells It to Stop NBCNews.com Sessions urges California governor not to sign 'sanctuary' bill into law Washington Times Sheriff Reese defends Multnomah County's sanctuary status following Sessions speech kgw.com Willamette Week - OregonLive.com - Fox News all 65 news articles »
 
 
 Full story on F3News: [Continuing a fierce assault on 'sanctuary' policies, Sessions attacks California bill - Los Angeles Times](http://www.f3nws.com/n/hanVfB)
