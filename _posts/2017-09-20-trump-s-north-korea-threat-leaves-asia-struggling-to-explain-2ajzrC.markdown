@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's North Korea threat leaves Asia struggling to explain"
-date: 2017-09-20 02:59:00Z
+date: 2017-09-20 06:17:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — Was it a bluff? A warning that Washington would shoo
 
 Full story on F3News: [Trump's North Korea threat leaves Asia struggling to explain](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 2:59:00 AM
+> Posted on: Wednesday, September 20, 2017 6:17:00 AM
