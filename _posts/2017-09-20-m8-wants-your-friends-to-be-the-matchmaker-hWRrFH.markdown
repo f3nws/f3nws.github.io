@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![M8 wants your friends to be the matchmaker](https://tctechcrunch2011.files.wordpress.com/2017/09/tcdisrupt_sf17-m8-2391.jpg)
 
-Forget algorithms. M8 is a dating app that’s powered by human matchmakers. And these aren’t just any matchmakers, they’re your friends! M8 is unveiling its concept for a different dating app at TechCrunch Disrupt’s Battlefield competition in San Francisco. With M8, friends can look through dating apps to find the perfect match for their friends. And if they’re… Read More
+Forget algorithms. M8 is a dating app that’s powered by human matchmakers. And these aren’t just any matchmakers, they’re your friends! M8 is unveiling its concept for a different dating app at TechCrunch Disrupt’s Battlefield competition in San Francisco. Read More
 
 
 Full story on F3News: [M8 wants your friends to be the matchmaker](http://www.f3nws.com/n/hWRrFH)
