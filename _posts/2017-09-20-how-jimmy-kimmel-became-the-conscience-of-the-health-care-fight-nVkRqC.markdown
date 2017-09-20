@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Jimmy Kimmel became the conscience of the health care fight"
-date: 2017-09-20 13:11:50Z
+date: 2017-09-20 14:38:08Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ In a nearly seven-minute monologue on his show last night, Jimmy Kimmel delivere
 
 Full story on F3News: [How Jimmy Kimmel became the conscience of the health care fight](http://www.f3nws.com/n/nVkRqC)
 
-> Posted on: Wednesday, September 20, 2017 1:11:50 PM
+> Posted on: Wednesday, September 20, 2017 2:38:08 PM
