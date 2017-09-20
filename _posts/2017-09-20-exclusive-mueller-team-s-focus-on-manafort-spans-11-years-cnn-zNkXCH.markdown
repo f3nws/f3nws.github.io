@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Exclusive: Mueller team's focus on Manafort spans 11 years - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170523213336-paul-manafort-super-tease.jpg)
 
-CNN Exclusive: Mueller team's focus on Manafort spans 11 years CNN Washington (CNN) Special Counsel Robert Mueller's team is reaching back more than a decade in its investigation of Paul Manafort, a sign of the pressure Mueller is placing on President Donald Trump's former campaign chairman. The FBI's warrant for a ... The FBI wiretap on Paul Manafort is a big deal. Here's why. Washington Post Surveillance of Paul Manafort occurred during 2016 campaign CBS News Manafort demands investigation into wiretapping reports The Hill (blog) USA TODAY - The Daily Caller - Washington Examiner - Washington Times all 279 news articles »
+CNN Exclusive: Mueller team's focus on Manafort spans 11 years CNN Washington (CNN) Special Counsel Robert Mueller's team is reaching back more than a decade in its investigation of Paul Manafort, a sign of the pressure Mueller is placing on President Donald Trump's former campaign chairman. The FBI's warrant for a ... The FBI wiretap on Paul Manafort is a big deal. Here's why. Washington Post Surveillance of Paul Manafort occurred during 2016 campaign CBS News Manafort demands investigation into wiretapping reports The Hill (blog) Bloomberg - USA TODAY - WND.com - Washington Times all 282 news articles »
 
 
 Full story on F3News: [Exclusive: Mueller team's focus on Manafort spans 11 years - CNN](http://www.f3nws.com/n/zNkXCH)

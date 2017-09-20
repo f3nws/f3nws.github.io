@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trapped on the tarmac, watching Mexico City shake"
-date: 2017-09-20 00:24:03Z
+date: 2017-09-20 01:19:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When the earthquake hit, I was on a moving plane on the runway at Mexico City ai
 
 Full story on F3News: [Trapped on the tarmac, watching Mexico City shake](http://www.f3nws.com/n/3ADkJF)
 
-> Posted on: Wednesday, September 20, 2017 12:24:03 AM
+> Posted on: Wednesday, September 20, 2017 1:19:06 AM
