@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico earthquake death toll surpasses 200"
-date: 2017-09-20 06:15:00Z
+date: 2017-09-20 11:01:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Tuesday's 7.1 magnitude earthquake in Mexico was becoming a greater tragedy with
 
 Full story on F3News: [Mexico earthquake death toll surpasses 200](http://www.f3nws.com/n/4kaxPG)
 
-> Posted on: Wednesday, September 20, 2017 6:15:00 AM
+> Posted on: Wednesday, September 20, 2017 11:01:00 AM
