@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Shameless, ignorant, new Hitler’: Iran & Venezuela fire back after Trump criticism at UN"
-date: 2017-09-20 01:09:29Z
+date: 2017-09-20 01:09:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Two of the most prominent targets of Donald Trump’s maiden UN speech, Iran and
 
 Full story on F3News: [‘Shameless, ignorant, new Hitler’: Iran & Venezuela fire back after Trump criticism at UN](http://www.f3nws.com/n/eXpDAB)
 
-> Posted on: Wednesday, September 20, 2017 1:09:29 AM
+> Posted on: Wednesday, September 20, 2017 1:09:00 AM

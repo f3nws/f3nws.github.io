@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump 'saddened' about Emmys' lackluster ratings"
-date: 2017-09-20 07:30:03Z
+date: 2017-09-20 08:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump late Tuesday tweeted that he was “saddened” to learn that th
 
 Full story on F3News: [Trump 'saddened' about Emmys' lackluster ratings](http://www.f3nws.com/n/2NRjfD)
 
-> Posted on: Wednesday, September 20, 2017 7:30:03 AM
+> Posted on: Wednesday, September 20, 2017 8:00:03 AM
