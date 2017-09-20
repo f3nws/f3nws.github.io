@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Mexicans dig through collapsed buildings as quake kills 225"
-date: 2017-09-20 10:23:00Z
+date: 2017-09-20 11:08:00Z
 categories: associated-press-ap-top-headlines
 ---
 
-MEXICO CITY (AP) — Police, firefighters and ordinary Mexicans dug frantically through the rubble of collapsed schools, homes and apartment buildings Wednesday, looking for survivors of Mexico's deadliest earthquake in decades as the number of confirmed fatalities stood at 225.
+MEXICO CITY (AP) — Rescuers said Wednesday they have found a surviving child in the ruins of a school that collapsed in Mexico's magnitude 7.1 earthquake, one of many efforts across the city to save people trapped in under schools, homes and businesses toppled by a quake that killed at least 225 people.
 
 
 Full story on F3News: [Mexicans dig through collapsed buildings as quake kills 225](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 10:23:00 AM
+> Posted on: Wednesday, September 20, 2017 11:08:00 AM

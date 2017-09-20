@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria entangles two-thirds of Puerto Rico in powerful winds"
-date: 2017-09-20 13:01:28Z
+date: 2017-09-20 14:39:03Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of Puerto Ricans heeded the calls of government officials and have tak
 
 Full story on F3News: [Hurricane Maria entangles two-thirds of Puerto Rico in powerful winds](http://www.f3nws.com/n/3vMHeF)
 
-> Posted on: Wednesday, September 20, 2017 1:01:28 PM
+> Posted on: Wednesday, September 20, 2017 2:39:03 PM
