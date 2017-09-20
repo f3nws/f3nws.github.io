@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria hits Puerto Rico after slamming Dominica"
-date: 2017-09-20 08:34:00Z
+date: 2017-09-20 08:55:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN JUAN, Puerto Rico (AP) — One of the strongest hurricanes to ever hit Puert
 
 Full story on F3News: [Hurricane Maria hits Puerto Rico after slamming Dominica](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 20, 2017 8:34:00 AM
+> Posted on: Wednesday, September 20, 2017 8:55:00 AM
