@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump blames Clintons for nuclear North Korea - Politico](http://static.politico.com/ed/5f/73f9424046bf8dfded74b94d295d/22-donald-trump-11-ap-1160.jpg)
 
-Politico Trump blames Clintons for nuclear North Korea Politico President Donald Trump on Wednesday cast blame for the nuclear-armed North Korea that his administration faces on the Clinton family, blaming former Secretary of State Hillary Clinton and former President Bill Clinton for failing to disarm the regime ... Trump fires back at 'Crooked Hillary' over N. Korea criticism The Hill Trump hits back at 'Crooked Hillary,' blames her for North Korea's nuclear progress Fox News Trump blames Hillary Clinton for North Korea nuclear weapons program USA TODAY Slate Magazine (blog) - CBS News - Newsweek - Washington Post all 159 news articles »
+Politico Trump blames Clintons for nuclear North Korea Politico President Donald Trump on Wednesday cast blame for the nuclear-armed North Korea that his administration faces on the Clinton family, blaming former Secretary of State Hillary Clinton and former President Bill Clinton for failing to disarm the regime ... Trump blames Hillary Clinton for North Korea nuclear weapons program USA TODAY Did 'Crooked Hillary' Clinton Allow North Korea's Nuclear Weapons? Donald Trump's Twitter Claim, Fact Checked Newsweek Trump blames Hillary Clinton for North Korea's nukes New York Post Fox News - CBS News - The Hill (blog) - Washington Post all 178 news articles »
 
 
 Full story on F3News: [Trump blames Clintons for nuclear North Korea - Politico](http://www.f3nws.com/n/sK2pEB)

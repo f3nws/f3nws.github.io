@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Of the 40 million slaves in the world, one in four are children"
-date: 2017-09-20 08:00:07Z
+date: 2017-09-20 13:57:44Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ More than 40 million people were estimated to be victims of modern slavery in 20
 
 Full story on F3News: [Of the 40 million slaves in the world, one in four are children](http://www.f3nws.com/n/dGEvWC)
 
-> Posted on: Wednesday, September 20, 2017 8:00:07 AM
+> Posted on: Wednesday, September 20, 2017 1:57:44 PM
