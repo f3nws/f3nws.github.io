@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets support for 'Big' Luther Strange in Alabama Senate runoff"
-date: 2017-09-21 00:15:00Z
+date: 2017-09-21 00:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump took to social media Tuesday to restate his support for A
 
 Full story on F3News: [Trump tweets support for 'Big' Luther Strange in Alabama Senate runoff](http://www.f3nws.com/n/BtdARE)
 
-> Posted on: Thursday, September 21, 2017 12:15:00 AM
+> Posted on: Thursday, September 21, 2017 12:45:00 AM
