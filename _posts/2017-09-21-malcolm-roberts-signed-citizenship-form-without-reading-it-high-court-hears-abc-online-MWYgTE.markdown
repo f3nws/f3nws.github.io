@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Malcolm Roberts signed citizenship form without reading it, High Court hears - ABC Online"
-date: 2017-09-21 05:06:25Z
+date: 2017-09-21 09:48:00Z
 categories: abc-top-stories
 ---
 
 ![Malcolm Roberts signed citizenship form without reading it, High Court hears - ABC Online](http://www.abc.net.au/news/image/8596434-1x1-700x700.jpg)
 
-ABC Online Malcolm Roberts signed citizenship form without reading it, High Court hears ABC Online One Nation senator Malcolm Roberts has admitted to signing a form which said he was a British citizen, but says he did so without reading the document. Key points: Senator Roberts sent two emails to inactive addresses during attempts to check his ... Malcolm Roberts tells High Court sister must have filled in form The Australian One Nation Senator Malcolm Roberts in High Court over alleged British citizenship Courier Mail The Empirical Strikes Back: Malcolm Roberts' difficult day in court The Sydney Morning Herald Brisbane Times - SBS - The Guardian - 9news.com.au all 21 news articles »
+ABC Online Malcolm Roberts signed citizenship form without reading it, High Court hears ABC Online The lawyer for One Nation Senator Malcolm Roberts has said his client's credibility may have been affected by evidence given during a lengthy cross-examination at the High Court on Thursday. Senator Roberts admitted to signing a form which said he was ... Malcolm Roberts' political future hangs in the balance amid High Court hearing The Sydney Morning Herald Malcolm Roberts tells High Court sister must have filled in form The Australian One Nation Senator Malcolm Roberts in High Court over alleged British citizenship Courier Mail SBS - The New Daily - Business Insider Australia - Yahoo7 News all 33 news articles »
 
 
 Full story on F3News: [Malcolm Roberts signed citizenship form without reading it, High Court hears - ABC Online](http://www.f3nws.com/n/MWYgTE)
 
-> Posted on: Thursday, September 21, 2017 5:06:25 AM
+> Posted on: Thursday, September 21, 2017 9:48:00 AM

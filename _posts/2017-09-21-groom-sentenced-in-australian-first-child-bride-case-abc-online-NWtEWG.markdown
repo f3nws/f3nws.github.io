@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Groom sentenced in Australian-first child bride case - ABC Online](http://www.abc.net.au/news/image/8964936-1x1-700x700.jpg)
 
-ABC Online Groom sentenced in Australian-first child bride case ABC Online A man has been sentenced to 12 months in prison for illegally marrying a 14-year-old bride in an Islamic wedding in Melbourne last year. The Burmese asylum seeker was handed a maximum sentence of 18 months but was given a 12-month release date. Man jailed for marrying 14-year-old girl The Australian Man who 'married' 14-year-old faces 14 more days in jail, then immigration detention The Age Groom of 14-year-old child bride jailed over illegal Islamic ceremony Herald Sun Sky News Australia - Triple M all 13 news articles »
+ABC Online Groom sentenced in Australian-first child bride case ABC Online A man has been sentenced to 12 months in prison for illegally marrying a 14-year-old bride in an Islamic wedding in Melbourne last year. The Burmese asylum seeker was handed a maximum sentence of 18 months but was given a 12-month release date. Man jailed for marrying 14-year-old girl The Australian Child bride's groom sentenced to prison Sky News Australia Man who 'married' 14-year-old faces 14 more days in jail, then immigration detention The Age Triple M - International Business Times AU all 13 news articles »
 
 
 Full story on F3News: [Groom sentenced in Australian-first child bride case - ABC Online](http://www.f3nws.com/n/NWtEWG)
