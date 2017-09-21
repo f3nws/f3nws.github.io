@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump sets new sanctions on North Korea"
-date: 2017-09-21 19:19:16Z
+date: 2017-09-21 21:18:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump announced a new set of sanctions on North Korea Thursday,
 
 Full story on F3News: [Trump sets new sanctions on North Korea](http://www.f3nws.com/n/Afsf3F)
 
-> Posted on: Thursday, September 21, 2017 7:19:16 PM
+> Posted on: Thursday, September 21, 2017 9:18:42 PM
