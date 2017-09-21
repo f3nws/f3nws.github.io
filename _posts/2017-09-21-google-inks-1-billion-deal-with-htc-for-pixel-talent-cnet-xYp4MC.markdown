@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google inks $1 billion deal with HTC for Pixel talent     - CNET"
-date: 2017-09-21 02:47:24Z
+date: 2017-09-21 03:20:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The deal allows Google to hire certain HTC employees, many of whom already work 
 
 Full story on F3News: [Google inks $1 billion deal with HTC for Pixel talent     - CNET](http://www.f3nws.com/n/xYp4MC)
 
-> Posted on: Thursday, September 21, 2017 2:47:24 AM
+> Posted on: Thursday, September 21, 2017 3:20:23 AM
