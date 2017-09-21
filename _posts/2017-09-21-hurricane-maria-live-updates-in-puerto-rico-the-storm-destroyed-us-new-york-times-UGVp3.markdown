@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hurricane Maria Live Updates: In Puerto Rico, the Storm 'Destroyed Us' - New York Times](https://static01.nyt.com/images/2017/09/21/us/21storm-alpha/merlin-to-scoop-127664219-73786-facebookJumbo.jpg)
 
-New York Times Hurricane Maria Live Updates: In Puerto Rico, the Storm 'Destroyed Us' New York Times Rubble atop a car in the Puerta de Tierra area of San Juan, P.R., on Thursday. Credit Erika P. Rodriguez for The New York Times. Puerto Ricans were confronted Thursday with their first clear view of the crushing devastation wrought by Hurricane Maria ... Maria kills 15 in Dominica, leaves Puerto Rico dark for months CNN The Latest: 1 dead, 3 rescued from boat off Puerto Rico Washington Post Hurricane Maria leaves trail of death and destruction in the Caribbean ABC News Miami Herald - NBCNews.com - NPR - Chicago Tribune all 6,788 news articles »
+New York Times Hurricane Maria Live Updates: In Puerto Rico, the Storm 'Destroyed Us' New York Times Rubble atop a car in the Puerta de Tierra area of San Juan, P.R., on Thursday. Credit Erika P. Rodriguez for The New York Times. Puerto Ricans were confronted Thursday with their first clear view of the crushing devastation wrought by Hurricane Maria ... Maria kills 15 in Dominica, leaves Puerto Rico dark for months CNN Maria regains strength as it pulls away from Puerto Rico, approaches Dominican Republic, Turks and Caicos Washington Post Hurricane Maria leaves trail of death and destruction in the Caribbean ABC News NBCNews.com - CBS News - Miami Herald - NPR all 6,563 news articles »
 
 
 Full story on F3News: [Hurricane Maria Live Updates: In Puerto Rico, the Storm 'Destroyed Us' - New York Times](http://www.f3nws.com/n/UGVp3)

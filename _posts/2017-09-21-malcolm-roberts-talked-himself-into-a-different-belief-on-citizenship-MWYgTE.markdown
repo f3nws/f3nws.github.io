@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Malcolm Roberts 'talked himself into a different belief' on citizenship](http://www.abc.net.au/news/image/8596434-1x1-700x700.jpg)
 
-The lawyer for One Nation Senator Malcolm Roberts says his client's credibility may have been affected by evidence given during a lengthy cross-examination at the High Court on Thursday.
+The lawyer for One Nation senator Malcolm Roberts says his client's credibility may have been affected by evidence given during a lengthy cross-examination at the High Court on Thursday.
 
 
 Full story on F3News: [Malcolm Roberts 'talked himself into a different belief' on citizenship](http://www.f3nws.com/n/MWYgTE)
