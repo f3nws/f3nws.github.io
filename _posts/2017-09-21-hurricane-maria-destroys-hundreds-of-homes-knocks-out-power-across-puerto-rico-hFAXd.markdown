@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria destroys hundreds of homes, knocks out power across Puerto Rico"
-date: 2017-09-21 00:16:00Z
+date: 2017-09-21 02:29:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Maria, now a Category 3 storm considered the strongest hurricane to hi
 
 Full story on F3News: [Hurricane Maria destroys hundreds of homes, knocks out power across Puerto Rico](http://www.f3nws.com/n/hFAXd)
 
-> Posted on: Thursday, September 21, 2017 12:16:00 AM
+> Posted on: Thursday, September 21, 2017 2:29:00 AM

@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Google/HTC deal is official, Google to acquire part of HTC’s smartphone team](https://cdn.arstechnica.net/wp-content/uploads/2017/09/27-760x380.jpg)
 
-The deal means HTC will still exist, while Google beefs up its hardware team.
+$1.1 billion deal means HTC will still exist, while Google beefs up its hardware team.
 
 
 Full story on F3News: [Google/HTC deal is official, Google to acquire part of HTC’s smartphone team](http://www.f3nws.com/n/dsxTRE)

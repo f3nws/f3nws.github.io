@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘No justice, no profits’: 6th day of St. Louis protests targets local economy"
-date: 2017-09-21 02:29:47Z
+date: 2017-09-21 02:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The St. Louis Galleria mall in an upscale suburban area of the city went into lo
 
 Full story on F3News: [‘No justice, no profits’: 6th day of St. Louis protests targets local economy](http://www.f3nws.com/n/Hz3x3C)
 
-> Posted on: Thursday, September 21, 2017 2:29:47 AM
+> Posted on: Thursday, September 21, 2017 2:29:00 AM
