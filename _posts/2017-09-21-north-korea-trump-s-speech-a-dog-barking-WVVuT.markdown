@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: Trump's speech 'a dog barking'"
-date: 2017-09-21 05:40:44Z
+date: 2017-09-21 08:52:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean Foreign Minister Ri Yong Ho said Wednesday US President Donald Trum
 
 Full story on F3News: [North Korea: Trump's speech 'a dog barking'](http://www.f3nws.com/n/WVVuT)
 
-> Posted on: Thursday, September 21, 2017 5:40:44 AM
+> Posted on: Thursday, September 21, 2017 8:52:53 AM

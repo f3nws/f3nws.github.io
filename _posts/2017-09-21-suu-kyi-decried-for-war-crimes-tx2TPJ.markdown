@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suu Kyi decried for war crimes"
-date: 2017-09-21 07:39:11Z
+date: 2017-09-21 08:23:02Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Suu Kyi decried for war crimes](http://www.f3nws.com/n/tx2TPJ)
 
-> Posted on: Thursday, September 21, 2017 7:39:11 AM
+> Posted on: Thursday, September 21, 2017 8:23:02 AM
