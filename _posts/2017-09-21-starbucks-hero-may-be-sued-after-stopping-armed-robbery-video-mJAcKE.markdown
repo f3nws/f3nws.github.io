@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Starbucks ‘hero’ may be sued after stopping armed robbery (VIDEO)"
-date: 2017-09-21 00:25:02Z
+date: 2017-09-21 00:25:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The man credited with stopping an armed robbery at a Starbucks in Fresno, Califo
 
 Full story on F3News: [Starbucks ‘hero’ may be sued after stopping armed robbery (VIDEO)](http://www.f3nws.com/n/mJAcKE)
 
-> Posted on: Thursday, September 21, 2017 12:25:02 AM
+> Posted on: Thursday, September 21, 2017 12:25:00 AM

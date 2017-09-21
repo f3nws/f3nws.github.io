@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "K-pop group's record breaking album conquers three continents"
+date: 2017-09-21 04:16:47Z
+categories: cnn-com-top-stories
+---
+
+![K-pop group's record breaking album conquers three continents](http://i2.cdn.cnn.com/cnnnext/dam/assets/170917230430-bts-6-super-tease.jpg)
+
+BTS is breaking records worldwide.
+
+
+Full story on F3News: [K-pop group's record breaking album conquers three continents](http://www.f3nws.com/n/sJYEEJ)
+
+> Posted on: Thursday, September 21, 2017 4:16:47 AM

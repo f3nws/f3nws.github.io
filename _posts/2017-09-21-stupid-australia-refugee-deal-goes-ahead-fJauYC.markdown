@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Stupid' Australia refugee deal goes ahead"
-date: 2017-09-21 01:25:35Z
+date: 2017-09-21 04:03:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Australian refugee deal that US President Donald Trump once derided as "stup
 
 Full story on F3News: ['Stupid' Australia refugee deal goes ahead](http://www.f3nws.com/n/fJauYC)
 
-> Posted on: Thursday, September 21, 2017 1:25:35 AM
+> Posted on: Thursday, September 21, 2017 4:03:34 AM
