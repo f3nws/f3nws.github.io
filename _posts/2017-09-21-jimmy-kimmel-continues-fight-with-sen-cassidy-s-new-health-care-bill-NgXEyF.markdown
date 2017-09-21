@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel continues fight with Sen. Cassidy's new health care bill"
-date: 2017-09-21 07:04:31Z
+date: 2017-09-21 15:15:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jimmy Kimmel was ready for the second round of his fight with U.S. Sen. Bill Cas
 
 Full story on F3News: [Jimmy Kimmel continues fight with Sen. Cassidy's new health care bill](http://www.f3nws.com/n/NgXEyF)
 
-> Posted on: Thursday, September 21, 2017 7:04:31 AM
+> Posted on: Thursday, September 21, 2017 3:15:42 PM
