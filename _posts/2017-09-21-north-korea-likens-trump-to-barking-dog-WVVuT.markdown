@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea likens Trump to 'barking dog'"
-date: 2017-09-21 08:52:53Z
+date: 2017-09-21 10:09:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean Foreign Minister Ri Yong Ho said Wednesday US President Donald Trum
 
 Full story on F3News: [North Korea likens Trump to 'barking dog'](http://www.f3nws.com/n/WVVuT)
 
-> Posted on: Thursday, September 21, 2017 8:52:53 AM
+> Posted on: Thursday, September 21, 2017 10:09:58 AM

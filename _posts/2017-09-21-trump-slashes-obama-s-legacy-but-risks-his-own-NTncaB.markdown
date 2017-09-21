@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump slashes Obama's legacy but risks his own"
-date: 2017-09-21 07:13:45Z
+date: 2017-09-21 10:27:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republicans for years failed to gut the legacy of their nemesis Barack Obama: No
 
 Full story on F3News: [Trump slashes Obama's legacy but risks his own](http://www.f3nws.com/n/NTncaB)
 
-> Posted on: Thursday, September 21, 2017 7:13:45 AM
+> Posted on: Thursday, September 21, 2017 10:27:39 AM
