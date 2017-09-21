@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Insurers Come Out Swinging Against New Republican Health Care Bill - New York Times](https://static01.nyt.com/images/2017/09/21/us/21dc-health/21dc-health-facebookJumbo.jpg)
 
-New York Times Insurers Come Out Swinging Against New Republican Health Care Bill New York Times Senator Lisa Murkowski, Republican of Alaska, could be one of the pivotal votes on health care legislation next week. Credit Aaron P. Bernstein/Reuters. WASHINGTON — The health insurance industry, after cautiously watching Republican health care ... Health care state of play: The sleeping giant of pre-existing conditions awakens CNN Kimmel is a coward for not debating Cassidy on health care face-to-face The Hill Cassidy-Graham could still blow up in the GOP's face. Here's how. Washington Post NBCNews.com - ABC News - Business Insider - USA TODAY all 2,750 news articles »
+New York Times Insurers Come Out Swinging Against New Republican Health Care Bill New York Times Senator Lisa Murkowski, Republican of Alaska, could be one of the pivotal votes on health care legislation next week. Credit Aaron P. Bernstein/Reuters. WASHINGTON — The health insurance industry, after cautiously watching Republican health care ... All about 'regular order' and why it could make or break Republicans' Obamacare repeal Washington Post Health care state of play: The sleeping giant of pre-existing conditions awakens CNN First Read's Morning Clips: Analyzing the GOP Health Plan NBCNews.com USA TODAY - ABC News - CBS News - PolitiFact all 2,804 news articles »
 
 
 Full story on F3News: [Insurers Come Out Swinging Against New Republican Health Care Bill - New York Times](http://www.f3nws.com/n/zrWWfG)
