@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller seeks documents on Trump's firings for Russia probe"
-date: 2017-09-21 08:03:09Z
+date: 2017-09-21 12:42:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Special counsel Robert Mueller has requested documents and information covering 
 
 Full story on F3News: [Mueller seeks documents on Trump's firings for Russia probe](http://www.f3nws.com/n/kRB3PJ)
 
-> Posted on: Thursday, September 21, 2017 8:03:09 AM
+> Posted on: Thursday, September 21, 2017 12:42:32 PM
