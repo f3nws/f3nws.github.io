@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Tony Abbott 'headbutted' by man wearing 'Vote Yes' badge](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Tasmanian police launch an investigation after the former prime minister and prominent same-sex marriage No vote campaigner says he sustained a "very slightly swollen lip" when he was headbutted outside a private event in Hobart.
+Tasmanian police launch an investigation after the former prime minister and prominent same-sex marriage No vote campaigner says he was attacked by a man who said "you deserve it" before running away.
 
 
 Full story on F3News: [Tony Abbott 'headbutted' by man wearing 'Vote Yes' badge](http://www.f3nws.com/n/yZBft)
