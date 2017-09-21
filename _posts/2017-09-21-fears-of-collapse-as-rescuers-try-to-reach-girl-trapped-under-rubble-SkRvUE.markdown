@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fears of collapse as rescuers try to reach girl  trapped under rubble"
-date: 2017-09-21 11:31:07Z
+date: 2017-09-21 21:42:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rescue crews working in silence raced Wednesday to remove a girl trapped in the 
 
 Full story on F3News: [Fears of collapse as rescuers try to reach girl  trapped under rubble](http://www.f3nws.com/n/SkRvUE)
 
-> Posted on: Thursday, September 21, 2017 11:31:07 AM
+> Posted on: Thursday, September 21, 2017 9:42:59 PM
