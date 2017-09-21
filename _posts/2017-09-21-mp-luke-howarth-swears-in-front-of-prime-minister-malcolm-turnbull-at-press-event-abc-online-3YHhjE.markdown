@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![MP Luke Howarth swears in front of Prime Minister Malcolm Turnbull at press event - ABC Online](http://www.abc.net.au/news/image/8967686-1x1-700x700.jpg)
 
-ABC Online MP Luke Howarth swears in front of Prime Minister Malcolm Turnbull at press event ABC Online A Liberal National Party MP has been caught muttering "this f***ing..." under his breath, after a reporter asked Prime Minister Malcolm Turnbull about the number of female politicians in the party's ranks. Member for Petrie Luke Howarth was ... MP Luke Howarth drops F-bomb on TV with Turnbull The Australian Coalition MP caught swearing during press conference 9news.com.au Liberals on back foot after gender outburst and criticism of breastfeeding The Guardian The Sydney Morning Herald - SBS - Sky News Australia - Whitsunday Times all 21 news articles »
+ABC Online MP Luke Howarth swears in front of Prime Minister Malcolm Turnbull at press event ABC Online A Liberal National Party MP has been caught muttering "this f***ing..." under his breath, after a reporter asked Prime Minister Malcolm Turnbull about the number of female politicians in the party's ranks. Member for Petrie Luke Howarth was ... MP Luke Howarth drops F-bomb on TV with Turnbull The Australian Liberal-National MP caught swearing during press conference The New Daily Coalition MP caught swearing during press conference 9news.com.au The Guardian - The Sydney Morning Herald - The Sunshine Coast Daily - SBS all 27 news articles »
 
 
 Full story on F3News: [MP Luke Howarth swears in front of Prime Minister Malcolm Turnbull at press event - ABC Online](http://www.f3nws.com/n/3YHhjE)

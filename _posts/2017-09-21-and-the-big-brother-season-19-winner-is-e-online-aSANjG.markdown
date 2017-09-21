@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![And the Big Brother Season 19 Winner Is... - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017820/rs_600x600-170920185205-600x600.big-brother-julie-chen-lp.92017.jpg?downsize=450:*&crop=450:350;left,top)
 
-E! Online And the Big Brother Season 19 Winner Is... E! Online Big Brother season 19 just came to an end after one seriously exhausting summer. The finale started with Paul Abrahamian, Josh Martinez, and Christmas Abbott left in the house, but Josh strangely decided to take Paul to the final two, so it was the two ... Big Brother finale recap: Not Again EW.com (blog) Cody Wins America's Favorite Player On 'Big Brother 19' & He's So Confused Bustle Big Brother 19 Finale: And the Winner Is… TV Guide Hollywood Reporter - Just Jared - Heavy.com - Reality TV World all 103 news articles »
+E! Online And the Big Brother Season 19 Winner Is... E! Online Big Brother season 19 just came to an end after one seriously exhausting summer. The finale started with Paul Abrahamian, Josh Martinez, and Christmas Abbott left in the house, but Josh strangely decided to take Paul to the final two, so it was the two ... Big Brother finale recap: Not Again EW.com (blog) Cody Wins America's Favorite Player On 'Big Brother 19' & He's So Confused Bustle EXCLUSIVE: 'Big Brother' 19 Winner Josh Martinez Says He's 'Completely Shocked' By His Victory: 'It's Crazy!' Entertainment Tonight Just Jared - Heavy.com - Goldderby - Reality TV World all 105 news articles »
 
 
 Full story on F3News: [And the Big Brother Season 19 Winner Is... - E! Online](http://www.f3nws.com/n/aSANjG)
