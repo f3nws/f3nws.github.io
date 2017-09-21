@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "The iOS 11 Control Center Misleads Users on Whether Their Bluetooth and Wi-Fi Are on - Gizmodo"
-date: 2017-09-21 00:58:00Z
+date: 2017-09-21 01:03:22Z
 categories: google-news-technology
 ---
 
 ![The iOS 11 Control Center Misleads Users on Whether Their Bluetooth and Wi-Fi Are on - Gizmodo](https://i.kinja-img.com/gawker-media/image/upload/s--HMFN3V6o--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/jtojiweamozeicljccm1.jpg)
 
-Gizmodo The iOS 11 Control Center Misleads Users on Whether Their Bluetooth and Wi-Fi Are on Gizmodo iOS 11 comes with a pretty sweet array of augmented reality tricks. Unfortunately, one thing that is less real than before in the new operating system is user controls for wireless connectivity. According to a report in Motherboard, iOS 11's Control ... iOS 11's Control Center doesn't let you turn off Wi-Fi or Bluetooth The Verge Bluetooth & Wi-Fi can't be fully disabled via iOS 11 Control Center, Apple says AppleInsider (press release) (blog) 11 Things You Should Know about iOS 11 TidBITS BGR - SlashGear - Mashable - Tech Times all 46 news articles »
+Gizmodo The iOS 11 Control Center Misleads Users on Whether Their Bluetooth and Wi-Fi Are on Gizmodo iOS 11 comes with a pretty sweet array of augmented reality tricks. Unfortunately, one thing that is less real than before in the new operating system is user controls for wireless connectivity. According to a report in Motherboard, iOS 11's Control ... iOS 11's Control Center doesn't let you turn off Wi-Fi or Bluetooth The Verge Bluetooth & Wi-Fi can't be fully disabled via iOS 11 Control Center, Apple says AppleInsider (press release) (blog) 11 Things You Should Know about iOS 11 TidBITS BGR - SlashGear - Tech Times - Mashable all 48 news articles »
 
 
 Full story on F3News: [The iOS 11 Control Center Misleads Users on Whether Their Bluetooth and Wi-Fi Are on - Gizmodo](http://www.f3nws.com/n/tCjPnF)
 
-> Posted on: Thursday, September 21, 2017 12:58:00 AM
+> Posted on: Thursday, September 21, 2017 1:03:22 AM
