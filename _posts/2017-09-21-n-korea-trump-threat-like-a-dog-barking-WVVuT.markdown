@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea: Trump threat like a 'dog barking'"
-date: 2017-09-21 16:52:04Z
+date: 2017-09-21 19:17:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean Foreign Minister Ri Yong Ho said Wednesday US President Donald Trum
 
 Full story on F3News: [N. Korea: Trump threat like a 'dog barking'](http://www.f3nws.com/n/WVVuT)
 
-> Posted on: Thursday, September 21, 2017 4:52:04 PM
+> Posted on: Thursday, September 21, 2017 7:17:35 PM
