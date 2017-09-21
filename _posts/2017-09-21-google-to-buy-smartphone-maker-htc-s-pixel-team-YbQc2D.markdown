@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google to buy smartphone maker HTC's Pixel team"
-date: 2017-09-21 06:06:53Z
+date: 2017-09-21 09:20:57Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Google to buy smartphone maker HTC's Pixel team](http://www.f3nws.com/n/YbQc2D)
 
-> Posted on: Thursday, September 21, 2017 6:06:53 AM
+> Posted on: Thursday, September 21, 2017 9:20:57 AM

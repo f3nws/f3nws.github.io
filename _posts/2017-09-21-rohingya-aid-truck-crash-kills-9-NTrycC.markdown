@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rohingya aid truck crash kills 9"
-date: 2017-09-21 05:58:39Z
+date: 2017-09-21 09:22:44Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Rohingya aid truck crash kills 9](http://www.f3nws.com/n/NTrycC)
 
-> Posted on: Thursday, September 21, 2017 5:58:39 AM
+> Posted on: Thursday, September 21, 2017 9:22:44 AM
