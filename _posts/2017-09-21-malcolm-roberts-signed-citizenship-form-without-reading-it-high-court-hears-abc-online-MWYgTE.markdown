@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Malcolm Roberts signed citizenship form without reading it, High Court hears - ABC Online](http://www.abc.net.au/news/image/8596434-1x1-700x700.jpg)
 
-ABC Online Malcolm Roberts signed citizenship form without reading it, High Court hears ABC Online One Nation senator Malcolm Roberts has admitted to signing a form which said he was a British citizen, but says he did so without reading the document. Key points: Senator Roberts sent two emails to inactive addresses during attempts to check his ... Malcolm Roberts tells High Court sister must have filled in form The Australian One Nation Senator Malcolm Roberts in High Court over alleged British citizenship Courier Mail One Nation Senator Malcolm Roberts gives amazing evidence in High Court over dual citizenship NEWS.com.au Brisbane Times - SBS - The Guardian - 9news.com.au all 20 news articles »
+ABC Online Malcolm Roberts signed citizenship form without reading it, High Court hears ABC Online One Nation senator Malcolm Roberts has admitted to signing a form which said he was a British citizen, but says he did so without reading the document. Key points: Senator Roberts sent two emails to inactive addresses during attempts to check his ... Malcolm Roberts tells High Court sister must have filled in form The Australian One Nation Senator Malcolm Roberts in High Court over alleged British citizenship Courier Mail The Empirical Strikes Back: Malcolm Roberts' difficult day in court The Sydney Morning Herald Brisbane Times - SBS - The Guardian - 9news.com.au all 21 news articles »
 
 
 Full story on F3News: [Malcolm Roberts signed citizenship form without reading it, High Court hears - ABC Online](http://www.f3nws.com/n/MWYgTE)
