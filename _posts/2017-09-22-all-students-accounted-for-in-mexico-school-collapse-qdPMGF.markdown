@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All students accounted for in Mexico school collapse"
-date: 2017-09-22 16:01:25Z
+date: 2017-09-22 18:08:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rescuers in Mexico City continued to claw through an elementary school's debris 
 
 Full story on F3News: [All students accounted for in Mexico school collapse](http://www.f3nws.com/n/qdPMGF)
 
-> Posted on: Friday, September 22, 2017 4:01:25 PM
+> Posted on: Friday, September 22, 2017 6:08:57 PM
