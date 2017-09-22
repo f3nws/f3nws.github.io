@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Maxine Waters 'guarantees' Russian collusion, demands Trump impeachment… again"
-date: 2017-09-22 00:07:48Z
+date: 2017-09-22 00:07:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Democratic Congresswoman Maxine Waters has called for Trump’s impeachment for 
 
 Full story on F3News: [Maxine Waters 'guarantees' Russian collusion, demands Trump impeachment… again](http://www.f3nws.com/n/KCaucD)
 
-> Posted on: Friday, September 22, 2017 12:07:48 AM
+> Posted on: Friday, September 22, 2017 12:07:00 AM
