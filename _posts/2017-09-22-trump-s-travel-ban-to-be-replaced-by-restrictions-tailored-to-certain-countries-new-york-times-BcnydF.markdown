@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Trump's Travel Ban to Be Replaced by Restrictions Tailored to Certain Countries - New York Times"
+date: 2017-09-22 15:25:10Z
+categories: google-news-top-stories
+---
+
+![Trump's Travel Ban to Be Replaced by Restrictions Tailored to Certain Countries - New York Times](https://static01.nyt.com/images/2017/09/23/us/23dc-travelban1/23dc-travelban1-facebookJumbo.jpg)
+
+New York Times Trump's Travel Ban to Be Replaced by Restrictions Tailored to Certain Countries New York Times President Trump's original ban blocked all travel to the United States by refugees as well as nationals of seven countries: Iraq, Iran, Libya, Somalia, Sudan, Syria and Yemen. Iraq was later deemed to have improved its screening of potential travelers ... Travel ban revisions may add countries, alter court challenge USA TODAY Trump's new travel ban expected to be released - report CBS News Report: Travel ban to be replaced with broader vetting Politico CNN International - Hot Air - AOL - Washington Examiner all 31 news articles »
+
+
+Full story on F3News: [Trump's Travel Ban to Be Replaced by Restrictions Tailored to Certain Countries - New York Times](http://www.f3nws.com/n/BcnydF)
+
+> Posted on: Friday, September 22, 2017 3:25:10 PM
