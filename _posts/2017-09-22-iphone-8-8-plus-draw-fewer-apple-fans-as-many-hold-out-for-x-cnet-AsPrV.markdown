@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8, 8 Plus draw fewer Apple fans as many hold out for X     - CNET"
-date: 2017-09-22 12:34:42Z
+date: 2017-09-22 13:43:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A decade on, fans still queue up for Apple's latest phones. But lines aren't as 
 
 Full story on F3News: [iPhone 8, 8 Plus draw fewer Apple fans as many hold out for X     - CNET](http://www.f3nws.com/n/AsPrV)
 
-> Posted on: Friday, September 22, 2017 12:34:42 PM
+> Posted on: Friday, September 22, 2017 1:43:43 PM

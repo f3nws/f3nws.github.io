@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber barred from London, ruled 'not fit and proper' to operate"
-date: 2017-09-22 12:21:33Z
+date: 2017-09-22 13:44:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Uber barred from London, ruled 'not fit and proper' to operate](http://www.f3nws.com/n/pynrp)
 
-> Posted on: Friday, September 22, 2017 12:21:33 PM
+> Posted on: Friday, September 22, 2017 1:44:57 PM
