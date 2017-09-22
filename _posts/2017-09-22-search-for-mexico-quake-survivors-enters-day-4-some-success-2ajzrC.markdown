@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Search for Mexico quake survivors enters day 4, some success"
-date: 2017-09-22 08:14:00Z
+date: 2017-09-22 09:57:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MEXICO CITY (AP) — Survivors are still being pulled from rubble in Mexico City
 
 Full story on F3News: [Search for Mexico quake survivors enters day 4, some success](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 22, 2017 8:14:00 AM
+> Posted on: Friday, September 22, 2017 9:57:00 AM
