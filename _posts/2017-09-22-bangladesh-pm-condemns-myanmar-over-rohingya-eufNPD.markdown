@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladesh PM condemns Myanmar over Rohingya"
-date: 2017-09-22 03:48:06Z
+date: 2017-09-22 08:06:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Bangladeshi Prime Minister has delivered a sharp judgment on neighboring Mya
 
 Full story on F3News: [Bangladesh PM condemns Myanmar over Rohingya](http://www.f3nws.com/n/eufNPD)
 
-> Posted on: Friday, September 22, 2017 3:48:06 AM
+> Posted on: Friday, September 22, 2017 8:06:59 AM
