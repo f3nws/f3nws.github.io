@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dotard' or 'old lunatic'? North Korea chooses its words carefully"
-date: 2017-09-22 05:48:21Z
+date: 2017-09-22 06:28:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean leader Kim Jong Un had some choice words for US President Donald Tr
 
 Full story on F3News: ['Dotard' or 'old lunatic'? North Korea chooses its words carefully](http://www.f3nws.com/n/cRVyrE)
 
-> Posted on: Friday, September 22, 2017 5:48:21 AM
+> Posted on: Friday, September 22, 2017 6:28:52 AM
