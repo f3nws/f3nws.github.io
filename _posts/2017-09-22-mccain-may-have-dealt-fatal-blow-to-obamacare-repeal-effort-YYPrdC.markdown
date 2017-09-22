@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McCain may have dealt fatal blow to Obamacare repeal effort"
-date: 2017-09-22 18:19:20Z
+date: 2017-09-22 18:54:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. John McCain announced Friday in a statement that he cannot "in good conscie
 
 Full story on F3News: [McCain may have dealt fatal blow to Obamacare repeal effort](http://www.f3nws.com/n/YYPrdC)
 
-> Posted on: Friday, September 22, 2017 6:19:20 PM
+> Posted on: Friday, September 22, 2017 6:54:37 PM
