@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaii reportedly prepares for nuclear attack amid North Korea rhetoric"
-date: 2017-09-22 21:01:26Z
+date: 2017-09-22 21:46:24Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Hawaiian officials are reportedly preparing for a nuclear attack by North Korea 
 
 Full story on F3News: [Hawaii reportedly prepares for nuclear attack amid North Korea rhetoric](http://www.f3nws.com/n/kVKXmC)
 
-> Posted on: Friday, September 22, 2017 9:01:26 PM
+> Posted on: Friday, September 22, 2017 9:46:24 PM
