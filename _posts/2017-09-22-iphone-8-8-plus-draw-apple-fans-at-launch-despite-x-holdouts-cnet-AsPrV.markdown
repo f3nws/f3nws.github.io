@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8, 8 Plus draw Apple fans at launch despite X holdouts     - CNET"
-date: 2017-09-22 02:59:45Z
+date: 2017-09-22 04:08:03Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A decade on, fans still queue up for Apple's latest phones. But lines aren't as 
 
 Full story on F3News: [iPhone 8, 8 Plus draw Apple fans at launch despite X holdouts     - CNET](http://www.f3nws.com/n/AsPrV)
 
-> Posted on: Friday, September 22, 2017 2:59:45 AM
+> Posted on: Friday, September 22, 2017 4:08:03 AM
