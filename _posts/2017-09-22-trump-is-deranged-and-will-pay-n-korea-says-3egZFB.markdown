@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump is 'deranged' and will pay, N. Korea says"
-date: 2017-09-22 09:29:18Z
+date: 2017-09-22 09:57:29Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ North Korean leader Kim Jong Un says President Donald Trump's remarks to the Uni
 
 Full story on F3News: [Trump is 'deranged' and will pay, N. Korea says](http://www.f3nws.com/n/3egZFB)
 
-> Posted on: Friday, September 22, 2017 9:29:18 AM
+> Posted on: Friday, September 22, 2017 9:57:29 AM

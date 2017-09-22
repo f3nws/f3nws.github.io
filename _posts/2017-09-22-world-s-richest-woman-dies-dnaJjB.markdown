@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's richest woman dies"
-date: 2017-09-22 05:41:55Z
+date: 2017-09-22 10:02:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [World's richest woman dies](http://www.f3nws.com/n/dnaJjB)
 
-> Posted on: Friday, September 22, 2017 5:41:55 AM
+> Posted on: Friday, September 22, 2017 10:02:45 AM

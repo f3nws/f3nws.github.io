@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What happens if N Korea tests a hydrogen bomb over the Pacific?"
-date: 2017-09-22 08:09:48Z
+date: 2017-09-22 09:58:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea just intimated that it may test a nuclear weapon somewhere above the
 
 Full story on F3News: [What happens if N Korea tests a hydrogen bomb over the Pacific?](http://www.f3nws.com/n/RqFedF)
 
-> Posted on: Friday, September 22, 2017 8:09:48 AM
+> Posted on: Friday, September 22, 2017 9:58:40 AM
