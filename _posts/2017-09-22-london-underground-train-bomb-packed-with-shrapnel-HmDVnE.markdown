@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London Underground train bomb 'packed with shrapnel'"
-date: 2017-09-22 10:07:55Z
+date: 2017-09-22 11:00:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A homemade bomb that partially exploded on a London Underground train last week 
 
 Full story on F3News: [London Underground train bomb 'packed with shrapnel'](http://www.f3nws.com/n/HmDVnE)
 
-> Posted on: Friday, September 22, 2017 10:07:55 AM
+> Posted on: Friday, September 22, 2017 11:00:17 AM
