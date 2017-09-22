@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PM seeks expeditious UN action to resolve Rohingya crisis"
-date: 2017-09-22 02:38:48Z
+date: 2017-09-22 03:22:31Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [PM seeks expeditious UN action to resolve Rohingya crisis](http://www.f3nws.com/n/GRfxUD)
 
-> Posted on: Friday, September 22, 2017 2:38:48 AM
+> Posted on: Friday, September 22, 2017 3:22:31 AM
