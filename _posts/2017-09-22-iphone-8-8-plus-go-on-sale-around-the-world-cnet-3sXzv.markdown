@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone 8, 8 Plus go on sale around the world     - CNET"
-date: 2017-09-22 03:36:32Z
+date: 2017-09-22 08:01:26Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The queues might not be what they were 10 years ago, but Apple fans still turned
 
 Full story on F3News: [iPhone 8, 8 Plus go on sale around the world     - CNET](http://www.f3nws.com/n/3sXzv)
 
-> Posted on: Friday, September 22, 2017 3:36:32 AM
+> Posted on: Friday, September 22, 2017 8:01:26 AM
