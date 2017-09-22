@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soon all of Hong Kong's dolphins will be dead"
-date: 2017-09-22 03:59:05Z
+date: 2017-09-22 05:35:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A near constant wind buffets the top deck of Boat 36826 as it patrols the seas n
 
 Full story on F3News: [Soon all of Hong Kong's dolphins will be dead](http://www.f3nws.com/n/rYaPUD)
 
-> Posted on: Friday, September 22, 2017 3:59:05 AM
+> Posted on: Friday, September 22, 2017 5:35:31 AM

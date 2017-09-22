@@ -7,7 +7,7 @@ categories: techradar
 
 ![iPhone 8 price, release date and features](http://cdn.mos.cms.futurecdn.net/5Uwau6KWy5uSBcdsnDSGK4-1200-80.jpg)
 
-Pre-orders for new iPhone 8 are now open, and we have all the details on release date, price and features.
+Apple is launching the iPhone 8 today. Here are all of details about its glass-backed, wireless charging new smartphone.
 
 
 Full story on F3News: [iPhone 8 price, release date and features](http://www.f3nws.com/n/ggAUrB)
