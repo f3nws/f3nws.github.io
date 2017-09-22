@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McCain cannot 'in good conscience' vote..."
-date: 2017-09-22 18:20:53Z
+date: 2017-09-22 18:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ If Sen. John McCain's (R-Ariz.) goal was to play a consequential role in the fig
 
 Full story on F3News: [McCain cannot 'in good conscience' vote...](http://www.f3nws.com/n/JSQshE)
 
-> Posted on: Friday, September 22, 2017 6:20:53 PM
+> Posted on: Friday, September 22, 2017 6:20:00 PM
