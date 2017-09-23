@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conservative theologians accuse pope of spreading heresy"
-date: 2017-09-23 17:39:00Z
+date: 2017-09-23 18:15:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ VATICAN CITY (AP) — Several dozen tradition-minded Roman Catholic theologians,
 
 Full story on F3News: [Conservative theologians accuse pope of spreading heresy](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 23, 2017 5:39:00 PM
+> Posted on: Saturday, September 23, 2017 6:15:00 PM
