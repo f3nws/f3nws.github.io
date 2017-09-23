@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexican town begins to move forward"
-date: 2017-09-23 01:05:15Z
+date: 2017-09-23 03:52:20Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Days after a deadly earthquake in the battered the small market town of Jojutla,
 
 Full story on F3News: [Mexican town begins to move forward](http://www.f3nws.com/n/J3T2qH)
 
-> Posted on: Saturday, September 23, 2017 1:05:15 AM
+> Posted on: Saturday, September 23, 2017 3:52:20 AM
