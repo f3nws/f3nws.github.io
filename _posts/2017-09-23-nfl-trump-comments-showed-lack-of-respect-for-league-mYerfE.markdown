@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NFL: Trump comments showed 'lack of respect' for league"
-date: 2017-09-23 14:52:06Z
+date: 2017-09-23 15:13:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ NFL Commissioner Roger Goodell on Saturday slammed President Donald Trump's crit
 
 Full story on F3News: [NFL: Trump comments showed 'lack of respect' for league](http://www.f3nws.com/n/mYerfE)
 
-> Posted on: Saturday, September 23, 2017 2:52:06 PM
+> Posted on: Saturday, September 23, 2017 3:13:56 PM
