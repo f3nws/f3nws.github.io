@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California gang members found guilty of killing 5"
-date: 2017-09-23 00:41:51Z
+date: 2017-09-23 01:26:59Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Two gang members have been found guilty of killing five people at a homeless enc
 
 Full story on F3News: [California gang members found guilty of killing 5](http://www.f3nws.com/n/BnZBfH)
 
-> Posted on: Saturday, September 23, 2017 12:41:51 AM
+> Posted on: Saturday, September 23, 2017 1:26:59 AM
