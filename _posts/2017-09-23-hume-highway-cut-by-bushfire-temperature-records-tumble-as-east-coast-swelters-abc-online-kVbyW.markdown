@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Hume Highway cut by bushfire, temperature records tumble as east coast swelters - ABC Online](http://www.abc.net.au/news/image/8977984-1x1-700x700.jpg)
 
-ABC Online Hume Highway cut by bushfire, temperature records tumble as east coast swelters ABC Online The main highway between Sydney and Canberra was cut by a bushfire and parts of New South Wales reached 40 degrees Celsius in September for the first time on record. The New South Wales Rural Fire Service (RFS) said the blaze at Paddy's River, near ... Traffic moves slowly on Hume Highway after bushfire 9news.com.au Hume Highway reopened after NSW grass fire NEWS.com.au Hume Highway reopens after bushfire closure Sky News Australia The Canberra Times - Yahoo7 News - The Sydney Morning Herald - The Guardian all 21 news articles »
+ABC Online Hume Highway cut by bushfire, temperature records tumble as east coast swelters ABC Online The main highway between Sydney and Canberra was cut by a bushfire and parts of New South Wales reached 40 degrees Celsius in September for the first time on record. The New South Wales Rural Fire Service (RFS) said the blaze at Paddy's River, near ... Traffic moves slowly on Hume Highway after bushfire 9news.com.au Hume Highway reopened after NSW grass fire NEWS.com.au Australia's east coast sweats under unusual spring heat wave The Guardian Sky News Australia - The Canberra Times - The Sydney Morning Herald - Daily Telegraph all 21 news articles »
 
 
 Full story on F3News: [Hume Highway cut by bushfire, temperature records tumble as east coast swelters - ABC Online](http://www.f3nws.com/n/kVbyW)
