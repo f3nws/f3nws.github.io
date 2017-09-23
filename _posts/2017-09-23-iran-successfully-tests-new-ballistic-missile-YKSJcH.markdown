@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran successfully tests new ballistic missile"
-date: 2017-09-23 09:13:32Z
+date: 2017-09-23 14:02:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iran tested a new ballistic missile that is reportedly capable of carrying multi
 
 Full story on F3News: [Iran successfully tests new ballistic missile](http://www.f3nws.com/n/YKSJcH)
 
-> Posted on: Saturday, September 23, 2017 9:13:32 AM
+> Posted on: Saturday, September 23, 2017 2:02:25 PM

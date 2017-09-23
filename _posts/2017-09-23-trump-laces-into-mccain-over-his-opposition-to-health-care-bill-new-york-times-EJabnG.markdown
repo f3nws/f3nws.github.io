@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Laces Into McCain Over His Opposition to Health Care Bill - New York Times](https://static01.nyt.com/images/icons/t_logo_291_black.png)
 
-New York Times Trump Laces Into McCain Over His Opposition to Health Care Bill New York Times President Trump in Huntsville, Ala., on Friday. Mr. Trump's latest weekend Twitter fusillade came the morning after Senator John McCain announced he would not support the latest health care proposal. Credit Tom Brenner/The New York Times. SOMERSET ... Sen. Cassidy's misleading claim that preexisting-conditions 'protection is absolutely the same' Washington Post McCain decision leaves GOP, ObamaCare and repeal at crossroads The Hill Why McCain screwed the GOP on Obamacare repeal — again Politico Bloomberg - BBC News - USA TODAY - CNN all 5,451 news articles »
+New York Times Trump Laces Into McCain Over His Opposition to Health Care Bill New York Times President Trump in Huntsville, Ala., on Friday. Mr. Trump's latest weekend Twitter fusillade came the morning after Senator John McCain announced he would not support the latest health care proposal. Credit Tom Brenner/The New York Times. SOMERSET ... Dems give props to Kimmel as ObamaCare repeal stumbles The Hill Sen. Cassidy's misleading claim that preexisting-conditions 'protection is absolutely the same' Washington Post Why McCain screwed the GOP on Obamacare repeal — again Politico Bloomberg - BBC News - Fox News - USA TODAY all 5,471 news articles »
 
 
 Full story on F3News: [Trump Laces Into McCain Over His Opposition to Health Care Bill - New York Times](http://www.f3nws.com/n/EJabnG)
