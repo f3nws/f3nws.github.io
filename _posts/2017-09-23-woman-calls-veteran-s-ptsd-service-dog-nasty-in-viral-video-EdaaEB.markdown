@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman calls veteran's PTSD service dog 'nasty' in viral video"
-date: 2017-09-23 03:00:06Z
+date: 2017-09-23 04:30:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An argument broke out at a Delaware restaurant this week after a woman complaine
 
 Full story on F3News: [Woman calls veteran's PTSD service dog 'nasty' in viral video](http://www.f3nws.com/n/EdaaEB)
 
-> Posted on: Saturday, September 23, 2017 3:00:06 AM
+> Posted on: Saturday, September 23, 2017 4:30:01 AM
