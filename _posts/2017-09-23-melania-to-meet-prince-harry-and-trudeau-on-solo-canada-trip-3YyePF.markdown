@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania to meet Prince Harry and Trudeau on solo Canada trip"
-date: 2017-09-23 16:35:25Z
+date: 2017-09-23 17:23:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Melania Trump is Canada-bound for her first solo foreign trip as first lady, tra
 
 Full story on F3News: [Melania to meet Prince Harry and Trudeau on solo Canada trip](http://www.f3nws.com/n/3YyePF)
 
-> Posted on: Saturday, September 23, 2017 4:35:25 PM
+> Posted on: Saturday, September 23, 2017 5:23:26 PM

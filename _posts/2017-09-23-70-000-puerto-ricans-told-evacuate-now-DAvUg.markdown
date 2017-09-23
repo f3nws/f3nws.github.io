@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "70,000 Puerto Ricans told: 'Evacuate NOW'"
-date: 2017-09-23 01:12:28Z
+date: 2017-09-23 17:15:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ All people living near the Guajataca River in northwest Puerto Rico should evacu
 
 Full story on F3News: [70,000 Puerto Ricans told: 'Evacuate NOW'](http://www.f3nws.com/n/DAvUg)
 
-> Posted on: Saturday, September 23, 2017 1:12:28 AM
+> Posted on: Saturday, September 23, 2017 5:15:30 PM
