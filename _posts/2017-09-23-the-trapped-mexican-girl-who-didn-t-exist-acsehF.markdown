@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 'trapped' Mexican girl who didn't exist"
-date: 2017-09-23 00:06:31Z
+date: 2017-09-23 07:56:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The drama was palpable. Somewhere, under a collapsed school building in Mexico C
 
 Full story on F3News: [The 'trapped' Mexican girl who didn't exist](http://www.f3nws.com/n/acsehF)
 
-> Posted on: Saturday, September 23, 2017 12:06:31 AM
+> Posted on: Saturday, September 23, 2017 7:56:32 AM
