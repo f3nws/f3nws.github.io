@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump touts 'Big Luther's' loyalty, electability at Alabama rally - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170921065116-president-donald-trump-un-super-tease.jpg)
 
-CNN Trump touts 'Big Luther's' loyalty, electability at Alabama rally CNN (CNN) President Donald Trump sought to make the case to Alabama voters Friday night that Sen. Luther Strange is more electable than his opponent, Roy Moore. At a raucous rally in Huntsville, the President warned that that former judge Moore could lose ... As Trump campaigns for Strange in Alabama, he expresses some doubts: 'I might have made a mistake' Washington Post At Alabama Rally, Trump Toggles Between Republican Loyalists New York Times Trump, rallying in Alabama, wades into a broad intraparty battle Politico Los Angeles Times - Business Insider - Daily Beast - ABC News all 246 news articles »
+CNN Trump touts 'Big Luther's' loyalty, electability at Alabama rally CNN (CNN) President Donald Trump sought to make the case to Alabama voters Friday night that Sen. Luther Strange is more electable than his opponent, Roy Moore. At a raucous rally in Huntsville, the President warned that that former judge Moore could lose ... As Trump campaigns for Strange in Alabama, he expresses some doubts: 'I might have made a mistake' Washington Post At Alabama Rally, Trump Toggles Between Republican Loyalists New York Times Trump, rallying in Alabama, wades into a broad intraparty battle Politico Los Angeles Times - Business Insider - Daily Beast - ABC News all 255 news articles »
 
 
 Full story on F3News: [Trump touts 'Big Luther's' loyalty, electability at Alabama rally - CNN](http://www.f3nws.com/n/rGEghG)
