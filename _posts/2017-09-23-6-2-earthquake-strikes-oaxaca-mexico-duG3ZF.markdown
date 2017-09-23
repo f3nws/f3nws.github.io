@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6.2 earthquake strikes Oaxaca, Mexico"
-date: 2017-09-23 14:20:24Z
+date: 2017-09-23 14:54:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A 6.2 magnitude earthquake struck Oaxaca, Mexico, early Saturday, according to t
 
 Full story on F3News: [6.2 earthquake strikes Oaxaca, Mexico](http://www.f3nws.com/n/duG3ZF)
 
-> Posted on: Saturday, September 23, 2017 2:20:24 PM
+> Posted on: Saturday, September 23, 2017 2:54:48 PM
