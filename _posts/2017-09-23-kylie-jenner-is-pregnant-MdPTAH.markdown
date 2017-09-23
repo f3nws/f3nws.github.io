@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kylie Jenner is pregnant"
-date: 2017-09-23 02:07:53Z
+date: 2017-09-23 18:40:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The youngest sibling in the Kardashian-Jenner clan is now expecting.
 
 Full story on F3News: [Kylie Jenner is pregnant](http://www.f3nws.com/n/MdPTAH)
 
-> Posted on: Saturday, September 23, 2017 2:07:53 AM
+> Posted on: Saturday, September 23, 2017 6:40:24 PM
