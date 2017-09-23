@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea says natural North Korea earthquake detected"
-date: 2017-09-23 07:41:00Z
+date: 2017-09-23 09:22:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — South Korea's weather agency said a magnitude 3.0 ea
 
 Full story on F3News: [South Korea says natural North Korea earthquake detected](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 23, 2017 7:41:00 AM
+> Posted on: Saturday, September 23, 2017 9:22:00 AM
