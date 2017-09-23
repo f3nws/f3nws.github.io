@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 killed in Thakurgaon road crash"
-date: 2017-09-23 03:07:45Z
+date: 2017-09-23 04:24:32Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [2 killed in Thakurgaon road crash](http://www.f3nws.com/n/ZXfxjB)
 
-> Posted on: Saturday, September 23, 2017 3:07:45 AM
+> Posted on: Saturday, September 23, 2017 4:24:32 AM
