@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Hundreds turn out to remember cancer charity campaigner Connie Johnson](http://www.abc.net.au/news/image/8887518-1x1-700x700.jpg)
 
-Connie Johnson, the founder of the Love Your Sister cancer charity, is remembered at a service at Melbourne's St Paul's Cathedral as a woman rose above a "downpour of horror" to inspire others.
+Connie Johnson, the founder of the Love Your Sister cancer charity, is remembered at a service in Melbourne's St Paul's Cathedral as a who woman rose above a "downpour of horror" to inspire others.
 
 
 Full story on F3News: [Hundreds turn out to remember cancer charity campaigner Connie Johnson](http://www.f3nws.com/n/Q3A2bH)
