@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea official: Trump is on a suicide mission"
-date: 2017-09-24 12:21:39Z
+date: 2017-09-24 15:36:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The ongoing war of words between the United States and North Korea saw several n
 
 Full story on F3News: [North Korea official: Trump is on a suicide mission](http://www.f3nws.com/n/kvUJBJ)
 
-> Posted on: Sunday, September 24, 2017 12:21:39 PM
+> Posted on: Sunday, September 24, 2017 3:36:38 PM
