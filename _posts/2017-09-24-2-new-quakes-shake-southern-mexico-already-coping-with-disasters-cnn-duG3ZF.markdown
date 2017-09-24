@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![2 new quakes shake southern Mexico, already coping with disasters - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/150325082132-social-gfx-breaking-news-super-tease.jpg)
 
-CNN 2 new quakes shake southern Mexico, already coping with disasters CNN (CNN) Two more earthquakes shook southern Mexico on Saturday, further rattling a country still coming to grips with the devastation from stronger temblors earlier this month. A 6.1 magnitude earthquake Saturday morning was centered in Oaxaca state near ... New earthquake, magnitude 6.1, shakes jittery Mexico Washington Post Mexico City Quake Jolts Complacency Over Code Enforcement New York Times Hopes for Mexico Quake Survivors Dim as Search Enters Sixth Day U.S. News & World Report CBS News - The New Yorker - TIME - SFGate all 1,169 news articles »
+CNN 2 new quakes shake southern Mexico, already coping with disasters CNN (CNN) Two more earthquakes shook southern Mexico on Saturday, further rattling a country still coming to grips with the devastation from stronger temblors earlier this month. A 6.1 magnitude earthquake Saturday morning was centered in Oaxaca state near ... New earthquake, magnitude 6.1, shakes jittery Mexico Washington Post Mexico City Quake Jolts Complacency Over Code Enforcement New York Times Hopes for Mexico Quake Survivors Dim as Search Enters Sixth Day U.S. News & World Report CBS News - The New Yorker - TIME - SFGate all 1,183 news articles »
 
 
 Full story on F3News: [2 new quakes shake southern Mexico, already coping with disasters - CNN](http://www.f3nws.com/n/duG3ZF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merkel bids for fourth term as Germans head to the polls"
-date: 2017-09-24 04:22:00Z
+date: 2017-09-24 05:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BERLIN (AP) — Chancellor Angela Merkel was widely expected to win a fourth ter
 
 Full story on F3News: [Merkel bids for fourth term as Germans head to the polls](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 24, 2017 4:22:00 AM
+> Posted on: Sunday, September 24, 2017 5:43:00 AM

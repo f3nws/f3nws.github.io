@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German elections: Will Merkel win 4th term as chancellor?"
-date: 2017-09-24 05:53:23Z
+date: 2017-09-24 05:53:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Chancellor Angela Merkel and her ruling Christian Democrat/Christian Social Unio
 
 Full story on F3News: [German elections: Will Merkel win 4th term as chancellor?](http://www.f3nws.com/n/TamzZD)
 
-> Posted on: Sunday, September 24, 2017 5:53:23 AM
+> Posted on: Sunday, September 24, 2017 5:53:00 AM
