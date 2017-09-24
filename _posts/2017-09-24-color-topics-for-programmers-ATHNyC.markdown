@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Color Topics for Programmers"
-date: 2017-09-24 00:17:00Z
+date: 2017-09-24 17:05:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ Discusses color spaces, color generation, and other general color topics commonl
 
 Full story on F3News: [Color Topics for Programmers](http://www.f3nws.com/n/ATHNyC)
 
-> Posted on: Sunday, September 24, 2017 12:17:00 AM
+> Posted on: Sunday, September 24, 2017 5:05:00 PM
