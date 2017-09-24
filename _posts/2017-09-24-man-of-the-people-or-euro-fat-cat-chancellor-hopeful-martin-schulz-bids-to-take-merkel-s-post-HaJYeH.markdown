@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man of the people, or Euro fat cat? Chancellor hopeful Martin Schulz bids to take Merkel’s post"
-date: 2017-09-24 02:40:52Z
+date: 2017-09-24 02:40:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ With Germany heading for federal elections on Sunday, RT looks at the controvers
 
 Full story on F3News: [Man of the people, or Euro fat cat? Chancellor hopeful Martin Schulz bids to take Merkel’s post](http://www.f3nws.com/n/HaJYeH)
 
-> Posted on: Sunday, September 24, 2017 2:40:52 AM
+> Posted on: Sunday, September 24, 2017 2:40:00 AM
