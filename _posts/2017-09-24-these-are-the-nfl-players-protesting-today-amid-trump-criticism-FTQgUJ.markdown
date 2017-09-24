@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "These are the NFL players protesting today amid Trump criticism"
-date: 2017-09-24 21:27:55Z
+date: 2017-09-24 22:43:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Baltimore Ravens' Terrell Suggs and Ray Lewis lent their star power to the o
 
 Full story on F3News: [These are the NFL players protesting today amid Trump criticism](http://www.f3nws.com/n/FTQgUJ)
 
-> Posted on: Sunday, September 24, 2017 9:27:55 PM
+> Posted on: Sunday, September 24, 2017 10:43:48 PM
