@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ravens, Jaguars players kneel during national anthem after Trump's attacks on NFL"
-date: 2017-09-24 13:48:00Z
+date: 2017-09-24 15:56:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Dozens of players for the Baltimore Ravens and Jacksonville Jaguars showed a uni
 
 Full story on F3News: [Ravens, Jaguars players kneel during national anthem after Trump's attacks on NFL](http://www.f3nws.com/n/ZTjUMB)
 
-> Posted on: Sunday, September 24, 2017 1:48:00 PM
+> Posted on: Sunday, September 24, 2017 3:56:00 PM

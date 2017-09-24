@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico officials describe 'apocalyptic' conditions after Maria"
-date: 2017-09-24 09:19:31Z
+date: 2017-09-24 16:45:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Days after Hurricane Maria pounded the island of Puerto Rico, killing at least 1
 
 Full story on F3News: [Puerto Rico officials describe 'apocalyptic' conditions after Maria](http://www.f3nws.com/n/UZAf3F)
 
-> Posted on: Sunday, September 24, 2017 9:19:31 AM
+> Posted on: Sunday, September 24, 2017 4:45:16 PM

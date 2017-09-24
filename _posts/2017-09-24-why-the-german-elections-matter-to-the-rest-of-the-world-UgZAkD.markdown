@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why the German elections matter to the rest of the world"
-date: 2017-09-24 10:56:39Z
+date: 2017-09-24 16:49:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ We've had our fair share of dramatic elections recently - the UK, France, the US
 
 Full story on F3News: [Why the German elections matter to the rest of the world](http://www.f3nws.com/n/UgZAkD)
 
-> Posted on: Sunday, September 24, 2017 10:56:39 AM
+> Posted on: Sunday, September 24, 2017 4:49:14 PM

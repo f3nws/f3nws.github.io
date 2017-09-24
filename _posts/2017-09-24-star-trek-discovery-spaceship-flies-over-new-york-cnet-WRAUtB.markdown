@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Trek: Discovery' spaceship flies over New York     - CNET"
-date: 2017-09-24 15:03:02Z
+date: 2017-09-24 16:20:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The USS Discovery takes off for real in Manhattan the night before the show's pr
 
 Full story on F3News: ['Star Trek: Discovery' spaceship flies over New York     - CNET](http://www.f3nws.com/n/WRAUtB)
 
-> Posted on: Sunday, September 24, 2017 3:03:02 PM
+> Posted on: Sunday, September 24, 2017 4:20:55 PM

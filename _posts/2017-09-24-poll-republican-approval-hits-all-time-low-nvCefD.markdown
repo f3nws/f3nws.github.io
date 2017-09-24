@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "POLL: Republican approval hits all-time low"
-date: 2017-09-24 12:00:17Z
+date: 2017-09-24 16:35:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There are fresh signs the Republican Party's brand is in trouble.
 
 Full story on F3News: [POLL: Republican approval hits all-time low](http://www.f3nws.com/n/nvCefD)
 
-> Posted on: Sunday, September 24, 2017 12:00:17 PM
+> Posted on: Sunday, September 24, 2017 4:35:45 PM
