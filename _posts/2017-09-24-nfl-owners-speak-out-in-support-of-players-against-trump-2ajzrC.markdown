@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NFL owners speak out in support of players, against Trump"
-date: 2017-09-24 07:57:00Z
+date: 2017-09-24 09:45:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ The NFL's players and owners are frequently at odds over the issues, finances an
 
 Full story on F3News: [NFL owners speak out in support of players, against Trump](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, September 24, 2017 7:57:00 AM
+> Posted on: Sunday, September 24, 2017 9:45:00 AM
