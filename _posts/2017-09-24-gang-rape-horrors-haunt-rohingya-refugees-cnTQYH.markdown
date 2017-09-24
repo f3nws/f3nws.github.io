@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gang rape horrors haunt Rohingya refugees"
-date: 2017-09-24 03:48:22Z
+date: 2017-09-24 06:48:18Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Gang rape horrors haunt Rohingya refugees](http://www.f3nws.com/n/cnTQYH)
 
-> Posted on: Sunday, September 24, 2017 3:48:22 AM
+> Posted on: Sunday, September 24, 2017 6:48:18 AM

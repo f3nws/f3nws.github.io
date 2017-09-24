@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7 establishments of Hindus torched in Faridpur"
-date: 2017-09-24 04:37:00Z
+date: 2017-09-24 06:46:09Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [7 establishments of Hindus torched in Faridpur](http://www.f3nws.com/n/GpqJdH)
 
-> Posted on: Sunday, September 24, 2017 4:37:00 AM
+> Posted on: Sunday, September 24, 2017 6:46:09 AM
