@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump urges fans to boycott NFL in ongoing criticism of flag-kneeling players"
-date: 2017-09-24 11:12:00Z
+date: 2017-09-24 20:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump on Sunday extended his attack on NFL players who kneel during th
 
 Full story on F3News: [Trump urges fans to boycott NFL in ongoing criticism of flag-kneeling players](http://www.f3nws.com/n/mSnKAE)
 
-> Posted on: Sunday, September 24, 2017 11:12:00 AM
+> Posted on: Sunday, September 24, 2017 8:00:00 PM
