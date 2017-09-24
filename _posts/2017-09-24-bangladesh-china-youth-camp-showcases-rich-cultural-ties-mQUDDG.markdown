@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladesh-China youth camp showcases rich cultural ties"
-date: 2017-09-24 04:46:11Z
+date: 2017-09-24 05:18:06Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Bangladesh-China youth camp showcases rich cultural ties](http://www.f3nws.com/n/mQUDDG)
 
-> Posted on: Sunday, September 24, 2017 4:46:11 AM
+> Posted on: Sunday, September 24, 2017 5:18:06 AM
