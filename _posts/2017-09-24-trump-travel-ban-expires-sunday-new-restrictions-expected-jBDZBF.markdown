@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump travel ban expires Sunday; new restrictions expected"
-date: 2017-09-24 07:11:15Z
+date: 2017-09-24 12:50:33Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is expected to announce new restrictions on travel to the
 
 Full story on F3News: [Trump travel ban expires Sunday; new restrictions expected](http://www.f3nws.com/n/jBDZBF)
 
-> Posted on: Sunday, September 24, 2017 7:11:15 AM
+> Posted on: Sunday, September 24, 2017 12:50:33 PM
