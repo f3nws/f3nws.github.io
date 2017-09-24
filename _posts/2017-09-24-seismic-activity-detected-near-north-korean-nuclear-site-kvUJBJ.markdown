@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seismic activity detected near North Korean nuclear site"
-date: 2017-09-24 03:46:02Z
+date: 2017-09-24 04:03:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Analysts says that seismic activity detected Saturday near the site of North Kor
 
 Full story on F3News: [Seismic activity detected near North Korean nuclear site](http://www.f3nws.com/n/kvUJBJ)
 
-> Posted on: Sunday, September 24, 2017 3:46:02 AM
+> Posted on: Sunday, September 24, 2017 4:03:03 AM

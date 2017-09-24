@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Death-row convict Juba League leader back in politics"
-date: 2017-09-24 02:46:50Z
+date: 2017-09-24 04:57:45Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Death-row convict Juba League leader back in politics](http://www.f3nws.com/n/2QxWJE)
 
-> Posted on: Sunday, September 24, 2017 2:46:50 AM
+> Posted on: Sunday, September 24, 2017 4:57:45 AM

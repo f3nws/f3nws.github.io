@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6.1 magnitude quake shakes Mexico, already coping with earlier disasters"
-date: 2017-09-24 00:30:58Z
+date: 2017-09-24 04:57:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A 6.1 magnitude earthquake shook southern Mexico on Saturday morning, the US Geo
 
 Full story on F3News: [6.1 magnitude quake shakes Mexico, already coping with earlier disasters](http://www.f3nws.com/n/duG3ZF)
 
-> Posted on: Sunday, September 24, 2017 12:30:58 AM
+> Posted on: Sunday, September 24, 2017 4:57:47 AM
