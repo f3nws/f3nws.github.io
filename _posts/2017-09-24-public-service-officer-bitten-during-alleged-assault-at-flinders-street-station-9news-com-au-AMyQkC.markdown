@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Public Service Officer 'bitten' during alleged assault at Flinders Street Station - 9news.com.au](http://prod.static9.net.au/_/media/2017/09/24/17/03/pso2.png)
 
-9news.com.au Public Service Officer 'bitten' during alleged assault at Flinders Street Station 9news.com.au Three youths have been accused of assaulting of three Public Service Officers (PSO) at Melbourne's Flinders Street Station overnight. Police arrested a 19-year-old man, 20-year-old man and 18-year-old woman after the alleged incident outside the ... Three PSOs allegedly assaulted at Melbourne's Flinders Street Station ABC Online Trio charged over alleged bite attack on Flinders Street PSOs Brisbane Times Protective service officers allegedly assaulted at Flinders Street Station Herald Sun Yahoo7 News - Mirage News all 7 news articles »
+9news.com.au Public Service Officer 'bitten' during alleged assault at Flinders Street Station 9news.com.au Three youths have been accused of assaulting of three Public Service Officers (PSO) at Melbourne's Flinders Street Station overnight. Police arrested a 19-year-old man, 20-year-old man and 18-year-old woman after the alleged incident outside the ... Three PSOs allegedly assaulted at Melbourne's Flinders Street Station ABC Online Trio charged over alleged bite attack on Flinders Street PSOs Brisbane Times Protective service officers allegedly assaulted at Flinders Street Station NEWS.com.au Yahoo7 News - Mirage News all 7 news articles »
 
 
 Full story on F3News: [Public Service Officer 'bitten' during alleged assault at Flinders Street Station - 9news.com.au](http://www.f3nws.com/n/AMyQkC)
