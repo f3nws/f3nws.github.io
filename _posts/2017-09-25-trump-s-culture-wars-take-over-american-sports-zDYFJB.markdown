@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's culture wars take over American sports"
-date: 2017-09-25 12:39:26Z
+date: 2017-09-25 13:35:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The biggest question in the NFL this year, isn't who will win Super Bowl 52.
 
 Full story on F3News: [Trump's culture wars take over American sports](http://www.f3nws.com/n/zDYFJB)
 
-> Posted on: Monday, September 25, 2017 12:39:26 PM
+> Posted on: Monday, September 25, 2017 1:35:35 PM

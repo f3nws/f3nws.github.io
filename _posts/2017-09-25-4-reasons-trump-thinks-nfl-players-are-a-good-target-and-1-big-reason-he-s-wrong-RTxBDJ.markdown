@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "4 reasons Trump thinks NFL players are a good target (and 1 big reason he's wrong)"
-date: 2017-09-25 10:55:28Z
+date: 2017-09-25 13:47:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Friday night, President Donald Trump began a full frontal assault against NFL
 
 Full story on F3News: [4 reasons Trump thinks NFL players are a good target (and 1 big reason he's wrong)](http://www.f3nws.com/n/RTxBDJ)
 
-> Posted on: Monday, September 25, 2017 10:55:28 AM
+> Posted on: Monday, September 25, 2017 1:47:12 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House stonewalls over Russia probe records"
-date: 2017-09-25 11:56:05Z
+date: 2017-09-25 13:33:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tension is rising between congressional investigators probing Russia meddling an
 
 Full story on F3News: [White House stonewalls over Russia probe records](http://www.f3nws.com/n/Ns4WfE)
 
-> Posted on: Monday, September 25, 2017 11:56:05 AM
+> Posted on: Monday, September 25, 2017 1:33:44 PM
