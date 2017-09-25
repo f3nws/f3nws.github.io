@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi Kurds cast their votes in historic poll"
-date: 2017-09-25 18:05:16Z
+date: 2017-09-25 21:15:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi Kurds have started casting their ballots in a controversial independence r
 
 Full story on F3News: [Iraqi Kurds cast their votes in historic poll](http://www.f3nws.com/n/mkYzFJ)
 
-> Posted on: Monday, September 25, 2017 6:05:16 PM
+> Posted on: Monday, September 25, 2017 9:15:33 PM
