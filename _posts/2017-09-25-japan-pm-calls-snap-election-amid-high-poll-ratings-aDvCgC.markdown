@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan PM calls snap election amid high poll ratings"
-date: 2017-09-25 10:35:00Z
+date: 2017-09-25 11:05:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japanese leader Shinzo Abe has called an early election as he seeks to take adva
 
 Full story on F3News: [Japan PM calls snap election amid high poll ratings](http://www.f3nws.com/n/aDvCgC)
 
-> Posted on: Monday, September 25, 2017 10:35:00 AM
+> Posted on: Monday, September 25, 2017 11:05:49 AM
