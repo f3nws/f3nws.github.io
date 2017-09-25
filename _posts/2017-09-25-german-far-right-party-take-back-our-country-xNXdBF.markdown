@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German far-right party: 'Take back our country'"
-date: 2017-09-25 07:28:29Z
+date: 2017-09-25 08:03:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The co-founder of the first far-right party to win seats in Germany's parliament
 
 Full story on F3News: [German far-right party: 'Take back our country'](http://www.f3nws.com/n/xNXdBF)
 
-> Posted on: Monday, September 25, 2017 7:28:29 AM
+> Posted on: Monday, September 25, 2017 8:03:58 AM
