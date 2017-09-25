@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Weiner jailed in sexting case that rocked US election"
-date: 2017-09-25 18:30:25Z
+date: 2017-09-25 22:21:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Rep. Anthony Weiner was sentenced Monday to 21 months in prison for sexti
 
 Full story on F3News: [Weiner jailed in sexting case that rocked US election](http://www.f3nws.com/n/YrWskH)
 
-> Posted on: Monday, September 25, 2017 6:30:25 PM
+> Posted on: Monday, September 25, 2017 10:21:17 PM

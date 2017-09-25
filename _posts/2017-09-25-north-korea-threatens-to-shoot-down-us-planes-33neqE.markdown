@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea threatens to shoot down US planes"
-date: 2017-09-25 18:55:34Z
+date: 2017-09-25 22:39:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's Foreign Minister Ri Yong Ho on Monday accused US President Donald 
 
 Full story on F3News: [North Korea threatens to shoot down US planes](http://www.f3nws.com/n/33neqE)
 
-> Posted on: Monday, September 25, 2017 6:55:34 PM
+> Posted on: Monday, September 25, 2017 10:39:46 PM
