@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steelers coach Mike Tomlin raps Alejandro Villanueva for standing for national anthem"
-date: 2017-09-25 11:37:00Z
+date: 2017-09-25 12:38:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ For Pittsburgh Steelers head coach Mike Tomlin, being “respectful of our footb
 
 Full story on F3News: [Steelers coach Mike Tomlin raps Alejandro Villanueva for standing for national anthem](http://www.f3nws.com/n/AGABHD)
 
-> Posted on: Monday, September 25, 2017 11:37:00 AM
+> Posted on: Monday, September 25, 2017 12:38:00 PM

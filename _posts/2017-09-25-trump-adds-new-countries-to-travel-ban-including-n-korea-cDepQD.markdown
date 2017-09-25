@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump adds new countries to travel ban -- including N Korea"
-date: 2017-09-25 11:08:01Z
+date: 2017-09-25 12:06:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has unveiled new travel restrictions on certain foreign
 
 Full story on F3News: [Trump adds new countries to travel ban -- including N Korea](http://www.f3nws.com/n/cDepQD)
 
-> Posted on: Monday, September 25, 2017 11:08:01 AM
+> Posted on: Monday, September 25, 2017 12:06:36 PM

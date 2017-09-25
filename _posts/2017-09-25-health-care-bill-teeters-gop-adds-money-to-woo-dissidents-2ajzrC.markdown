@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Health care bill teeters, GOP adds money to woo dissidents"
-date: 2017-09-25 04:53:00Z
+date: 2017-09-25 08:27:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Top Republicans are adding money to their staggering effort 
 
 Full story on F3News: [Health care bill teeters, GOP adds money to woo dissidents](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, September 25, 2017 4:53:00 AM
+> Posted on: Monday, September 25, 2017 8:27:00 AM

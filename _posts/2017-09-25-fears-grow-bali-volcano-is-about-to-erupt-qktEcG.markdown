@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fears grow Bali volcano is about to erupt"
-date: 2017-09-25 08:35:06Z
+date: 2017-09-25 12:54:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of people on the Indonesian island of Bali have been evacuated amid fe
 
 Full story on F3News: [Fears grow Bali volcano is about to erupt](http://www.f3nws.com/n/qktEcG)
 
-> Posted on: Monday, September 25, 2017 8:35:06 AM
+> Posted on: Monday, September 25, 2017 12:54:40 PM
