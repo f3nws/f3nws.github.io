@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No power and a dam on the brink: 'humanitarian crisis' looms in Puerto Rico"
-date: 2017-09-25 15:49:27Z
+date: 2017-09-25 17:28:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The devastation wrought by Hurricane Maria continues to cripple Puerto Rico, wit
 
 Full story on F3News: [No power and a dam on the brink: 'humanitarian crisis' looms in Puerto Rico](http://www.f3nws.com/n/CqSMTG)
 
-> Posted on: Monday, September 25, 2017 3:49:27 PM
+> Posted on: Monday, September 25, 2017 5:28:41 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea: Trump has declared war on our country"
-date: 2017-09-25 16:41:48Z
+date: 2017-09-25 17:40:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea's Foreign Minister Ri Yong Ho on Monday accused US President Donald 
 
 Full story on F3News: [North Korea: Trump has declared war on our country](http://www.f3nws.com/n/33neqE)
 
-> Posted on: Monday, September 25, 2017 4:41:48 PM
+> Posted on: Monday, September 25, 2017 5:40:32 PM
