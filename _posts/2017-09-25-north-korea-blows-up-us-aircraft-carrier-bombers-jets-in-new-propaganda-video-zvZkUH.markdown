@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea blows up US aircraft carrier, bombers, jets in new propaganda video"
-date: 2017-09-25 12:42:00Z
+date: 2017-09-25 14:59:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ North Korean missiles demolish a U.S. aircraft carrier and several jets in the l
 
 Full story on F3News: [North Korea blows up US aircraft carrier, bombers, jets in new propaganda video](http://www.f3nws.com/n/zvZkUH)
 
-> Posted on: Monday, September 25, 2017 12:42:00 PM
+> Posted on: Monday, September 25, 2017 2:59:00 PM
