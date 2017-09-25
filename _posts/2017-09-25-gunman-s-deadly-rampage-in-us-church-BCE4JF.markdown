@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman's deadly rampage in US church"
-date: 2017-09-25 09:37:00Z
+date: 2017-09-25 10:53:17Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A gunman opened fire at a church in Tennessee on Sunday, killing one person and 
 
 Full story on F3News: [Gunman's deadly rampage in US church](http://www.f3nws.com/n/BCE4JF)
 
-> Posted on: Monday, September 25, 2017 9:37:00 AM
+> Posted on: Monday, September 25, 2017 10:53:17 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merkel's power dented as German far-right party wins seats"
-date: 2017-09-25 08:03:58Z
+date: 2017-09-25 10:17:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The co-founder of the first far-right party to win seats in Germany's parliament
 
 Full story on F3News: [Merkel's power dented as German far-right party wins seats](http://www.f3nws.com/n/xNXdBF)
 
-> Posted on: Monday, September 25, 2017 8:03:58 AM
+> Posted on: Monday, September 25, 2017 10:17:48 AM
