@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Where are the world's nuclear weapons?"
-date: 2017-09-25 00:11:39Z
+date: 2017-09-25 14:14:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nine nuclear-capable states exist in the world, but only eight of them -- all bu
 
 Full story on F3News: [Where are the world's nuclear weapons?](http://www.f3nws.com/n/baW3eB)
 
-> Posted on: Monday, September 25, 2017 12:11:39 AM
+> Posted on: Monday, September 25, 2017 2:14:18 PM

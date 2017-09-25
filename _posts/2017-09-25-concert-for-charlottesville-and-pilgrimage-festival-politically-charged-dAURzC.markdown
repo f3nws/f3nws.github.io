@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Concert for Charlottesville and Pilgrimage Festival politically charged"
-date: 2017-09-25 02:45:51Z
+date: 2017-09-25 13:59:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Two concerts held Sunday highlighted America's current political climate.
 
 Full story on F3News: [Concert for Charlottesville and Pilgrimage Festival politically charged](http://www.f3nws.com/n/dAURzC)
 
-> Posted on: Monday, September 25, 2017 2:45:51 AM
+> Posted on: Monday, September 25, 2017 1:59:58 PM
