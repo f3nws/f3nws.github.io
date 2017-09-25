@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House revises travel ban restrictions"
-date: 2017-09-25 05:42:17Z
+date: 2017-09-25 06:40:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has unveiled new travel restrictions on certain foreign
 
 Full story on F3News: [White House revises travel ban restrictions](http://www.f3nws.com/n/cDepQD)
 
-> Posted on: Monday, September 25, 2017 5:42:17 AM
+> Posted on: Monday, September 25, 2017 6:40:53 AM
