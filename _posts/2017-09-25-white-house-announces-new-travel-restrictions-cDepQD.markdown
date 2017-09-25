@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House announces new travel restrictions"
-date: 2017-09-25 00:44:09Z
+date: 2017-09-25 00:58:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has unveiled new travel restrictions on certain foreign
 
 Full story on F3News: [White House announces new travel restrictions](http://www.f3nws.com/n/cDepQD)
 
-> Posted on: Monday, September 25, 2017 12:44:09 AM
+> Posted on: Monday, September 25, 2017 12:58:49 AM

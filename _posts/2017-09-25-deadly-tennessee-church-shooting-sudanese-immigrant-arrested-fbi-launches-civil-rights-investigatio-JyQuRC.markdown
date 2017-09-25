@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly Tennessee church shooting: Sudanese immigrant arrested, FBI launches civil rights investigation"
-date: 2017-09-25 00:45:00Z
+date: 2017-09-25 01:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ One woman was killed and seven other people were hurt after a suspect identified
 
 Full story on F3News: [Deadly Tennessee church shooting: Sudanese immigrant arrested, FBI launches civil rights investigation](http://www.f3nws.com/n/JyQuRC)
 
-> Posted on: Monday, September 25, 2017 12:45:00 AM
+> Posted on: Monday, September 25, 2017 1:30:00 AM
