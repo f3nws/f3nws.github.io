@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dam threatens to burst on island without power"
-date: 2017-09-25 11:00:30Z
+date: 2017-09-25 15:49:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The devastation wrought by Hurricane Maria continues to cripple Puerto Rico, wit
 
 Full story on F3News: [Dam threatens to burst on island without power](http://www.f3nws.com/n/CqSMTG)
 
-> Posted on: Monday, September 25, 2017 11:00:30 AM
+> Posted on: Monday, September 25, 2017 3:49:27 PM
