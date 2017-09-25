@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump replaces travel ban with new restrictions on 8 nations"
-date: 2017-09-25 01:16:45Z
+date: 2017-09-25 02:00:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is expected to announce new restrictions on travel to the
 
 Full story on F3News: [Trump replaces travel ban with new restrictions on 8 nations](http://www.f3nws.com/n/jBDZBF)
 
-> Posted on: Monday, September 25, 2017 1:16:45 AM
+> Posted on: Monday, September 25, 2017 2:00:07 AM

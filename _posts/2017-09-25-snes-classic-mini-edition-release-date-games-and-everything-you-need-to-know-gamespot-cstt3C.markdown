@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![SNES Classic Mini Edition: Release Date, Games, And Everything You Need To Know - GameSpot](https://static.gamespot.com/uploads/screen_kubrick/1579/15792183/3291901-snesclassic.jpg)
 
-GameSpot SNES Classic Mini Edition: Release Date, Games, And Everything You Need To Know GameSpot Much like the NES Classic console from last year, the SNES Classic is a bit of a hot commodity. With an assortment of retro games from the SNES library, there are many games getting a second chance in the spotlight, along with others that have stood ... I have an SNES Classic Edition, and it rules TechCrunch Star Fox 2 on the SNES Classic is more ambitious and different than we expected Polygon The SNES Classic Edition is here and I'm already in love SlashGear Gizmodo - CNET - Tom's Guide - Tech Times all 59 news articles »
+GameSpot SNES Classic Mini Edition: Release Date, Games, And Everything You Need To Know GameSpot Much like the NES Classic console from last year, the SNES Classic is a bit of a hot commodity. With an assortment of retro games from the SNES library, there are many games getting a second chance in the spotlight, along with others that have stood ... I have an SNES Classic Edition, and it rules TechCrunch Star Fox 2 on the SNES Classic is more ambitious and different than we expected Polygon The SNES Classic Edition is here and I'm already in love SlashGear Gizmodo - CNET - Tom's Guide - Tech Times all 60 news articles »
 
 
 Full story on F3News: [SNES Classic Mini Edition: Release Date, Games, And Everything You Need To Know - GameSpot](http://www.f3nws.com/n/cstt3C)

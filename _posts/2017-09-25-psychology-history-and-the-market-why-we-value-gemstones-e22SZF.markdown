@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Psychology, history and the market: Why we value gemstones"
-date: 2017-09-25 01:24:41Z
+date: 2017-09-25 02:25:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Humankind's fascination with precious stones long predates the establishment of 
 
 Full story on F3News: [Psychology, history and the market: Why we value gemstones](http://www.f3nws.com/n/e22SZF)
 
-> Posted on: Monday, September 25, 2017 1:24:41 AM
+> Posted on: Monday, September 25, 2017 2:25:25 AM
