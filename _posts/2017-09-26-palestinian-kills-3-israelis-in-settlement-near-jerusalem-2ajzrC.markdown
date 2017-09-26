@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinian kills 3 Israelis in settlement near Jerusalem"
-date: 2017-09-26 04:51:00Z
+date: 2017-09-26 05:32:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ JERUSALEM (AP) — A Palestinian attacker opened fire early Tuesday at the entra
 
 Full story on F3News: [Palestinian kills 3 Israelis in settlement near Jerusalem](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, September 26, 2017 4:51:00 AM
+> Posted on: Tuesday, September 26, 2017 5:32:00 AM

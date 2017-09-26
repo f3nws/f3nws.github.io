@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![City of Melbourne to remove groups of homeless amid police crackdown on beggars - ABC Online](http://www.abc.net.au/news/image/7944340-1x1-700x700.jpg)
 
-ABC Online City of Melbourne to remove groups of homeless amid police crackdown on beggars ABC Online Victoria Police has promised to crack down on beggars in Melbourne's CBD as the city's council announces an "assertive" new approach to dealing with homelessness. Melbourne Lord Mayor Robert Doyle said under the official arrangement, council officers ... Robert Doyle dumps homeless camping ban amid legal concerns over human rights The Age Melbourne moves to clean up homeless NEWS.com.au Mayor Robert Doyle announces city homeless action plan will become permanent Herald Sun all 6 news articles »
+ABC Online City of Melbourne to remove groups of homeless amid police crackdown on beggars ABC Online Victoria Police has promised to crack down on beggars in Melbourne's CBD as the city's council announces an "assertive" new approach to dealing with homelessness. Melbourne Lord Mayor Robert Doyle said under the official arrangement, council officers ... Melbourne's 'assertive' approach to homelessness The Australian Robert Doyle dumps homeless camping ban amid legal concerns over human rights The Age Melbourne moves to clean up homeless 9news.com.au NEWS.com.au all 7 news articles »
 
 
 Full story on F3News: [City of Melbourne to remove groups of homeless amid police crackdown on beggars - ABC Online](http://www.f3nws.com/n/UCCYY)
