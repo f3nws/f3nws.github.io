@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon rails against GOP 'elites' working against Trump in 'Hannity' interview"
-date: 2017-09-26 02:30:00Z
+date: 2017-09-26 03:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A feisty and passionate Steve Bannon stood up against Senate Majority Leader Mit
 
 Full story on F3News: [Bannon rails against GOP 'elites' working against Trump in 'Hannity' interview](http://www.f3nws.com/n/pPSh2B)
 
-> Posted on: Tuesday, September 26, 2017 2:30:00 AM
+> Posted on: Tuesday, September 26, 2017 3:00:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "111 garments that changed the world"
-date: 2017-09-26 01:36:50Z
+date: 2017-09-26 03:25:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Which garments have had the most profound effect on the world over the last 100 
 
 Full story on F3News: [111 garments that changed the world](http://www.f3nws.com/n/RexvX)
 
-> Posted on: Tuesday, September 26, 2017 1:36:50 AM
+> Posted on: Tuesday, September 26, 2017 3:25:32 AM

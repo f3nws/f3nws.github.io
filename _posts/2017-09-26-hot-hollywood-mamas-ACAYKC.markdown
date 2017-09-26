@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hot Hollywood mamas"
-date: 2017-09-26 01:00:02Z
+date: 2017-09-26 04:00:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ These stars prove moms are some of the hottest gals on the planet.
 
 Full story on F3News: [Hot Hollywood mamas](http://www.f3nws.com/n/ACAYKC)
 
-> Posted on: Tuesday, September 26, 2017 1:00:02 AM
+> Posted on: Tuesday, September 26, 2017 4:00:04 AM

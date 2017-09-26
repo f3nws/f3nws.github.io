@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Self-driving cars could change your life within six years](http://www.abc.net.au/news/image/8987734-1x1-700x700.jpg)
 
-Individually-owned cars are underutilised and costly. Autonomous vehicles are already in use in Australia. You won't believe what happens next.
+Individually owned cars are underutilised and costly. Autonomous vehicles are already in use in Australia. We could be on the cusp of the fastest, deepest disruption in transportation history.
 
 
 Full story on F3News: [Self-driving cars could change your life within six years](http://www.f3nws.com/n/tNCg3B)

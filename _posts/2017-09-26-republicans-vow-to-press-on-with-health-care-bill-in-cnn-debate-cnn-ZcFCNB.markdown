@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Republicans vow to 'press on' with health care bill in CNN debate - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170921123113-restricted-092117-lindsey-graham-bill-cassidy-amy-klobuchar-bernie-sanders-health-care-t1-super-tease.jpg)
 
-CNN Republicans vow to 'press on' with health care bill in CNN debate CNN (CNN) Sen. Lindsey Graham vowed Monday to "press on" in a bid to pass an apparently doomed Obamacare replacement bill he's sponsoring, calling the proposal a "damn good idea." "We are going to press on. It's OK to vote. It's OK to fall short, if you do ... Health Bill Appears Dead as Pivotal GOP Senator Declares Opposition New York Times Critics say pre-existing conditions protections weakened in updated GOP bill The Hill No Path to 50 Slate Magazine ABC News - Bloomberg - Chicago Tribune - Minneapolis Star Tribune all 1,040 news articles »
+CNN Republicans vow to 'press on' with health care bill in CNN debate CNN (CNN) Two Republican senators leading the reeling, last ditch bid to replace Obamacare vowed to fight on Monday, even after another GOP defection dealt the potential killer blow to their bill. "We are going to press on. It's OK to vote. It's OK to fall ... Health Bill Appears Dead as Pivotal GOP Senator Declares Opposition New York Times Obamacare repeal on the ropes as pivotal Republican rebuffs Trump Reuters No Path to 50 Slate Magazine Bloomberg - Chicago Tribune - The Denver Post - NBCNews.com all 1,057 news articles »
 
 
 Full story on F3News: [Republicans vow to 'press on' with health care bill in CNN debate - CNN](http://www.f3nws.com/n/ZcFCNB)
