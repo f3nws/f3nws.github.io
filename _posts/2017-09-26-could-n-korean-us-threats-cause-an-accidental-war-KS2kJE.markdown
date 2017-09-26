@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Could N Korean, US threats cause an accidental war?"
-date: 2017-09-26 06:38:25Z
+date: 2017-09-26 10:13:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The war of words between North Korea and the United States could be pushing the 
 
 Full story on F3News: [Could N Korean, US threats cause an accidental war?](http://www.f3nws.com/n/KS2kJE)
 
-> Posted on: Tuesday, September 26, 2017 6:38:25 AM
+> Posted on: Tuesday, September 26, 2017 10:13:34 AM

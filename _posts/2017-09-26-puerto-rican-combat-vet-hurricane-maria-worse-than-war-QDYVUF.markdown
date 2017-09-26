@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rican combat vet: Hurricane Maria worse than war"
-date: 2017-09-26 01:24:47Z
+date: 2017-09-26 10:59:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Miguel Olivera, now 75, survived combat and being impacted by Agent Orange in Ca
 
 Full story on F3News: [Puerto Rican combat vet: Hurricane Maria worse than war](http://www.f3nws.com/n/QDYVUF)
 
-> Posted on: Tuesday, September 26, 2017 1:24:47 AM
+> Posted on: Tuesday, September 26, 2017 10:59:20 AM
