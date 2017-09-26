@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three Israelis killed in shooting at West Bank crossing"
-date: 2017-09-26 10:22:53Z
+date: 2017-09-26 11:08:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three Israelis have been killed in a shooting attack at a crossing between Israe
 
 Full story on F3News: [Three Israelis killed in shooting at West Bank crossing](http://www.f3nws.com/n/KCNxDG)
 
-> Posted on: Tuesday, September 26, 2017 10:22:53 AM
+> Posted on: Tuesday, September 26, 2017 11:08:46 AM
