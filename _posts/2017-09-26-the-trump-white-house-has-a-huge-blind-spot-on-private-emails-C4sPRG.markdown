@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Trump White House has a huge blind spot on private emails"
-date: 2017-09-26 15:44:36Z
+date: 2017-09-26 21:26:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least a half-dozen top Trump administration officials used private email acco
 
 Full story on F3News: [The Trump White House has a huge blind spot on private emails](http://www.f3nws.com/n/C4sPRG)
 
-> Posted on: Tuesday, September 26, 2017 3:44:36 PM
+> Posted on: Tuesday, September 26, 2017 9:26:51 PM
