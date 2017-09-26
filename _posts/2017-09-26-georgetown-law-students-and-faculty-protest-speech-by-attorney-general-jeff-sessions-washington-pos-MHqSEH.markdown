@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Georgetown Law students and faculty protest speech by Attorney General Jeff Sessions - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/26/Local/Images/GEORGETOWN_156.JPG?t=20170517)
 
-Washington Post Georgetown Law students and faculty protest speech by Attorney General Jeff Sessions Washington Post Dozens of Georgetown University students gathered Tuesday on the steps of McDonough Hall to protest a speech by Attorney General Jeff Sessions. The students were joined by faculty members who initially took a knee and later linked arms. They took turns ... Sessions event on free speech met with protests The Hill Sessions defends free speech on college campuses amid Trump's NFL spat Politico Sessions says free speech 'under attack,' but defends Trump's NFL battle ABC News CNN - PBS NewsHour - CBS News - Fox News all 73 news articles »
+Washington Post Georgetown Law students and faculty protest speech by Attorney General Jeff Sessions Washington Post Dozens of Georgetown University students gathered Tuesday on the steps of McDonough Hall to protest an address from Attorney General Jeff Sessions that lambasted schools for infringing on students' free-speech rights. The students were joined by ... Sessions joins Trump in criticizing NFL players who kneel during anthem Politico Sessions event on free speech met with protests The Hill Protesters stake out Sessions' free speech event CBS News ABC News - U.S. News & World Report - PBS NewsHour - Inside Higher Ed all 124 news articles »
 
 
 Full story on F3News: [Georgetown Law students and faculty protest speech by Attorney General Jeff Sessions - Washington Post](http://www.f3nws.com/n/MHqSEH)
