@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rapper wants to prove the Earth is flat once and for all"
-date: 2017-09-26 04:10:56Z
+date: 2017-09-26 10:48:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Last year, rapper B.o.B. used Twitter to jump on the 'flat Earth' bandwagon, and
 
 Full story on F3News: [Rapper wants to prove the Earth is flat once and for all](http://www.f3nws.com/n/RPtMvD)
 
-> Posted on: Tuesday, September 26, 2017 4:10:56 AM
+> Posted on: Tuesday, September 26, 2017 10:48:14 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korea, US threats may lead to an unwanted outcome"
-date: 2017-09-26 11:10:03Z
+date: 2017-09-26 15:57:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The war of words between North Korea and the United States could be pushing the 
 
 Full story on F3News: [N Korea, US threats may lead to an unwanted outcome](http://www.f3nws.com/n/KS2kJE)
 
-> Posted on: Tuesday, September 26, 2017 11:10:03 AM
+> Posted on: Tuesday, September 26, 2017 3:57:43 PM
