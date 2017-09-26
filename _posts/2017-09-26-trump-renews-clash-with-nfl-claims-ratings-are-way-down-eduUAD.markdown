@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump renews clash with NFL, claims ratings are 'way down'"
-date: 2017-09-26 11:30:11Z
+date: 2017-09-26 12:25:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump signaled Tuesday morning that he is not backing down from
 
 Full story on F3News: [Trump renews clash with NFL, claims ratings are 'way down'](http://www.f3nws.com/n/eduUAD)
 
-> Posted on: Tuesday, September 26, 2017 11:30:11 AM
+> Posted on: Tuesday, September 26, 2017 12:25:48 PM
