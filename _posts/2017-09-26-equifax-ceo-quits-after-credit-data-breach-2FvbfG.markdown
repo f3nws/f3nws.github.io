@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Equifax CEO quits after credit data breach"
-date: 2017-09-26 14:56:04Z
+date: 2017-09-26 17:26:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Equifax CEO quits after credit data breach](http://www.f3nws.com/n/2FvbfG)
 
-> Posted on: Tuesday, September 26, 2017 2:56:04 PM
+> Posted on: Tuesday, September 26, 2017 5:26:40 PM
