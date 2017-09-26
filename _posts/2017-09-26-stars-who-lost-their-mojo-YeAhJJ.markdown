@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stars who lost their mojo"
-date: 2017-09-26 01:00:02Z
+date: 2017-09-26 04:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Stars who lost their mojo](http://www.f3nws.com/n/YeAhJJ)
 
-> Posted on: Tuesday, September 26, 2017 1:00:02 AM
+> Posted on: Tuesday, September 26, 2017 4:00:03 AM
