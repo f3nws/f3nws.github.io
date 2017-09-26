@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marc Anthony to Trump: Shut the f--- up about NFL, worry about Puerto Rico"
-date: 2017-09-26 06:00:04Z
+date: 2017-09-26 07:00:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Marc Anthony has some scathing words for Donald Trump, pleading with the preside
 
 Full story on F3News: [Marc Anthony to Trump: Shut the f--- up about NFL, worry about Puerto Rico](http://www.f3nws.com/n/kZMFrF)
 
-> Posted on: Tuesday, September 26, 2017 6:00:04 AM
+> Posted on: Tuesday, September 26, 2017 7:00:05 AM

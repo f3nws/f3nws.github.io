@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian MoD releases Idlib airstrikes footage, denies targeting populated areas (VIDEO)"
-date: 2017-09-26 02:28:03Z
+date: 2017-09-26 02:28:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Russian air force has been targeting Al Nusra-affiliated fighters in the Idlib p
 
 Full story on F3News: [Russian MoD releases Idlib airstrikes footage, denies targeting populated areas (VIDEO)](http://www.f3nws.com/n/rXFukF)
 
-> Posted on: Tuesday, September 26, 2017 2:28:03 AM
+> Posted on: Tuesday, September 26, 2017 2:28:00 AM

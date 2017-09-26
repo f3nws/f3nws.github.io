@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter explains leaving up Trump's North Korea threat     - CNET"
-date: 2017-09-26 01:58:55Z
+date: 2017-09-26 06:05:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Trump tweet apparently threatening violence allowed to stay up despite violating
 
 Full story on F3News: [Twitter explains leaving up Trump's North Korea threat     - CNET](http://www.f3nws.com/n/cTuEKG)
 
-> Posted on: Tuesday, September 26, 2017 1:58:55 AM
+> Posted on: Tuesday, September 26, 2017 6:05:27 AM
