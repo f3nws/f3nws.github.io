@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Violent arrest of alleged security van robbery gang caught on camera](http://www.abc.net.au/news/image/8987382-1x1-700x700.jpg)
 
-Several men accused of a series of armed robberies on cash-in-transit vans are denied bail after their dramatic arrests by police were caught on film on Sydney's north shore.
+Police claim a man who was stomped on and tasered by police during a violent arrest on Sydney's north shore tried to pull a gun on officers.
 
 
 Full story on F3News: [Violent arrest of alleged security van robbery gang caught on camera](http://www.f3nws.com/n/YDRGS)
