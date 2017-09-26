@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Senate won't vote on bill to repeal Obamacare, sources say"
-date: 2017-09-26 18:43:46Z
+date: 2017-09-26 20:04:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Senate will not vote on the Graham-Cassidy bill to repeal Obamacare, Majorit
 
 Full story on F3News: [US Senate won't vote on bill to repeal Obamacare, sources say](http://www.f3nws.com/n/ujHSUH)
 
-> Posted on: Tuesday, September 26, 2017 6:43:46 PM
+> Posted on: Tuesday, September 26, 2017 8:04:48 PM
