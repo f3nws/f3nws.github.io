@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Despacito' singer: Puerto Rico needs your help"
-date: 2017-09-26 00:13:29Z
+date: 2017-09-26 01:17:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Musician Daddy Yankee, who guest stars on the smash international hit "Despacito
 
 Full story on F3News: ['Despacito' singer: Puerto Rico needs your help](http://www.f3nws.com/n/rtxJSE)
 
-> Posted on: Tuesday, September 26, 2017 12:13:29 AM
+> Posted on: Tuesday, September 26, 2017 1:17:58 AM
