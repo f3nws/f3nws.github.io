@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's second biggest diamond sells for $53 million"
-date: 2017-09-26 05:10:13Z
+date: 2017-09-26 15:50:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [World's second biggest diamond sells for $53 million](http://www.f3nws.com/n/mkAutC)
 
-> Posted on: Tuesday, September 26, 2017 5:10:13 AM
+> Posted on: Tuesday, September 26, 2017 3:50:40 PM
