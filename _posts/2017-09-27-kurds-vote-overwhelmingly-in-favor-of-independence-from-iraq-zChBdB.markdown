@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kurds vote overwhelmingly in favor of independence from Iraq"
-date: 2017-09-27 14:25:16Z
+date: 2017-09-27 15:44:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi Kurds have voted overwhelmingly in favor of declaring independence from Ir
 
 Full story on F3News: [Kurds vote overwhelmingly in favor of independence from Iraq](http://www.f3nws.com/n/zChBdB)
 
-> Posted on: Wednesday, September 27, 2017 2:25:16 PM
+> Posted on: Wednesday, September 27, 2017 3:44:40 PM

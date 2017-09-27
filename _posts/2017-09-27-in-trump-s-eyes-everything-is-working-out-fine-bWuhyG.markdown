@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Trump's eyes, everything is working out fine"
-date: 2017-09-27 12:06:55Z
+date: 2017-09-27 15:54:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ While much of the American public never ceases to be amazed at the President's t
 
 Full story on F3News: [In Trump's eyes, everything is working out fine](http://www.f3nws.com/n/bWuhyG)
 
-> Posted on: Wednesday, September 27, 2017 12:06:55 PM
+> Posted on: Wednesday, September 27, 2017 3:54:29 PM
