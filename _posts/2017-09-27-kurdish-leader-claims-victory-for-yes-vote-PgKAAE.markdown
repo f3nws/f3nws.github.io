@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kurdish leader claims victory for 'yes' vote"
-date: 2017-09-27 11:14:36Z
+date: 2017-09-27 12:48:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi Kurds have voted in favor of declaring independence from Iraq in a controv
 
 Full story on F3News: [Kurdish leader claims victory for 'yes' vote](http://www.f3nws.com/n/PgKAAE)
 
-> Posted on: Wednesday, September 27, 2017 11:14:36 AM
+> Posted on: Wednesday, September 27, 2017 12:48:28 PM

@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Mattis target of failed Kabul airport rocket attack, Taliban says - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170927115244-mattis-india-super-tease.jpg)
 
-CNN Mattis target of failed Kabul airport rocket attack, Taliban says CNN (CNN) Defense Secretary James Mattis was the target of a failed rocket attack near a key Afghanistan airport Wednesday, the Taliban said, though the attack occurred after he had left the airport. Hours after Mattis landed, the rockets were fired at ... Rocket Attack Hits Kabul Airport Hours After Mattis Arrives NBCNews.com Rockets, grenades fired at Kabul airport after Mattis arrival Fox News Taliban, ISIS claim Kabul airport attack during Defense Secretary Jim Mattis visit USA TODAY Fortune - ABC News - Hindustan Times - WBAL Baltimore all 227 news articles »
+CNN Mattis target of failed Kabul airport rocket attack, Taliban says CNN (CNN) Defense Secretary James Mattis was the target of a failed rocket attack near a key Afghanistan airport Wednesday, the Taliban said, though the attack occurred after he had left the airport. Hours after Mattis landed, the rockets were fired at ... Taliban claims it targeted US defense chief's plane in attack on Kabul airport ABC News Kabul airport hit by rocket attack during visit by US defense secretary Washington Post Rocket Attack Hits Kabul Airport Hours After Mattis Arrives NBCNews.com New York Post - BBC News - New York Times - Fox News all 230 news articles »
 
 
 Full story on F3News: [Mattis target of failed Kabul airport rocket attack, Taliban says - CNN](http://www.f3nws.com/n/SKqRMF)

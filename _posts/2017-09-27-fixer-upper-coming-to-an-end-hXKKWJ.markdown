@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Fixer Upper' coming to an end"
-date: 2017-09-27 10:54:07Z
+date: 2017-09-27 12:03:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Sad news for anyone dreaming of one day having their home fixed up by Chip and J
 
 Full story on F3News: ['Fixer Upper' coming to an end](http://www.f3nws.com/n/hXKKWJ)
 
-> Posted on: Wednesday, September 27, 2017 10:54:07 AM
+> Posted on: Wednesday, September 27, 2017 12:03:55 PM
