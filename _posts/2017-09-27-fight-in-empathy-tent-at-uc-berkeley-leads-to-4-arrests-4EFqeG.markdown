@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fight in 'empathy tent' at UC Berkeley leads to 4 arrests"
-date: 2017-09-27 11:00:10Z
+date: 2017-09-27 13:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ So much for empathy. Members of opposing political groups clashed Tuesday inside
 
 Full story on F3News: [Fight in 'empathy tent' at UC Berkeley leads to 4 arrests](http://www.f3nws.com/n/4EFqeG)
 
-> Posted on: Wednesday, September 27, 2017 11:00:10 AM
+> Posted on: Wednesday, September 27, 2017 1:00:03 PM

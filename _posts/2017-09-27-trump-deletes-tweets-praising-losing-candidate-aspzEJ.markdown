@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump deletes tweets praising losing candidate"
-date: 2017-09-27 10:19:15Z
+date: 2017-09-27 11:23:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's most recent tweets urging Alabamans to vote for Sen. Lu
 
 Full story on F3News: [Trump deletes tweets praising losing candidate](http://www.f3nws.com/n/aspzEJ)
 
-> Posted on: Wednesday, September 27, 2017 10:19:15 AM
+> Posted on: Wednesday, September 27, 2017 11:23:50 AM
