@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "97% of Puerto Ricans still have no power, people are drinking from streams and food is rationed"
-date: 2017-09-27 16:35:18Z
+date: 2017-09-27 20:08:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a week of misery, millions of Puerto Ricans are still suffering in primiti
 
 Full story on F3News: [97% of Puerto Ricans still have no power, people are drinking from streams and food is rationed](http://www.f3nws.com/n/k3ErxE)
 
-> Posted on: Wednesday, September 27, 2017 4:35:18 PM
+> Posted on: Wednesday, September 27, 2017 8:08:27 PM
