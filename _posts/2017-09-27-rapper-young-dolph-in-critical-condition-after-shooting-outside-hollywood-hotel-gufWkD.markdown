@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rapper Young Dolph in critical condition after shooting outside Hollywood hotel"
-date: 2017-09-27 08:30:09Z
+date: 2017-09-27 09:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Tennessee rapper is in critical condition Tuesday after being shot outside hot
 
 Full story on F3News: [Rapper Young Dolph in critical condition after shooting outside Hollywood hotel](http://www.f3nws.com/n/gufWkD)
 
-> Posted on: Wednesday, September 27, 2017 8:30:09 AM
+> Posted on: Wednesday, September 27, 2017 9:30:02 AM
