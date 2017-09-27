@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, GOP tax plan would cut rates for many Americans"
-date: 2017-09-27 12:04:00Z
+date: 2017-09-27 14:14:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump and congressional Republicans are pro
 
 Full story on F3News: [Trump, GOP tax plan would cut rates for many Americans](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, September 27, 2017 12:04:00 PM
+> Posted on: Wednesday, September 27, 2017 2:14:00 PM
