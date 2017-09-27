@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DirecTV said to offer refunds over NFL anthem controversy     - CNET"
-date: 2017-09-27 02:20:04Z
+date: 2017-09-27 03:26:40Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Sunday Ticket subscribers upset over players' pregame protests are getting their
 
 Full story on F3News: [DirecTV said to offer refunds over NFL anthem controversy     - CNET](http://www.f3nws.com/n/XSYKsC)
 
-> Posted on: Wednesday, September 27, 2017 2:20:04 AM
+> Posted on: Wednesday, September 27, 2017 3:26:40 AM
