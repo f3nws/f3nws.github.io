@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France-Germany rail merger to take on China"
-date: 2017-09-27 04:02:47Z
+date: 2017-09-27 09:27:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [France-Germany rail merger to take on China](http://www.f3nws.com/n/rFSe4F)
 
-> Posted on: Wednesday, September 27, 2017 4:02:47 AM
+> Posted on: Wednesday, September 27, 2017 9:27:40 AM
