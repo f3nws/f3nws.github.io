@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "YouTube vanishes from Amazon's Echo Show     - CNET"
-date: 2017-09-27 03:19:59Z
+date: 2017-09-27 04:15:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Amazon and Google are apparently locked in a dispute over how the video site's c
 
 Full story on F3News: [YouTube vanishes from Amazon's Echo Show     - CNET](http://www.f3nws.com/n/sXmsPB)
 
-> Posted on: Wednesday, September 27, 2017 3:19:59 AM
+> Posted on: Wednesday, September 27, 2017 4:15:52 AM
