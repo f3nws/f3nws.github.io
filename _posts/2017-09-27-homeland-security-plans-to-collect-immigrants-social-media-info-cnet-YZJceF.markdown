@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Homeland Security plans to collect immigrants’ social media info     - CNET"
-date: 2017-09-27 00:52:20Z
+date: 2017-09-27 01:10:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The rule, which would take effect Oct. 18, would allow the agency to collect inf
 
 Full story on F3News: [Homeland Security plans to collect immigrants’ social media info     - CNET](http://www.f3nws.com/n/YZJceF)
 
-> Posted on: Wednesday, September 27, 2017 12:52:20 AM
+> Posted on: Wednesday, September 27, 2017 1:10:52 AM

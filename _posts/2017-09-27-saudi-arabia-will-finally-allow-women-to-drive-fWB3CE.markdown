@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia will finally allow women to drive"
-date: 2017-09-27 00:13:24Z
+date: 2017-09-27 01:56:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia is easing restrictions on women driving, finally allowing almost ha
 
 Full story on F3News: [Saudi Arabia will finally allow women to drive](http://www.f3nws.com/n/fWB3CE)
 
-> Posted on: Wednesday, September 27, 2017 12:13:24 AM
+> Posted on: Wednesday, September 27, 2017 1:56:55 AM
