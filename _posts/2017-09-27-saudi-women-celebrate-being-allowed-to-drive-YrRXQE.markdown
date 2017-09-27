@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi women celebrate being allowed to drive"
-date: 2017-09-27 13:25:27Z
+date: 2017-09-27 16:08:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Women in Saudi Arabia have been celebrating the news that they will finally be a
 
 Full story on F3News: [Saudi women celebrate being allowed to drive](http://www.f3nws.com/n/YrRXQE)
 
-> Posted on: Wednesday, September 27, 2017 1:25:27 PM
+> Posted on: Wednesday, September 27, 2017 4:08:08 PM

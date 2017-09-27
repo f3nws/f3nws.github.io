@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best graphics cards 2017: top GPUs for your PC"
-date: 2017-09-27 13:47:00Z
+date: 2017-09-27 15:54:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ All the best graphics cards or best GPUs in one place – always up to date and 
 
 Full story on F3News: [The best graphics cards 2017: top GPUs for your PC](http://www.f3nws.com/n/qgrtXC)
 
-> Posted on: Wednesday, September 27, 2017 1:47:00 PM
+> Posted on: Wednesday, September 27, 2017 3:54:00 PM
