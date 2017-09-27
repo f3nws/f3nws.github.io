@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Defense Secretary arrives in Kabul"
-date: 2017-09-27 09:40:04Z
+date: 2017-09-27 10:33:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Defense Secretary James Mattis made an unannounced visit to Kabul, Afghanista
 
 Full story on F3News: [US Defense Secretary arrives in Kabul](http://www.f3nws.com/n/SKqRMF)
 
-> Posted on: Wednesday, September 27, 2017 9:40:04 AM
+> Posted on: Wednesday, September 27, 2017 10:33:19 AM
