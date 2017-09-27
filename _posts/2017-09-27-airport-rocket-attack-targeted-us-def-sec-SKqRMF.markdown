@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Airport rocket attack targeted US Def Sec"
-date: 2017-09-27 11:13:00Z
+date: 2017-09-27 19:04:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Defense Secretary James Mattis made an unannounced visit to Kabul, Afghanista
 
 Full story on F3News: [Airport rocket attack targeted US Def Sec](http://www.f3nws.com/n/SKqRMF)
 
-> Posted on: Wednesday, September 27, 2017 11:13:00 AM
+> Posted on: Wednesday, September 27, 2017 7:04:06 PM
