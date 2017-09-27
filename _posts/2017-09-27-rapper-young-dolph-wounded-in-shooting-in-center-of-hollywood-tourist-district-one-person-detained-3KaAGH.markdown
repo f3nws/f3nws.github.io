@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Rapper Young Dolph wounded in shooting in center of Hollywood tourist district; one person detained - Los Angeles Times](http://www.trbimg.com/img-59cb0858/turbine/la-me-ln-hollywood-store-shooting-20170926)
 
-Los Angeles Times Rapper Young Dolph wounded in shooting in center of Hollywood tourist district; one person detained Los Angeles Times A hip-hop artist was wounded in a shooting that sent police and paramedics flooding into Hollywood Boulevard's tourist center Tuesday afternoon. Young Dolph, 32, was shot multiple times when an argument with three men outside the Loews Hollywood ... Young Dolph Shot Multiple Times in Hollywood: Report Billboard Yo Gotti Person of Interest In Young Dolph Shooting TMZ.com Rapper Young Dolph hospitalized after being hit multiple times in Hollywood shooting New York Daily News Pitchfork - USA TODAY - Vibe - Hollywood Life all 75 news articles »
+Los Angeles Times Rapper Young Dolph wounded in shooting in center of Hollywood tourist district; one person detained Los Angeles Times A hip-hop artist was wounded in a shooting that sent police and paramedics flooding into Hollywood Boulevard's tourist center Tuesday afternoon. Young Dolph, 32, was shot multiple times when an argument with three men outside the Loews Hollywood ... Young Dolph Shot Multiple Times in Hollywood: Report Billboard Yo Gotti Person of Interest In Young Dolph Shooting TMZ.com Official: Rapper Young Dolph shot outside landmark Hollywood hotel USA TODAY New York Daily News - Pitchfork - MTV.com - Vibe all 78 news articles »
 
 
 Full story on F3News: [Rapper Young Dolph wounded in shooting in center of Hollywood tourist district; one person detained - Los Angeles Times](http://www.f3nws.com/n/3KaAGH)

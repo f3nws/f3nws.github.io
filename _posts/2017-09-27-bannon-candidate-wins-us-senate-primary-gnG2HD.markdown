@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon-candidate wins US Senate primary"
-date: 2017-09-27 02:20:35Z
+date: 2017-09-27 03:21:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Roy Moore, the bombastic evangelical Christian who was twice ousted as Alabama's
 
 Full story on F3News: [Bannon-candidate wins US Senate primary](http://www.f3nws.com/n/gnG2HD)
 
-> Posted on: Wednesday, September 27, 2017 2:20:35 AM
+> Posted on: Wednesday, September 27, 2017 3:21:07 AM

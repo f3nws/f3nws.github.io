@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'He was on his deathbed': Otto Warmbier's father"
-date: 2017-09-27 02:20:19Z
+date: 2017-09-27 03:23:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It has taken nearly three months for Cindy and Fred Warmbier to reveal specific 
 
 Full story on F3News: ['He was on his deathbed': Otto Warmbier's father](http://www.f3nws.com/n/sjKhd)
 
-> Posted on: Wednesday, September 27, 2017 2:20:19 AM
+> Posted on: Wednesday, September 27, 2017 3:23:13 AM
