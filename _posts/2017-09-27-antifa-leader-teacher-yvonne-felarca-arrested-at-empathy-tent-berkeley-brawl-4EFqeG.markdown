@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Antifa leader, teacher Yvonne Felarca arrested at 'empathy tent' Berkeley brawl"
-date: 2017-09-27 18:30:06Z
+date: 2017-09-27 19:00:07Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A middle school teacher-turned-Antifa leader was among the four people arrested 
 
 Full story on F3News: [Antifa leader, teacher Yvonne Felarca arrested at 'empathy tent' Berkeley brawl](http://www.f3nws.com/n/4EFqeG)
 
-> Posted on: Wednesday, September 27, 2017 6:30:06 PM
+> Posted on: Wednesday, September 27, 2017 7:00:07 PM

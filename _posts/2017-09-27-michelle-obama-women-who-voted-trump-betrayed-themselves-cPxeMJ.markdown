@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michelle Obama: Women who voted Trump betrayed themselves"
-date: 2017-09-27 17:56:39Z
+date: 2017-09-27 18:54:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In candid remarks Wednesday, former first lady Michelle Obama said women who vot
 
 Full story on F3News: [Michelle Obama: Women who voted Trump betrayed themselves](http://www.f3nws.com/n/cPxeMJ)
 
-> Posted on: Wednesday, September 27, 2017 5:56:39 PM
+> Posted on: Wednesday, September 27, 2017 6:54:37 PM
