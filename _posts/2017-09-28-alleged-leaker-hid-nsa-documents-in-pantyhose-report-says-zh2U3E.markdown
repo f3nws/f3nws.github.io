@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alleged leaker hid NSA documents in pantyhose, report says"
-date: 2017-09-28 13:00:04Z
+date: 2017-09-28 16:08:59Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A former National Security Agency contractor has reportedly told federal authori
 
 Full story on F3News: [Alleged leaker hid NSA documents in pantyhose, report says](http://www.f3nws.com/n/zh2U3E)
 
-> Posted on: Thursday, September 28, 2017 1:00:04 PM
+> Posted on: Thursday, September 28, 2017 4:08:59 PM
