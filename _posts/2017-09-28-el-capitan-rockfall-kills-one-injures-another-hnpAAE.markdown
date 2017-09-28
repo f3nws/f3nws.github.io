@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "El Capitan rockfall kills one, injures another"
-date: 2017-09-28 07:01:53Z
+date: 2017-09-28 15:46:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least one person was killed and another injured after a rockfall on El Capita
 
 Full story on F3News: [El Capitan rockfall kills one, injures another](http://www.f3nws.com/n/hnpAAE)
 
-> Posted on: Thursday, September 28, 2017 7:01:53 AM
+> Posted on: Thursday, September 28, 2017 3:46:23 PM

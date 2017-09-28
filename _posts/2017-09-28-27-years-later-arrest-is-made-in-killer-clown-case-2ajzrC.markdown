@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "27 years later, arrest is made in killer-clown case"
-date: 2017-09-28 11:26:00Z
+date: 2017-09-28 11:53:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WEST PALM BEACH, Fla. (AP) — On a May morning in 1990, Marlene Warren answered
 
 Full story on F3News: [27 years later, arrest is made in killer-clown case](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 28, 2017 11:26:00 AM
+> Posted on: Thursday, September 28, 2017 11:53:00 AM
