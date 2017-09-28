@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hugh Hefner, Playboy founder, dead at 91"
-date: 2017-09-28 12:39:00Z
+date: 2017-09-28 14:39:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hugh Hefner, the founder of Playboy magazine, died Wednesday at the Playboy Mans
 
 Full story on F3News: [Hugh Hefner, Playboy founder, dead at 91](http://www.f3nws.com/n/bazzEB)
 
-> Posted on: Thursday, September 28, 2017 12:39:00 PM
+> Posted on: Thursday, September 28, 2017 2:39:00 PM

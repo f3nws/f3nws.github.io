@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Twitter, With Accounts Linked to Russia, to Face Congress Over Role in Election - New York Times](https://static01.nyt.com/images/2017/09/28/business/28TWITTER1/28TWITTER1-facebookJumbo.jpg)
 
-New York Times Twitter, With Accounts Linked to Russia, to Face Congress Over Role in Election New York Times Twitter will brief staff members of the Senate and House intelligence committees on Thursday for their investigation into Russian operations to influence the 2016 presidential election. Credit Justin Sullivan/Getty Images. SAN FRANCISCO — After a ... Twitter takes its turn in the Russian probe spotlight Politico Technology Companies Face Growing Questions in Russia Probe NBCNews.com Jack Dorsey Takes His Turn in the Russia Probe Barrel Vanity Fair Slate Magazine (blog) - Reuters - U.S. News & World Report - Bloomberg all 338 news articles »
+New York Times Twitter, With Accounts Linked to Russia, to Face Congress Over Role in Election New York Times Twitter will brief staff members of the Senate and House intelligence committees on Thursday for their investigation into Russian operations to influence the 2016 presidential election. Credit Justin Sullivan/Getty Images. SAN FRANCISCO — After a ... Twitter takes its turn in the Russian probe spotlight Politico As Scrutiny Of Social Networks Grows, Influence Attacks Continue In Real Time NPR Junk news and Russian misinformation flooded Twitter during the 2016 election Recode NBCNews.com - Vanity Fair - Slate Magazine (blog) - Reuters all 344 news articles »
 
 
 Full story on F3News: [Twitter, With Accounts Linked to Russia, to Face Congress Over Role in Election - New York Times](http://www.f3nws.com/n/Ja4M3D)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump waives obscure shipping law to help Puerto Rico"
-date: 2017-09-28 13:41:07Z
+date: 2017-09-28 14:38:45Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House has authorized a waiver to loosen shipping rules regarding Puert
 
 Full story on F3News: [Trump waives obscure shipping law to help Puerto Rico](http://www.f3nws.com/n/3uZmXD)
 
-> Posted on: Thursday, September 28, 2017 1:41:07 PM
+> Posted on: Thursday, September 28, 2017 2:38:45 PM
