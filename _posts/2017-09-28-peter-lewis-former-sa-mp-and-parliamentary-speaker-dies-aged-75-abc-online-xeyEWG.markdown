@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peter Lewis, former SA MP and parliamentary speaker, dies aged 75 - ABC Online"
-date: 2017-09-28 02:57:13Z
+date: 2017-09-28 03:19:55Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Peter Lewis, former SA MP and parliamentary speaker, dies aged 75 ABC
 
 Full story on F3News: [Peter Lewis, former SA MP and parliamentary speaker, dies aged 75 - ABC Online](http://www.f3nws.com/n/xeyEWG)
 
-> Posted on: Thursday, September 28, 2017 2:57:13 AM
+> Posted on: Thursday, September 28, 2017 3:19:55 AM

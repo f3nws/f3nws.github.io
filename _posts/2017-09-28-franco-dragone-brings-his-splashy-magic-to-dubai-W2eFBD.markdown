@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Franco Dragone brings his splashy magic to Dubai"
-date: 2017-09-28 05:25:53Z
+date: 2017-09-28 06:31:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ You may not know his name, but you've undoubtedly heard of his shows.
 
 Full story on F3News: [Franco Dragone brings his splashy magic to Dubai](http://www.f3nws.com/n/W2eFBD)
 
-> Posted on: Thursday, September 28, 2017 5:25:53 AM
+> Posted on: Thursday, September 28, 2017 6:31:16 AM
