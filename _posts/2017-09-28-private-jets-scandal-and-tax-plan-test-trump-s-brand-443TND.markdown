@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Private jets scandal and tax plan test Trump's brand"
-date: 2017-09-28 06:20:03Z
+date: 2017-09-28 13:40:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump's self styling as the people's champion who would drain the Washing
 
 Full story on F3News: [Private jets scandal and tax plan test Trump's brand](http://www.f3nws.com/n/443TND)
 
-> Posted on: Thursday, September 28, 2017 6:20:03 AM
+> Posted on: Thursday, September 28, 2017 1:40:23 PM
