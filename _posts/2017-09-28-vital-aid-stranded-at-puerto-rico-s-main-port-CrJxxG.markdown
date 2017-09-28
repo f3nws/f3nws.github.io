@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vital aid stranded at Puerto Rico's main port"
-date: 2017-09-28 14:51:37Z
+date: 2017-09-28 15:21:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mountain of food, water and other vital supplies has arrived in Puerto Rico's 
 
 Full story on F3News: [Vital aid stranded at Puerto Rico's main port](http://www.f3nws.com/n/CrJxxG)
 
-> Posted on: Thursday, September 28, 2017 2:51:37 PM
+> Posted on: Thursday, September 28, 2017 3:21:56 PM
