@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Hugh Hefner dies aged 91](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Playboy founder Hugh Hefner dies aged 91, the magazine confirms.
+The pipe-smoking, silk-pyjama-wearing World War II veteran and journalist, whose Playboy brand defined the sexual culture of the second half of the 20th century, dies in his home surrounded by family.
 
 
 Full story on F3News: [Hugh Hefner dies aged 91](http://www.f3nws.com/n/ndATMF)

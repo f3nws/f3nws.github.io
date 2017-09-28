@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Alabama defeat leaves Trump weakened, isolated amid mounting challenges - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/27/National-Politics/Images/US_Senate_Alabama_31486-af6f1.jpg?t=20170517)
 
-Washington Post Alabama defeat leaves Trump weakened, isolated amid mounting challenges Washington Post As he headed to Huntsville, Ala., in a last-ditch effort to lift the floundering campaign of Sen. Luther Strange, President Trump was fuming — feeling dragged along by GOP senators who had pleaded with him to go and increasingly unenthusiastic about ... Roy Moore's Alabama Victory Sets Off Talk of a GOP Insurrection New York Times Senate Republicans confront the enemy Politico Conservative victory in Alabama deepens split among Republicans, as insurgents challenge incumbent senators Los Angeles Times NBCNews.com - The Hill - Slate Magazine (blog) - BBC News all 927 news articles »
+Washington Post Alabama defeat leaves Trump weakened, isolated amid mounting challenges Washington Post As he headed to Huntsville, Ala., in a last-ditch effort to lift the floundering campaign of Sen. Luther Strange, President Trump was fuming — feeling dragged along by GOP senators who had pleaded with him to go and increasingly unenthusiastic about ... Roy Moore's Alabama Victory Sets Off Talk of a GOP Insurrection New York Times Senate Republicans confront the enemy Politico McConnell, GOP Senate brace for Roy Moore The Hill Los Angeles Times - NBCNews.com - BBC News - Slate Magazine (blog) all 937 news articles »
 
 
 Full story on F3News: [Alabama defeat leaves Trump weakened, isolated amid mounting challenges - Washington Post](http://www.f3nws.com/n/DgkUxB)
