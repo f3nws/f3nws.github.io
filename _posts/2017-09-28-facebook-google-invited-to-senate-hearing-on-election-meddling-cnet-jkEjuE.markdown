@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook, Google invited to Senate hearing on election meddling     - CNET"
-date: 2017-09-28 01:20:33Z
+date: 2017-09-28 05:19:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Hearing details emerge as Twitter accounts linked to Russia are found pushing bo
 
 Full story on F3News: [Facebook, Google invited to Senate hearing on election meddling     - CNET](http://www.f3nws.com/n/jkEjuE)
 
-> Posted on: Thursday, September 28, 2017 1:20:33 AM
+> Posted on: Thursday, September 28, 2017 5:19:30 AM
