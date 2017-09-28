@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US economic growth revised up to 3.1 percent rate in Q2"
-date: 2017-09-28 09:05:00Z
+date: 2017-09-28 13:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The U.S. economy grew at an upgraded annual rate of 3.1 perc
 
 Full story on F3News: [US economic growth revised up to 3.1 percent rate in Q2](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, September 28, 2017 9:05:00 AM
+> Posted on: Thursday, September 28, 2017 1:43:00 PM

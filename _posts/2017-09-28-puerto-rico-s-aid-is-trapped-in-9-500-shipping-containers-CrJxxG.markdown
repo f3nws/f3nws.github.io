@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico's aid is trapped in 9,500 shipping containers"
-date: 2017-09-28 15:21:56Z
+date: 2017-09-28 17:48:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mountain of food, water and other vital supplies has arrived in Puerto Rico's 
 
 Full story on F3News: [Puerto Rico's aid is trapped in 9,500 shipping containers](http://www.f3nws.com/n/CrJxxG)
 
-> Posted on: Thursday, September 28, 2017 3:21:56 PM
+> Posted on: Thursday, September 28, 2017 5:48:31 PM
