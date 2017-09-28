@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on NFL owners: 'I think they're afraid of their players'"
-date: 2017-09-28 14:52:01Z
+date: 2017-09-28 21:36:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump believes NFL owners are "afraid of their players" when it
 
 Full story on F3News: [Trump on NFL owners: 'I think they're afraid of their players'](http://www.f3nws.com/n/AHjctF)
 
-> Posted on: Thursday, September 28, 2017 2:52:01 PM
+> Posted on: Thursday, September 28, 2017 9:36:02 PM

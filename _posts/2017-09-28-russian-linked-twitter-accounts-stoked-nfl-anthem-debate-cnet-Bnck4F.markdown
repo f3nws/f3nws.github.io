@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian-linked Twitter accounts stoked NFL anthem debate     - CNET"
-date: 2017-09-28 19:36:08Z
+date: 2017-09-28 21:55:37Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Researchers find 600 accounts linked to Russian influence operations pushing bot
 
 Full story on F3News: [Russian-linked Twitter accounts stoked NFL anthem debate     - CNET](http://www.f3nws.com/n/Bnck4F)
 
-> Posted on: Thursday, September 28, 2017 7:36:08 PM
+> Posted on: Thursday, September 28, 2017 9:55:37 PM
