@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Otto Warmbier had 'no obvious signs of torture' -- coroner"
-date: 2017-09-28 13:09:21Z
+date: 2017-09-28 13:37:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Details surrounding Otto Warmbier, the 22-year-old American student who died in 
 
 Full story on F3News: [Otto Warmbier had 'no obvious signs of torture' -- coroner](http://www.f3nws.com/n/FVGKTD)
 
-> Posted on: Thursday, September 28, 2017 1:09:21 PM
+> Posted on: Thursday, September 28, 2017 1:37:16 PM
