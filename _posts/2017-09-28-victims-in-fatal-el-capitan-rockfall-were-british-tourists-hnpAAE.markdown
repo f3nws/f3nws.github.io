@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims in fatal El Capitan rockfall were British tourists"
-date: 2017-09-28 15:46:23Z
+date: 2017-09-28 20:16:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One British tourist was killed and another was injured after a series of rockfal
 
 Full story on F3News: [Victims in fatal El Capitan rockfall were British tourists](http://www.f3nws.com/n/hnpAAE)
 
-> Posted on: Thursday, September 28, 2017 3:46:23 PM
+> Posted on: Thursday, September 28, 2017 8:16:39 PM
