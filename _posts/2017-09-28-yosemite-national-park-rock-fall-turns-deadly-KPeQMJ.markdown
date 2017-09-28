@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yosemite National Park rock fall turns deadly"
-date: 2017-09-28 00:45:00Z
+date: 2017-09-28 02:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Officials at Yosemite National Park said one person was killed Wednesday and a s
 
 Full story on F3News: [Yosemite National Park rock fall turns deadly](http://www.f3nws.com/n/KPeQMJ)
 
-> Posted on: Thursday, September 28, 2017 12:45:00 AM
+> Posted on: Thursday, September 28, 2017 2:00:00 AM
