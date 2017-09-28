@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Playboy founder Hugh Hefner dead at 91"
-date: 2017-09-28 06:58:52Z
+date: 2017-09-28 10:29:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Playboy founder Hugh Hefner dead at 91](http://www.f3nws.com/n/vGbPsC)
 
-> Posted on: Thursday, September 28, 2017 6:58:52 AM
+> Posted on: Thursday, September 28, 2017 10:29:48 AM
