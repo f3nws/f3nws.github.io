@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tributes pour in for Playboy founder"
-date: 2017-09-28 06:09:28Z
+date: 2017-09-28 07:39:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tributes pour in for Playboy founder](http://www.f3nws.com/n/Xzbr4E)
 
-> Posted on: Thursday, September 28, 2017 6:09:28 AM
+> Posted on: Thursday, September 28, 2017 7:39:47 AM
