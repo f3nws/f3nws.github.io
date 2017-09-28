@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Julia Louis-Dreyfus has breast cancer"
-date: 2017-09-28 18:32:34Z
+date: 2017-09-28 19:24:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Julia Louis-Dreyfus announced she has breast cancer in a post on her official Tw
 
 Full story on F3News: [Julia Louis-Dreyfus has breast cancer](http://www.f3nws.com/n/ChEvZH)
 
-> Posted on: Thursday, September 28, 2017 6:32:34 PM
+> Posted on: Thursday, September 28, 2017 7:24:12 PM
