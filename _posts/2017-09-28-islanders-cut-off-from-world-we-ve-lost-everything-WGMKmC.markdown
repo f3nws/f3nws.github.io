@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Islanders cut off from world: 'We've lost everything'"
-date: 2017-09-28 11:28:46Z
+date: 2017-09-28 12:04:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The island of Vieques is just seven miles from Puerto Rico. Right now, it might 
 
 Full story on F3News: [Islanders cut off from world: 'We've lost everything'](http://www.f3nws.com/n/WGMKmC)
 
-> Posted on: Thursday, September 28, 2017 11:28:46 AM
+> Posted on: Thursday, September 28, 2017 12:04:38 PM

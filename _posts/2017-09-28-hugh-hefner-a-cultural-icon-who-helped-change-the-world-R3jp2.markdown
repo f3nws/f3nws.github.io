@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hugh Hefner: A cultural icon who helped change the world"
-date: 2017-09-28 05:47:11Z
+date: 2017-09-28 12:29:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hugh Hefner lived long enough to see Playboy, the magazine he created, temporari
 
 Full story on F3News: [Hugh Hefner: A cultural icon who helped change the world](http://www.f3nws.com/n/R3jp2)
 
-> Posted on: Thursday, September 28, 2017 5:47:11 AM
+> Posted on: Thursday, September 28, 2017 12:29:21 PM
