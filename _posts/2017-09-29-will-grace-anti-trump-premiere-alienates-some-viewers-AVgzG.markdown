@@ -5,7 +5,7 @@ date: 2017-09-29 18:24:00Z
 categories: fox-news
 ---
 
-The premiere episode of NBC’s reincarnated “Will & Grace” was essentially a 30-minute anti-Trump infomercial on Thursday night and conservatives have taken notice.
+The premiere episode of NBC’s reincarnated “Will & Grace” was essentially a 30-minute anti-Trump infomercial on Thursday night and conservatives have taken notice..
 
 
 Full story on F3News: ['Will & Grace' anti-Trump premiere alienates some viewers](http://www.f3nws.com/n/AVgzG)
