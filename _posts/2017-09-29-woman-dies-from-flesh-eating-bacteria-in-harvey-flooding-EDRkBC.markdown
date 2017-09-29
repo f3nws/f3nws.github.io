@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman dies from flesh-eating bacteria in Harvey flooding"
-date: 2017-09-29 01:55:46Z
+date: 2017-09-29 07:00:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Four weeks after the storm, Hurricane Harvey's destruction continues. A recent v
 
 Full story on F3News: [Woman dies from flesh-eating bacteria in Harvey flooding](http://www.f3nws.com/n/EDRkBC)
 
-> Posted on: Friday, September 29, 2017 1:55:46 AM
+> Posted on: Friday, September 29, 2017 7:00:36 AM
