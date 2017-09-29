@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![DOJ demands Facebook information from 'anti-administration activists' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170906143148-facebook-ads-super-tease.jpg)
 
-CNN DOJ demands Facebook information from 'anti-administration activists' CNN Washington (CNN) Trump administration lawyers are demanding the private account information of potentially thousands of Facebook users in three separate search warrants served on the social media giant, according to court documents obtained by CNN. DOJ Wants Anti-Trump Facebook Users' Info U.S. News & World Report Justice Dept asks Facebook for private info from anti-Trump groups in warrants The Hill (blog) The Trump Administration Is Targeting Anti-Trump Facebook Users Fortune New York Daily News - BuzzFeed News - New York Post - The Independent all 20 news articles »
+CNN DOJ demands Facebook information from 'anti-administration activists' CNN Washington (CNN) Trump administration lawyers are demanding the private account information of potentially thousands of Facebook users in three separate search warrants served on the social media giant, according to court documents obtained by CNN. Feds Demand Facebook Share Information on Anti-Trump Protesters NBCNews.com DOJ Wants Anti-Trump Facebook Users' Info U.S. News & World Report The Trump Administration Is Targeting Anti-Trump Facebook Users Fortune The Hill (blog) - New York Daily News - New York Post - BuzzFeed News all 30 news articles »
 
 
 Full story on F3News: [DOJ demands Facebook information from 'anti-administration activists' - CNN](http://www.f3nws.com/n/rxvxQC)

@@ -5,7 +5,7 @@ date: 2017-09-29 13:46:00Z
 categories: fox-news
 ---
 
-The U.S. has stopped issuing visas in Cuba indefinitely, while halting official delegation travel and taking several other steps in response to attacks on U.S. personnel, the Associated Press reported Friday.
+The U.S. is pulling embassy staff from Cuba, warning against travel to the island and taking other measures in the wake of mysterious attacks on American diplomats.
 
 
 Full story on F3News: [US stops issuing visas in Cuba, cuts embassy staff, urges no travel to island](http://www.f3nws.com/n/tUpRuG)

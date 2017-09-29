@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mom accused of leaving kids during European vacation appears in court - KCCI Des Moines](https://hips.htvapps.com/htv-prod-media.s3.amazonaws.com/images/erin-macke-1506694638.jpg?crop=0.963xw:1.00xh;0.0195xw,0&resize=1200:*)
 
-KCCI Des Moines Mom accused of leaving kids during European vacation appears in court KCCI Des Moines A Johnston woman faces multiple charges after police said she left her four children home alone while taking a trip to Europe. Erin Lee Macke, 30, is charged with four counts of child endangerment – substantial risk, and one count of transfer of pistol ... Mom leaves kids home alone for trip to Europe, police say WSB Atlanta all 34 news articles »
+KCCI Des Moines Mom accused of leaving kids during European vacation appears in court KCCI Des Moines A Johnston woman faces multiple charges after police said she left her four children home alone while taking a trip to Europe. Erin Lee Macke, 30, is charged with four counts of child endangerment – substantial risk, and one count of transfer of pistol ... This mother wanted to vacation in Europe, so she did — and left her 4 kids home alone, police say Sacramento Bee Mum leaves four young kids to fend for themselves while she goes on holiday Yahoo7 News all 37 news articles »
 
 
 Full story on F3News: [Mom accused of leaving kids during European vacation appears in court - KCCI Des Moines](http://www.f3nws.com/n/WCNBGD)

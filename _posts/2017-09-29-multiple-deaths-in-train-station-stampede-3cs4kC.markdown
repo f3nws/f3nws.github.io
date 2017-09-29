@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Multiple deaths in train station stampede"
-date: 2017-09-29 10:34:20Z
+date: 2017-09-29 16:00:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 22 people have been killed and 35 injured in a stampede at a train stat
 
 Full story on F3News: [Multiple deaths in train station stampede](http://www.f3nws.com/n/3cs4kC)
 
-> Posted on: Friday, September 29, 2017 10:34:20 AM
+> Posted on: Friday, September 29, 2017 4:00:08 PM
