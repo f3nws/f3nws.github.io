@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beyond the propaganda posters: Everyday design in North Korea"
-date: 2017-09-29 01:34:18Z
+date: 2017-09-29 02:27:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The few examples of North Korean design seen by those outside the secretive stat
 
 Full story on F3News: [Beyond the propaganda posters: Everyday design in North Korea](http://www.f3nws.com/n/hfdMhE)
 
-> Posted on: Friday, September 29, 2017 1:34:18 AM
+> Posted on: Friday, September 29, 2017 2:27:42 AM

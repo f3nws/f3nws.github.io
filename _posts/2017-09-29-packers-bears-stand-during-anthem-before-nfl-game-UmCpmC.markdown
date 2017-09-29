@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Packers, Bears stand during anthem before NFL game"
-date: 2017-09-29 00:49:00Z
+date: 2017-09-29 02:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Every player on both sides of the field stood during the national anthem ahead o
 
 Full story on F3News: [Packers, Bears stand during anthem before NFL game](http://www.f3nws.com/n/UmCpmC)
 
-> Posted on: Friday, September 29, 2017 12:49:00 AM
+> Posted on: Friday, September 29, 2017 2:00:00 AM

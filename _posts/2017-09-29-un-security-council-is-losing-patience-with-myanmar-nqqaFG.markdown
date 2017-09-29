@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN Security Council is losing patience with Myanmar"
-date: 2017-09-29 00:20:54Z
+date: 2017-09-29 01:59:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Though heavy violence has driven hundreds of thousands of Rohingya Muslims to fl
 
 Full story on F3News: [UN Security Council is losing patience with Myanmar](http://www.f3nws.com/n/nqqaFG)
 
-> Posted on: Friday, September 29, 2017 12:20:54 AM
+> Posted on: Friday, September 29, 2017 1:59:45 AM
