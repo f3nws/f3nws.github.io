@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Elon Musk wants to fly you anywhere in the world in less than an hour"
-date: 2017-09-29 09:58:37Z
+date: 2017-09-29 12:11:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Elon Musk wants to fly you anywhere in the world in less than an hour](http://www.f3nws.com/n/WApyFB)
 
-> Posted on: Friday, September 29, 2017 9:58:37 AM
+> Posted on: Friday, September 29, 2017 12:11:45 PM
