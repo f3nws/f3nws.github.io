@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hefner legacy has a dark side"
-date: 2017-09-29 07:01:29Z
+date: 2017-09-29 10:42:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In remembering Hugh Hefner, who has died at 91, many are talking about his contr
 
 Full story on F3News: [Hefner legacy has a dark side](http://www.f3nws.com/n/MesVTE)
 
-> Posted on: Friday, September 29, 2017 7:01:29 AM
+> Posted on: Friday, September 29, 2017 10:42:15 AM
