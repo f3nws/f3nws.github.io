@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FAA restricts drone usage over some US landmarks     - CNET"
-date: 2017-09-29 00:01:48Z
+date: 2017-09-29 05:43:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Federal Aviation Administration says drones can't fly within 400 feet of the
 
 Full story on F3News: [FAA restricts drone usage over some US landmarks     - CNET](http://www.f3nws.com/n/kxuTk)
 
-> Posted on: Friday, September 29, 2017 12:01:48 AM
+> Posted on: Friday, September 29, 2017 5:43:05 AM
