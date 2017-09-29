@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Entire island evacuated as volcanoes rumble"
-date: 2017-09-29 04:07:12Z
+date: 2017-09-29 05:18:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of people have been evacuated on the Indonesian island of Bali and on 
 
 Full story on F3News: [Entire island evacuated as volcanoes rumble](http://www.f3nws.com/n/4CKzDE)
 
-> Posted on: Friday, September 29, 2017 4:07:12 AM
+> Posted on: Friday, September 29, 2017 5:18:38 AM
