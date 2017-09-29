@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google reports all-time high of government data requests     - CNET"
-date: 2017-09-29 00:24:42Z
+date: 2017-09-29 01:05:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In Google's latest transparency report, even more governments want to know what 
 
 Full story on F3News: [Google reports all-time high of government data requests     - CNET](http://www.f3nws.com/n/YezH3F)
 
-> Posted on: Friday, September 29, 2017 12:24:42 AM
+> Posted on: Friday, September 29, 2017 1:05:48 AM

@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Destiny 2: How To Avoid Losing Leviathan Raid Keys - GameSpot](https://static.gamespot.com/uploads/screen_kubrick/1576/15769789/3248350-d2_pc_crucible_04.png)
 
-GameSpot Destiny 2: How To Avoid Losing Leviathan Raid Keys GameSpot There is a problem with Destiny 2's raid system whereby raid keys for the Leviathan challenge are getting removed from players' inventories. That's a problem. Bungie is aware of this and has now explained what's caused the issue and what can be done to ... Destiny 2 players are running out of things to do, and that's great Polygon Destiny 2 Raid Keys Gone? Here's How to Prevent It PlayStation LifeStyle 'Destiny 2' review: More concepts, same design Fox News Comicbook.com - Game Rant - Gameranx (blog) - TechRaptor all 15 news articles »
+GameSpot Destiny 2: How To Avoid Losing Leviathan Raid Keys GameSpot There is a problem with Destiny 2's raid system whereby raid keys for the Leviathan challenge are getting removed from players' inventories. That's a problem. Bungie is aware of this and has now explained what's caused the issue and what can be done to ... Destiny 2 players are running out of things to do, and that's great Polygon Destiny 2 Raid Keys Gone? Here's How to Prevent It PlayStation LifeStyle Destiny 2 Guided Games Off to Rocky Start for Some Game Rant VG247 - Gameranx (blog) - TechRaptor - Blasting News all 16 news articles »
 
 
 Full story on F3News: [Destiny 2: How To Avoid Losing Leviathan Raid Keys - GameSpot](http://www.f3nws.com/n/zzCvRG)
