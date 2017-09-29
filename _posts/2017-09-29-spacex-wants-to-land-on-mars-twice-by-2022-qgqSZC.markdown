@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SpaceX wants to land on Mars twice by 2022"
-date: 2017-09-29 09:27:27Z
+date: 2017-09-29 09:58:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [SpaceX wants to land on Mars twice by 2022](http://www.f3nws.com/n/qgqSZC)
 
-> Posted on: Friday, September 29, 2017 9:27:27 AM
+> Posted on: Friday, September 29, 2017 9:58:26 AM
