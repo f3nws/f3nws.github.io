@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Hilarious Way Will & Grace Explained Away the Series Finale - E! Online"
-date: 2017-09-29 01:32:32Z
+date: 2017-09-29 01:34:24Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ E! Online The Hilarious Way Will & Grace Explained Away the Series Finale E! Onl
 
 Full story on F3News: [The Hilarious Way Will & Grace Explained Away the Series Finale - E! Online](http://www.f3nws.com/n/rTvCqF)
 
-> Posted on: Friday, September 29, 2017 1:32:32 AM
+> Posted on: Friday, September 29, 2017 1:34:24 AM
