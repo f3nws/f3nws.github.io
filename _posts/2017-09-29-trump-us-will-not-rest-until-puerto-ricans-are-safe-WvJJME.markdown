@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: US 'will not rest' until Puerto Ricans are safe"
-date: 2017-09-29 16:35:03Z
+date: 2017-09-29 20:10:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump vowed support for the ongoing relief and recovery efforts
 
 Full story on F3News: [Trump: US 'will not rest' until Puerto Ricans are safe](http://www.f3nws.com/n/WvJJME)
 
-> Posted on: Friday, September 29, 2017 4:35:03 PM
+> Posted on: Friday, September 29, 2017 8:10:20 PM

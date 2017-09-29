@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Health Sec is in deep, deep trouble"
-date: 2017-09-29 17:59:16Z
+date: 2017-09-29 20:26:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Thursday night, Politico published a story with this eye-popping headline: "P
 
 Full story on F3News: [US Health Sec is in deep, deep trouble](http://www.f3nws.com/n/WnxUdB)
 
-> Posted on: Friday, September 29, 2017 5:59:16 PM
+> Posted on: Friday, September 29, 2017 8:26:09 PM
