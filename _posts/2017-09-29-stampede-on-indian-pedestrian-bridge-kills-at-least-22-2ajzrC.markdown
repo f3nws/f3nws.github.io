@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stampede on Indian pedestrian bridge kills at least 22"
-date: 2017-09-29 04:01:00Z
+date: 2017-09-29 04:35:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MUMBAI, India (AP) — A stampede broke out on a crowded pedestrian bridge conne
 
 Full story on F3News: [Stampede on Indian pedestrian bridge kills at least 22](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, September 29, 2017 4:01:00 AM
+> Posted on: Friday, September 29, 2017 4:35:00 AM

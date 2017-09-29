@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Podesta emails showed Facebook colluded with Clinton, Assange reminds"
-date: 2017-09-29 03:30:56Z
+date: 2017-09-29 03:30:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ As US lawmakers demand social media companies show how their platforms were alle
 
 Full story on F3News: [Podesta emails showed Facebook colluded with Clinton, Assange reminds](http://www.f3nws.com/n/cqKvRG)
 
-> Posted on: Friday, September 29, 2017 3:30:56 AM
+> Posted on: Friday, September 29, 2017 3:30:00 AM
