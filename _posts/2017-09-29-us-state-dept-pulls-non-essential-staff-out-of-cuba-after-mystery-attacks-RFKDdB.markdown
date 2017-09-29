@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US State Dept pulls non-essential staff out of Cuba after mystery attacks"
-date: 2017-09-29 14:15:33Z
+date: 2017-09-29 17:37:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US State Department is pulling out all families of employees and nonessentia
 
 Full story on F3News: [US State Dept pulls non-essential staff out of Cuba after mystery attacks](http://www.f3nws.com/n/RFKDdB)
 
-> Posted on: Friday, September 29, 2017 2:15:33 PM
+> Posted on: Friday, September 29, 2017 5:37:59 PM

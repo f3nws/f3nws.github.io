@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Confused by Trump, N Korea contacts ex-US officials"
-date: 2017-09-29 11:54:48Z
+date: 2017-09-29 17:37:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The proverbial game of chicken between President Donald Trump and North Korean l
 
 Full story on F3News: [Confused by Trump, N Korea contacts ex-US officials](http://www.f3nws.com/n/JcqvvE)
 
-> Posted on: Friday, September 29, 2017 11:54:48 AM
+> Posted on: Friday, September 29, 2017 5:37:53 PM
