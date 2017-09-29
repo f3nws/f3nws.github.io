@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Ricans cross river with cable after bridge collapse"
-date: 2017-09-29 02:54:01Z
+date: 2017-09-29 05:27:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nelson Maldonado had already gone days without running water or electricity, aft
 
 Full story on F3News: [Puerto Ricans cross river with cable after bridge collapse](http://www.f3nws.com/n/fsdzbF)
 
-> Posted on: Friday, September 29, 2017 2:54:01 AM
+> Posted on: Friday, September 29, 2017 5:27:14 AM
