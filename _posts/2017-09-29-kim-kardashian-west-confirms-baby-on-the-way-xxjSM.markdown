@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Kardashian West confirms baby on the way"
-date: 2017-09-29 00:27:56Z
+date: 2017-09-29 01:01:08Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ At least one Kardashian/Jenner sister is talking about their new baby.
 
 Full story on F3News: [Kim Kardashian West confirms baby on the way](http://www.f3nws.com/n/xxjSM)
 
-> Posted on: Friday, September 29, 2017 12:27:56 AM
+> Posted on: Friday, September 29, 2017 1:01:08 AM
