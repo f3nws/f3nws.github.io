@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "From N Korea refugee parents to the Blue House: S Korea's Moon"
-date: 2017-09-29 01:42:53Z
+date: 2017-09-29 03:51:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Arriving at the Blue House, the sprawling executive office and residence of the 
 
 Full story on F3News: [From N Korea refugee parents to the Blue House: S Korea's Moon](http://www.f3nws.com/n/XTECEC)
 
-> Posted on: Friday, September 29, 2017 1:42:53 AM
+> Posted on: Friday, September 29, 2017 3:51:12 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fake black activist social media accounts linked to Russian government"
-date: 2017-09-29 01:00:23Z
+date: 2017-09-29 03:40:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Fake black activist social media accounts linked to Russian government](http://www.f3nws.com/n/CxeUMJ)
 
-> Posted on: Friday, September 29, 2017 1:00:23 AM
+> Posted on: Friday, September 29, 2017 3:40:48 AM
