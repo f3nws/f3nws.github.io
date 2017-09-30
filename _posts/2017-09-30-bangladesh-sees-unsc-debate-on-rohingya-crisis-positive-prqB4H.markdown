@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladesh sees UNSC debate on Rohingya crisis ‘positive’"
-date: 2017-09-30 03:49:54Z
+date: 2017-09-30 04:17:36Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Bangladesh sees UNSC debate on Rohingya crisis ‘positive’](http://www.f3nws.com/n/prqB4H)
 
-> Posted on: Saturday, September 30, 2017 3:49:54 AM
+> Posted on: Saturday, September 30, 2017 4:17:36 AM
