@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump lashes out at San Juan mayor who begged for more help"
-date: 2017-09-30 08:52:00Z
+date: 2017-09-30 10:09:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRANCHBURG, N.J. (AP) — President Donald Trump on Saturday lashed out at the m
 
 Full story on F3News: [Trump lashes out at San Juan mayor who begged for more help](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 30, 2017 8:52:00 AM
+> Posted on: Saturday, September 30, 2017 10:09:00 AM
