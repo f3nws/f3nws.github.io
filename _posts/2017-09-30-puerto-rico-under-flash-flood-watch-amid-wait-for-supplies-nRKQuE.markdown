@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico under flash flood watch amid wait for supplies"
-date: 2017-09-30 01:41:39Z
+date: 2017-09-30 02:59:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Puerto Rico is under a flash flood watch as the agonizing wait for food and supp
 
 Full story on F3News: [Puerto Rico under flash flood watch amid wait for supplies](http://www.f3nws.com/n/nRKQuE)
 
-> Posted on: Saturday, September 30, 2017 1:41:39 AM
+> Posted on: Saturday, September 30, 2017 2:59:03 AM
