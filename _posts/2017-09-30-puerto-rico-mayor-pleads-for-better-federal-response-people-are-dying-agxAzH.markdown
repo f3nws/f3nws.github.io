@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico mayor pleads for better federal response: 'People are dying'"
-date: 2017-09-30 17:33:35Z
+date: 2017-09-30 18:54:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Puerto Rico: Mayor pleads for better response; Trump hits back CNN (CNN) San
 
 Full story on F3News: [Puerto Rico mayor pleads for better federal response: 'People are dying'](http://www.f3nws.com/n/agxAzH)
 
-> Posted on: Saturday, September 30, 2017 5:33:35 PM
+> Posted on: Saturday, September 30, 2017 6:54:18 PM
