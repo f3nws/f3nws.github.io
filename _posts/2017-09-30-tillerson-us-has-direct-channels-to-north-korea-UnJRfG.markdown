@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson: US has 'direct channels' to North Korea"
-date: 2017-09-30 15:41:43Z
+date: 2017-09-30 19:41:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson said Saturday that the US has direct lines of c
 
 Full story on F3News: [Tillerson: US has 'direct channels' to North Korea](http://www.f3nws.com/n/UnJRfG)
 
-> Posted on: Saturday, September 30, 2017 3:41:43 PM
+> Posted on: Saturday, September 30, 2017 7:41:35 PM

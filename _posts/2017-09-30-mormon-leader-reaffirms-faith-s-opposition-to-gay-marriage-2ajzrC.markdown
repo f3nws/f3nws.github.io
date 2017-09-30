@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mormon leader reaffirms faith's opposition to gay marriage"
-date: 2017-09-30 14:44:00Z
+date: 2017-09-30 15:45:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SALT LAKE CITY (AP) — A top Mormon leader reaffirmed the religion's opposition
 
 Full story on F3News: [Mormon leader reaffirms faith's opposition to gay marriage](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, September 30, 2017 2:44:00 PM
+> Posted on: Saturday, September 30, 2017 3:45:00 PM
