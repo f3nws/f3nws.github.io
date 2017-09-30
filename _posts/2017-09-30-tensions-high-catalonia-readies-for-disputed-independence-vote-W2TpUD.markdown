@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tensions high: Catalonia readies for disputed independence vote"
-date: 2017-09-30 12:04:48Z
+date: 2017-09-30 13:42:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Tensions high as Catalonia readies for disputed independence vote CNN Barcel
 
 Full story on F3News: [Tensions high: Catalonia readies for disputed independence vote](http://www.f3nws.com/n/W2TpUD)
 
-> Posted on: Saturday, September 30, 2017 12:04:48 PM
+> Posted on: Saturday, September 30, 2017 1:42:30 PM
