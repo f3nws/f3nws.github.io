@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Trump's mind-bogglingly bad week"
-date: 2017-09-30 13:08:43Z
+date: 2017-09-30 14:31:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's beyond a cliche to say that a week in the presidency of Donald Trump feels 
 
 Full story on F3News: [Analysis: Trump's mind-bogglingly bad week](http://www.f3nws.com/n/WtVzND)
 
-> Posted on: Saturday, September 30, 2017 1:08:43 PM
+> Posted on: Saturday, September 30, 2017 2:31:11 PM

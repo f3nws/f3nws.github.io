@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Luke Bryan, Lionel Richie join 'American Idol'"
-date: 2017-09-30 06:50:43Z
+date: 2017-09-30 14:48:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Say hello (is it me you're looking for?) to your new "American Idol" judges.
 
 Full story on F3News: [Luke Bryan, Lionel Richie join 'American Idol'](http://www.f3nws.com/n/tJPjSF)
 
-> Posted on: Saturday, September 30, 2017 6:50:43 AM
+> Posted on: Saturday, September 30, 2017 2:48:35 PM

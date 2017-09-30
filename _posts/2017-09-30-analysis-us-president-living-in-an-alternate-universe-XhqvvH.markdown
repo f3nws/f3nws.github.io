@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: US President living in an alternate universe"
-date: 2017-09-30 01:41:08Z
+date: 2017-09-30 14:46:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ To hear President Donald Trump tell it, the recovery efforts in Puerto Rico are 
 
 Full story on F3News: [Analysis: US President living in an alternate universe](http://www.f3nws.com/n/XhqvvH)
 
-> Posted on: Saturday, September 30, 2017 1:41:08 AM
+> Posted on: Saturday, September 30, 2017 2:46:15 PM
