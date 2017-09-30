@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1st span of Padma bridge installed"
-date: 2017-09-30 06:15:05Z
+date: 2017-09-30 07:56:01Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [1st span of Padma bridge installed](http://www.f3nws.com/n/CDWXsC)
 
-> Posted on: Saturday, September 30, 2017 6:15:05 AM
+> Posted on: Saturday, September 30, 2017 7:56:01 AM
