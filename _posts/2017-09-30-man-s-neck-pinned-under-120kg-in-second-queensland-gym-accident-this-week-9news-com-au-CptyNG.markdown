@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man's neck pinned under 120kg in second Queensland gym accident this week - 9news.com.au"
-date: 2017-09-30 07:53:58Z
+date: 2017-09-30 07:58:05Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ Daily Mail Man's neck pinned under 120kg in second Queensland gym accident this 
 
 Full story on F3News: [Man's neck pinned under 120kg in second Queensland gym accident this week - 9news.com.au](http://www.f3nws.com/n/CptyNG)
 
-> Posted on: Saturday, September 30, 2017 7:53:58 AM
+> Posted on: Saturday, September 30, 2017 7:58:05 AM
