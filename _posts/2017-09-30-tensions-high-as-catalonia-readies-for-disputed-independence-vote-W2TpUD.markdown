@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tensions high as Catalonia readies for disputed independence vote"
-date: 2017-09-30 13:42:30Z
+date: 2017-09-30 20:03:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Supporters of Catalan independence maintained their standoff with the Spanish go
 
 Full story on F3News: [Tensions high as Catalonia readies for disputed independence vote](http://www.f3nws.com/n/W2TpUD)
 
-> Posted on: Saturday, September 30, 2017 1:42:30 PM
+> Posted on: Saturday, September 30, 2017 8:03:39 PM

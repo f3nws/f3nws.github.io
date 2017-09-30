@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A sunken warship, a lost hero and the discovery that reunited a US family"
-date: 2017-09-30 15:11:07Z
+date: 2017-09-30 20:04:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As Tony King tells his story, he pauses often. His memory is still sharp, but th
 
 Full story on F3News: [A sunken warship, a lost hero and the discovery that reunited a US family](http://www.f3nws.com/n/cgccUB)
 
-> Posted on: Saturday, September 30, 2017 3:11:07 PM
+> Posted on: Saturday, September 30, 2017 8:04:20 PM
