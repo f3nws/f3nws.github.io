@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber driver stabbed in New York City road rage case, police say"
-date: 2017-09-30 01:30:02Z
+date: 2017-09-30 03:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Police in New York City are searching for a suspect who reportedly stabbed an Ub
 
 Full story on F3News: [Uber driver stabbed in New York City road rage case, police say](http://www.f3nws.com/n/qteVDD)
 
-> Posted on: Saturday, September 30, 2017 1:30:02 AM
+> Posted on: Saturday, September 30, 2017 3:45:00 AM

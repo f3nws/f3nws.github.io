@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "State Dept. distances itself from ambassador saying Israel occupies mere ‘2% of West Bank’"
-date: 2017-09-30 03:26:15Z
+date: 2017-09-30 03:26:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The US still supports a two-state solution to the Israeli-Palestinian conflict, 
 
 Full story on F3News: [State Dept. distances itself from ambassador saying Israel occupies mere ‘2% of West Bank’](http://www.f3nws.com/n/gevpWG)
 
-> Posted on: Saturday, September 30, 2017 3:26:15 AM
+> Posted on: Saturday, September 30, 2017 3:26:00 AM
