@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Catalan referendum: Voters mass as showdown looms - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/E235/production/_98090975_042106636.jpg)
 
-BBC News Catalan referendum: Voters mass as showdown looms BBC News Tense crowds have formed outside polling stations in Catalonia ahead of an independence referendum banned by the Spanish government. Regional officials said ballot boxes were ready and predicted a big turnout. Madrid has pledged to stop the vote and ... Catalonia separatists vow to defy police ultimatum over vote CBS News Catalans Camp at Voting Sites as Independence Confrontation Looms New York Times Catalans prepare to defy Madrid in banned independence vote Reuters New York Post - Bloomberg - Concord Monitor - Washington Post all 454 news articles »
+BBC News Catalan referendum: Voters mass as showdown looms BBC News Crowds have formed outside polling stations in Catalonia ahead of an independence referendum banned by the Spanish government. Regional officials said ballot boxes were ready and predicted a big turnout. Madrid has pledged to stop the vote and ... Catalans queue early to vote in referendum banned by Spain Reuters Catalans Reach Referendum Day Unsure If They'll Get to Vote Bloomberg Catalans Camp at Voting Sites as Independence Confrontation Looms New York Times Fox News - SFGate - New York Post - Sacramento Bee all 477 news articles »
 
 
 Full story on F3News: [Catalan referendum: Voters mass as showdown looms - BBC News](http://www.f3nws.com/n/EnYRfF)

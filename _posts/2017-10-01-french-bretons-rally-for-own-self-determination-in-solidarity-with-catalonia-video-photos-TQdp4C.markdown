@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French Bretons rally for own self-determination & in solidarity with Catalonia (VIDEO, PHOTOS)"
-date: 2017-10-01 01:53:21Z
+date: 2017-10-01 01:53:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Several hundred pro-regional independence activists have marched through the str
 
 Full story on F3News: [French Bretons rally for own self-determination & in solidarity with Catalonia (VIDEO, PHOTOS)](http://www.f3nws.com/n/TQdp4C)
 
-> Posted on: Sunday, October 1, 2017 1:53:21 AM
+> Posted on: Sunday, October 1, 2017 1:53:00 AM
