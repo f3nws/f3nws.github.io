@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President bashed for saying Puerto Ricans want everything 'done for them'"
-date: 2017-10-01 01:41:16Z
+date: 2017-10-01 06:48:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Puerto Ricans reacted harshly on Saturday to President's Trump's tweets that lea
 
 Full story on F3News: [US President bashed for saying Puerto Ricans want everything 'done for them'](http://www.f3nws.com/n/n3XCUB)
 
-> Posted on: Sunday, October 1, 2017 1:41:16 AM
+> Posted on: Sunday, October 1, 2017 6:48:27 AM
