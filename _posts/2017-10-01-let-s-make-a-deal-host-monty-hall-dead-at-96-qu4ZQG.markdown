@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Let's Make a Deal' host Monty Hall dead at 96"
-date: 2017-10-01 00:29:29Z
+date: 2017-10-01 02:45:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Monty Hall, best known for hosting the game show 'Let's Make a Deal,' died Satur
 
 Full story on F3News: ['Let's Make a Deal' host Monty Hall dead at 96](http://www.f3nws.com/n/qu4ZQG)
 
-> Posted on: Sunday, October 1, 2017 12:29:29 AM
+> Posted on: Sunday, October 1, 2017 2:45:58 AM
