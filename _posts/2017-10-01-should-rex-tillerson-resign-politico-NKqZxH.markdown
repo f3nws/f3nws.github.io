@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Should Rex Tillerson Resign? - Politico](http://static.politico.com/76/f6/5a6d9b994534b75a5a2b9a35157e/171001tillerson-mag-ap-11160.jpg)
 
-Politico Should Rex Tillerson Resign? Politico In our combined 50-plus years at the State Department, neither of us ever witnessed as profound a humiliation as a sitting president handed his secretary of state Sunday morning. “I told Rex Tillerson, our wonderful Secretary of State, that he is ... Trump Says Tillerson Is 'Wasting His Time' on North Korea New York Times State Department: Diplomatic channels open to North Korea 'for now' The Hill Trump again undercuts his secretary of State, dashing potential progress on North Korea Los Angeles Times The Atlantic - The New Yorker - Fox News - ABC News all 960 news articles »
+Politico Should Rex Tillerson Resign? Politico In our combined 50-plus years at the State Department, neither of us ever witnessed as profound a humiliation as a sitting president handed his secretary of state Sunday morning. “I told Rex Tillerson, our wonderful Secretary of State, that he is ... Trump Says Tillerson Is 'Wasting His Time' on North Korea New York Times Trump again undercuts his secretary of State, dashing potential progress on North Korea Los Angeles Times Trump's Undermining of Rex Tillerson The Atlantic The New Yorker - Reuters - ABC News - Fox News all 980 news articles »
 
 
 Full story on F3News: [Should Rex Tillerson Resign? - Politico](http://www.f3nws.com/n/NKqZxH)
