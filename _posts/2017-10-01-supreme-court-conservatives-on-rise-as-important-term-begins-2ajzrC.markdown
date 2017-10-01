@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supreme Court conservatives on rise as important term begins"
-date: 2017-10-01 12:55:24Z
+date: 2017-10-01 13:51:09Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Disputes over a wedding cake for a same-sex couple and parti
 
 Full story on F3News: [Supreme Court conservatives on rise as important term begins](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 1, 2017 12:55:24 PM
+> Posted on: Sunday, October 1, 2017 1:51:09 PM
