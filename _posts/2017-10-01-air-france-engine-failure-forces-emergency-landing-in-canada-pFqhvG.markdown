@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Air France engine failure forces emergency landing in Canada"
-date: 2017-10-01 17:16:41Z
+date: 2017-10-01 18:21:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Air France flight from Paris to Los Angeles made an emergency landing in Cana
 
 Full story on F3News: [Air France engine failure forces emergency landing in Canada](http://www.f3nws.com/n/pFqhvG)
 
-> Posted on: Sunday, October 1, 2017 5:16:41 PM
+> Posted on: Sunday, October 1, 2017 6:21:18 PM

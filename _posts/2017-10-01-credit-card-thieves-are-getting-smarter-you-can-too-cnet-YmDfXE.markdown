@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Credit card thieves are getting smarter. You can, too     - CNET"
-date: 2017-10-01 17:04:23Z
+date: 2017-10-01 17:07:03Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Card skimmers have gotten so advanced, even experts may be fooled. But there's a
 
 Full story on F3News: [Credit card thieves are getting smarter. You can, too     - CNET](http://www.f3nws.com/n/YmDfXE)
 
-> Posted on: Sunday, October 1, 2017 5:04:23 PM
+> Posted on: Sunday, October 1, 2017 5:07:03 PM
