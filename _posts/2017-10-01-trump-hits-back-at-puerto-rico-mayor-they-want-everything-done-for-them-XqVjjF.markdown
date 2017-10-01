@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump hits back at Puerto Rico mayor: They want everything done for them"
-date: 2017-10-01 00:48:44Z
+date: 2017-10-01 01:12:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump launched an attack on the mayor of San Juan on Saturday f
 
 Full story on F3News: [Trump hits back at Puerto Rico mayor: They want everything done for them](http://www.f3nws.com/n/XqVjjF)
 
-> Posted on: Sunday, October 1, 2017 12:48:44 AM
+> Posted on: Sunday, October 1, 2017 1:12:23 AM
