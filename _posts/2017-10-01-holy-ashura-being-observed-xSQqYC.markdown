@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Holy Ashura being observed"
-date: 2017-10-01 05:12:49Z
+date: 2017-10-01 08:41:41Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Holy Ashura being observed](http://www.f3nws.com/n/xSQqYC)
 
-> Posted on: Sunday, October 1, 2017 5:12:49 AM
+> Posted on: Sunday, October 1, 2017 8:41:41 AM
