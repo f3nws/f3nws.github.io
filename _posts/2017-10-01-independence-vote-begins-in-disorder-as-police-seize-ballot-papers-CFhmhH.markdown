@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Independence vote begins in disorder as police seize ballot papers"
-date: 2017-10-01 08:32:31Z
+date: 2017-10-01 09:54:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Catalonia's disputed independence vote quickly descended into chaos on Sunday as
 
 Full story on F3News: [Independence vote begins in disorder as police seize ballot papers](http://www.f3nws.com/n/CFhmhH)
 
-> Posted on: Sunday, October 1, 2017 8:32:31 AM
+> Posted on: Sunday, October 1, 2017 9:54:58 AM

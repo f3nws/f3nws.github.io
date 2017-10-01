@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Daunting Storm take on the Cowboys in NRL grand final](http://www.abc.net.au/news/image/9005724-1x1-700x700.jpg)
 
-Will the Melbourne Storm showcase their superiority, or will the North Queensland Cowboys cause a boilover in the 2017 NRL grand final? Find out in our action-packed live blog coverage.
+The Melbourne Storm fly out of the gates against the North Queensland Cowboys in the 2017 NRL grand final. Follow all the action in our live blog.
 
 
 Full story on F3News: [Live: Daunting Storm take on the Cowboys in NRL grand final](http://www.f3nws.com/n/gxuQaB)

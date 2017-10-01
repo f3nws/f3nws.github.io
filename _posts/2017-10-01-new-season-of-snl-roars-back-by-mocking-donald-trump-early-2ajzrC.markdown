@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New season of 'SNL' roars back by mocking Donald Trump early"
-date: 2017-10-01 06:58:59Z
+date: 2017-10-01 09:57:08Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — The new season of "Saturday Night Live" wasted no time getting
 
 Full story on F3News: [New season of 'SNL' roars back by mocking Donald Trump early](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 1, 2017 6:58:59 AM
+> Posted on: Sunday, October 1, 2017 9:57:08 AM
