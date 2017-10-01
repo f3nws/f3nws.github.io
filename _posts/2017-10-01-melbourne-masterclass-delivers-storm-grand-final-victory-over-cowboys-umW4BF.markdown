@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Melbourne masterclass delivers Storm grand final victory over Cowboys](http://www.abc.net.au/news/image/9005862-1x1-700x700.jpg)
 
-The Melbourne Storm win their third ever premiership with a stellar grand final performance against the North Queensland Cowboys, dominating the match to win 34-6.
+The Melbourne Storm win their third premiership with a stellar grand final performance against the North Queensland Cowboys, dominating the match to win 34-6.
 
 
 Full story on F3News: [Melbourne masterclass delivers Storm grand final victory over Cowboys](http://www.f3nws.com/n/umW4BF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Miss World Bangladesh plagued by fraud"
-date: 2017-10-01 08:10:02Z
+date: 2017-10-01 11:19:34Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Miss World Bangladesh plagued by fraud](http://www.f3nws.com/n/EVtBTD)
 
-> Posted on: Sunday, October 1, 2017 8:10:02 AM
+> Posted on: Sunday, October 1, 2017 11:19:34 AM
