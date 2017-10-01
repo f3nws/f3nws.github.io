@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hundreds injured as Spain cracks down on Catalan referendum"
-date: 2017-10-01 19:25:19Z
+date: 2017-10-01 20:40:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spanish national police launched a widespread crackdown on Catalonia's disputed 
 
 Full story on F3News: [Hundreds injured as Spain cracks down on Catalan referendum](http://www.f3nws.com/n/CFhmhH)
 
-> Posted on: Sunday, October 1, 2017 7:25:19 PM
+> Posted on: Sunday, October 1, 2017 8:40:07 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: Tillerson 'wasting his time' negotiating with North Korea"
-date: 2017-10-01 19:06:13Z
+date: 2017-10-01 20:36:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Sunday again mocked North Korean leader Kim Jong Un an
 
 Full story on F3News: [Trump: Tillerson 'wasting his time' negotiating with North Korea](http://www.f3nws.com/n/CvcUP)
 
-> Posted on: Sunday, October 1, 2017 7:06:13 PM
+> Posted on: Sunday, October 1, 2017 8:36:39 PM
