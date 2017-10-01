@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Trump sent 18 tweets on Puerto Rico on Saturday. And made things a whole lot worse - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/161220133246-donald-trump-twitter-diplomacy-illustration-super-tease.jpg)
 
-CNN Trump sent 18 tweets on Puerto Rico on Saturday. And made things a whole lot worse CNN (CNN) In an 11-hour period beginning at 7:19 a.m. and ending at 6:46 p.m. Saturday, the President of the United States ripped off 18 -- yes, 18! -- tweets dealing with the dire situation in Puerto Rico following the devastation wrought by Hurricane Maria. On SNL, Baldwin's Trump tells Puerto Rico: 'We have to take care of America first' Washington Post Opinion: Trump's Tweets on Puerto Rico Are a National Disgrace NBCNews.com Benicio del Toro dishes on hurricane recovery, politics after arriving in Puerto Rico USA TODAY The Hill - U.S. News & World Report - HuffPost - Syracuse.com all 2,721 news articles »
+CNN Trump sent 18 tweets on Puerto Rico on Saturday. And made things a whole lot worse CNN (CNN) In an 11-hour period beginning at 7:19 a.m. and ending at 6:46 p.m. Saturday, the President of the United States ripped off 18 -- yes, 18! -- tweets dealing with the dire situation in Puerto Rico following the devastation wrought by Hurricane Maria. Puerto Rico disaster response mired in gridlock The Hill Puerto Rico's Tragedy Was Years in the Making Politico With long lines for food, water and fuel and no electricity, Puerto Ricans help each other USA TODAY Los Angeles Times - Washington Post - Fox News - NBCNews.com all 1,938 news articles »
 
 
 Full story on F3News: [Trump sent 18 tweets on Puerto Rico on Saturday. And made things a whole lot worse - CNN](http://www.f3nws.com/n/RbPYmF)

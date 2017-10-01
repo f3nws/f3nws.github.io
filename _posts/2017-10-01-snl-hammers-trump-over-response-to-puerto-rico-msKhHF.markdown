@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'SNL' hammers Trump over response to Puerto Rico"
-date: 2017-10-01 11:57:00Z
+date: 2017-10-01 12:00:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['SNL' hammers Trump over response to Puerto Rico](http://www.f3nws.com/n/msKhHF)
 
-> Posted on: Sunday, October 1, 2017 11:57:00 AM
+> Posted on: Sunday, October 1, 2017 12:00:34 PM
