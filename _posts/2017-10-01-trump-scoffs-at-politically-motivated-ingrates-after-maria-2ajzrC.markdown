@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump scoffs at 'politically motivated ingrates' after Maria"
-date: 2017-10-01 18:53:28Z
+date: 2017-10-01 19:48:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRANCHBURG, N.J. (AP) — President Donald Trump on Sunday scoffed at "political
 
 Full story on F3News: [Trump scoffs at 'politically motivated ingrates' after Maria](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 1, 2017 6:53:28 PM
+> Posted on: Sunday, October 1, 2017 7:48:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reports: Marilyn Manson injured during New York concert"
-date: 2017-10-01 19:00:02Z
+date: 2017-10-01 20:00:06Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Rocker Marilyn Manson’s concert in New York City was abruptly ended Saturday n
 
 Full story on F3News: [Reports: Marilyn Manson injured during New York concert](http://www.f3nws.com/n/AQgsBC)
 
-> Posted on: Sunday, October 1, 2017 7:00:02 PM
+> Posted on: Sunday, October 1, 2017 8:00:06 PM
