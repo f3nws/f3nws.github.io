@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In photos: Spain tries to halt independence vote"
-date: 2017-10-01 13:49:11Z
+date: 2017-10-01 14:34:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Photo gallery: protests during referendum in Catalonia
 
 Full story on F3News: [In photos: Spain tries to halt independence vote](http://www.f3nws.com/n/EVQnVH)
 
-> Posted on: Sunday, October 1, 2017 1:49:11 PM
+> Posted on: Sunday, October 1, 2017 2:34:56 PM
