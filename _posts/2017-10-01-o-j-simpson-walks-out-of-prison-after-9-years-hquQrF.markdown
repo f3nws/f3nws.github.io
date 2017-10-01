@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "O.J. Simpson walks out of prison after 9 years"
-date: 2017-10-01 13:40:57Z
+date: 2017-10-01 17:17:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ O.J. Simpson is free on parole after serving nine years in prison for a Las Vega
 
 Full story on F3News: [O.J. Simpson walks out of prison after 9 years](http://www.f3nws.com/n/hquQrF)
 
-> Posted on: Sunday, October 1, 2017 1:40:57 PM
+> Posted on: Sunday, October 1, 2017 5:17:27 PM

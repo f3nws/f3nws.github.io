@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Media titan Samuel 'Si' Newhouse is dead at 89"
-date: 2017-10-01 16:51:01Z
+date: 2017-10-01 17:48:43Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — S.I. Newhouse Jr., the low-profile billionaire media mogul who
 
 Full story on F3News: [Media titan Samuel 'Si' Newhouse is dead at 89](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 1, 2017 4:51:01 PM
+> Posted on: Sunday, October 1, 2017 5:48:43 PM
