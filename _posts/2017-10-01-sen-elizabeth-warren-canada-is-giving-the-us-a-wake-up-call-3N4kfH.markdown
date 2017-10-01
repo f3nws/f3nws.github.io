@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sen. Elizabeth Warren: Canada is giving the US a wake-up call"
-date: 2017-10-01 06:44:13Z
+date: 2017-10-01 10:34:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, a loud and persistent critic of the North American Free 
 
 Full story on F3News: [Sen. Elizabeth Warren: Canada is giving the US a wake-up call](http://www.f3nws.com/n/3N4kfH)
 
-> Posted on: Sunday, October 1, 2017 6:44:13 AM
+> Posted on: Sunday, October 1, 2017 10:34:21 AM

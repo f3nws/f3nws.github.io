@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Brisbane teen Ben Shaw dies in hospital after weightlifting accident at Pine Rivers PCYC gym - ABC Online](http://www.abc.net.au/news/image/9005434-1x1-700x700.jpg)
 
-ABC Online Brisbane teen Ben Shaw dies in hospital after weightlifting accident at Pine Rivers PCYC gym ABC Online A 15-year-old has died in hospital, days after he was crushed at a Brisbane gym while trying to bench press about 100 kilograms. Ben Shaw was found by a staff member at the Pine Rivers PCYC gym on Tuesday evening pinned to a bench after the ... Boy dies after horrific incident at PCYC gym north of Brisbane Courier Mail Brisbane teenager Ben Shaw dies after PCYC gym accident SBS Brisbane boy dies after PCYC gym accident 9news.com.au Huffington Post Australia - Mirror.co.uk - Triple M - The Sydney Morning Herald all 14 news articles »
+ABC Online Brisbane teen Ben Shaw dies in hospital after weightlifting accident at Pine Rivers PCYC gym ABC Online A 15-year-old has died in hospital, days after he was crushed at a Brisbane gym while trying to bench press about 100 kilograms. Ben Shaw was found by a staff member at the Pine Rivers PCYC gym on Tuesday evening pinned to a bench after the ... Boy dies after horrific incident at PCYC gym north of Brisbane Courier Mail Brisbane boy dies after PCYC gym accident 9news.com.au Brisbane teenager dies after being pinned under weightlifting equipment The Guardian The West Australian - Huffington Post Australia - Metro - Triple M all 17 news articles »
 
 
 Full story on F3News: [Brisbane teen Ben Shaw dies in hospital after weightlifting accident at Pine Rivers PCYC gym - ABC Online](http://www.f3nws.com/n/FfWxzG)

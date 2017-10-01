@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All Amazon Echo devices can now make calls for free on North America to the US, Canada and Mexico - Phone Arena"
-date: 2017-10-01 03:42:00Z
+date: 2017-10-01 03:47:07Z
 categories: google-news-technology
 ---
 
@@ -10,4 +10,4 @@ Phone Arena All Amazon Echo devices can now make calls for free on North America
 
 Full story on F3News: [All Amazon Echo devices can now make calls for free on North America to the US, Canada and Mexico - Phone Arena](http://www.f3nws.com/n/PfG2q)
 
-> Posted on: Sunday, October 1, 2017 3:42:00 AM
+> Posted on: Sunday, October 1, 2017 3:47:07 AM

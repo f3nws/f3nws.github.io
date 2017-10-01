@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladeshi women spend more time than men in unpaid works: Study"
-date: 2017-10-01 09:34:18Z
+date: 2017-10-01 10:21:10Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Bangladeshi women spend more time than men in unpaid works: Study](http://www.f3nws.com/n/g4mzV)
 
-> Posted on: Sunday, October 1, 2017 9:34:18 AM
+> Posted on: Sunday, October 1, 2017 10:21:10 AM
