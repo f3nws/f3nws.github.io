@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Air France superjumbo engine failure forces emergency landing in Canada - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171001003845-air-france-66-a380-engine-failure-super-tease.jpg)
 
-CNN Air France superjumbo engine failure forces emergency landing in Canada CNN (CNN) An Air France flight from Paris to Los Angeles made an emergency landing in Canada on Saturday after one of its engines failed during an Atlantic crossing. The double-deck Airbus A380 aircraft landed safely at Goose Bay Airport on the eastern tip ... Investigation Launched Into 'Serious' Airbus A380 Engine Failure NBCNews.com Engine Explodes on an Air France Plane, Forcing an Emergency Landing New York Times SEE IT: Engine destroyed on Air France flight from Paris to LA New York Daily News Reuters - Fox News - Washington Post - USA TODAY all 130 news articles »
+CNN Air France superjumbo engine failure forces emergency landing in Canada CNN (CNN) An Air France flight from Paris to Los Angeles made an emergency landing in Canada on Saturday after one of its engines failed during an Atlantic crossing. The double-deck Airbus A380 aircraft landed safely at Goose Bay Airport on the eastern tip ... OJ Simpson released after serving 9 years in Nevada prison ESPN Air France flight with engine damage makes emergency landing in Canada Reuters Air France plane forced to land in Canada with engine damage Washington Post Fox News - Pittsburgh Post-Gazette - International Business Times - The Guardian all 143 news articles »
 
 
 Full story on F3News: [Air France superjumbo engine failure forces emergency landing in Canada - CNN](http://www.f3nws.com/n/pFqhvG)

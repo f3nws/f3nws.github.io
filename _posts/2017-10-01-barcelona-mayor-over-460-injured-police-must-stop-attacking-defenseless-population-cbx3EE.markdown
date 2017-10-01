@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Barcelona mayor: Over 460 injured, police must stop attacking ‘defenseless population’](https://img.rt.com/files/2017.10/article/59d10296fc7e9387568b4567.jpg)
 
-Read Full Article at RT.com
+The Mayor of Barcelona urged the Spanish police to immediately end their violence “against the defenseless population.” Spain’s central authorities launched a massive crackdown on the Catalan independence referendum which they say is illegal. Read Full Article at RT.com
 
 
 Full story on F3News: [Barcelona mayor: Over 460 injured, police must stop attacking ‘defenseless population’](http://www.f3nws.com/n/cbx3EE)
