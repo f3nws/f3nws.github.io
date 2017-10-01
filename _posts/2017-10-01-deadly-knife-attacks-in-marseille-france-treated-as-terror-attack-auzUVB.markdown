@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly knife attacks in Marseille, France, treated as terror attack"
-date: 2017-10-01 17:51:22Z
+date: 2017-10-01 22:54:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A knife-wielding man killed at least two women Sunday at the Saint-Charles train
 
 Full story on F3News: [Deadly knife attacks in Marseille, France, treated as terror attack](http://www.f3nws.com/n/auzUVB)
 
-> Posted on: Sunday, October 1, 2017 5:51:22 PM
+> Posted on: Sunday, October 1, 2017 10:54:18 PM
