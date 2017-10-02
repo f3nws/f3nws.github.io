@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonian firefighters protecting voters beaten by Spanish riot police (PHOTOS, VIDEOS)"
-date: 2017-10-02 05:12:39Z
+date: 2017-10-02 05:12:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Amid the widespread “shameful” conduct by the Spanish Civil Guard during the
 
 Full story on F3News: [Catalonian firefighters protecting voters beaten by Spanish riot police (PHOTOS, VIDEOS)](http://www.f3nws.com/n/fDbupB)
 
-> Posted on: Monday, October 2, 2017 5:12:39 AM
+> Posted on: Monday, October 2, 2017 5:12:00 AM
