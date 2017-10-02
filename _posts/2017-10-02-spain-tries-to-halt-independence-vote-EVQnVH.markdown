@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain tries to halt independence vote"
-date: 2017-10-02 01:15:41Z
+date: 2017-10-02 11:17:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Clashes broke out between voters and Spanish police in Catalonia as Spain tries 
 
 Full story on F3News: [Spain tries to halt independence vote](http://www.f3nws.com/n/EVQnVH)
 
-> Posted on: Monday, October 2, 2017 1:15:41 AM
+> Posted on: Monday, October 2, 2017 11:17:14 AM

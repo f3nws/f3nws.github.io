@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 50 dead, 200 hurt | Police: Female companion found, dead gunman named"
-date: 2017-10-02 09:47:44Z
+date: 2017-10-02 11:53:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [At least 50 dead, 200 hurt | Police: Female companion found, dead gunman named](http://www.f3nws.com/n/xtREYG)
 
-> Posted on: Monday, October 2, 2017 9:47:44 AM
+> Posted on: Monday, October 2, 2017 11:53:44 AM

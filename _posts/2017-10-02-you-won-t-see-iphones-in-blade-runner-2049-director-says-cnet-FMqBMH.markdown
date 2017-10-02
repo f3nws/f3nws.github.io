@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "You won't see iPhones in 'Blade Runner 2049', director says     - CNET"
-date: 2017-10-02 08:35:04Z
+date: 2017-10-02 11:08:47Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Denis Villeneuve explains why the sequel to the 1982 science fiction classic con
 
 Full story on F3News: [You won't see iPhones in 'Blade Runner 2049', director says     - CNET](http://www.f3nws.com/n/FMqBMH)
 
-> Posted on: Monday, October 2, 2017 8:35:04 AM
+> Posted on: Monday, October 2, 2017 11:08:47 AM
