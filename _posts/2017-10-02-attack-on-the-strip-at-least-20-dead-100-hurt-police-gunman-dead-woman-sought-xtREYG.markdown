@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Attack on the Strip: At least 20 dead, 100 hurt | Police: Gunman dead, woman sought"
-date: 2017-10-02 08:52:35Z
+date: 2017-10-02 09:47:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Attack on the Strip: At least 20 dead, 100 hurt | Police: Gunman dead, woman sought](http://www.f3nws.com/n/xtREYG)
 
-> Posted on: Monday, October 2, 2017 8:52:35 AM
+> Posted on: Monday, October 2, 2017 9:47:44 AM

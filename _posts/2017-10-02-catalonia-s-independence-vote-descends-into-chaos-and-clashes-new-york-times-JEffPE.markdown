@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Catalonia's Independence Vote Descends Into Chaos and Clashes - New York Times](https://static01.nyt.com/images/2017/10/02/world/02catalonia5sub/02catalonia5sub-facebookJumbo.jpg)
 
-New York Times Catalonia's Independence Vote Descends Into Chaos and Clashes New York Times The Spanish police blocked the entrance of a Barcelona school that was to be used as a polling station in the Catalan independence referendum on Sunday. Credit Emilio Morenatti/Associated Press. BARCELONA, Spain — Catalonia's defiant attempt to ... Spain's Rajoy sets the stage for a bigger battle over Catalonia Washington Post Spanish PM faces crisis after violent secession vote in Catalonia Reuters Catalonia Just Voted for Independence From Spain. Here's Why That Is Unlikely to Happen TIME Bloomberg - CNBC - U.S. News & World Report - BBC News all 1,854 news articles »
+New York Times Catalonia's Independence Vote Descends Into Chaos and Clashes New York Times The Spanish police blocked the entrance of a Barcelona school that was to be used as a polling station in the Catalan independence referendum on Sunday. Credit Emilio Morenatti/Associated Press. BARCELONA, Spain — Catalonia's defiant attempt to ... Spain's Rajoy sets the stage for a bigger battle over Catalonia Washington Post Spanish PM faces crisis after violent secession vote in Catalonia Reuters Spain Bonds, Stocks Fall as Catalans Flag Independence Move Bloomberg TIME - CNBC - Business Insider - The Guardian all 1,899 news articles »
 
 
 Full story on F3News: [Catalonia's Independence Vote Descends Into Chaos and Clashes - New York Times](http://www.f3nws.com/n/JEffPE)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump revels in chaos amid hurricane crisis"
-date: 2017-10-02 05:09:38Z
+date: 2017-10-02 08:30:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Washington has wondered for months how President Donald Trump would handle his f
 
 Full story on F3News: [Trump revels in chaos amid hurricane crisis](http://www.f3nws.com/n/pNpZx)
 
-> Posted on: Monday, October 2, 2017 5:09:38 AM
+> Posted on: Monday, October 2, 2017 8:30:11 AM

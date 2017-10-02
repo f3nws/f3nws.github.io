@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![20 dead, scores injured in Las Vegas Strip mass shooting](http://www.abc.net.au/news/image/9008608-1x1-700x700.jpg)
 
-At least 20 people are killed and more than 100 others injured when a gunman opens fire on an outdoor music festival on Las Vegas' famous entertainment strip.
+At least 20 people are killed and more than 100 others injured when a gunman opens fire on an outdoor music festival from a high-rise hotel on Las Vegas' famous entertainment strip.
 
 
 Full story on F3News: [20 dead, scores injured in Las Vegas Strip mass shooting](http://www.f3nws.com/n/mzQyaE)

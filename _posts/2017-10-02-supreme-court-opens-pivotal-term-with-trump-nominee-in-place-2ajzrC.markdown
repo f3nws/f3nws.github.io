@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supreme Court opens pivotal term with Trump nominee in place"
-date: 2017-10-02 08:46:57Z
+date: 2017-10-02 09:55:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Disputes over a wedding cake for a same-sex couple and parti
 
 Full story on F3News: [Supreme Court opens pivotal term with Trump nominee in place](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 2, 2017 8:46:57 AM
+> Posted on: Monday, October 2, 2017 9:55:32 AM

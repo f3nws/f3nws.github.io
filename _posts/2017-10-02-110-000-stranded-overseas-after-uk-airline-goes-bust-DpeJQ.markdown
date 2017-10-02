@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "110,000 stranded overseas after UK airline goes bust"
-date: 2017-10-02 07:12:14Z
+date: 2017-10-02 09:27:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [110,000 stranded overseas after UK airline goes bust](http://www.f3nws.com/n/DpeJQ)
 
-> Posted on: Monday, October 2, 2017 7:12:14 AM
+> Posted on: Monday, October 2, 2017 9:27:15 AM
