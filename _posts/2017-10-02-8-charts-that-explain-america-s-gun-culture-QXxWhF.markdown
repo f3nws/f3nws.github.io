@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "8 charts that explain America's gun culture"
-date: 2017-10-02 17:03:33Z
+date: 2017-10-02 18:53:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's beyond debate that the shootings outside the Mandalay Bay hotel in Las Vega
 
 Full story on F3News: [8 charts that explain America's gun culture](http://www.f3nws.com/n/QXxWhF)
 
-> Posted on: Monday, October 2, 2017 5:03:33 PM
+> Posted on: Monday, October 2, 2017 6:53:32 PM

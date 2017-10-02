@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Beyond horrific.' Country music world stunned by Las Vegas shooting"
-date: 2017-10-02 10:50:42Z
+date: 2017-10-02 12:35:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Country music star Jason Aldean was on stage when a gunman attacked the Route 91
 
 Full story on F3News: ['Beyond horrific.' Country music world stunned by Las Vegas shooting](http://www.f3nws.com/n/CKNXTH)
 
-> Posted on: Monday, October 2, 2017 10:50:42 AM
+> Posted on: Monday, October 2, 2017 12:35:30 PM

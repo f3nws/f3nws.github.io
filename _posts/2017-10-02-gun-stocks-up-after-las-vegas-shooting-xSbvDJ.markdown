@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gun stocks up after Las Vegas shooting"
-date: 2017-10-02 15:56:47Z
+date: 2017-10-02 18:35:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Gun stocks up after Las Vegas shooting](http://www.f3nws.com/n/xSbvDJ)
 
-> Posted on: Monday, October 2, 2017 3:56:47 PM
+> Posted on: Monday, October 2, 2017 6:35:34 PM

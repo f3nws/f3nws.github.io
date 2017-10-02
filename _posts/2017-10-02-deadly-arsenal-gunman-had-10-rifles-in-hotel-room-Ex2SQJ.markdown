@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly arsenal: Gunman had 10 rifles in hotel room"
-date: 2017-10-02 17:33:43Z
+date: 2017-10-02 18:17:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Las Vegas police are telling people to avoid the area around the Mandalay Bay Ca
 
 Full story on F3News: [Deadly arsenal: Gunman had 10 rifles in hotel room](http://www.f3nws.com/n/Ex2SQJ)
 
-> Posted on: Monday, October 2, 2017 5:33:43 PM
+> Posted on: Monday, October 2, 2017 6:17:30 PM

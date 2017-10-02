@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "CBS fires vice president who said Vegas victims didn't deserve sympathy because they were 'probably Republicans'"
+date: 2017-10-02 18:37:00Z
+categories: fox-news
+---
+
+A top lawyer for CBS said she is “not even sympathetic” to victims of the Las Vegas shooting because “country music fans often are Republican,” when discussing the tragic mass shooting that occurred in Las Vegas late Sunday night.
+
+
+Full story on F3News: [CBS fires vice president who said Vegas victims didn't deserve sympathy because they were 'probably Republicans'](http://www.f3nws.com/n/MYp4jE)
+
+> Posted on: Monday, October 2, 2017 6:37:00 PM

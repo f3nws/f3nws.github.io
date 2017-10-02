@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In photos: Mayhem at Las Vegas music festival"
-date: 2017-10-02 17:13:49Z
+date: 2017-10-02 18:54:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 20 people were killed dead and more than 100 injured in a shooting at a
 
 Full story on F3News: [In photos: Mayhem at Las Vegas music festival](http://www.f3nws.com/n/tYcaRE)
 
-> Posted on: Monday, October 2, 2017 5:13:49 PM
+> Posted on: Monday, October 2, 2017 6:54:11 PM
