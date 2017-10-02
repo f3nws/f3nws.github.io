@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrities express horror and send love to Las Vegas"
-date: 2017-10-02 11:29:50Z
+date: 2017-10-02 17:26:37Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Celebrities offered sympathy and support for Las Vegas after the massacre that l
 
 Full story on F3News: [Celebrities express horror and send love to Las Vegas](http://www.f3nws.com/n/VhxQAE)
 
-> Posted on: Monday, October 2, 2017 11:29:50 AM
+> Posted on: Monday, October 2, 2017 5:26:37 PM
