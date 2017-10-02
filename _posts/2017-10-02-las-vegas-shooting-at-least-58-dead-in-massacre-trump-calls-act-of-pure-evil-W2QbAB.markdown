@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas shooting: At least 58 dead in massacre Trump calls 'act of pure evil'"
-date: 2017-10-02 18:30:00Z
+date: 2017-10-02 21:24:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A gunman turned a Las Vegas concert into a killing field Sunday night from his p
 
 Full story on F3News: [Las Vegas shooting: At least 58 dead in massacre Trump calls 'act of pure evil'](http://www.f3nws.com/n/W2QbAB)
 
-> Posted on: Monday, October 2, 2017 6:30:00 PM
+> Posted on: Monday, October 2, 2017 9:24:00 PM
