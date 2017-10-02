@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![ISIS claims responsibility for Las Vegas attack, says shooter converted to Islam a few months prior](https://cdni.rt.com/files/2017.10/article/59d24bd7fc7e9338208b456a.jpg)
 
-The shooter, who killed 50 people and injured hundreds, converted to Islam “few months ago” and conducted the attack on behalf of Islamic State (IS, formerly ISIS/ISIL), Reuters reports, citing terrorist group’s web site. Read Full Article at RT.com
+The Las Vegas shooter, who killed 58 people and injured hundreds more, did so on behalf of Islamic State (IS, formerly ISIS/ISIL), according to an IS-affiliated website. The FBI says the perpetrator had no connections to international terrorist groups. Read Full Article at RT.com
 
 
 Full story on F3News: [ISIS claims responsibility for Las Vegas attack, says shooter converted to Islam a few months prior](http://www.f3nws.com/n/xkcbvC)
