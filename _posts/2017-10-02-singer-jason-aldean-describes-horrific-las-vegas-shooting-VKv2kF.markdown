@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Singer Jason Aldean describes 'horrific' Las Vegas shooting"
-date: 2017-10-02 10:50:34Z
+date: 2017-10-02 13:08:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ American country singer Jason Aldean, who was performing when a gunman opened fi
 
 Full story on F3News: [Singer Jason Aldean describes 'horrific' Las Vegas shooting](http://www.f3nws.com/n/VKv2kF)
 
-> Posted on: Monday, October 2, 2017 10:50:34 AM
+> Posted on: Monday, October 2, 2017 1:08:10 PM
