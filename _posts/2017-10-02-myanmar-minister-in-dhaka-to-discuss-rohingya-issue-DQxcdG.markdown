@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Myanmar minister in Dhaka to discuss Rohingya issue"
-date: 2017-10-02 04:41:54Z
+date: 2017-10-02 05:37:19Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Myanmar minister in Dhaka to discuss Rohingya issue](http://www.f3nws.com/n/DQxcdG)
 
-> Posted on: Monday, October 2, 2017 4:41:54 AM
+> Posted on: Monday, October 2, 2017 5:37:19 AM

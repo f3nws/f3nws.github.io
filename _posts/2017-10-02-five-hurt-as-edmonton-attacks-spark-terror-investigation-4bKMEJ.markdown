@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Five hurt as Edmonton attacks spark terror investigation"
-date: 2017-10-02 04:34:23Z
+date: 2017-10-02 05:15:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Canadian authorities say two incidents in Edmonton are being investigated as act
 
 Full story on F3News: [Five hurt as Edmonton attacks spark terror investigation](http://www.f3nws.com/n/4bKMEJ)
 
-> Posted on: Monday, October 2, 2017 4:34:23 AM
+> Posted on: Monday, October 2, 2017 5:15:15 AM
