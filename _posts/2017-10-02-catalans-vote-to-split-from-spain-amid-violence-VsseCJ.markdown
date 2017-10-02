@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalans vote to split from Spain amid violence"
-date: 2017-10-02 06:30:11Z
+date: 2017-10-02 07:26:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Catalan government said it earned the right to independence from Spain after
 
 Full story on F3News: [Catalans vote to split from Spain amid violence](http://www.f3nws.com/n/VsseCJ)
 
-> Posted on: Monday, October 2, 2017 6:30:11 AM
+> Posted on: Monday, October 2, 2017 7:26:05 AM
