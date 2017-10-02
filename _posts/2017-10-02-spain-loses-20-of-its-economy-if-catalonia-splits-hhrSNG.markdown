@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain loses 20% of its economy if Catalonia splits"
-date: 2017-10-02 02:57:04Z
+date: 2017-10-02 08:46:22Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Would going it alone work for Catalonia?
 
 Full story on F3News: [Spain loses 20% of its economy if Catalonia splits](http://www.f3nws.com/n/hhrSNG)
 
-> Posted on: Monday, October 2, 2017 2:57:04 AM
+> Posted on: Monday, October 2, 2017 8:46:22 AM

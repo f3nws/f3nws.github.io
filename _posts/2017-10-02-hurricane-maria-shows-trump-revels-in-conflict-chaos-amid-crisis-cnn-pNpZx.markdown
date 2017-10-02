@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Hurricane Maria shows Trump revels in conflict, chaos amid crisis - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170430145357-trump-media-super-tease.jpg)
 
-CNN Hurricane Maria shows Trump revels in conflict, chaos amid crisis CNN Washington (CNN) Washington has wondered for months how President Donald Trump would handle his first genuine crisis. As Puerto Rico struggles after Hurricane Maria, the answer is now clear: Trump's response has been a frenzied study in microcosm ... Defending Trump, Geraldo Rivera debates the meaning of 'dying' with San Juan's mayor Washington Post Trump's Puerto Rico response tests the limits of his fondness for grudges Politico Why Donald Trump Doesn't Care About Puerto Ricans Slate Magazine Wall Street Journal (subscription) - U.S. News & World Report - USA TODAY - ABC News all 3,315 news articles »
+CNN Hurricane Maria shows Trump revels in conflict, chaos amid crisis CNN Washington (CNN) Washington has wondered for months how President Donald Trump would handle his first genuine crisis. As Puerto Rico struggles after Hurricane Maria, the answer is now clear: Trump's response has been a frenzied study in microcosm ... Trump Takes On All Comers, Believing Himself the Victor New York Times Trump defies critics of his Puerto Rico response by conducting business as usual Washington Post Trump dedicates golf win to hurricane victims Politico HuffPost - Golf.com - USA TODAY - New York Daily News all 289 news articles »
 
 
 Full story on F3News: [Hurricane Maria shows Trump revels in conflict, chaos amid crisis - CNN](http://www.f3nws.com/n/pNpZx)

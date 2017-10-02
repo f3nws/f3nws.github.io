@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two accused of killing Kim Jong Un's half brother plead not guilty"
-date: 2017-10-02 03:17:31Z
+date: 2017-10-02 04:33:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two young women pleaded not guilty in a Malaysian court Monday morning charged w
 
 Full story on F3News: [Two accused of killing Kim Jong Un's half brother plead not guilty](http://www.f3nws.com/n/BZnTc)
 
-> Posted on: Monday, October 2, 2017 3:17:31 AM
+> Posted on: Monday, October 2, 2017 4:33:55 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Witness told reporter he heard hundreds of shots"
-date: 2017-10-02 06:31:46Z
+date: 2017-10-02 08:12:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Las Vegas police are telling people to avoid the area around the Mandalay Bay Ca
 
 Full story on F3News: [Witness told reporter he heard hundreds of shots](http://www.f3nws.com/n/QPkbvD)
 
-> Posted on: Monday, October 2, 2017 6:31:46 AM
+> Posted on: Monday, October 2, 2017 8:12:41 AM
