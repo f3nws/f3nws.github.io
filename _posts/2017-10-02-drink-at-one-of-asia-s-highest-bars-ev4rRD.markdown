@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Drink at one of Asia's highest bars"
-date: 2017-10-02 01:19:57Z
+date: 2017-10-02 02:44:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thanks to rapid development over the past decade, Asia has become synonymous wit
 
 Full story on F3News: [Drink at one of Asia's highest bars](http://www.f3nws.com/n/ev4rRD)
 
-> Posted on: Monday, October 2, 2017 1:19:57 AM
+> Posted on: Monday, October 2, 2017 2:44:10 AM
