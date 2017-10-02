@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brother: Las Vegas gunman was wealthy real-estate investor"
-date: 2017-10-02 21:49:13Z
+date: 2017-10-02 22:50:35Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MESQUITE, Nev. (AP) — Stephen Paddock lived in a tidy Nevada retirement commun
 
 Full story on F3News: [Brother: Las Vegas gunman was wealthy real-estate investor](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 2, 2017 9:49:13 PM
+> Posted on: Monday, October 2, 2017 10:50:35 PM
