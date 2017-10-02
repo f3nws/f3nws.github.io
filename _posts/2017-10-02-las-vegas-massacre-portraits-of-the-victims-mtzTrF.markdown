@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas massacre: Portraits of the victims"
-date: 2017-10-02 15:22:00Z
+date: 2017-10-02 20:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Tennessee man died while protecting his wife from a gunman who opened fire lat
 
 Full story on F3News: [Las Vegas massacre: Portraits of the victims](http://www.f3nws.com/n/mtzTrF)
 
-> Posted on: Monday, October 2, 2017 3:22:00 PM
+> Posted on: Monday, October 2, 2017 8:00:00 PM

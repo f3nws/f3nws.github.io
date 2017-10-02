@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Divisive issue: 8 charts that explain US gun culture"
-date: 2017-10-02 18:58:53Z
+date: 2017-10-02 20:01:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's beyond debate that the shootings outside the Mandalay Bay hotel in Las Vega
 
 Full story on F3News: [Divisive issue: 8 charts that explain US gun culture](http://www.f3nws.com/n/QXxWhF)
 
-> Posted on: Monday, October 2, 2017 6:58:53 PM
+> Posted on: Monday, October 2, 2017 8:01:04 PM

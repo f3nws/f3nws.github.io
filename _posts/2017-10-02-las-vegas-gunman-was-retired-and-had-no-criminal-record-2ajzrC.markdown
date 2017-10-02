@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas gunman was retired and had no criminal record"
-date: 2017-10-02 19:46:53Z
+date: 2017-10-02 20:54:46Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MESQUITE, Nev. (AP) — Stephen Paddock lived in a tidy Nevada retirement commun
 
 Full story on F3News: [Las Vegas gunman was retired and had no criminal record](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 2, 2017 7:46:53 PM
+> Posted on: Monday, October 2, 2017 8:54:46 PM
