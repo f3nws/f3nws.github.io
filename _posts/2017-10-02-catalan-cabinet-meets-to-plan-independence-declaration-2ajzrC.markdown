@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan Cabinet meets to plan independence declaration"
-date: 2017-10-02 11:44:37Z
+date: 2017-10-02 12:56:53Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — Catalonia's government was holding a closed-door Cabin
 
 Full story on F3News: [Catalan Cabinet meets to plan independence declaration](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 2, 2017 11:44:37 AM
+> Posted on: Monday, October 2, 2017 12:56:53 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Witnesses describe horror of Las Vegas strip shooting"
-date: 2017-10-02 11:56:24Z
+date: 2017-10-02 12:53:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least two people were killed and another 24 are injured in an early morning s
 
 Full story on F3News: [Report: Witnesses describe horror of Las Vegas strip shooting](http://www.f3nws.com/n/Ex2SQJ)
 
-> Posted on: Monday, October 2, 2017 11:56:24 AM
+> Posted on: Monday, October 2, 2017 12:53:46 PM
