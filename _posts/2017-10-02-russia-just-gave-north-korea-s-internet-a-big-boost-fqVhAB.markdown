@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia just gave North Korea's internet a big boost"
-date: 2017-10-02 08:10:31Z
+date: 2017-10-02 14:34:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Russia just gave North Korea's internet a big boost](http://www.f3nws.com/n/fqVhAB)
 
-> Posted on: Monday, October 2, 2017 8:10:31 AM
+> Posted on: Monday, October 2, 2017 2:34:02 PM

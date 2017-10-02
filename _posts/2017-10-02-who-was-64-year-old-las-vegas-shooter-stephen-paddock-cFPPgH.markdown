@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who was 64-year-old Las Vegas shooter Stephen Paddock?"
-date: 2017-10-02 13:24:21Z
+date: 2017-10-02 14:24:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 50 people were killed late Sunday night in a mass shooting during a con
 
 Full story on F3News: [Who was 64-year-old Las Vegas shooter Stephen Paddock?](http://www.f3nws.com/n/cFPPgH)
 
-> Posted on: Monday, October 2, 2017 1:24:21 PM
+> Posted on: Monday, October 2, 2017 2:24:15 PM
