@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vigils held for victims: Empire State Building goes dark"
-date: 2017-10-03 04:53:07Z
+date: 2017-10-03 07:59:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Vigils are being held across the US for victims of Sunday's shooting in Las Vega
 
 Full story on F3News: [Vigils held for victims: Empire State Building goes dark](http://www.f3nws.com/n/uMaSP)
 
-> Posted on: Tuesday, October 3, 2017 4:53:07 AM
+> Posted on: Tuesday, October 3, 2017 7:59:47 AM
