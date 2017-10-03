@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nobel Prize in Physics goes to 'black hole telescope' trio"
-date: 2017-10-03 13:17:57Z
+date: 2017-10-03 16:13:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The 2017 Nobel Prize in Physics has been awarded to Rainer Weiss, Barry C. Baris
 
 Full story on F3News: [Nobel Prize in Physics goes to 'black hole telescope' trio](http://www.f3nws.com/n/Q4zehH)
 
-> Posted on: Tuesday, October 3, 2017 1:17:57 PM
+> Posted on: Tuesday, October 3, 2017 4:13:00 PM
