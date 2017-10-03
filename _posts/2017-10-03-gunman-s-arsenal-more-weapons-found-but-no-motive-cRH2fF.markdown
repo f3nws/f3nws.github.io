@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman's arsenal: More weapons found, but no motive"
-date: 2017-10-03 19:45:59Z
+date: 2017-10-03 20:58:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after the deadliest mass shooting in modern US history, authorities are le
 
 Full story on F3News: [Gunman's arsenal: More weapons found, but no motive](http://www.f3nws.com/n/cRH2fF)
 
-> Posted on: Tuesday, October 3, 2017 7:45:59 PM
+> Posted on: Tuesday, October 3, 2017 8:58:49 PM

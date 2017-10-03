@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims: Portraits of the some of the 59 tragically killed"
-date: 2017-10-03 18:32:47Z
+date: 2017-10-03 20:54:08Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ One was a nurse who died protecting his wife. Another devoted her life to teachi
 
 Full story on F3News: [Victims: Portraits of the some of the 59 tragically killed](http://www.f3nws.com/n/yBusnG)
 
-> Posted on: Tuesday, October 3, 2017 6:32:47 PM
+> Posted on: Tuesday, October 3, 2017 8:54:08 PM
