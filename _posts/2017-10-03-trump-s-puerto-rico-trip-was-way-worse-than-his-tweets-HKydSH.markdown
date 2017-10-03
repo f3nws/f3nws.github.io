@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Puerto Rico trip was way worse than his tweets"
-date: 2017-10-03 21:09:58Z
+date: 2017-10-03 22:44:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump faced a major test on Tuesday as he traveled to storm-rav
 
 Full story on F3News: [Trump's Puerto Rico trip was way worse than his tweets](http://www.f3nws.com/n/HKydSH)
 
-> Posted on: Tuesday, October 3, 2017 9:09:58 PM
+> Posted on: Tuesday, October 3, 2017 10:44:49 PM

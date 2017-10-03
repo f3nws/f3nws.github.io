@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The investigation: Gunman set up cameras at hotel"
-date: 2017-10-03 21:47:16Z
+date: 2017-10-03 22:23:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after the deadliest mass shooting in modern US history, authorities are le
 
 Full story on F3News: [The investigation: Gunman set up cameras at hotel](http://www.f3nws.com/n/cRH2fF)
 
-> Posted on: Tuesday, October 3, 2017 9:47:16 PM
+> Posted on: Tuesday, October 3, 2017 10:23:23 PM
