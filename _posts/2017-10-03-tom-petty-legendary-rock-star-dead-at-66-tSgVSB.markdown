@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tom Petty, legendary rock star, dead at 66"
-date: 2017-10-03 11:00:00Z
+date: 2017-10-03 12:20:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Tom Petty, who rose to fame in the ‘70s as the lead of Tom Petty and the Heart
 
 Full story on F3News: [Tom Petty, legendary rock star, dead at 66](http://www.f3nws.com/n/tSgVSB)
 
-> Posted on: Tuesday, October 3, 2017 11:00:00 AM
+> Posted on: Tuesday, October 3, 2017 12:20:00 PM
