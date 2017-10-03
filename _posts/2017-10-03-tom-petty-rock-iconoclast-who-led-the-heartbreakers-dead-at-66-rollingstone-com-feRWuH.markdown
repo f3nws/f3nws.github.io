@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tom Petty, Rock Iconoclast Who Led the Heartbreakers, Dead at 66 - RollingStone.com](http://img.wennermedia.com/social/tom-petty-obit-prep-9e3af4bb-3241-4cfa-a230-c3726ab69631.jpg)
 
-RollingStone.com Tom Petty, Rock Iconoclast Who Led the Heartbreakers, Dead at 66 RollingStone.com Tom Petty, the dynamic Hall of Fame frontman who led the Heartbreakers, has died at age 66 after suffering cardiac arrest. Credit: George Rose/Getty Images. By Kory Grow, Andy Greene. 10 hours ago ... The 20 Greatest Tom Petty Songs: Critic's Picks Billboard Tom Petty, Heartbreakers frontman who sang 'Breakdown,' 'Free Fallin'' and other hits, dies at 66 Los Angeles Times Tom Petty Dies: Rock Legend Who Fronted The Heartbreakers For 40 Years Was 66 Deadline New York Times - New York Daily News - NPR - BBC News all 1,491 news articles »
+RollingStone.com Tom Petty, Rock Iconoclast Who Led the Heartbreakers, Dead at 66 RollingStone.com Tom Petty, the dynamic Hall of Fame frontman who led the Heartbreakers, has died at age 66 after suffering cardiac arrest. Credit: George Rose/Getty Images. By Kory Grow, Andy Greene. 11 hours ago ... The 20 Greatest Tom Petty Songs: Critic's Picks Billboard Tom Petty, Hall of Fame singer who became rock mainstay in 1970s, dies at 66 Washington Post Tom Petty: A quiet, unassuming rock legend BBC News Vulture - PEOPLE.com - CBS News - Charlotte Observer all 1,599 news articles »
 
 
 Full story on F3News: [Tom Petty, Rock Iconoclast Who Led the Heartbreakers, Dead at 66 - RollingStone.com](http://www.f3nws.com/n/feRWuH)

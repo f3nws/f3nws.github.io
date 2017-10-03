@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google, Facebook help spread bad information after Las Vegas attack"
-date: 2017-10-03 02:59:43Z
+date: 2017-10-03 06:46:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Google, Facebook help spread bad information after Las Vegas attack](http://www.f3nws.com/n/XHYNP)
 
-> Posted on: Tuesday, October 3, 2017 2:59:43 AM
+> Posted on: Tuesday, October 3, 2017 6:46:17 AM
