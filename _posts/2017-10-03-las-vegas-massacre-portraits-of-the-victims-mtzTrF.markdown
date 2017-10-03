@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas massacre: Portraits of the victims"
-date: 2017-10-03 01:12:00Z
+date: 2017-10-03 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least 59 people were killed when a gunman opened fire late Sunday at a Las Ve
 
 Full story on F3News: [Las Vegas massacre: Portraits of the victims](http://www.f3nws.com/n/mtzTrF)
 
-> Posted on: Tuesday, October 3, 2017 1:12:00 AM
+> Posted on: Tuesday, October 3, 2017 2:15:00 AM

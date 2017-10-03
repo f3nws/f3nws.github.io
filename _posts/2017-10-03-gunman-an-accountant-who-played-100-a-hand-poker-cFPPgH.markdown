@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman: An accountant who played $100-a-hand-poker"
-date: 2017-10-03 01:29:23Z
+date: 2017-10-03 02:35:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man police say killed at least 58 people on the Las Vegas Strip was a retire
 
 Full story on F3News: [Gunman: An accountant who played $100-a-hand-poker](http://www.f3nws.com/n/cFPPgH)
 
-> Posted on: Tuesday, October 3, 2017 1:29:23 AM
+> Posted on: Tuesday, October 3, 2017 2:35:13 AM

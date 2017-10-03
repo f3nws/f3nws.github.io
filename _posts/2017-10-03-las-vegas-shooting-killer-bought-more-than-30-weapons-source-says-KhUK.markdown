@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas shooting: Killer bought more than 30 weapons, source says"
-date: 2017-10-03 01:00:00Z
+date: 2017-10-03 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Las Vegas gunman Stephen Paddock purchased more than 30 weapons and had more tha
 
 Full story on F3News: [Las Vegas shooting: Killer bought more than 30 weapons, source says](http://www.f3nws.com/n/KhUK)
 
-> Posted on: Tuesday, October 3, 2017 1:00:00 AM
+> Posted on: Tuesday, October 3, 2017 2:15:00 AM
