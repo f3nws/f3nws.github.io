@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Family in shock: 'We're just completely befuddled'"
-date: 2017-10-03 00:40:35Z
+date: 2017-10-03 00:59:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Las Vegas police are telling people to avoid the area around the Mandalay Bay Ca
 
 Full story on F3News: [Family in shock: 'We're just completely befuddled'](http://www.f3nws.com/n/Ex2SQJ)
 
-> Posted on: Tuesday, October 3, 2017 12:40:35 AM
+> Posted on: Tuesday, October 3, 2017 12:59:20 AM
