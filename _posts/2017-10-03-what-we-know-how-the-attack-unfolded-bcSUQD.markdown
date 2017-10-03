@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What we know: How the attack unfolded"
-date: 2017-10-03 00:25:57Z
+date: 2017-10-03 04:09:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 58 people were killed and more than 515 injured in the mass shooting on
 
 Full story on F3News: [What we know: How the attack unfolded](http://www.f3nws.com/n/bcSUQD)
 
-> Posted on: Tuesday, October 3, 2017 12:25:57 AM
+> Posted on: Tuesday, October 3, 2017 4:09:12 AM
