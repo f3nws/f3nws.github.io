@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Another Trump cabinet secretary under..."
-date: 2017-10-03 13:20:58Z
+date: 2017-10-03 13:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Facing allegations about misuse of public funds, Interior Secretary Ryan Zinke i
 
 Full story on F3News: [Another Trump cabinet secretary under...](http://www.f3nws.com/n/3gGBGE)
 
-> Posted on: Tuesday, October 3, 2017 1:20:58 PM
+> Posted on: Tuesday, October 3, 2017 1:20:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas shooting: Remembering the fallen"
-date: 2017-10-03 13:45:00Z
+date: 2017-10-03 16:10:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The deadliest mass shooting in modern U.S. history left at least 59 people dead 
 
 Full story on F3News: [Las Vegas shooting: Remembering the fallen](http://www.f3nws.com/n/ZAetcG)
 
-> Posted on: Tuesday, October 3, 2017 1:45:00 PM
+> Posted on: Tuesday, October 3, 2017 4:10:00 PM

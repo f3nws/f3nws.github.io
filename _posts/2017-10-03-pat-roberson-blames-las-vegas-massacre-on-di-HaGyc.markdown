@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pat Roberson blames Las Vegas massacre on 'di"
-date: 2017-10-03 12:40:19Z
+date: 2017-10-03 12:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ It may be tempting to dismiss TV preacher Pat Robertson's latest nonsense, but h
 
 Full story on F3News: [Pat Roberson blames Las Vegas massacre on 'di](http://www.f3nws.com/n/HaGyc)
 
-> Posted on: Tuesday, October 3, 2017 12:40:19 PM
+> Posted on: Tuesday, October 3, 2017 12:40:00 PM

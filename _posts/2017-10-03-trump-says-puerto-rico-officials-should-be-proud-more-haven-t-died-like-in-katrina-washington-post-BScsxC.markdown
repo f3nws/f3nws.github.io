@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump says Puerto Rico officials should be 'proud' more haven't died like in Katrina - Washington Post"
-date: 2017-10-03 16:46:23Z
+date: 2017-10-03 16:51:21Z
 categories: google-news-top-stories
 ---
 
 ![Trump says Puerto Rico officials should be 'proud' more haven't died like in Katrina - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/10/03/National-Politics/Images/WHPRICOTRIP005.JPG?t=20170517)
 
-Washington Post Trump says Puerto Rico officials should be 'proud' more haven't died like in Katrina Washington Post President Trump told Puerto Rico officials they should feel proud that hadn't lost thousands of lives like in “a real catastrophe like Katrina,” and also said the devastated island territory was throwing the nation's budget “a little out of whack ... Trump Lands in Puerto Rico After Complaining About Residents' Efforts in Storm Recovery New York Times Trump faces political danger in visit to Puerto Rico Politico Five things to watch as Trump visits Puerto Rico The Hill NBCNews.com - Bloomberg - USA TODAY - Fox News all 4,574 news articles »
+Washington Post Trump says Puerto Rico officials should be 'proud' more haven't died like in Katrina Washington Post President Trump on Tuesday told Puerto Rico officials they should feel “very proud” they haven't lost thousands of lives like in “a real catastrophe like Katrina,” while adding that the devastated island territory has thrown the nation's budget “a ... Trump, in Puerto Rico, Compares Death Toll to Katrina's and Says Residents Should Be 'Proud' New York Times Trump leaves San Juan's mayor out of praise for Puerto Rico leaders The Hill Trump Says Puerto Rico Has Thrown the Budget 'Out of Whack' Bloomberg U.S. News & World Report - Fox News - NBCNews.com - Business Insider all 4,922 news articles »
 
 
 Full story on F3News: [Trump says Puerto Rico officials should be 'proud' more haven't died like in Katrina - Washington Post](http://www.f3nws.com/n/BScsxC)
 
-> Posted on: Tuesday, October 3, 2017 4:46:23 PM
+> Posted on: Tuesday, October 3, 2017 4:51:21 PM
