@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What happened inside gunman's hotel suite as he fired on helpless concert-goers below?"
-date: 2017-10-03 18:16:08Z
+date: 2017-10-03 19:36:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When retiree Stephen Paddock checked into his 32nd-floor hotel room at the Manda
 
 Full story on F3News: [What happened inside gunman's hotel suite as he fired on helpless concert-goers below?](http://www.f3nws.com/n/kzJkKF)
 
-> Posted on: Tuesday, October 3, 2017 6:16:08 PM
+> Posted on: Tuesday, October 3, 2017 7:36:55 PM
