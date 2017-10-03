@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tragedies to test Trump as nation's comforter - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171002170133-02-trump-moment-of-silence-10-02-2017-super-tease.jpg)
 
-CNN Tragedies to test Trump as nation's comforter CNN Washington (CNN) President Donald Trump begins two days of consolation on Tuesday, traveling to storm-battered Puerto Rico before making his way to Las Vegas to view a different type of wreckage at the site of the deadliest shooting in modern US history. To rebuild, Trump must show civility after the storm The Hill Trump Heads to Puerto Rico After Criticism of Storm Response Bloomberg Trump faces political danger in visit to Puerto Rico Politico NBCNews.com - USA TODAY - Los Angeles Times - Fox News all 4,841 news articles »
+CNN Tragedies to test Trump as nation's comforter CNN Washington (CNN) President Donald Trump begins two days of consolation on Tuesday, traveling to storm-battered Puerto Rico before making his way to Las Vegas to view a different type of wreckage at the site of the deadliest shooting in modern US history. Puerto Rico was a disaster long before Maria ravaged the island The Hill Trump faces political danger in visit to Puerto Rico Politico In San Juan, we wait hours to buy groceries. We're the lucky ones. Washington Post Bloomberg - Los Angeles Times - USA TODAY - NBCNews.com all 4,813 news articles »
 
 
 Full story on F3News: [Tragedies to test Trump as nation's comforter - CNN](http://www.f3nws.com/n/XDTHMG)

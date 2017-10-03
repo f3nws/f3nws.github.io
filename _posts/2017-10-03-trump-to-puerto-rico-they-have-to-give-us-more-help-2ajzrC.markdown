@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to Puerto Rico: 'They have to give us more help'"
-date: 2017-10-03 13:58:11Z
+date: 2017-10-03 14:53:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump said Tuesday that local officials in 
 
 Full story on F3News: [Trump to Puerto Rico: 'They have to give us more help'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 3, 2017 1:58:11 PM
+> Posted on: Tuesday, October 3, 2017 2:53:03 PM

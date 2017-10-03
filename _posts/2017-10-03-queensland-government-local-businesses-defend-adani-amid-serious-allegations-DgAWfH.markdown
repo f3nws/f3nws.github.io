@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Queensland Government, local businesses defend Adani amid serious allegations](http://www.abc.net.au/news/image/8877452-1x1-700x700.jpg)
 
-The Queensland Government and business groups are today defending the proposed Carmichael coal mine despite damning allegations aired last night against the company behind it.
+The Queensland Government and business groups are defending the proposed Carmichael coal mine despite damning allegations aired last night against the company behind it.
 
 
 Full story on F3News: [Queensland Government, local businesses defend Adani amid serious allegations](http://www.f3nws.com/n/DgAWfH)
