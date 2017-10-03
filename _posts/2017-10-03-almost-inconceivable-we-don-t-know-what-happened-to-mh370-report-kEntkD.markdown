@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['Almost inconceivable' we don't know what happened to MH370: report](http://www.abc.net.au/news/image/6289482-1x1-700x700.jpg)
 
-The final report by the ATSB into the search for the missing Malaysian Airlines flight MH370 finds while authorities have a better "understanding" of where it crashed, they still do not know why.
+The final report by the ATSB into the search for the missing Malaysian Airlines flight finds while authorities have a better "understanding" of where it crashed, they still do not know why.
 
 
 Full story on F3News: ['Almost inconceivable' we don't know what happened to MH370: report](http://www.f3nws.com/n/kEntkD)
