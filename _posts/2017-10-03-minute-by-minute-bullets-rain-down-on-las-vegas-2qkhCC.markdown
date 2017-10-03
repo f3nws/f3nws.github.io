@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Minute by minute: Bullets rain down on Las Vegas"
-date: 2017-10-03 01:17:40Z
+date: 2017-10-03 03:30:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At some point Thursday, Stephen Paddock checked into the Mandalay Bay Resort and
 
 Full story on F3News: [Minute by minute: Bullets rain down on Las Vegas](http://www.f3nws.com/n/2qkhCC)
 
-> Posted on: Tuesday, October 3, 2017 1:17:40 AM
+> Posted on: Tuesday, October 3, 2017 3:30:46 AM

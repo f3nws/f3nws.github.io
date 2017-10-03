@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "So, how did SNES Classic scalpers do on eBay?     - CNET"
-date: 2017-10-03 00:20:23Z
+date: 2017-10-03 03:19:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Hint: Not as well as they did last year.
 
 Full story on F3News: [So, how did SNES Classic scalpers do on eBay?     - CNET](http://www.f3nws.com/n/ejrvJH)
 
-> Posted on: Tuesday, October 3, 2017 12:20:23 AM
+> Posted on: Tuesday, October 3, 2017 3:19:57 AM
