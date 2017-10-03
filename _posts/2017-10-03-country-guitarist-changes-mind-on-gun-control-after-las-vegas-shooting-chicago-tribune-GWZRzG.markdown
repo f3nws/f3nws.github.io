@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Country guitarist changes mind on gun control after Las Vegas shooting - Chicago Tribune](http://www.trbimg.com/img-59d2d369/turbine/ct-country-guitarist-vegas-shooting-gun-control-20171002)
 
-Los Angeles Times Country guitarist changes mind on gun control after Las Vegas shooting Chicago Tribune In the wake of the deadly mass shooting in Las Vegas on Sunday night that left at least 59 people dead and more than 500 injured, the Josh Abbott Band — like many country acts — posted a message that sent thoughts and prayers to the victims. Guitarist Caleb Keeter Says Seeing Vegas Shooting Changed His Mind On Gun Control HuffPost Josh Abbott Band guitarist changes gun control stance in powerful statement EW.com Josh Abbott Band Guitarist Caleb Keeter Rethinks Second Amendment After Las Vegas Shooting E! Online Vulture - RollingStone.com - ABC News - TIME all 100 news articles »
+Philly.com Country guitarist changes mind on gun control after Las Vegas shooting Chicago Tribune In the wake of the deadly mass shooting in Las Vegas on Sunday night that left at least 59 people dead and more than 500 injured, the Josh Abbott Band — like many country acts — posted a message that sent thoughts and prayers to the victims. Josh Abbott Band Guitarist Caleb Keeter Rethinks Second Amendment After Las Vegas Shooting E! Online Josh Abbott Band guitarist changes gun control stance in powerful statement EW.com Guitarist says Las Vegas shooting made his change his mind on gun control Mashable Today.com - HuffPost - Hollywood Reporter - ABC News all 116 news articles »
 
 
 Full story on F3News: [Country guitarist changes mind on gun control after Las Vegas shooting - Chicago Tribune](http://www.f3nws.com/n/GWZRzG)

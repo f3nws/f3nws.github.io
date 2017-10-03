@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside shooter's room: What happened in Mandalay Bay Hotel"
-date: 2017-10-03 09:52:31Z
+date: 2017-10-03 11:10:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When retiree Stephen Paddock checked into his 32nd-floor hotel room at the Manda
 
 Full story on F3News: [Inside shooter's room: What happened in Mandalay Bay Hotel](http://www.f3nws.com/n/kzJkKF)
 
-> Posted on: Tuesday, October 3, 2017 9:52:31 AM
+> Posted on: Tuesday, October 3, 2017 11:10:40 AM

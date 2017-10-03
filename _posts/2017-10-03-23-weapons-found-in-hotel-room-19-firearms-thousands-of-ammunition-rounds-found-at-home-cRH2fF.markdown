@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "23 weapons found in hotel room | 19 firearms, thousands of ammunition rounds found at home"
-date: 2017-10-03 10:38:54Z
+date: 2017-10-03 11:51:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after the deadliest mass shooting in modern US history, authorities are le
 
 Full story on F3News: [23 weapons found in hotel room | 19 firearms, thousands of ammunition rounds found at home](http://www.f3nws.com/n/cRH2fF)
 
-> Posted on: Tuesday, October 3, 2017 10:38:54 AM
+> Posted on: Tuesday, October 3, 2017 11:51:41 AM
