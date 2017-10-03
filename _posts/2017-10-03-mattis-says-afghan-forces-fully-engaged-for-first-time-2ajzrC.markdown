@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mattis says Afghan forces fully engaged for first time"
-date: 2017-10-03 16:55:47Z
+date: 2017-10-03 18:44:59Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Defense Secretary Jim Mattis told Congress Tuesday that the 
 
 Full story on F3News: [Mattis says Afghan forces fully engaged for first time](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 3, 2017 4:55:47 PM
+> Posted on: Tuesday, October 3, 2017 6:44:59 PM

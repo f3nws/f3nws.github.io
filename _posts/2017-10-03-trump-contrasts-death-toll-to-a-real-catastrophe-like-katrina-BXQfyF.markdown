@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump contrasts death toll to 'a real catastrophe like Katrina'"
-date: 2017-10-03 17:45:07Z
+date: 2017-10-03 18:50:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump told Puerto Rican officials Tuesday they should be "very 
 
 Full story on F3News: [Trump contrasts death toll to 'a real catastrophe like Katrina'](http://www.f3nws.com/n/BXQfyF)
 
-> Posted on: Tuesday, October 3, 2017 5:45:07 PM
+> Posted on: Tuesday, October 3, 2017 6:50:10 PM
