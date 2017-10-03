@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New 'telescopes' show what happened in a galaxy far, far away"
-date: 2017-10-03 12:12:53Z
+date: 2017-10-03 15:10:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ With new gravitational wave detectors, scientists are able to observe black hole
 
 Full story on F3News: [New 'telescopes' show what happened in a galaxy far, far away](http://www.f3nws.com/n/TmrYcD)
 
-> Posted on: Tuesday, October 3, 2017 12:12:53 PM
+> Posted on: Tuesday, October 3, 2017 3:10:21 PM
