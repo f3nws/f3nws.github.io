@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Music legend Tom Petty dies"
-date: 2017-10-03 04:56:46Z
+date: 2017-10-03 07:45:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rocker Tom Petty died Monday after being rushed to a Los Angeles hospital, Petty
 
 Full story on F3News: [Music legend Tom Petty dies](http://www.f3nws.com/n/uVaTyH)
 
-> Posted on: Tuesday, October 3, 2017 4:56:46 AM
+> Posted on: Tuesday, October 3, 2017 7:45:44 AM
