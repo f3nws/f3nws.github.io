@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Exclusive: Russian-linked Facebook ads targeted Michigan and Wisconsin - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171003215422-fb-russia-logo-super-tease.jpg)
 
-CNN Exclusive: Russian-linked Facebook ads targeted Michigan and Wisconsin CNN (CNN) A number of Russian-linked Facebook ads specifically targeted Michigan and Wisconsin, two states crucial to Donald Trump's victory last November, according to four sources with direct knowledge of the situation. Some of the Russian ads appeared ... Facebook Says Content Wasn't the Problem With Russian Election-Season Ads AdAge.com Readers sound off: No one pays attention to Facebook ads anyway USA TODAY Russian-linked Facebook ads aimed at Wisconsin, Michigan: report The Hill New York Post - ABC News - Mashable - Bustle all 216 news articles »
+CNN Exclusive: Russian-linked Facebook ads targeted Michigan and Wisconsin CNN (CNN) A number of Russian-linked Facebook ads specifically targeted Michigan and Wisconsin, two states crucial to Donald Trump's victory last November, according to four sources with direct knowledge of the situation. Some of the Russian ads appeared ... Russia-Linked Facebook Ads Reportedly Aimed for Swing States Fortune Facebook Says Content Wasn't the Problem With Russian Election-Season Ads AdAge.com Readers sound off: No one pays attention to Facebook ads anyway USA TODAY Engadget - The Hill - New York Post - Reuters all 224 news articles »
 
 
 Full story on F3News: [Exclusive: Russian-linked Facebook ads targeted Michigan and Wisconsin - CNN](http://www.f3nws.com/n/NH333H)

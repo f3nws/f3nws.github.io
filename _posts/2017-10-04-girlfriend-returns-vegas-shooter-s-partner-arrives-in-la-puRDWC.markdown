@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Girlfriend returns: Vegas shooter's partner arrives in LA"
-date: 2017-10-04 05:52:23Z
+date: 2017-10-04 09:56:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The girlfriend of the Las Vegas shooter has returned to the United States, a law
 
 Full story on F3News: [Girlfriend returns: Vegas shooter's partner arrives in LA](http://www.f3nws.com/n/puRDWC)
 
-> Posted on: Wednesday, October 4, 2017 5:52:23 AM
+> Posted on: Wednesday, October 4, 2017 9:56:06 AM
