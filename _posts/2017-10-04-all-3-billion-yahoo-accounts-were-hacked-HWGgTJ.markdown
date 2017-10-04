@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All 3 billion Yahoo accounts were hacked"
-date: 2017-10-04 01:31:49Z
+date: 2017-10-04 03:24:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [All 3 billion Yahoo accounts were hacked](http://www.f3nws.com/n/HWGgTJ)
 
-> Posted on: Wednesday, October 4, 2017 1:31:49 AM
+> Posted on: Wednesday, October 4, 2017 3:24:29 AM
