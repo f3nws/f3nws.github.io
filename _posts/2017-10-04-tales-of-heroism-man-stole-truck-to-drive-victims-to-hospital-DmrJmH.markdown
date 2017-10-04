@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tales of heroism: Man stole truck to drive victims to hospital"
-date: 2017-10-04 01:16:16Z
+date: 2017-10-04 07:03:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ During the Las Vegas mass shooting, Taylor Winston found a truck at the festival
 
 Full story on F3News: [Tales of heroism: Man stole truck to drive victims to hospital](http://www.f3nws.com/n/DmrJmH)
 
-> Posted on: Wednesday, October 4, 2017 1:16:16 AM
+> Posted on: Wednesday, October 4, 2017 7:03:45 AM
