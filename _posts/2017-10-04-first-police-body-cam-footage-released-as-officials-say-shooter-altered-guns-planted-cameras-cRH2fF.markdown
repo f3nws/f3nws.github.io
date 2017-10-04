@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First police body cam footage released as officials say shooter altered guns, planted cameras"
-date: 2017-10-04 04:38:16Z
+date: 2017-10-04 06:37:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after the deadliest mass shooting in modern US history, authorities are le
 
 Full story on F3News: [First police body cam footage released as officials say shooter altered guns, planted cameras](http://www.f3nws.com/n/cRH2fF)
 
-> Posted on: Wednesday, October 4, 2017 4:38:16 AM
+> Posted on: Wednesday, October 4, 2017 6:37:05 AM

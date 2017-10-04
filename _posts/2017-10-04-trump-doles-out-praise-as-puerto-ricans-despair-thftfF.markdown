@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump doles out praise as Puerto Ricans despair"
-date: 2017-10-04 00:29:50Z
+date: 2017-10-04 06:57:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nearly two weeks after Hurricane Maria pummeled the island of Puerto Rico, Presi
 
 Full story on F3News: [Trump doles out praise as Puerto Ricans despair](http://www.f3nws.com/n/thftfF)
 
-> Posted on: Wednesday, October 4, 2017 12:29:50 AM
+> Posted on: Wednesday, October 4, 2017 6:57:31 AM

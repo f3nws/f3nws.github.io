@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "It's 3 Billion! Yes, Every Single Yahoo Account Was Hacked In 2013 Data Breach"
-date: 2017-10-04 05:53:52Z
+date: 2017-10-04 06:01:39Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The largest known hack of user data in the history just got tripled in size. Yah
 
 Full story on F3News: [It's 3 Billion! Yes, Every Single Yahoo Account Was Hacked In 2013 Data Breach](http://www.f3nws.com/n/SVYttG)
 
-> Posted on: Wednesday, October 4, 2017 5:53:52 AM
+> Posted on: Wednesday, October 4, 2017 6:01:39 AM
