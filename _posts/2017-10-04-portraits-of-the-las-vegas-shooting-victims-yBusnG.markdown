@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Portraits of the Las Vegas shooting victims"
-date: 2017-10-04 15:01:36Z
+date: 2017-10-04 17:36:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ One was a nurse who died protecting his wife. Another devoted her life to teachi
 
 Full story on F3News: [Portraits of the Las Vegas shooting victims](http://www.f3nws.com/n/yBusnG)
 
-> Posted on: Wednesday, October 4, 2017 3:01:36 PM
+> Posted on: Wednesday, October 4, 2017 5:36:38 PM

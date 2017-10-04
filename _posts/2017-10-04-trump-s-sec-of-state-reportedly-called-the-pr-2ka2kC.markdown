@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Sec of State reportedly called the pr"
-date: 2017-10-04 14:07:11Z
+date: 2017-10-04 14:07:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ It may be easy to understand why Rex Tillerson is so frustrated with Donald Trum
 
 Full story on F3News: [Trump's Sec of State reportedly called the pr](http://www.f3nws.com/n/2ka2kC)
 
-> Posted on: Wednesday, October 4, 2017 2:07:11 PM
+> Posted on: Wednesday, October 4, 2017 2:07:00 PM
