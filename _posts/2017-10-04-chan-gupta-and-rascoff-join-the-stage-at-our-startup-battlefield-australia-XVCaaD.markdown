@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Chan, Gupta and Rascoff join the stage at our Startup Battlefield Australia](https://tctechcrunch2011.files.wordpress.com/2017/07/techcrunch-battlefield-australia.jpg)
 
-TechCrunch is headed to Australia to dig deep and find the disruptive early-stage startups of tomorrow. This is literally our first ever Startup Battlefield Australia and the country’s burgeoning tech scene means that high-growth startups are proliferating across the country, from the Snowy Mountains to the Great Plains and beyond.. We’re excited to welcome some great names from… Read More
+TechCrunch is headed to Australia to dig deep and find the disruptive early-stage startups of tomorrow. This is literally our first ever Startup Battlefield Australia (tickets here) and the country’s burgeoning tech scene means that high-growth startups are proliferating across the country, from the Snowy Mountains to the Great Plains and beyond.. We’re excited to welcome some… Read More
 
 
 Full story on F3News: [Chan, Gupta and Rascoff join the stage at our Startup Battlefield Australia](http://www.f3nws.com/n/XVCaaD)
