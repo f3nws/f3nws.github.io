@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge, Gregorius, bullpen rally wild-card Yankees past Twins"
-date: 2017-10-04 07:47:05Z
+date: 2017-10-04 08:54:46Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Minutes into the playoff debut for these young New York Yankee
 
 Full story on F3News: [Judge, Gregorius, bullpen rally wild-card Yankees past Twins](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, October 4, 2017 7:47:05 AM
+> Posted on: Wednesday, October 4, 2017 8:54:46 AM

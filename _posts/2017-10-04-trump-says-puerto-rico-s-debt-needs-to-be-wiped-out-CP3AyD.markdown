@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says Puerto Rico’s debt needs to be wiped out"
-date: 2017-10-04 04:19:23Z
+date: 2017-10-04 04:19:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump said that Puerto Rico’s $74 billion debt would have 
 
 Full story on F3News: [Trump says Puerto Rico’s debt needs to be wiped out](http://www.f3nws.com/n/CP3AyD)
 
-> Posted on: Wednesday, October 4, 2017 4:19:23 AM
+> Posted on: Wednesday, October 4, 2017 4:19:00 AM
