@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![This congressman is why people hate politics - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171003173506-tim-murphy-super-tease.jpg)
 
-CNN This congressman is why people hate politics CNN Washington (CNN) Pennsylvania Rep. Tim Murphy has had one hell of a last month. In early September, the Republican House member admitted to an extramarital affair with a "personal friend" following the unsealing of divorce records that showed he had ... Anti-abortion rep reportedly asked mistress to get an abortion MSNBC Report: Anti-Abortion US Rep Asked Girlfriend to Get One U.S. News & World Report Anti-Abortion Congressman Reportedly Suggested That His Mistress Have an Abortion Jezebel Pittsburgh Post-Gazette - Pittsburgh Post-Gazette - Facebook - CNN all 82 news articles »
+CNN This congressman is why people hate politics CNN Washington (CNN) Pennsylvania Rep. Tim Murphy has had one hell of a last month. In early September, the Republican House member admitted to an extramarital affair with a "personal friend" following the unsealing of divorce records that showed he had ... Pro-Life Rep. Tim Murphy Pressured Mistress to Get Abortion U.S. News & World Report Pro-life lawmaker may have suggested woman he had affair with get abortion: report The Hill “Pro-Life” Congressman Caught Telling His Extramarital Boo to Get an Abortion Slate Magazine (blog) Business Insider - MSNBC - Fox News - ThinkProgress all 94 news articles »
 
 
 Full story on F3News: [This congressman is why people hate politics - CNN](http://www.f3nws.com/n/gY3PtF)
