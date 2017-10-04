@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ivanka, Trump Jr. were nearly charged with fraud in 2012: report - The Hill](http://thehill.com/sites/default/files/d_ivankatrump_0.jpg)
 
-The Hill Ivanka, Trump Jr. were nearly charged with fraud in 2012: report The Hill Two of President Trump's adult children, Donald Trump · Donald John TrumpBiden slams Trump over golf gif hitting Clinton Trump Jr. declines further Secret Service protection: report Report: Mueller warned Manafort to expect an indictment MORE Jr. and ... With Email Scandals and Near-Indictments, Trump's Adult Children Honor the Family Name Jezebel Ivanka Trump: I 'Get Goosebumps' Walking Into The White House Us Weekly The Trump Family Had an Email Scandal Brewing Long Before Hillary Clinton Newsweek MarketWatch - GQ Magazine - Above the Law - Vox all 46 news articles »
+The Hill Ivanka, Trump Jr. were nearly charged with fraud in 2012: report The Hill Two of President Trump's adult children, Donald Trump · Donald John TrumpBiden slams Trump over golf gif hitting Clinton Trump Jr. declines further Secret Service protection: report Report: Mueller warned Manafort to expect an indictment MORE Jr. and ... How one Trump high-rise became a crossroads of controversy Newsday With Email Scandals and Near-Indictments, Trump's Adult Children Honor the Family Name Jezebel Ivanka Trump: I 'Get Goosebumps' Walking Into The White House Us Weekly MarketWatch - Refinery29 all 59 news articles »
 
 
 Full story on F3News: [Ivanka, Trump Jr. were nearly charged with fraud in 2012: report - The Hill](http://www.f3nws.com/n/RrseDH)

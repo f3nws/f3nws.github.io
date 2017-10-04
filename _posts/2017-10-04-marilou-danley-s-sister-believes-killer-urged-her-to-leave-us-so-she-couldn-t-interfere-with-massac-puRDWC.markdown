@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marilou Danley's sister believes killer urged her to leave US so she couldn't interfere with massacre"
-date: 2017-10-04 21:35:46Z
+date: 2017-10-04 22:39:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The girlfriend of the Las Vegas shooter has returned to the United States, a law
 
 Full story on F3News: [Marilou Danley's sister believes killer urged her to leave US so she couldn't interfere with massacre](http://www.f3nws.com/n/puRDWC)
 
-> Posted on: Wednesday, October 4, 2017 9:35:46 PM
+> Posted on: Wednesday, October 4, 2017 10:39:28 PM
