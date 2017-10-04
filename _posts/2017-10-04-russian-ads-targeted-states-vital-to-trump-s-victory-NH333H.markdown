@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian ads targeted states vital to Trump's victory"
-date: 2017-10-04 06:53:21Z
+date: 2017-10-04 10:57:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A number of Russian-linked Facebook ads specifically targeted Michigan and Wisco
 
 Full story on F3News: [Russian ads targeted states vital to Trump's victory](http://www.f3nws.com/n/NH333H)
 
-> Posted on: Wednesday, October 4, 2017 6:53:21 AM
+> Posted on: Wednesday, October 4, 2017 10:57:34 AM
