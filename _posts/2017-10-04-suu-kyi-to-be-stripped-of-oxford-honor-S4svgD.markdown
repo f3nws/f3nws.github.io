@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suu Kyi to be stripped of Oxford honor"
-date: 2017-10-04 13:48:08Z
+date: 2017-10-04 15:30:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Aung San Suu Kyi is to be stripped of the Freedom of Oxford by the city's counci
 
 Full story on F3News: [Suu Kyi to be stripped of Oxford honor](http://www.f3nws.com/n/S4svgD)
 
-> Posted on: Wednesday, October 4, 2017 1:48:08 PM
+> Posted on: Wednesday, October 4, 2017 3:30:18 PM

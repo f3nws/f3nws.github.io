@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spacewalk 360: RT releases first-ever panoramic video of man in outer space (VIDEO)"
-date: 2017-10-04 04:01:12Z
+date: 2017-10-04 04:01:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ RT has released the first-ever 360-degree footage shot by man in outer space, pu
 
 Full story on F3News: [Spacewalk 360: RT releases first-ever panoramic video of man in outer space (VIDEO)](http://www.f3nws.com/n/WDsKsG)
 
-> Posted on: Wednesday, October 4, 2017 4:01:12 AM
+> Posted on: Wednesday, October 4, 2017 4:01:00 AM

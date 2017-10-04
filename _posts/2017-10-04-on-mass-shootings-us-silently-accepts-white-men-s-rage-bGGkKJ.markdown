@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On mass shootings, US silently accepts white men's rage"
-date: 2017-10-04 12:34:38Z
+date: 2017-10-04 15:33:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If people of color were committing the majority of mass shootings, says Naaz Mod
 
 Full story on F3News: [On mass shootings, US silently accepts white men's rage](http://www.f3nws.com/n/bGGkKJ)
 
-> Posted on: Wednesday, October 4, 2017 12:34:38 PM
+> Posted on: Wednesday, October 4, 2017 3:33:11 PM
