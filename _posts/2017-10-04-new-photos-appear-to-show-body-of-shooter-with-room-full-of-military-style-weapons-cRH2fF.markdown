@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New photos appear to show body of shooter with room full of military-style weapons"
-date: 2017-10-04 01:47:57Z
+date: 2017-10-04 02:02:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after the deadliest mass shooting in modern US history, authorities are le
 
 Full story on F3News: [New photos appear to show body of shooter with room full of military-style weapons](http://www.f3nws.com/n/cRH2fF)
 
-> Posted on: Wednesday, October 4, 2017 1:47:57 AM
+> Posted on: Wednesday, October 4, 2017 2:02:04 AM

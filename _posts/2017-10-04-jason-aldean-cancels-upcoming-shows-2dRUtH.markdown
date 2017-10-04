@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jason Aldean cancels upcoming shows"
-date: 2017-10-04 00:20:13Z
+date: 2017-10-04 02:05:57Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jason Aldean is still coming to terms with the mass shooting that occurred durin
 
 Full story on F3News: [Jason Aldean cancels upcoming shows](http://www.f3nws.com/n/2dRUtH)
 
-> Posted on: Wednesday, October 4, 2017 12:20:13 AM
+> Posted on: Wednesday, October 4, 2017 2:05:57 AM
