@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's generals are speaking up"
-date: 2017-10-04 11:06:44Z
+date: 2017-10-04 12:43:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's not organized military opposition to President Donald Trump. But day by day
 
 Full story on F3News: [Trump's generals are speaking up](http://www.f3nws.com/n/MpPqFC)
 
-> Posted on: Wednesday, October 4, 2017 11:06:44 AM
+> Posted on: Wednesday, October 4, 2017 12:43:11 PM
