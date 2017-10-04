@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Lobs Praise, and Paper Towels, to Puerto Rico Storm Victims - New York Times](https://static01.nyt.com/images/2017/10/04/us/04dc-trump1-alpha/04dc-trump1-facebookJumbo.jpg)
 
-New York Times Trump Lobs Praise, and Paper Towels, to Puerto Rico Storm Victims New York Times President Trump visited Puerto Rico, where 16 people are known to have died as a result of Hurricane Maria. By REUTERS on Publish Date October 3, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. WASHINGTON ... The Health 202: Puerto Rico's problems include a Medicaid shortfall Washington Post White House walks back Trump's Puerto Rico comments as Wall Street reels Politico Puerto Rico Mayors Play Outsized Role in Hurricane Recovery U.S. News & World Report BBC News - The Atlantic - Bloomberg - USA TODAY all 5,704 news articles »
+New York Times Trump Lobs Praise, and Paper Towels, to Puerto Rico Storm Victims New York Times President Trump visited Puerto Rico, where 16 people are known to have died as a result of Hurricane Maria. By REUTERS on Publish Date October 3, 2017. Photo by Doug Mills/The New York Times. Watch in Times Video ». embed. WASHINGTON ... The Health 202: Puerto Rico's problems include a Medicaid shortfall Washington Post White House walks back Trump's Puerto Rico comments as Wall Street reels Politico Trump's Puerto Rico drop-in was a monumental insult The Hill U.S. News & World Report - BBC News - NBCNews.com - Bloomberg all 5,740 news articles »
 
 
 Full story on F3News: [Trump Lobs Praise, and Paper Towels, to Puerto Rico Storm Victims - New York Times](http://www.f3nws.com/n/rTnfrG)
