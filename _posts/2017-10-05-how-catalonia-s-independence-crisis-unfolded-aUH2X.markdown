@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Catalonia's independence crisis unfolded"
-date: 2017-10-05 04:39:53Z
+date: 2017-10-05 09:40:38Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Catalonia's independence referendum sparked a police crackdown and continuing ma
 
 Full story on F3News: [How Catalonia's independence crisis unfolded](http://www.f3nws.com/n/aUH2X)
 
-> Posted on: Thursday, October 5, 2017 4:39:53 AM
+> Posted on: Thursday, October 5, 2017 9:40:38 AM
