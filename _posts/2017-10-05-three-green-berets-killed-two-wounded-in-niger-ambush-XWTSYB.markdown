@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three Green Berets killed, two wounded in Niger ambush"
-date: 2017-10-05 01:00:00Z
+date: 2017-10-05 03:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Three U.S. Army Special Forces soldiers were killed and two others were wounded 
 
 Full story on F3News: [Three Green Berets killed, two wounded in Niger ambush](http://www.f3nws.com/n/XWTSYB)
 
-> Posted on: Thursday, October 5, 2017 1:00:00 AM
+> Posted on: Thursday, October 5, 2017 3:30:00 AM
