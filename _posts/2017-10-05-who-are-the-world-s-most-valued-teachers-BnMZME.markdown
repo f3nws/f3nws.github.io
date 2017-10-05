@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who are the world's most valued teachers?"
-date: 2017-10-05 06:46:28Z
+date: 2017-10-05 07:26:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ All over the world, proud parents drop their children at the gates of schools, d
 
 Full story on F3News: [Who are the world's most valued teachers?](http://www.f3nws.com/n/BnMZME)
 
-> Posted on: Thursday, October 5, 2017 6:46:28 AM
+> Posted on: Thursday, October 5, 2017 7:26:02 AM
