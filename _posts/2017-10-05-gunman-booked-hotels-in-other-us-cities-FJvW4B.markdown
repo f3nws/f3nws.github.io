@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman booked hotels in other US cities"
-date: 2017-10-05 21:09:33Z
+date: 2017-10-05 22:37:30Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The gunman in the Las Vegas massacre this week spent decades amassing weapons, a
 
 Full story on F3News: [Gunman booked hotels in other US cities](http://www.f3nws.com/n/FJvW4B)
 
-> Posted on: Thursday, October 5, 2017 9:09:33 PM
+> Posted on: Thursday, October 5, 2017 10:37:30 PM

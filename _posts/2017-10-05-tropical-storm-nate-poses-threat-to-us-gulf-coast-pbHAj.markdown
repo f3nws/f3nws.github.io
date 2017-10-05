@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical Storm Nate poses threat to US Gulf Coast"
-date: 2017-10-05 18:52:41Z
+date: 2017-10-05 22:11:00Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tropical Storm Nate formed Thursday morning in the southwestern Caribbean, and e
 
 Full story on F3News: [Tropical Storm Nate poses threat to US Gulf Coast](http://www.f3nws.com/n/pbHAj)
 
-> Posted on: Thursday, October 5, 2017 6:52:41 PM
+> Posted on: Thursday, October 5, 2017 10:11:00 PM
