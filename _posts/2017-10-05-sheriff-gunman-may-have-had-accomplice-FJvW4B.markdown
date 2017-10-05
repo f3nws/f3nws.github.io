@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sheriff: Gunman may have had accomplice"
-date: 2017-10-05 16:34:58Z
+date: 2017-10-05 19:14:53Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The gunman in the Las Vegas massacre this week spent decades amassing weapons, a
 
 Full story on F3News: [Sheriff: Gunman may have had accomplice](http://www.f3nws.com/n/FJvW4B)
 
-> Posted on: Thursday, October 5, 2017 4:34:58 PM
+> Posted on: Thursday, October 5, 2017 7:14:53 PM

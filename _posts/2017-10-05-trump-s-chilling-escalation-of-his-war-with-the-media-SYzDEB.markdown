@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's chilling escalation of his war with the media"
-date: 2017-10-05 16:43:39Z
+date: 2017-10-05 16:59:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Thursday, President Donald Trump escalated his ongoing one-sided war with the
 
 Full story on F3News: [Trump's chilling escalation of his war with the media](http://www.f3nws.com/n/SYzDEB)
 
-> Posted on: Thursday, October 5, 2017 4:43:39 PM
+> Posted on: Thursday, October 5, 2017 4:59:52 PM
