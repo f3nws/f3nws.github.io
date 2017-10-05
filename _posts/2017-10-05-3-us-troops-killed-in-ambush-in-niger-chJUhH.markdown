@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 US troops killed in ambush in Niger"
-date: 2017-10-05 11:22:22Z
+date: 2017-10-05 12:05:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three members of the US Special Operations Forces were killed and two others wer
 
 Full story on F3News: [3 US troops killed in ambush in Niger](http://www.f3nws.com/n/chJUhH)
 
-> Posted on: Thursday, October 5, 2017 11:22:22 AM
+> Posted on: Thursday, October 5, 2017 12:05:20 PM
