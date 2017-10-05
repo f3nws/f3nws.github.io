@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump hits a new low in attacks on the free press"
-date: 2017-10-05 12:40:20Z
+date: 2017-10-05 16:55:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ President Trump's disregard for a free press just reached a new low: He's urging
 
 Full story on F3News: [Trump hits a new low in attacks on the free press](http://www.f3nws.com/n/abBzfE)
 
-> Posted on: Thursday, October 5, 2017 12:40:20 PM
+> Posted on: Thursday, October 5, 2017 4:55:35 PM
