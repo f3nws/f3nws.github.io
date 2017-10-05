@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraq says it has retaken northern town from Islamic State"
-date: 2017-10-05 12:48:11Z
+date: 2017-10-05 15:45:48Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PARIS (AP) — Iraq's prime minister said Thursday that troops have retaken the 
 
 Full story on F3News: [Iraq says it has retaken northern town from Islamic State](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 5, 2017 12:48:11 PM
+> Posted on: Thursday, October 5, 2017 3:45:48 PM
