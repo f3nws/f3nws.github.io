@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Home compost pickup trial to allow meat, dairy in green waste bins](http://www.abc.net.au/news/image/9018784-1x1-700x700.jpg)
 
-A select group of residents will soon be able to throw meat, dairy products and coffee grounds into their green waste bins in a move to decrease landfill use and yield better compost.
+A select group of residents will soon be able to throw meat, dairy products, coffee grounds and dog poo into their green waste bins in a move to decrease landfill use and yield better compost.
 
 
 Full story on F3News: [Home compost pickup trial to allow meat, dairy in green waste bins](http://www.f3nws.com/n/JnnGcB)

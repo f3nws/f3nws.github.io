@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New storm threatens US Gulf Coast"
-date: 2017-10-05 04:54:02Z
+date: 2017-10-05 06:36:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Though summer officially ended almost two weeks ago, hurricane season is still i
 
 Full story on F3News: [New storm threatens US Gulf Coast](http://www.f3nws.com/n/gWM2uD)
 
-> Posted on: Thursday, October 5, 2017 4:54:02 AM
+> Posted on: Thursday, October 5, 2017 6:36:48 AM
