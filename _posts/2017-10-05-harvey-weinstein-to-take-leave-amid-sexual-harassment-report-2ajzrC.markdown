@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein to take leave amid sexual harassment report"
-date: 2017-10-05 20:54:00Z
+date: 2017-10-05 21:45:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — Harvey Weinstein, the larger-than-life Hollywood executive 
 
 Full story on F3News: [Harvey Weinstein to take leave amid sexual harassment report](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 5, 2017 8:54:00 PM
+> Posted on: Thursday, October 5, 2017 9:45:17 PM
