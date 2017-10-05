@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The changing reasons why women cheat on their husbands"
-date: 2017-10-05 08:41:36Z
+date: 2017-10-05 13:51:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One of the more interesting facts in Esther Perel's new book, State of Affairs: 
 
 Full story on F3News: [The changing reasons why women cheat on their husbands](http://www.f3nws.com/n/jDFJEJ)
 
-> Posted on: Thursday, October 5, 2017 8:41:36 AM
+> Posted on: Thursday, October 5, 2017 1:51:26 PM

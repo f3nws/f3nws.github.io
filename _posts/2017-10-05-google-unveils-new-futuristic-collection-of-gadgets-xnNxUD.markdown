@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google unveils new futuristic collection of gadgets"
-date: 2017-10-05 12:28:11Z
+date: 2017-10-05 13:17:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Google unveils new futuristic collection of gadgets](http://www.f3nws.com/n/xnNxUD)
 
-> Posted on: Thursday, October 5, 2017 12:28:11 PM
+> Posted on: Thursday, October 5, 2017 1:17:03 PM
