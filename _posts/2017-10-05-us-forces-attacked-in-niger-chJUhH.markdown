@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US forces attacked in Niger"
-date: 2017-10-05 00:45:46Z
+date: 2017-10-05 01:56:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US troops were attacked near the Niger-Mali border Wednesday, the US military to
 
 Full story on F3News: [US forces attacked in Niger](http://www.f3nws.com/n/chJUhH)
 
-> Posted on: Thursday, October 5, 2017 12:45:46 AM
+> Posted on: Thursday, October 5, 2017 1:56:27 AM

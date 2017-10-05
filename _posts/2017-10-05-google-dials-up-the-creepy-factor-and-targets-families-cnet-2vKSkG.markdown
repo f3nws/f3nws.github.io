@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google dials up the creepy factor and targets families     - CNET"
-date: 2017-10-05 00:20:46Z
+date: 2017-10-05 01:18:32Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Google markets its Clips, a new, ever-so-cute portable camera, as pe
 
 Full story on F3News: [Google dials up the creepy factor and targets families     - CNET](http://www.f3nws.com/n/2vKSkG)
 
-> Posted on: Thursday, October 5, 2017 12:20:46 AM
+> Posted on: Thursday, October 5, 2017 1:18:32 AM

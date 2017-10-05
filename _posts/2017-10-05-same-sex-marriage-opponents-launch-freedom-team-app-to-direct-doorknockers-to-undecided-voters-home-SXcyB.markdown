@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Same-sex marriage opponents launch Freedom Team app to direct doorknockers to undecided voters' homes - The Sydney Morning Herald"
-date: 2017-10-05 00:51:00Z
+date: 2017-10-05 00:52:36Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Same-sex marriage opponents launch Freedom Team app to
 
 Full story on F3News: [Same-sex marriage opponents launch Freedom Team app to direct doorknockers to undecided voters' homes - The Sydney Morning Herald](http://www.f3nws.com/n/SXcyB)
 
-> Posted on: Thursday, October 5, 2017 12:51:00 AM
+> Posted on: Thursday, October 5, 2017 12:52:36 AM
