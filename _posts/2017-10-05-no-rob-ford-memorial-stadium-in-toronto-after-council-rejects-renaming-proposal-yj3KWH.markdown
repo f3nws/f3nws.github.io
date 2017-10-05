@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No ‘Rob Ford Memorial Stadium’ in Toronto after council rejects renaming proposal"
-date: 2017-10-05 02:14:13Z
+date: 2017-10-05 02:14:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ City council rejected the plan to rename Centennial Park Stadium in Etobicoke af
 
 Full story on F3News: [No ‘Rob Ford Memorial Stadium’ in Toronto after council rejects renaming proposal](http://www.f3nws.com/n/yj3KWH)
 
-> Posted on: Thursday, October 5, 2017 2:14:13 AM
+> Posted on: Thursday, October 5, 2017 2:14:00 AM
