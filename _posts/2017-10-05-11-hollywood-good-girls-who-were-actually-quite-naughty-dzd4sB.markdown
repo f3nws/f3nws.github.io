@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "11 Hollywood 'good girls' who were actually quite naughty"
-date: 2017-10-05 04:00:02Z
+date: 2017-10-05 05:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ What did these silver screen sirens have in common, other than their classic goo
 
 Full story on F3News: [11 Hollywood 'good girls' who were actually quite naughty](http://www.f3nws.com/n/dzd4sB)
 
-> Posted on: Thursday, October 5, 2017 4:00:02 AM
+> Posted on: Thursday, October 5, 2017 5:00:00 AM

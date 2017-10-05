@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Google is using its biggest advantage as a weapon to totally embarrass Apple - Business Insider](http://static2.businessinsider.de/image/59d58358f37c8d5de00ed227/google-is-using-its-biggest-advantage-as-a-weapon-to-totally-embarrass-apple.jpg)
 
-Business Insider Google is using its biggest advantage as a weapon to totally embarrass Apple Business Insider Hardware, as they say, is hard. Building something complex like a smartphone is tough enough as it is; selling enough of them to overcome the lousy profit margins and high costs of manufacturing only makes it harder. Major companies like Google are not ... Google's Pixel Buds translation will change the world Engadget How Does the Google Pixel 2 Compare to Apple's iPhone 8, iPhone 8 Plus, and iPhone X? Fortune Google launches new phones, speakers in hardware push Reuters BGR - Washington Post - TechCrunch - Gizmodo all 1,604 news articles »
+Business Insider Google is using its biggest advantage as a weapon to totally embarrass Apple Business Insider Hardware, as they say, is hard. Building something complex like a smartphone is tough enough as it is; selling enough of them to overcome the lousy profit margins and high costs of manufacturing only makes it harder. Major companies like Google are not ... Google launches new phones, speakers in hardware push Reuters The Pixel 2 proves headphone jacks are truly doomed Engadget This is how Google wants you to switch from iPhone to Pixel 2 CNET BGR - Fortune - Digital Trends - Washington Post all 1,659 news articles »
 
 
 Full story on F3News: [Google is using its biggest advantage as a weapon to totally embarrass Apple - Business Insider](http://www.f3nws.com/n/zaAEND)

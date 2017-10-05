@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 US Army special operations commandos killed in Niger"
-date: 2017-10-05 03:54:00Z
+date: 2017-10-05 04:48:38Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — U.S. officials said three U.S. Army special operations comma
 
 Full story on F3News: [3 US Army special operations commandos killed in Niger](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 5, 2017 3:54:00 AM
+> Posted on: Thursday, October 5, 2017 4:48:38 AM
