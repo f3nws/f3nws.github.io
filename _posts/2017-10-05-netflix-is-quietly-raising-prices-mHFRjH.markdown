@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Netflix is quietly raising prices"
-date: 2017-10-05 15:58:07Z
+date: 2017-10-05 20:03:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Netflix is quietly raising prices](http://www.f3nws.com/n/mHFRjH)
 
-> Posted on: Thursday, October 5, 2017 3:58:07 PM
+> Posted on: Thursday, October 5, 2017 8:03:28 PM
