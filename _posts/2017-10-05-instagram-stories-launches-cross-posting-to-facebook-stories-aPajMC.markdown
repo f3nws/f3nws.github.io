@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Instagram Stories launches cross-posting to Facebook Stories](https://tctechcrunch2011.files.wordpress.com/2016/08/instagram-snapchat-facebook-twitter.png)
 
-Facebook Stories might not be a ghost town for long. After testing in Portugal last month, TechCrunch spotted the option to syndicate your Instagram Stories to Facebook Stories appearing to US users. Now Facebook confirms this feature is officially rolling out, and everyone should have it soon if not already. “You now have the option to share your Instagram Stories to your Facebook Stories. Read More
+Facebook Stories might not be a ghost town for long. After testing in Portugal last month, TechCrunch spotted the option to syndicate your Instagram Stories to Facebook Stories appearing to US users. Now Facebook confirms this feature is officially rolling out, and everyone should have it soon if not already. The only exception is businesses, since they’re not allowed on Facebook… Read More
 
 
 Full story on F3News: [Instagram Stories launches cross-posting to Facebook Stories](http://www.f3nws.com/n/aPajMC)

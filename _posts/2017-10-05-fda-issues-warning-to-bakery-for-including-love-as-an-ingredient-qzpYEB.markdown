@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FDA issues warning to bakery for including ‘love’ as an ingredient"
-date: 2017-10-05 01:38:26Z
+date: 2017-10-05 01:38:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The Food and Drug Administration issued a stern warning letter to a Massachusett
 
 Full story on F3News: [FDA issues warning to bakery for including ‘love’ as an ingredient](http://www.f3nws.com/n/qzpYEB)
 
-> Posted on: Thursday, October 5, 2017 1:38:26 AM
+> Posted on: Thursday, October 5, 2017 1:38:00 AM

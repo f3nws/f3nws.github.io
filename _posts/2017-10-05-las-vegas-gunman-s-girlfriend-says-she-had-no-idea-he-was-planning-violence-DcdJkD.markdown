@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas gunman's girlfriend says she had no idea he was ‘planning violence’"
-date: 2017-10-05 00:46:29Z
+date: 2017-10-05 00:46:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Marilou Danley, the girlfriend of Las Vegas gunman Stephen Paddock, was question
 
 Full story on F3News: [Las Vegas gunman's girlfriend says she had no idea he was ‘planning violence’](http://www.f3nws.com/n/DcdJkD)
 
-> Posted on: Thursday, October 5, 2017 12:46:29 AM
+> Posted on: Thursday, October 5, 2017 12:46:00 AM

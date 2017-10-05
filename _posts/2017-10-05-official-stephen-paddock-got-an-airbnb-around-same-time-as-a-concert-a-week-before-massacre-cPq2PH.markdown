@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Official: Stephen Paddock got an Airbnb around same time as a concert a week before massacre"
-date: 2017-10-05 01:06:35Z
+date: 2017-10-05 02:31:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It took about 10 minutes for Stephen Paddock to carry out the deadliest mass sho
 
 Full story on F3News: [Official: Stephen Paddock got an Airbnb around same time as a concert a week before massacre](http://www.f3nws.com/n/cPq2PH)
 
-> Posted on: Thursday, October 5, 2017 1:06:35 AM
+> Posted on: Thursday, October 5, 2017 2:31:09 AM
