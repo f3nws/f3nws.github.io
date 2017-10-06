@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Exclusive: Russian-linked group sold merchandise online"
-date: 2017-10-06 12:38:20Z
+date: 2017-10-06 13:37:07Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Exclusive: Russian-linked group sold merchandise online](http://www.f3nws.com/n/rqsWJJ)
 
-> Posted on: Friday, October 6, 2017 12:38:20 PM
+> Posted on: Friday, October 6, 2017 1:37:07 PM
