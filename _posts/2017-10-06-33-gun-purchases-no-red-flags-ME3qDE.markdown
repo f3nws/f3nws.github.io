@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "33 gun purchases, no red flags"
-date: 2017-10-06 03:29:33Z
+date: 2017-10-06 05:53:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Steven Paddock was able to buy 33 guns in a single year without raising any red 
 
 Full story on F3News: [33 gun purchases, no red flags](http://www.f3nws.com/n/ME3qDE)
 
-> Posted on: Friday, October 6, 2017 3:29:33 AM
+> Posted on: Friday, October 6, 2017 5:53:48 AM
