@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Apple reveals new emoji coming soon to iOS 11.1"
+date: 2017-10-06 07:05:30Z
+categories: google-news-technology
+---
+
+![Apple reveals new emoji coming soon to iOS 11.1](https://cdn0.vox-cdn.com/thumbor/KIKAgaYmvn5oRkKjHCBh8HHAF7Q=/0x146:2040x1214/fit-in/1200x630/cdn2.vox-cdn.com/uploads/chorus_asset/file/9404651/DSCF5845.jpg)
+
+The Verge Apple reveals new emoji coming soon to iOS 11.1 The Verge Apple has shown off more emoji characters coming to iOS in the future 11.1 update. The characters are part of Unicode 10, which added 56 new emoji; Apple is revealing over 30 of its new designs today in addition to the handful the company put out on ... Apple Confirms New Emoji Are Coming to iPhone and iPad in iOS 11.1 Mac Rumors Hundreds of new emoji coming to iOS 11.1 beta 2 next week [Gallery] 9to5Mac Apple Is Introducing Androgynous Emojis BuzzFeed News CNBC - NEWS.com.au - Forbes - The Inquisitr all 30 news articles »
+
+
+Full story on F3News: [Apple reveals new emoji coming soon to iOS 11.1](http://www.f3nws.com/n/FnSrUB)
+
+> Posted on: Friday, October 6, 2017 7:05:30 AM
