@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Google Home deals and Google Home Mini prices in October 2017"
-date: 2017-10-06 09:33:12Z
+date: 2017-10-06 09:35:12Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've rounded up and compared the best Google Home prices
 
 Full story on F3News: [The best Google Home deals and Google Home Mini prices in October 2017](http://www.f3nws.com/n/3yGHN)
 
-> Posted on: Friday, October 6, 2017 9:33:12 AM
+> Posted on: Friday, October 6, 2017 9:35:12 AM
