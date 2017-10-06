@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AOL's AIM sets its away message... permanently     - CNET"
-date: 2017-10-06 15:06:01Z
+date: 2017-10-06 16:36:08Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Now known as Oath, AOL says it will shut down its instant messenger service on D
 
 Full story on F3News: [AOL's AIM sets its away message... permanently     - CNET](http://www.f3nws.com/n/gzDdGG)
 
-> Posted on: Friday, October 6, 2017 3:06:01 PM
+> Posted on: Friday, October 6, 2017 4:36:08 PM

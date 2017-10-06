@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Producer Harvey Weinstein accused of repeated sexual harassment"
-date: 2017-10-06 01:20:06Z
+date: 2017-10-06 17:32:28Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Producer Harvey Weinstein accused of repeated sexual harassment](http://www.f3nws.com/n/GfXWxG)
 
-> Posted on: Friday, October 6, 2017 1:20:06 AM
+> Posted on: Friday, October 6, 2017 5:32:28 PM
