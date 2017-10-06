@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: This is the 'calm before the storm'"
-date: 2017-10-06 00:15:25Z
+date: 2017-10-06 04:04:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump called a White House dinner with top military commanders,
 
 Full story on F3News: [Trump: This is the 'calm before the storm'](http://www.f3nws.com/n/NjbHZ)
 
-> Posted on: Friday, October 6, 2017 12:15:25 AM
+> Posted on: Friday, October 6, 2017 4:04:29 AM
