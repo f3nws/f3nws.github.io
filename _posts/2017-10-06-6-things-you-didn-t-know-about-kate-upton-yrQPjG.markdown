@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6 things you didn't know about Kate Upton"
-date: 2017-10-06 03:00:01Z
+date: 2017-10-06 06:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Kate's first love wasn't modeling?
 
 Full story on F3News: [6 things you didn't know about Kate Upton](http://www.f3nws.com/n/yrQPjG)
 
-> Posted on: Friday, October 6, 2017 3:00:01 AM
+> Posted on: Friday, October 6, 2017 6:00:00 AM

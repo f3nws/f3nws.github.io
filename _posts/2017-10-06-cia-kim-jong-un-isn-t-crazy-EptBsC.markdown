@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CIA: Kim Jong Un isn't crazy"
-date: 2017-10-06 04:15:21Z
+date: 2017-10-06 06:45:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Between the ruthless executions of his own senior officers, bombastic threats of
 
 Full story on F3News: [CIA: Kim Jong Un isn't crazy](http://www.f3nws.com/n/EptBsC)
 
-> Posted on: Friday, October 6, 2017 4:15:21 AM
+> Posted on: Friday, October 6, 2017 6:45:51 AM

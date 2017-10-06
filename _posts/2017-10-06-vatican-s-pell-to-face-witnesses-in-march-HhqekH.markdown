@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Vatican's Pell to face witnesses in March](http://i2.cdn.cnn.com/cnnnext/dam/assets/171006080950-01-pell-october-trial-super-tease.jpg)
 
-Vatican treasurer Cardinal George Pell, who faces charges of historic sexual assault, will return to an Australian court in March, when dozens of witnesses are expected to give evidence at a month-long committal hearing.
+Dozens of witnesses are expected to give evidence when Vatican treasurer Cardinal George Pell faces an Australian court again in March on charges of historic sexual assault.
 
 
 Full story on F3News: [Vatican's Pell to face witnesses in March](http://www.f3nws.com/n/HhqekH)

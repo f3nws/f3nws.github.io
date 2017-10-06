@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How 'troll factory' stoked Islamophobia"
-date: 2017-10-06 02:27:05Z
+date: 2017-10-06 06:48:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On May 21 2016, a handful of people turned out to protest the opening of a libr
 
 Full story on F3News: [How 'troll factory' stoked Islamophobia](http://www.f3nws.com/n/2zMHV)
 
-> Posted on: Friday, October 6, 2017 2:27:05 AM
+> Posted on: Friday, October 6, 2017 6:48:12 AM
