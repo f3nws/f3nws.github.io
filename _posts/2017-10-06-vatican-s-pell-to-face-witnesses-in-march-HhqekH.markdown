@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vatican's Pell to face witnesses in March"
-date: 2017-10-06 02:45:21Z
+date: 2017-10-06 03:32:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Vatican treasurer Cardinal George Pell, who faces charges of historic sexual ass
 
 Full story on F3News: [Vatican's Pell to face witnesses in March](http://www.f3nws.com/n/HhqekH)
 
-> Posted on: Friday, October 6, 2017 2:45:21 AM
+> Posted on: Friday, October 6, 2017 3:32:35 AM

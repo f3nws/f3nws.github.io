@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Census 2016: Sydney's Bible belt is losing the faith - The Sydney Morning Herald"
-date: 2017-10-06 00:43:00Z
+date: 2017-10-06 00:44:44Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Sydney Morning Herald Census 2016: Sydney's Bible belt is losing the faith T
 
 Full story on F3News: [Census 2016: Sydney's Bible belt is losing the faith - The Sydney Morning Herald](http://www.f3nws.com/n/uva2sF)
 
-> Posted on: Friday, October 6, 2017 12:43:00 AM
+> Posted on: Friday, October 6, 2017 12:44:44 AM

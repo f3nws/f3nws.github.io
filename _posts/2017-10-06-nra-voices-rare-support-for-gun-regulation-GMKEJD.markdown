@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NRA voices rare support for gun regulation"
-date: 2017-10-06 01:15:45Z
+date: 2017-10-06 03:46:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The National Rifle Association announced Thursday that it supports a review of b
 
 Full story on F3News: [NRA voices rare support for gun regulation](http://www.f3nws.com/n/GMKEJD)
 
-> Posted on: Friday, October 6, 2017 1:15:45 AM
+> Posted on: Friday, October 6, 2017 3:46:43 AM
