@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's 50 best bars in 2017"
-date: 2017-10-06 03:04:54Z
+date: 2017-10-06 09:45:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ What's the recipe for creating the world's best bar? In 2017, it's one part swan
 
 Full story on F3News: [World's 50 best bars in 2017](http://www.f3nws.com/n/nCkBs)
 
-> Posted on: Friday, October 6, 2017 3:04:54 AM
+> Posted on: Friday, October 6, 2017 9:45:38 AM

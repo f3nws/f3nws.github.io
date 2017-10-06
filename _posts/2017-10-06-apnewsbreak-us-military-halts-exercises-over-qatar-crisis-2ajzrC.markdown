@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: US military halts exercises over Qatar crisis"
-date: 2017-10-06 08:56:13Z
+date: 2017-10-06 09:51:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DUBAI, United Arab Emirates (AP) — The U.S. military has halted some exercises
 
 Full story on F3News: [APNewsBreak: US military halts exercises over Qatar crisis](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 6, 2017 8:56:13 AM
+> Posted on: Friday, October 6, 2017 9:51:17 AM
