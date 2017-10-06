@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google's Pixel 2 wants a piece of the iPhone pie video     - CNET"
-date: 2017-10-06 01:42:42Z
+date: 2017-10-06 02:18:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Google throws down with all-new products aimed directly at Apple. The Apple Watc
 
 Full story on F3News: [Google's Pixel 2 wants a piece of the iPhone pie video     - CNET](http://www.f3nws.com/n/tPuCNC)
 
-> Posted on: Friday, October 6, 2017 1:42:42 AM
+> Posted on: Friday, October 6, 2017 2:18:01 AM

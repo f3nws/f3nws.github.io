@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I Dream of Jeannie' star Barbara Eden describes working with Larry Hagman, Elvis and Lucille Ball"
-date: 2017-10-06 02:00:03Z
+date: 2017-10-06 03:00:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Barbara Eden enchanted audiences across the country with a nod and a blink in th
 
 Full story on F3News: ['I Dream of Jeannie' star Barbara Eden describes working with Larry Hagman, Elvis and Lucille Ball](http://www.f3nws.com/n/T2ckQG)
 
-> Posted on: Friday, October 6, 2017 2:00:03 AM
+> Posted on: Friday, October 6, 2017 3:00:01 AM

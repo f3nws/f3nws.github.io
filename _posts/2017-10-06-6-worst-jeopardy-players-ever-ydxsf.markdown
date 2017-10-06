@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6 worst 'Jeopardy!' players ever"
-date: 2017-10-06 02:00:02Z
+date: 2017-10-06 03:00:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ They say you shouldn't hate the player, you should hate the game. But some "Jeop
 
 Full story on F3News: [6 worst 'Jeopardy!' players ever](http://www.f3nws.com/n/ydxsf)
 
-> Posted on: Friday, October 6, 2017 2:00:02 AM
+> Posted on: Friday, October 6, 2017 3:00:01 AM
