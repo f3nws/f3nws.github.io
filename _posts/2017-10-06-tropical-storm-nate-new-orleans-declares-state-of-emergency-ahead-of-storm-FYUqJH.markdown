@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical Storm Nate: New Orleans declares state of emergency ahead of storm"
-date: 2017-10-06 15:00:06Z
+date: 2017-10-06 17:00:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The mayor of New Orleans late Thursday declared a state of emergency for the cit
 
 Full story on F3News: [Tropical Storm Nate: New Orleans declares state of emergency ahead of storm](http://www.f3nws.com/n/FYUqJH)
 
-> Posted on: Friday, October 6, 2017 3:00:06 PM
+> Posted on: Friday, October 6, 2017 5:00:02 PM

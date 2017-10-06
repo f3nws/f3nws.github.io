@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump administration rolls back ObamaCare contraceptive mandate"
-date: 2017-10-06 15:15:00Z
+date: 2017-10-06 16:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Trump administration on Friday announced a major rollback of the ObamaCare c
 
 Full story on F3News: [Trump administration rolls back ObamaCare contraceptive mandate](http://www.f3nws.com/n/pgXkMH)
 
-> Posted on: Friday, October 6, 2017 3:15:00 PM
+> Posted on: Friday, October 6, 2017 4:30:00 PM
