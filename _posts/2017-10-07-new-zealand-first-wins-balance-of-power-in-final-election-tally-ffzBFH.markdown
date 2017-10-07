@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![New Zealand First wins balance of power in final election tally](http://www.abc.net.au/news/image/8979548-1x1-700x700.jpg)
 
-New Zealand's ruling National Party won 44.4 per cent of votes according to the final tally, with New Zealand First having balance of power.
+Veteran politician Winston Peters looks set to decide who will form New Zealand's next government, with the final election tally released today putting his populist New Zealand First party in a position to wield the balance of power.
 
 
 Full story on F3News: [New Zealand First wins balance of power in final election tally](http://www.f3nws.com/n/ffzBFH)
