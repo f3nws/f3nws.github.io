@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Natural History Museum crash 'not terror-related' - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05jb0jt.jpg)
 
-BBC News Natural History Museum crash 'not terror-related' BBC News A crash outside a London museum that injured 11 people was not terror-related, police say. A car mounted the pavement outside the Natural History Museum in Exhibition Road, South Kensington, at 14:20 BST. The Metropolitan Police earlier said one person ... At least 11 people injured as car hits pedestrians near London museum CNN London police say car crash that injured 11 is traffic accident, not terror Chicago Tribune Police detain man after 11 injured in car incident near London museum, terrorism ruled out Reuters U.S. News & World Report - New York Times - ABC News - NBCNews.com all 314 news articles »
+BBC News Natural History Museum crash 'not terror-related' BBC News A crash outside a London museum that injured 11 people was not terror-related, police say. A black Toyota Prius hit the people outside the Natural History Museum in Exhibition Road, South Kensington. The Metropolitan Police earlier said one person had ... The Latest: Police: London Crash That Hurt 11 Is Not Terror U.S. News & World Report Police: Car crash in London is traffic accident, not terror Washington Post Car Hits London Pedestrians But Terror Not Suspected NBCNews.com Reuters - New York Times - WJLA - ABC News all 350 news articles »
 
 
 Full story on F3News: [Natural History Museum crash 'not terror-related' - BBC News](http://www.f3nws.com/n/KaVaJD)

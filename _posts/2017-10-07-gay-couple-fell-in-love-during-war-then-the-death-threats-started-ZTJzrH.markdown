@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gay couple fell in love during war. Then the death threats started"
-date: 2017-10-07 14:38:32Z
+date: 2017-10-07 20:29:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Each night, when the guns fell silent in Iraq, Btoo Allami would invite his frie
 
 Full story on F3News: [Gay couple fell in love during war. Then the death threats started](http://www.f3nws.com/n/ZTJzrH)
 
-> Posted on: Saturday, October 7, 2017 2:38:32 PM
+> Posted on: Saturday, October 7, 2017 8:29:01 PM

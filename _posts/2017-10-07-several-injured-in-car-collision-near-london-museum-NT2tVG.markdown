@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Several injured in car collision near London museum"
-date: 2017-10-07 17:40:55Z
+date: 2017-10-07 20:04:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A number of pedestrians were injured Saturday after a car collision near London'
 
 Full story on F3News: [Several injured in car collision near London museum](http://www.f3nws.com/n/NT2tVG)
 
-> Posted on: Saturday, October 7, 2017 5:40:55 PM
+> Posted on: Saturday, October 7, 2017 8:04:21 PM
