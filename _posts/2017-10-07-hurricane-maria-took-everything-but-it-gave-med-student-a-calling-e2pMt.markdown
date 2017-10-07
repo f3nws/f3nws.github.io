@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Maria took everything, but it gave med student a calling"
-date: 2017-10-07 01:21:40Z
+date: 2017-10-07 05:07:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Juan Carlos Rodriguez can still hear the winds that ripped apart his school camp
 
 Full story on F3News: [Hurricane Maria took everything, but it gave med student a calling](http://www.f3nws.com/n/e2pMt)
 
-> Posted on: Saturday, October 7, 2017 1:21:40 AM
+> Posted on: Saturday, October 7, 2017 5:07:39 AM

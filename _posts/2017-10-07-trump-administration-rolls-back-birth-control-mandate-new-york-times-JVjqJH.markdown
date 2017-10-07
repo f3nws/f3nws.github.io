@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Administration Rolls Back Birth Control Mandate - New York Times](https://static01.nyt.com/images/2017/10/07/us/08-DC-CONTRACEPTION-sub/08-DC-CONTRACEPTION-sub-facebookJumbo.jpg)
 
-New York Times Trump Administration Rolls Back Birth Control Mandate New York Times A move by the Trump administration to relax requirements that employers provide coverage for contraception has elicited fierce outcry and a raft of lawsuits. Above, a 2014 protest in Washington. Credit Doug Mills/The New York Times. WASHINGTON — The ... Beyond just birth control: Rollback leaves some women fearful CNN Democrats accuse Trump of 'sabotage' on Obamacare sign-ups Politico Our Bodies, Their Choice Slate Magazine NBCNews.com - National Review - Washington Examiner - The Denver Post all 413 news articles »
+New York Times Trump Administration Rolls Back Birth Control Mandate New York Times A move by the Trump administration to relax requirements that employers provide coverage for contraception has elicited fierce outcry and a raft of lawsuits. Above, a 2014 protest in Washington. Credit Doug Mills/The New York Times. WASHINGTON — The ... Beyond just birth control: Rollback leaves some women fearful CNN Democrats accuse Trump of 'sabotage' on Obamacare sign-ups Politico Our Bodies, Their Choice Slate Magazine NBCNews.com - National Review - Bloomberg - The Hill all 432 news articles »
 
 
 Full story on F3News: [Trump Administration Rolls Back Birth Control Mandate - New York Times](http://www.f3nws.com/n/JVjqJH)

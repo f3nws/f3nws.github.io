@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Extra special: Indians edge Yankees 9-8 in 13, take 2-0 lead"
-date: 2017-10-07 04:45:08Z
+date: 2017-10-07 05:45:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CLEVELAND (AP) — They've won this season in almost every way imaginable: comeb
 
 Full story on F3News: [Extra special: Indians edge Yankees 9-8 in 13, take 2-0 lead](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 7, 2017 4:45:08 AM
+> Posted on: Saturday, October 7, 2017 5:45:16 AM

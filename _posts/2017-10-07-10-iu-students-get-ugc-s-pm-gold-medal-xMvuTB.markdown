@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 IU students get UGC’s PM Gold Medal"
-date: 2017-10-07 04:50:29Z
+date: 2017-10-07 05:01:33Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [10 IU students get UGC’s PM Gold Medal](http://www.f3nws.com/n/xMvuTB)
 
-> Posted on: Saturday, October 7, 2017 4:50:29 AM
+> Posted on: Saturday, October 7, 2017 5:01:33 AM
