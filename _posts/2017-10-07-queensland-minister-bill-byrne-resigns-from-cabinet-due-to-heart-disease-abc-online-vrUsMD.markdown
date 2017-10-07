@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Queensland Minister Bill Byrne resigns from Cabinet due to heart disease - ABC Online](http://www.abc.net.au/news/image/9026264-1x1-700x700.jpg)
 
-ABC Online Queensland Minister Bill Byrne resigns from Cabinet due to heart disease ABC Online Queensland Labor Government Minister Bill Byrne has resigned from Cabinet and will not re-contest the next state election due to life-threatening heart disease, his colleagues confirm. Premier Annastacia Palaszczuk has announced the Minister for ... Queensland Agriculture Minister Bill Byrne resigns to battle life-threatening illness Courier Mail Queensland MP Bill Byrne quits Palaszczuk cabinet The Australian Bill Byrne's sickness-induced resignation 'not at all' an election trigger The Sydney Morning Herald Rockhampton Morning Bulletin - Brisbane Times all 14 news articles »
+ABC Online Queensland Minister Bill Byrne resigns from Cabinet due to heart disease ABC Online Queensland Labor Government Minister Bill Byrne has resigned from Cabinet and will not re-contest the next state election due to life-threatening heart disease, his colleagues confirm. Premier Annastacia Palaszczuk has announced the Minister for ... Queensland Agriculture Minister Bill Byrne resigns to battle life-threatening illness Courier Mail Bill Byrne's sickness-induced resignation 'not at all' an election trigger The Sydney Morning Herald Queensland MP Bill Byrne quits Palaszczuk cabinet The Australian Rockhampton Morning Bulletin - Brisbane Times all 14 news articles »
 
 
 Full story on F3News: [Queensland Minister Bill Byrne resigns from Cabinet due to heart disease - ABC Online](http://www.f3nws.com/n/vrUsMD)
