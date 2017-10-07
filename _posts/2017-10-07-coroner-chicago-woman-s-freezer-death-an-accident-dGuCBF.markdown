@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Coroner: Chicago woman's freezer death an accident"
-date: 2017-10-07 16:08:43Z
+date: 2017-10-07 17:36:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A young Chicago woman whose body was found in a hotel's walk-in freezer last mon
 
 Full story on F3News: [Coroner: Chicago woman's freezer death an accident](http://www.f3nws.com/n/dGuCBF)
 
-> Posted on: Saturday, October 7, 2017 4:08:43 PM
+> Posted on: Saturday, October 7, 2017 5:36:39 PM

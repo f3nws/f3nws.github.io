@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber's app can secretly spy on your iPhone"
-date: 2017-10-07 17:00:02Z
+date: 2017-10-07 18:00:02Z
 categories: fox-news-technology
 ---
 
@@ -10,4 +10,4 @@ The Uber app for iOS has been given a unique privilege on the operating system w
 
 Full story on F3News: [Uber's app can secretly spy on your iPhone](http://www.f3nws.com/n/3sJQDB)
 
-> Posted on: Saturday, October 7, 2017 5:00:02 PM
+> Posted on: Saturday, October 7, 2017 6:00:02 PM
