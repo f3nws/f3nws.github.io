@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blame Russia: Assange outlines how to be a journalist in 2017"
-date: 2017-10-07 10:40:42Z
+date: 2017-10-07 10:40:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Haven’t you heard? The Russians did it. Julian Assange has outlined the key el
 
 Full story on F3News: [Blame Russia: Assange outlines how to be a journalist in 2017](http://www.f3nws.com/n/MDKHFG)
 
-> Posted on: Saturday, October 7, 2017 10:40:42 AM
+> Posted on: Saturday, October 7, 2017 10:40:00 AM
