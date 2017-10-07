@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump on North Korea: 'Sorry, but only one thing will work!' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2016/12/23/National-Politics/Images/Trump_67948.jpg-c1789-3784.jpg?t=20170517)
 
-Washington Post Trump on North Korea: 'Sorry, but only one thing will work!' Washington Post President Trump continued to make vague threats toward North Korea on Saturday, saying that diplomatic negotiations and agreements over the years have not worked and that “only one thing will work,” without elaborating on what that one thing would be. Trump on North Korea: 'Only one thing will work' CNN Trump tweets 'only one thing will work' on North Korea Fox News Trump says 'only one thing will work' with North Korea Reuters BBC News - The Hill - CBS News - USA TODAY all 329 news articles »
+Washington Post Trump on North Korea: 'Sorry, but only one thing will work!' Washington Post President Trump continued to make vague threats toward North Korea on Saturday, saying that diplomatic negotiations and agreements over the years have not worked and that “only one thing will work,” without elaborating on what that one thing would be. Trump on North Korea: 'Only one thing will work' CNN Trump says 'only one thing will work' with North Korea Reuters Trump tweets 'only one thing will work' on North Korea Fox News BBC News - The Hill - Los Angeles Times - CBS News all 355 news articles »
 
 
 Full story on F3News: [Trump on North Korea: 'Sorry, but only one thing will work!' - Washington Post](http://www.f3nws.com/n/j3YAFB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: Car crash in London is traffic accident, not terror"
-date: 2017-10-07 21:51:53Z
+date: 2017-10-07 22:47:56Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — A car crash that injured 11 people outside a major London touris
 
 Full story on F3News: [Police: Car crash in London is traffic accident, not terror](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 7, 2017 9:51:53 PM
+> Posted on: Saturday, October 7, 2017 10:47:56 PM

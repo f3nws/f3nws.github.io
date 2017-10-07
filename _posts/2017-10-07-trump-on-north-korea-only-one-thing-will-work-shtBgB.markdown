@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on North Korea: 'Only one thing will work'"
-date: 2017-10-07 21:32:04Z
+date: 2017-10-07 22:27:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump tweeted Saturday that 25 years of agreements with North K
 
 Full story on F3News: [Trump on North Korea: 'Only one thing will work'](http://www.f3nws.com/n/shtBgB)
 
-> Posted on: Saturday, October 7, 2017 9:32:04 PM
+> Posted on: Saturday, October 7, 2017 10:27:56 PM
