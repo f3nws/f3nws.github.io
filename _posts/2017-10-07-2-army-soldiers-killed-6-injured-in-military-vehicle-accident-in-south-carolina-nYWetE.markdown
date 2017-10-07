@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 Army soldiers killed, 6 injured in military vehicle accident in South Carolina"
-date: 2017-10-07 00:53:51Z
+date: 2017-10-07 00:53:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The Fort Jackson Army base has confirmed two deaths and six hurt, including two 
 
 Full story on F3News: [2 Army soldiers killed, 6 injured in military vehicle accident in South Carolina](http://www.f3nws.com/n/nYWetE)
 
-> Posted on: Saturday, October 7, 2017 12:53:51 AM
+> Posted on: Saturday, October 7, 2017 12:53:00 AM

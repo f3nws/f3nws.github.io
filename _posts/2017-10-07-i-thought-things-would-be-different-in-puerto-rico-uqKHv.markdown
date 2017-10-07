@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['I thought things would be different in Puerto Rico'](http://www.abc.net.au/news/image/8997450-1x1-700x700.jpg)
 
-As the Trump administration continues to claim that everything is OK in Puerto Rico, North America correspondent Zoe Daniels reports on an island that might have to wait a year for electricity to be restored.
+As the Trump administration continues to claim that everything is OK in Puerto Rico, North America correspondent Zoe Daniel reports on an island that might have to wait a year for electricity to be restored.
 
 
 Full story on F3News: ['I thought things would be different in Puerto Rico'](http://www.f3nws.com/n/uqKHv)

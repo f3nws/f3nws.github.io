@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical Storm Nate: Track its path here"
-date: 2017-10-07 00:13:00Z
+date: 2017-10-07 01:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Tropical Storm Nate is headed toward Mexico and the U.S. Gulf Coast after hittin
 
 Full story on F3News: [Tropical Storm Nate: Track its path here](http://www.f3nws.com/n/TrTA4)
 
-> Posted on: Saturday, October 7, 2017 12:13:00 AM
+> Posted on: Saturday, October 7, 2017 1:45:00 AM
