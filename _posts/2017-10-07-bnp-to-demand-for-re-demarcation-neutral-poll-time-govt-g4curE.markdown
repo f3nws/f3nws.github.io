@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "BNP to demand for re-demarcation, neutral poll-time govt"
-date: 2017-10-07 07:05:13Z
+date: 2017-10-07 10:02:19Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [BNP to demand for re-demarcation, neutral poll-time govt](http://www.f3nws.com/n/g4curE)
 
-> Posted on: Saturday, October 7, 2017 7:05:13 AM
+> Posted on: Saturday, October 7, 2017 10:02:19 AM

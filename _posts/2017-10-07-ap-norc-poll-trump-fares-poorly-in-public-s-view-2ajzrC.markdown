@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AP-NORC Poll: Trump fares poorly in public's view"
-date: 2017-10-07 09:50:56Z
+date: 2017-10-07 10:45:57Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Just 24 percent of Americans believe the country is heading 
 
 Full story on F3News: [AP-NORC Poll: Trump fares poorly in public's view](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 7, 2017 9:50:56 AM
+> Posted on: Saturday, October 7, 2017 10:45:57 AM
