@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Diverse United States divided on symbols of patriotism"
-date: 2017-10-08 15:47:28Z
+date: 2017-10-08 16:15:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ FREEDMEN'S TOWN, Texas (AP) — When Afghanistan War veteran Joseph Smith saw NF
 
 Full story on F3News: [Diverse United States divided on symbols of patriotism](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 8, 2017 3:47:28 PM
+> Posted on: Sunday, October 8, 2017 4:15:03 PM

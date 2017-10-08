@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spanish leader mulls suspending Catalonia autonomy"
-date: 2017-10-08 12:27:46Z
+date: 2017-10-08 16:02:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spanish Prime Minister Mariano Rajoy will consider taking the dramatic measure o
 
 Full story on F3News: [Spanish leader mulls suspending Catalonia autonomy](http://www.f3nws.com/n/4xWKS)
 
-> Posted on: Sunday, October 8, 2017 12:27:46 PM
+> Posted on: Sunday, October 8, 2017 4:02:00 PM

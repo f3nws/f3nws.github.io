@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nelly arrested after allegations of rape"
-date: 2017-10-08 13:23:59Z
+date: 2017-10-08 16:06:01Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Cornell Haynes Jr., better known as the rapper Nelly, was taken into custody Sat
 
 Full story on F3News: [Nelly arrested after allegations of rape](http://www.f3nws.com/n/U4pGCB)
 
-> Posted on: Sunday, October 8, 2017 1:23:59 PM
+> Posted on: Sunday, October 8, 2017 4:06:01 PM
