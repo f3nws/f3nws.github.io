@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jason Aldean pays tribute to Vegas victims, Petty on 'SNL'"
-date: 2017-10-08 14:15:56Z
+date: 2017-10-08 14:52:23Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Country star Jason Aldean took the stage on "Saturday Night Li
 
 Full story on F3News: [Jason Aldean pays tribute to Vegas victims, Petty on 'SNL'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 8, 2017 2:15:56 PM
+> Posted on: Sunday, October 8, 2017 2:52:23 PM
