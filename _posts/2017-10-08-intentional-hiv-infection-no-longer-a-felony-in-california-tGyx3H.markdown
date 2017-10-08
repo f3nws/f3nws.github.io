@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Intentional HIV infection no longer a felony in California"
-date: 2017-10-08 04:07:35Z
+date: 2017-10-08 04:07:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ California Governor Jerry Brown has signed a bill that reduces the crime of know
 
 Full story on F3News: [Intentional HIV infection no longer a felony in California](http://www.f3nws.com/n/tGyx3H)
 
-> Posted on: Sunday, October 8, 2017 4:07:35 AM
+> Posted on: Sunday, October 8, 2017 4:07:00 AM
