@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "New Star Wars 'Last Jedi' Trailer Dropping During Monday Night Football - Hollywood Reporter"
+date: 2017-10-08 13:44:00Z
+categories: google-news-entertaintment
+---
+
+![New Star Wars 'Last Jedi' Trailer Dropping During Monday Night Football - Hollywood Reporter](http://cdn3.thr.com/sites/default/files/2017/04/star_wars_the_last_jedi_official_screen_shot_2-h_2017.jpg.jpg)
+
+Hollywood Reporter New Star Wars 'Last Jedi' Trailer Dropping During Monday Night Football Hollywood Reporter A new trailer for the highly anticipated Star Wars film, The Last Jedi, will drop during halftime of Monday Night Football, Lucasfilm announced Sunday. A small sliver of the trailer was tweeted by the official Star Wars account as a tease. Mark Hamill ... Star Wars: The Last Jedi tickets go on sale Monday night after new trailer debut EW.com (blog) Mark Hamill: Carrie Fisher was meant to be 'more prominent' in 'Star Wars: Episode IX' USA TODAY 'Star Wars: The Last Jedi' Trailer Confirmed for Monday Night Football, Tickets on Sale Afterwards /FILM Comicbook.com - Screen Rant - CBSSports.com - cleveland.com all 108 news articles »
+
+
+Full story on F3News: [New Star Wars 'Last Jedi' Trailer Dropping During Monday Night Football - Hollywood Reporter](http://www.f3nws.com/n/bCqFWH)
+
+> Posted on: Sunday, October 8, 2017 1:44:00 PM
