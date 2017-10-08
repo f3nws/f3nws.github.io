@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "Big Tech has big plans to help reconnect Puerto Rico"
+date: 2017-10-08 03:45:44Z
+categories: associated-press-ap-top-headlines
+---
+
+Facebook and Google once aimed to connect the world. Now they would be happy just to reconnect part of it.
+
+
+Full story on F3News: [Big Tech has big plans to help reconnect Puerto Rico](http://www.f3nws.com/n/2ajzrC)
+
+> Posted on: Sunday, October 8, 2017 3:45:44 AM
