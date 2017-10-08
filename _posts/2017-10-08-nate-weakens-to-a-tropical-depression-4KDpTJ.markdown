@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nate weakens to a tropical depression"
-date: 2017-10-08 17:42:19Z
+date: 2017-10-08 20:43:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Nate made its second US landfall near Biloxi, Mississippi, shortly aft
 
 Full story on F3News: [Nate weakens to a tropical depression](http://www.f3nws.com/n/4KDpTJ)
 
-> Posted on: Sunday, October 8, 2017 5:42:19 PM
+> Posted on: Sunday, October 8, 2017 8:43:54 PM
