@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kim Jong Un praises nuclear program, promotes sister to center of power - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20171008&t=2&i=1204596417&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED9702Z)
 
-Reuters Kim Jong Un praises nuclear program, promotes sister to center of power Reuters North Korean leader Kim Jong Un visits a fruit orchard in Kwail county, South Hwanghae province in this undated photo released by North Korea's Korean Central News Agency (KCNA) in Pyongyang September 21, 2017. KCNA via REUTERS. Trump: North Korea 'should have been handled 25 years ago' CNN Trump on North Korea: 'Sorry, but only one thing will work!' Washington Post Kim Jong Un Boosts Sister Within North Korea's Inner Circle Bloomberg The Hill - Los Angeles Times - USA TODAY - New York Magazine all 466 news articles »
+Reuters Kim Jong Un praises nuclear program, promotes sister to center of power Reuters North Korean leader Kim Jong Un speaks during the Second Plenum of the 7th Central Committee of the Workers' Party of Korea (WPK) at the Kumsusan Palace of the Sun, in this undated photo released by North Korea's Korean Central News Agency ... Trump: North Korea 'should have been handled 25 years ago' CNN Trump on North Korea: 'Sorry, but only one thing will work!' Washington Post Kim Jong Un Boosts Sister Within North Korea's Inner Circle Bloomberg The Hill - Los Angeles Times - USA TODAY - New York Magazine all 471 news articles »
 
 
 Full story on F3News: [Kim Jong Un praises nuclear program, promotes sister to center of power - Reuters](http://www.f3nws.com/n/Wj4zQ)

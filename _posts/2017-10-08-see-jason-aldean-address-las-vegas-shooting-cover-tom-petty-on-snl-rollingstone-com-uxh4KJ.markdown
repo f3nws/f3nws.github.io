@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![See Jason Aldean Address Las Vegas Shooting, Cover Tom Petty on 'SNL' - RollingStone.com](http://img.wennermedia.com/social/gettyimages-858845068-7a02f3b5-5087-4749-aedf-5a2d6247d798.jpg)
 
-RollingStone.com See Jason Aldean Address Las Vegas Shooting, Cover Tom Petty on 'SNL' RollingStone.com Jason Aldean made a surprise appearance on 'Saturday Night Live' to speak about the Las Vegas shooting and perform Tom Petty's "I Won't Back Down." By Joseph Hudak. 21 minutes ago. More News. Jason Aldean Cancels Three Shows Following Las ... The Latest: "SNL" pays tribute to Vegas victims New York Daily News Jason Aldean Opens Saturday Night Live With Tom Petty's “I Won't Back Down” Slate Magazine (blog) Jason Aldean Covers Tom Petty's 'I Won't Back Down' In 'SNL' Cold Open Billboard Los Angeles Times - Bustle - ABC News - Us Weekly all 74 news articles »
+RollingStone.com See Jason Aldean Address Las Vegas Shooting, Cover Tom Petty on 'SNL' RollingStone.com Jason Aldean made a surprise appearance on 'Saturday Night Live' to speak about the Las Vegas shooting and perform Tom Petty's "I Won't Back Down." By Joseph Hudak. 2 hours ago. More News. Jason Aldean Cancels Three Shows Following Las Vegas ... Jason Aldean opens 'Saturday Night Live' with remarks on Las Vegas shooting and covers Tom Petty classic Los Angeles Times Jason Aldean Opens Saturday Night Live With Tom Petty's “I Won't Back Down” Slate Magazine (blog) Jason Aldean Covers Tom Petty's 'I Won't Back Down' In 'SNL' Cold Open Billboard Charlotte Observer - Bustle - ABC News - AZCentral.com all 78 news articles »
 
 
 Full story on F3News: [See Jason Aldean Address Las Vegas Shooting, Cover Tom Petty on 'SNL' - RollingStone.com](http://www.f3nws.com/n/uxh4KJ)

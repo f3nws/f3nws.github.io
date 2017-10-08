@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CJ Sinha, wife get Australian visa"
-date: 2017-10-08 04:26:28Z
+date: 2017-10-08 06:20:21Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [CJ Sinha, wife get Australian visa](http://www.f3nws.com/n/ANPTUJ)
 
-> Posted on: Sunday, October 8, 2017 4:26:28 AM
+> Posted on: Sunday, October 8, 2017 6:20:21 AM

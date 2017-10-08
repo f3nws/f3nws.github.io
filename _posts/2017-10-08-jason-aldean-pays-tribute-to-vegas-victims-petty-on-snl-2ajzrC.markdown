@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Jason Aldean pays tribute to Vegas victims, Petty on 'SNL'"
-date: 2017-10-08 05:48:59Z
+date: 2017-10-08 06:30:06Z
 categories: associated-press-ap-top-headlines
 ---
 
-NEW YORK (AP) — "Saturday Night Live" has paid tribute to victims of the Las Vegas mass shooting and the late rock superstar Tom Petty by opening its show with country star Jason Aldean singing one of Petty's songs.
+NEW YORK (AP) — Country star Jason Aldean took the stage on "Saturday Night Live," paying tribute to the victims of the Las Vegas massacre and the late rock superstar Tom Petty.
 
 
 Full story on F3News: [Jason Aldean pays tribute to Vegas victims, Petty on 'SNL'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 8, 2017 5:48:59 AM
+> Posted on: Sunday, October 8, 2017 6:30:06 AM
