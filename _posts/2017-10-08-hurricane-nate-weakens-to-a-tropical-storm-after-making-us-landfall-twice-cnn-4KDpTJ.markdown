@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Hurricane Nate weakens to a tropical storm after making US landfall twice - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171007231854-bt103-hurricane-nate-1007-super-tease.jpg)
 
-CNN Hurricane Nate weakens to a tropical storm after making US landfall twice CNN (CNN) Nate weakened to a tropical storm Sunday morning as it moved inland over Mississippi and Alabama, the National Hurricane Center said, adding that storm surge flooding continued in coastal areas. The storm's maximum sustained winds had dropped ... Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens New York Times Nate batters Mississippi and Alabama -- live updates CBS News Tropical Storm Nate's winds rapidly weaken over Alabama Reuters U.S. News & World Report - ABC News - AL.com - The Weather Channel all 1,443 news articles »
+CNN Hurricane Nate weakens to a tropical storm after making US landfall twice CNN (CNN) Nate weakened to a tropical storm Sunday morning as it moved inland over Mississippi and Alabama, the National Hurricane Center said, adding that storm surge flooding continued in coastal areas. The storm's maximum sustained winds had dropped ... Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens New York Times Nate makes 2nd landfall in Mississippi, weakens while spreading heavy rainfall inland Fox News Nate batters Mississippi and Alabama -- live updates CBS News The Weather Channel - AL.com - CNBC - ABC News all 1,397 news articles »
 
 
 Full story on F3News: [Hurricane Nate weakens to a tropical storm after making US landfall twice - CNN](http://www.f3nws.com/n/4KDpTJ)
