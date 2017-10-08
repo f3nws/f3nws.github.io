@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "6766 orphans among Rohingya children"
-date: 2017-10-08 05:51:36Z
+date: 2017-10-08 06:41:01Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [6766 orphans among Rohingya children](http://www.f3nws.com/n/cvqNrB)
 
-> Posted on: Sunday, October 8, 2017 5:51:36 AM
+> Posted on: Sunday, October 8, 2017 6:41:01 AM
