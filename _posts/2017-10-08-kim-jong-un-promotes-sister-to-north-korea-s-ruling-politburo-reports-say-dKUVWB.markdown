@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Jong Un promotes sister to North Korea's ruling politburo, reports say"
-date: 2017-10-08 07:34:00Z
+date: 2017-10-08 10:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ North Korean state media reported Sunday that leader Kim Jong Un had promoted hi
 
 Full story on F3News: [Kim Jong Un promotes sister to North Korea's ruling politburo, reports say](http://www.f3nws.com/n/dKUVWB)
 
-> Posted on: Sunday, October 8, 2017 7:34:00 AM
+> Posted on: Sunday, October 8, 2017 10:00:00 AM
