@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jason Aldean opens 'SNL' playing Tom Petty's 'I Won't Back Down'"
-date: 2017-10-08 04:28:16Z
+date: 2017-10-08 08:40:50Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Jason Aldean opens 'SNL' playing Tom Petty's 'I Won't Back Down'](http://www.f3nws.com/n/sDpJxD)
 
-> Posted on: Sunday, October 8, 2017 4:28:16 AM
+> Posted on: Sunday, October 8, 2017 8:40:50 AM

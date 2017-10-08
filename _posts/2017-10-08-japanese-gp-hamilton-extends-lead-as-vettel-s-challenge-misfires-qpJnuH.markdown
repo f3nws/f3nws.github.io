@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japanese GP: Hamilton extends lead as Vettel's challenge misfires"
-date: 2017-10-08 07:53:19Z
+date: 2017-10-08 08:30:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lewis Hamilton took full advantage of rival Sebastian Vettel's misfortune to win
 
 Full story on F3News: [Japanese GP: Hamilton extends lead as Vettel's challenge misfires](http://www.f3nws.com/n/qpJnuH)
 
-> Posted on: Sunday, October 8, 2017 7:53:19 AM
+> Posted on: Sunday, October 8, 2017 8:30:47 AM
