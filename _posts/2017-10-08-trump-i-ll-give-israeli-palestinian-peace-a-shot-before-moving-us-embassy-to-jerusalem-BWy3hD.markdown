@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: I’ll give Israeli-Palestinian peace 'a shot' before moving US embassy to Jerusalem"
-date: 2017-10-08 03:58:26Z
+date: 2017-10-08 03:58:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump said he would halt moving the US embassy to Jerusalem 
 
 Full story on F3News: [Trump: I’ll give Israeli-Palestinian peace 'a shot' before moving US embassy to Jerusalem](http://www.f3nws.com/n/BWy3hD)
 
-> Posted on: Sunday, October 8, 2017 3:58:26 AM
+> Posted on: Sunday, October 8, 2017 3:58:00 AM

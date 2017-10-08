@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Nate makes US landfall"
-date: 2017-10-08 03:43:56Z
+date: 2017-10-08 03:57:39Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ New Orleans and much of the US Gulf Coast are gearing up for possible flooding a
 
 Full story on F3News: [Hurricane Nate makes US landfall](http://www.f3nws.com/n/yHarSD)
 
-> Posted on: Sunday, October 8, 2017 3:43:56 AM
+> Posted on: Sunday, October 8, 2017 3:57:39 AM

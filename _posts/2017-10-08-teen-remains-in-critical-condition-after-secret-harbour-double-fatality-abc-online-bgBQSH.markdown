@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen remains in critical condition after Secret Harbour double fatality - ABC Online"
-date: 2017-10-08 03:20:00Z
+date: 2017-10-08 03:20:11Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Teen remains in critical condition after Secret Harbour double fatali
 
 Full story on F3News: [Teen remains in critical condition after Secret Harbour double fatality - ABC Online](http://www.f3nws.com/n/bgBQSH)
 
-> Posted on: Sunday, October 8, 2017 3:20:00 AM
+> Posted on: Sunday, October 8, 2017 3:20:11 AM
