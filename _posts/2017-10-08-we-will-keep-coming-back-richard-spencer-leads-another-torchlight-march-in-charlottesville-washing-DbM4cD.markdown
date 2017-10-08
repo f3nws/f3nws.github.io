@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "'We will keep coming back:' Richard Spencer leads another torchlight march in Charlottesville - Washington Post"
-date: 2017-10-08 02:13:01Z
+date: 2017-10-08 08:58:26Z
 categories: google-news-top-stories
 ---
 
 !['We will keep coming back:' Richard Spencer leads another torchlight march in Charlottesville - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/11/Education/Images/Confederate_Monuments_Protest_Victim_47048-87a83-0303.jpg?t=20170517)
 
-Washington Post 'We will keep coming back:' Richard Spencer leads another torchlight march in Charlottesville Washington Post Richard Spencer, who in August led white nationalists and white supremacists in a torchlight march across the University of Virginia campus that touched off a weekend of deadly clashes, returned Saturday night to Charlottesville. Spencer, a white ... White Nationalists Reappear in Charlottesville in Torch-Lit Protest New York Times Charlottesville mayor slams 'despicable visit' as another torch rally held CNN White supremacists brandishing torches return to Confederate statue in Charlottesville New York Daily News TIME - BBC News - Slate Magazine (blog) - USA TODAY all 116 news articles »
+Washington Post 'We will keep coming back:' Richard Spencer leads another torchlight march in Charlottesville Washington Post Richard Spencer, who in August led white nationalists and white supremacists in a torchlight march across the University of Virginia campus that touched off a weekend of deadly clashes, returned Saturday night to Charlottesville. Spencer, a white ... White Nationalists Reappear in Charlottesville in Torch-Lit Protest New York Times Charlottesville mayor slams 'despicable visit' as another torch rally held CNN White supremacists brandishing torches return to Confederate statue in Charlottesville New York Daily News TIME - BBC News - Slate Magazine (blog) - USA TODAY all 117 news articles »
 
 
 Full story on F3News: ['We will keep coming back:' Richard Spencer leads another torchlight march in Charlottesville - Washington Post](http://www.f3nws.com/n/DbM4cD)
 
-> Posted on: Sunday, October 8, 2017 2:13:01 AM
+> Posted on: Sunday, October 8, 2017 8:58:26 AM
