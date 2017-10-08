@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Charlottesville mayor slams 'despicable visit' as another torch rally held - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170823131417-01-charlottesville-statue-robert-e-lee-super-tease.jpg)
 
-CNN Charlottesville mayor slams 'despicable visit' as another torch rally held CNN (CNN) Officials in Virginia denounced white supremacist Richard Spencer and dozens of his supporters who held another rally holding tiki torches in Charlottesville on Saturday night. The city's mayor, Mike Signer had a blunt message for them: "Another ... A Few Dozen White Supremacists Return to Charlottesville for Brief Tiki Torch-Lit Rally Slate Magazine (blog) White nationalists hold torch-lit protest in Charlottesville CBS News White nationalists return to Charlottesville for torch-lit protest Reuters The Columbus Dispatch - KTRK-TV - Washington Post - New York Times all 69 news articles »
+CNN Charlottesville mayor slams 'despicable visit' as another torch rally held CNN (CNN) Officials in Virginia denounced white supremacist Richard Spencer and dozens of his supporters who held another rally holding tiki torches in Charlottesville on Saturday night. The city's mayor, Mike Signer had a blunt message for them: "Another ... A Few Dozen White Supremacists Return to Charlottesville for Brief Tiki Torch-Lit Rally Slate Magazine (blog) Richard Spencer leads another torchlight march in Charlottesville NOLA.com White nationalists hold torch-lit protest in Charlottesville CBS News BuzzFeed News - The Columbus Dispatch - KTRK-TV - New York Times all 69 news articles »
 
 
 Full story on F3News: [Charlottesville mayor slams 'despicable visit' as another torch rally held - CNN](http://www.f3nws.com/n/XBrtkE)

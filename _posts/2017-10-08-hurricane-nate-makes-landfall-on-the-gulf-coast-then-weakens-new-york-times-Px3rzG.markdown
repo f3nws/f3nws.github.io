@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens - New York Times](https://static01.nyt.com/images/2017/10/08/us/08xp-storm4/08xp-storm4-facebookJumbo.jpg)
 
-New York Times Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens New York Times Tree-trimming trucks heading into Biloxi, Miss., on Saturday. Hurricane Nate, the latest major storm to hit the Gulf Coast, made landfall near the mouth of the Mississippi River with wind speeds of 85 miles per hour. Credit Mark Wallheiser/Getty Images ... Hurricane Nate weakens to a tropical storm after making US landfall twice CNN Nate batters Mississippi and Alabama -- live updates CBS News Tropical Storm Nate tracks into Alabama while weakening AL.com ABC News - BBC News - Fox News - Miami Herald all 1,363 news articles »
+New York Times Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens New York Times Tree-trimming trucks heading into Biloxi, Miss., on Saturday. Hurricane Nate, the latest major storm to hit the Gulf Coast, made landfall near the mouth of the Mississippi River with wind speeds of 85 miles per hour. Credit Mark Wallheiser/Getty Images ... Hurricane Nate weakens to a tropical storm after making US landfall twice CNN Nate batters Mississippi and Alabama -- live updates CBS News Tropical Storm Nate Weakens but Rain, Floods to Continue U.S. News & World Report AL.com - ABC News - Fox News - BBC News all 1,376 news articles »
 
 
 Full story on F3News: [Hurricane Nate Makes Landfall on the Gulf Coast, Then Weakens - New York Times](http://www.f3nws.com/n/Px3rzG)

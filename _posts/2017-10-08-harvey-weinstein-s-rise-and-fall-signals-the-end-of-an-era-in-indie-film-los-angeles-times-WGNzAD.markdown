@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Harvey Weinstein's rise and fall signals the end of an era in indie film - Los Angeles Times](http://www.trbimg.com/img-59d9a464/turbine/la-et-mn-harvey-weinstein-rise-fall-20171008)
 
-Los Angeles Times Harvey Weinstein's rise and fall signals the end of an era in indie film Los Angeles Times Harvey Weinstein, the brash outsider from Queens who upended Hollywood, has always liked to think of himself as an underdog. So there may have been no prouder moment for him than the night of March 21, 1999, when he stood on the stage at the ... Lisa Bloom, Lawyer Advising Harvey Weinstein, Resigns Amid Criticism From Board Members New York Times Carr: On Harvey Weinstein, Dems' silence isn't golden Boston Herald Harvey Weinstein, Fox News, and the Power of Self-Interest National Review Washington Post - EW.com - HuffPost - NPR all 1,803 news articles »
+Los Angeles Times Harvey Weinstein's rise and fall signals the end of an era in indie film Los Angeles Times Harvey Weinstein, the brash outsider from Queens who upended Hollywood, has always liked to think of himself as an underdog. So there may have been no prouder moment for him than the night of March 21, 1999, when he stood on the stage at the ... Lisa Bloom, Lawyer Advising Harvey Weinstein, Resigns Amid Criticism From Board Members New York Times Lawyer Lisa Bloom quits advisory role with Harvey Weinstein and hints at “agreement” Washington Post Harvey Weinstein lawyer Lisa Bloom resigns as advisor EW.com Deadline - NPR - New York Daily News - HuffPost all 1,818 news articles »
 
 
 Full story on F3News: [Harvey Weinstein's rise and fall signals the end of an era in indie film - Los Angeles Times](http://www.f3nws.com/n/WGNzAD)
