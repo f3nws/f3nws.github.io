@@ -7,7 +7,7 @@ categories: msnbc
 
 ![Pence Leaves NFL Game Over Anthem Controversy](http://media1.s-nbcnews.com/j/MSNBC/Components/Video/201710/Untitled_Sequence-11.video_1067x600.jpg)
 
-Vice President Mike Pence was in attendance for a football game between the San Francisco 49ers and the Indianapolis Colts but then left when the players knelled during the National Anthem.
+Vice President Mike Pence was in attendance for a football game between the San Francisco 49ers and the Indianapolis Colts but then left when the players kneeled during the National Anthem.
 
 
 Full story on F3News: [Pence Leaves NFL Game Over Anthem Controversy](http://www.f3nws.com/n/JXbuaG)

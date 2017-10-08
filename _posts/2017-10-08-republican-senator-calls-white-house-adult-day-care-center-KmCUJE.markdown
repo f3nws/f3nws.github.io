@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republican Senator calls White House 'adult day care center'"
-date: 2017-10-08 16:38:42Z
+date: 2017-10-08 19:22:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's tweets Sunday morning claiming he denied Sen. Bob Corke
 
 Full story on F3News: [Republican Senator calls White House 'adult day care center'](http://www.f3nws.com/n/KmCUJE)
 
-> Posted on: Sunday, October 8, 2017 4:38:42 PM
+> Posted on: Sunday, October 8, 2017 7:22:28 PM
