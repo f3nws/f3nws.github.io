@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 !['I Am Spanish': Thousands in Barcelona Protest a Push for Independence - New York Times](https://static01.nyt.com/images/2017/10/09/world/09catalonia-6/09catalonia-6-facebookJumbo.jpg)
 
-New York Times 'I Am Spanish': Thousands in Barcelona Protest a Push for Independence New York Times Thousands rallied in Barcelona, Spain, on Sunday in support of a united Spanish state and against agitators for independence. Credit Pau Barrena/Agence France-Presse — Getty Images. BARCELONA, Spain — Catalonia's silent supporters of Spanish unity ... Catalonia independence: Huge Spain unity rally in Barcelona BBC News Hundreds of thousands rally in Barcelona against Catalonia secession Fox News In Catalonia, women hope to build a feminist republic USA TODAY CNN - New York Post - Chicago Tribune - New York Daily News all 2,493 news articles »
+New York Times 'I Am Spanish': Thousands in Barcelona Protest a Push for Independence New York Times Thousands rallied in Barcelona, Spain, on Sunday in support of a united Spanish state and against agitators for independence. Credit Pau Barrena/Agence France-Presse — Getty Images. BARCELONA, Spain — Catalonia's silent supporters of Spanish unity ... Catalonia independence: Huge Spain unity rally in Barcelona BBC News Hundreds of thousands rally in Barcelona against Catalonia secession Fox News In Catalonia, women hope to build a feminist republic USA TODAY CNN - New York Post - Chicago Tribune - New York Daily News all 2,514 news articles »
 
 
 Full story on F3News: ['I Am Spanish': Thousands in Barcelona Protest a Push for Independence - New York Times](http://www.f3nws.com/n/yRSmGE)

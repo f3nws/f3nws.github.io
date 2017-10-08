@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Star Wars: The Last Jedi tickets go on sale Monday     - CNET"
-date: 2017-10-08 16:21:25Z
+date: 2017-10-08 18:16:13Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ categories: cnet
 
 Full story on F3News: [Star Wars: The Last Jedi tickets go on sale Monday     - CNET](http://www.f3nws.com/n/WmR2uC)
 
-> Posted on: Sunday, October 8, 2017 4:21:25 PM
+> Posted on: Sunday, October 8, 2017 6:16:13 PM
