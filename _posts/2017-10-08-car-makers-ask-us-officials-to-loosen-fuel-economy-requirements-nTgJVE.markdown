@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Car makers ask US officials to loosen fuel economy requirements"
+date: 2017-10-08 00:34:00Z
+categories: engadget
+---
+
+![Car makers ask US officials to loosen fuel economy requirements](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D1400%252C788%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C901%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252Fac4418185b8e9bdc43e61f06ee681d93%252F204867850%252F0127_bolt-13.jpg%26client%3Da1acac3e1b3290917d92%26signature%3De4bfebbdbbd7c106e9e3117e7add7df83905ff2f&client=cbc79c14efcebee57402&signature=3188c0a6c9213fa283486f46dc9200339c4fc0d1)
+
+It's no secret that automakers believe the US' recently-instituted fuel efficiency requirements are too stringent , but now they've made those views official. The Alliance of Automobile Manufacturers, which includes companies like GM, Toyota and VW, has made official comments to both the EPA and NHTSA asking the regulators to loosen Obama-era rules intended to raise a fleet's average fuel economy to 51.4MPG by 2025. They don't object to the targets as such -- rather, they don't like the projected costs of reaching those targets. The brands contend that the previous administration made mistakes forecasting the cost of hitting that fuel economy target. There's a "misalignment" between the ever-tougher requirements and a car market that's skewing toward less fuel-efficient vehicles, the Alliance claims in its comments to the EPA. Companies contend that previous officials overestimated the ability to hit goals using "conventional technologies." In other words, they believe that they'd have to use exotic designs to achieve their objectives. The Alliance also calls for increased flexibility in the rules' credit system, which lets manufacturers offset low-efficiency cars by producing hyper-efficient cars (including EVs and hybrids). Just what that flexibility entails isn't clear, but it's implied that companies would like either more opportunities to earn credits or for their achievements to count more. Whether or not they'll get any changes in the rules is another story. The current EPA leadership is close to the fossil fuel industry and has a deregulatory bent, but that won't matter much if California continues to resist attempts to soften regulations . Like it or not, automakers have to honor the state's rules if they expect to succeed -- if they don't, they give up sales in California and the 12 other states that follow its lead. As it is, the gripes may not amount to much. Auto giants like GM have already promised an abundance of electric cars over the next several years. They may not need to worry about reaching the 2025 goals if large portions of their line...
+
+
+Full story on F3News: [Car makers ask US officials to loosen fuel economy requirements](http://www.f3nws.com/n/nTgJVE)
+
+> Posted on: Sunday, October 8, 2017 12:34:00 AM
