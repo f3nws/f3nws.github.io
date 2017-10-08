@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wife at funeral: 'I knew every day that he would protect me'"
-date: 2017-10-08 21:16:02Z
+date: 2017-10-08 21:43:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BAKERSFIELD, Calif. (AP) — Jack Beaton felt equally comfortable gripping a pai
 
 Full story on F3News: [Wife at funeral: 'I knew every day that he would protect me'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 8, 2017 9:16:02 PM
+> Posted on: Sunday, October 8, 2017 9:43:30 PM
