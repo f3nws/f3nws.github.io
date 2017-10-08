@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nate makes 2nd landfall in Mississippi, weakens while spreading heavy rainfall inland"
-date: 2017-10-08 15:30:00Z
+date: 2017-10-08 15:40:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hurricane Nate weakened early Sunday after making its second landfall along Miss
 
 Full story on F3News: [Nate makes 2nd landfall in Mississippi, weakens while spreading heavy rainfall inland](http://www.f3nws.com/n/2qHMC)
 
-> Posted on: Sunday, October 8, 2017 3:30:00 PM
+> Posted on: Sunday, October 8, 2017 3:40:00 PM
