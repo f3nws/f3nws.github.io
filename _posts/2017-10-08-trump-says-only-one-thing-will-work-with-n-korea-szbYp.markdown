@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says 'only one thing will work' with N Korea"
-date: 2017-10-08 00:13:09Z
+date: 2017-10-08 05:16:48Z
 categories: times-of-india-world
 ---
 
@@ -12,4 +12,4 @@ categories: times-of-india-world
 
 Full story on F3News: [Trump says 'only one thing will work' with N Korea](http://www.f3nws.com/n/szbYp)
 
-> Posted on: Sunday, October 8, 2017 12:13:09 AM
+> Posted on: Sunday, October 8, 2017 5:16:48 AM
