@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Justice League' trailer pits heroes in an explosive battle     - CNET"
-date: 2017-10-08 15:48:52Z
+date: 2017-10-08 21:37:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ And includes a peek at Henry Cavill's Superman... sort of.
 
 Full story on F3News: ['Justice League' trailer pits heroes in an explosive battle     - CNET](http://www.f3nws.com/n/FbNGhB)
 
-> Posted on: Sunday, October 8, 2017 3:48:52 PM
+> Posted on: Sunday, October 8, 2017 9:37:43 PM

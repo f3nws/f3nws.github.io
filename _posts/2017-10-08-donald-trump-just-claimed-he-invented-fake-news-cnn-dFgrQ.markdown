@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Donald Trump just claimed he invented 'fake news' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171006085825-01-donald-trump-1004-super-tease.jpg)
 
-CNN Donald Trump just claimed he invented 'fake news' CNN (CNN) Donald Trump has a grandiose view of himself and his centrality to, well, everything. He is the first mover. He comes up with things. Like the idea of putting the words "fake" and "news" together. "The media is really, the word, one of the ... Trump Defends Throwing Paper Towels to Hurricane Survivors in Puerto Rico NBCNews.com Trump: 'One of the greatest terms I've come up with is 'fake'' The Hill President Trump says he created the term 'fake,' defends Puerto Rico paper towel tosses in Mike Huckabee interview New York Daily News PEOPLE.com - New York Magazine - The Daily Caller - Raw Story all 43 news articles »
+CNN Donald Trump just claimed he invented 'fake news' CNN (CNN) Donald Trump has a grandiose view of himself and his centrality to, well, everything. He is the first mover. He comes up with things. Like the idea of putting the words "fake" and "news" together. "The media is really, the word, one of the ... Trump Defends Throwing Paper Towels to Hurricane Survivors in Puerto Rico NBCNews.com Trump: 'One of the greatest terms I've come up with is 'fake'' The Hill Trump Is Very Proud of Himself for Coming Up With the Term “Fake” Slate Magazine (blog) PEOPLE.com - Mediaite - New York Magazine - The Daily Caller all 45 news articles »
 
 
 Full story on F3News: [Donald Trump just claimed he invented 'fake news' - CNN](http://www.f3nws.com/n/dFgrQ)
