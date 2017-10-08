@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump reaches out to Democrats in bid for 'great' health law"
-date: 2017-10-08 01:43:11Z
+date: 2017-10-08 02:51:19Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Trying to revive health care talks, President Donald Trump s
 
 Full story on F3News: [Trump reaches out to Democrats in bid for 'great' health law](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 8, 2017 1:43:11 AM
+> Posted on: Sunday, October 8, 2017 2:51:19 AM
