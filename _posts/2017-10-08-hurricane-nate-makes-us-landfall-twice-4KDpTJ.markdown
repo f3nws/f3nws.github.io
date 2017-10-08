@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane Nate makes US landfall -- twice"
-date: 2017-10-08 09:00:17Z
+date: 2017-10-08 09:34:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hurricane Nate made its second US landfall near Biloxi, Mississippi, shortly aft
 
 Full story on F3News: [Hurricane Nate makes US landfall -- twice](http://www.f3nws.com/n/4KDpTJ)
 
-> Posted on: Sunday, October 8, 2017 9:00:17 AM
+> Posted on: Sunday, October 8, 2017 9:34:21 AM
