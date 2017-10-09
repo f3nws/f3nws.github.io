@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![German backpacker death: Man faces court charged with murder - ABC Online](http://www.abc.net.au/news/image/9026554-1x1-700x700.jpg)
 
-ABC Online German backpacker death: Man faces court charged with murder ABC Online A 33-year-old man has been remanded in custody charged with the stabbing murder of a German tourist in Brisbane last week. Police said Dominik Schulze and a friend were walking on Milton Road near backpacker hostels on Friday morning after a night ... Brisbane backpacker murder: Accused remanded in custody NEWS.com.au Murder accused 'choked back tears' in court over backpacker stabbing 9news.com.au Man charged with road rage murder of German backpacker Ten Eyewitness News Triple M - Hit 107 - DeathRattleSports.com - Gears Of Biz all 14 news articles »
+ABC Online German backpacker death: Man faces court charged with murder ABC Online A 33-year-old man has been remanded in custody charged with the stabbing murder of a German tourist in Brisbane last week. Police said Dominik Schulze and a friend were walking on Milton Road near backpacker hostels on Friday morning after a night ... Brisbane backpacker murder: Accused remanded in custody NEWS.com.au Murder accused 'choked back tears' in court over backpacker stabbing 9news.com.au Man charged with road rage murder of German backpacker Ten Eyewitness News Triple M - Hit 107 - ExpressNewsline all 14 news articles »
 
 
 Full story on F3News: [German backpacker death: Man faces court charged with murder - ABC Online](http://www.f3nws.com/n/CDcrgE)

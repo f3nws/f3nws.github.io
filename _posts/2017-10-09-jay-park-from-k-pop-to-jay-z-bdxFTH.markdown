@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jay Park: from K-pop to Jay-Z"
-date: 2017-10-09 01:14:02Z
+date: 2017-10-09 05:15:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ When Jay Park became the first and only Asian artist signed to Jay-Z's label, Ro
 
 Full story on F3News: [Jay Park: from K-pop to Jay-Z](http://www.f3nws.com/n/bdxFTH)
 
-> Posted on: Monday, October 9, 2017 1:14:02 AM
+> Posted on: Monday, October 9, 2017 5:15:38 AM
