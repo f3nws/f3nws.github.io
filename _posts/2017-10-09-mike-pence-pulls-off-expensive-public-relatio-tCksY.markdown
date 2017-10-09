@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mike Pence pulls off expensive public-relatio"
-date: 2017-10-09 12:43:23Z
+date: 2017-10-09 12:43:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Nearly half of Donald Trump's cabinet is under scrutiny for wasteful, taxpayer-f
 
 Full story on F3News: [Mike Pence pulls off expensive public-relatio](http://www.f3nws.com/n/tCksY)
 
-> Posted on: Monday, October 9, 2017 12:43:23 PM
+> Posted on: Monday, October 9, 2017 12:43:00 PM

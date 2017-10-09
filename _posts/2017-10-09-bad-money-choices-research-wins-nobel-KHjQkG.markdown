@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bad money choices research wins Nobel"
-date: 2017-10-09 13:53:15Z
+date: 2017-10-09 18:10:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Bad money choices research wins Nobel](http://www.f3nws.com/n/KHjQkG)
 
-> Posted on: Monday, October 9, 2017 1:53:15 PM
+> Posted on: Monday, October 9, 2017 6:10:26 PM

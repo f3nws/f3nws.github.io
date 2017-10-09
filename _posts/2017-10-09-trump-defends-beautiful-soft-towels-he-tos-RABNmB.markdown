@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump defends 'beautiful, soft towels' he tos"
-date: 2017-10-09 13:25:48Z
+date: 2017-10-09 13:25:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ The indelible image from Donald Trump's visit to Puerto Rico was watching him lo
 
 Full story on F3News: [Trump defends 'beautiful, soft towels' he tos](http://www.f3nws.com/n/RABNmB)
 
-> Posted on: Monday, October 9, 2017 1:25:48 PM
+> Posted on: Monday, October 9, 2017 1:25:00 PM
