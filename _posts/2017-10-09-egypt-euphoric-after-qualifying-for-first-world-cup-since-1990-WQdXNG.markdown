@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt euphoric after qualifying for first World Cup since 1990"
-date: 2017-10-09 13:53:16Z
+date: 2017-10-09 14:04:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Egypt manager Héctor Cúper had already been taking medication for high blood p
 
 Full story on F3News: [Egypt euphoric after qualifying for first World Cup since 1990](http://www.f3nws.com/n/WQdXNG)
 
-> Posted on: Monday, October 9, 2017 1:53:16 PM
+> Posted on: Monday, October 9, 2017 2:04:17 PM

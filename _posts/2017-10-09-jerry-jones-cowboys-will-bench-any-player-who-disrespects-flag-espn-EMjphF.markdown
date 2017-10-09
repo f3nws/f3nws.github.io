@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Jerry Jones: Cowboys will bench any player who 'disrespects' flag - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1008%2Fr271174_1296x729_16%2D9.jpg)
 
-ESPN Jerry Jones: Cowboys will bench any player who 'disrespects' flag ESPN ARLINGTON, Texas -- Dallas Cowboys owner and general manager Jerry Jones said emphatically that his players will stand for the national anthem and not disrespect the flag, and if they do, the player or players will not play. "If there's anything that ... Cowboys owner Jerry Jones: Players who disrespect the flag won't be allowed to play CBSSports.com Jerry Jones: Cowboys players 'disrespecting the flag' won't be allowed to play USA TODAY Jerry Jones: 'We're going to respect the flag' Yahoo Sports SFGate - New York Post - Fox News - Fort Worth Star Telegram all 82 news articles »
+ESPN Jerry Jones: Cowboys will bench any player who 'disrespects' flag ESPN ARLINGTON, Texas -- Dallas Cowboys owner and general manager Jerry Jones said emphatically that his players will stand for the national anthem and not disrespect the flag, and if they do, the player or players will not play. Jerry Jones says Cowboys players 'disrespecting the flag' won't play Washington Post Cowboys owner Jerry Jones: Any player who is 'disrespectful to the flag' won't be allowed to play Dallas News Jerry Jones: Cowboys gave Rodgers too much time NFL.com CBSSports.com - SB Nation - USA TODAY - Yahoo Sports all 99 news articles »
 
 
 Full story on F3News: [Jerry Jones: Cowboys will bench any player who 'disrespects' flag - ESPN](http://www.f3nws.com/n/EMjphF)
