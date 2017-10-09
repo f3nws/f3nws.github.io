@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trial in Kim murder visits lab to examine VX-tainted clothes"
-date: 2017-10-09 08:57:15Z
+date: 2017-10-09 09:17:33Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PETALING JAYA, Malaysia (AP) — The Malaysian court holding the trial of two wo
 
 Full story on F3News: [Trial in Kim murder visits lab to examine VX-tainted clothes](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 8:57:15 AM
+> Posted on: Monday, October 9, 2017 9:17:33 AM
