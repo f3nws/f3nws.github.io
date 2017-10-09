@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![It's not the cost of Pence's trip that was galling. It was the preparation for it. - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-10-01/AP/Colts_Seahawks_Football_64606-3430f.jpg?t=20170517)
 
-Washington Post It's not the cost of Pence's trip that was galling. It was the preparation for it. Washington Post Sunday's NFL game between the San Francisco 49ers and the Indianapolis Colts was scheduled to begin at 1 p.m. Eastern time. By 1:24 p.m., Vice President Pence's official Twitter account had posted this. I stand with @POTUS Trump, I stand with our ... Donald Trump just used Mike Pence for a PR stunt CNN Cam Newton Has Best Game of Season After Tumultuous Week Sports Illustrated Trump: Vice President Mike Pence's trip to Indianapolis was 'long planned' USA TODAY Fox News - The Atlantic - Newsweek - New York Post all 694 news articles »
+Washington Post It's not the cost of Pence's trip that was galling. It was the preparation for it. Washington Post Sunday's NFL game between the San Francisco 49ers and the Indianapolis Colts was scheduled to begin at 1 p.m. Eastern time. By 1:24 p.m., Vice President Pence's official Twitter account had posted this. I stand with @POTUS Trump, I stand with our ... White House says Pence trip to Colts game was long planned, but leaving wasn't USA TODAY Stunt or not, Pence upstaged Peyton NBCSports.com The Award Section: Alex Smith Playing at MVP Level for Unbeaten Chiefs Sports Illustrated CNN - Business Insider - Indianapolis Star - The Hill all 786 news articles »
 
 
 Full story on F3News: [It's not the cost of Pence's trip that was galling. It was the preparation for it. - Washington Post](http://www.f3nws.com/n/JtvzZD)
