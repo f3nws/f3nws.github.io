@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Pence leaves NFL game after players kneel during anthem"
+date: 2017-10-09 01:26:58Z
+categories: cnn-com-top-stories
+---
+
+![Pence leaves NFL game after players kneel during anthem](http://i2.cdn.cnn.com/cnnnext/dam/assets/170824103842-vice-president-pence-speaks-to-members-of-the-venezuelan-community-in-doral-florida-super-tease.jpg)
+
+Vice President Mike Pence left a football game between the Indianapolis Colts and the San Francisco 49ers on Sunday after some players knelt during the National Anthem, saying he did not want to "dignify" the event.
+
+
+Full story on F3News: [Pence leaves NFL game after players kneel during anthem](http://www.f3nws.com/n/Z4BHUD)
+
+> Posted on: Monday, October 9, 2017 1:26:58 AM
