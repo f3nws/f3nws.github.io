@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vegas shooter's note had calculations for targeting crowd"
-date: 2017-10-09 07:01:51Z
+date: 2017-10-09 12:28:29Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: google-news-top-stories
 
 Full story on F3News: [Vegas shooter's note had calculations for targeting crowd](http://www.f3nws.com/n/ZmBZzB)
 
-> Posted on: Monday, October 9, 2017 7:01:51 AM
+> Posted on: Monday, October 9, 2017 12:28:29 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House sets immigration deal priorities"
-date: 2017-10-09 07:31:05Z
+date: 2017-10-09 12:32:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House on Sunday night released an aggressive list of priorities for an
 
 Full story on F3News: [White House sets immigration deal priorities](http://www.f3nws.com/n/mYdUvB)
 
-> Posted on: Monday, October 9, 2017 7:31:05 AM
+> Posted on: Monday, October 9, 2017 12:32:17 PM

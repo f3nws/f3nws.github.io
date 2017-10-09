@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence leaves NFL game after players kneel during anthem"
-date: 2017-10-09 01:26:58Z
+date: 2017-10-09 12:33:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Vice President Mike Pence left a football game between the Indianapolis Colts an
 
 Full story on F3News: [Pence leaves NFL game after players kneel during anthem](http://www.f3nws.com/n/Z4BHUD)
 
-> Posted on: Monday, October 9, 2017 1:26:58 AM
+> Posted on: Monday, October 9, 2017 12:33:27 PM

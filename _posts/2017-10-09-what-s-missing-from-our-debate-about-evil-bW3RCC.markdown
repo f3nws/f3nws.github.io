@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What's missing from our debate about 'evil'"
-date: 2017-10-09 03:46:36Z
+date: 2017-10-09 12:35:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The day after the massacre in Las Vegas, President Donald Trump used the word "e
 
 Full story on F3News: [What's missing from our debate about 'evil'](http://www.f3nws.com/n/bW3RCC)
 
-> Posted on: Monday, October 9, 2017 3:46:36 AM
+> Posted on: Monday, October 9, 2017 12:35:28 PM
