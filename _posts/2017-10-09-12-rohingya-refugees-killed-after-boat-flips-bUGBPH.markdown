@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "12 Rohingya refugees killed after boat flips"
-date: 2017-10-09 05:50:04Z
+date: 2017-10-09 09:31:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 12 Rohingya refugees, including 10 children, died after their boat caps
 
 Full story on F3News: [12 Rohingya refugees killed after boat flips](http://www.f3nws.com/n/bUGBPH)
 
-> Posted on: Monday, October 9, 2017 5:50:04 AM
+> Posted on: Monday, October 9, 2017 9:31:12 AM

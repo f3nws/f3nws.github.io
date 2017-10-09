@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia: Spaniards wake up to a week of uncertainty"
-date: 2017-10-09 07:38:29Z
+date: 2017-10-09 09:55:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spaniards woke up Monday facing a week of political uncertainty, with Catalan re
 
 Full story on F3News: [Catalonia: Spaniards wake up to a week of uncertainty](http://www.f3nws.com/n/VcNgTD)
 
-> Posted on: Monday, October 9, 2017 7:38:29 AM
+> Posted on: Monday, October 9, 2017 9:55:46 AM

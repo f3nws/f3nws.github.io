@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dove apologizes for racially insensitive ad"
-date: 2017-10-09 01:37:21Z
+date: 2017-10-09 09:26:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Dove apologizes for racially insensitive ad](http://www.f3nws.com/n/JbB3CG)
 
-> Posted on: Monday, October 9, 2017 1:37:21 AM
+> Posted on: Monday, October 9, 2017 9:26:52 AM
