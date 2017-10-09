@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dolphins coach resigns after video shows him snorting white substance"
-date: 2017-10-09 19:18:52Z
+date: 2017-10-09 20:25:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Miami Dolphins offensive line coach Chris Foerster has quit his position after a
 
 Full story on F3News: [Dolphins coach resigns after video shows him snorting white substance](http://www.f3nws.com/n/ERzGXC)
 
-> Posted on: Monday, October 9, 2017 7:18:52 PM
+> Posted on: Monday, October 9, 2017 8:25:00 PM

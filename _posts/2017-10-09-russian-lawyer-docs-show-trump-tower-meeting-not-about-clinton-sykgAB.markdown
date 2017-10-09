@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian lawyer: Docs show Trump Tower meeting not about Clinton"
-date: 2017-10-09 15:16:30Z
+date: 2017-10-09 20:40:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An attorney for the Russian billionaire who allegedly pushed for the June 2016 m
 
 Full story on F3News: [Russian lawyer: Docs show Trump Tower meeting not about Clinton](http://www.f3nws.com/n/sykgAB)
 
-> Posted on: Monday, October 9, 2017 3:16:30 PM
+> Posted on: Monday, October 9, 2017 8:40:36 PM
