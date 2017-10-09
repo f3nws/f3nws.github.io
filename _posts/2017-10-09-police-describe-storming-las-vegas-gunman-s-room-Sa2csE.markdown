@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police describe storming Las Vegas gunman's room"
-date: 2017-10-09 12:01:15Z
+date: 2017-10-09 13:42:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An improvised team of Las Vegas police officers -- two K-9 officers, a detective
 
 Full story on F3News: [Police describe storming Las Vegas gunman's room](http://www.f3nws.com/n/Sa2csE)
 
-> Posted on: Monday, October 9, 2017 12:01:15 PM
+> Posted on: Monday, October 9, 2017 1:42:47 PM
