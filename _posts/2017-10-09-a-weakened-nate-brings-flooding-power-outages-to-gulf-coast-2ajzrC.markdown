@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A weakened Nate brings flooding, power outages to Gulf Coast"
-date: 2017-10-09 02:14:13Z
+date: 2017-10-09 02:55:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BILOXI, Miss. (AP) — Hurricane Nate brought a burst of flooding and power outa
 
 Full story on F3News: [A weakened Nate brings flooding, power outages to Gulf Coast](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 2:14:13 AM
+> Posted on: Monday, October 9, 2017 2:55:32 AM
