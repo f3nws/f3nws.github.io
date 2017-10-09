@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ESPN host who called out Trump suspended over NFL tweets"
-date: 2017-10-09 20:05:47Z
+date: 2017-10-09 21:55:36Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ ESPN has suspended host Jemele Hill for two weeks due to "a second violation of 
 
 Full story on F3News: [ESPN host who called out Trump suspended over NFL tweets](http://www.f3nws.com/n/ezK2Y)
 
-> Posted on: Monday, October 9, 2017 8:05:47 PM
+> Posted on: Monday, October 9, 2017 9:55:36 PM
