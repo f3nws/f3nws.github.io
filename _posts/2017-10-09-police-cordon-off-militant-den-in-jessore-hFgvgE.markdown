@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police cordon off ‘militant den’ in Jessore"
-date: 2017-10-09 03:36:58Z
+date: 2017-10-09 04:32:16Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Police cordon off ‘militant den’ in Jessore](http://www.f3nws.com/n/hFgvgE)
 
-> Posted on: Monday, October 9, 2017 3:36:58 AM
+> Posted on: Monday, October 9, 2017 4:32:16 AM

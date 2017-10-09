@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New 'Castle Rock' trailer links Stephen King characters     - CNET"
-date: 2017-10-09 02:39:57Z
+date: 2017-10-09 04:10:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Easter Egg-filled trailer for the new Hulu anthology series "Castle Rock" sh
 
 Full story on F3News: [New 'Castle Rock' trailer links Stephen King characters     - CNET](http://www.f3nws.com/n/FUYmSE)
 
-> Posted on: Monday, October 9, 2017 2:39:57 AM
+> Posted on: Monday, October 9, 2017 4:10:56 AM
