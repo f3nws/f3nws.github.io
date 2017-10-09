@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House to order health care alternatives"
-date: 2017-10-09 03:50:29Z
+date: 2017-10-09 04:17:39Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The White House is finalizing an executive order that would 
 
 Full story on F3News: [White House to order health care alternatives](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 3:50:29 AM
+> Posted on: Monday, October 9, 2017 4:17:39 AM
