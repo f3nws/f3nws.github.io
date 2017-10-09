@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires force evacuations, threaten wine country"
-date: 2017-10-09 14:00:00Z
+date: 2017-10-09 17:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Several raging wind-whipped fires forced evacuations Monday in California's fame
 
 Full story on F3News: [California wildfires force evacuations, threaten wine country](http://www.f3nws.com/n/bUDVrG)
 
-> Posted on: Monday, October 9, 2017 2:00:00 PM
+> Posted on: Monday, October 9, 2017 5:30:00 PM

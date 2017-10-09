@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Exclusive: Vegas killer described his unusual habits in 2013 testimony - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171003093253-cnnee-pkg-ana-maria-luengo-quin-era-stephen-paddock-el-psicopata-de-las-vegas-00002015-super-tease.jpg)
 
-CNN Exclusive: Vegas killer described his unusual habits in 2013 testimony CNN Las Vegas (CNN) He was a nocturnal creature who gambled all night and slept all day. He took Valium at times for anxiousness, and had the doctor who prescribed it to him on retainer. He wagered up to a million dollars a night, but wandered around ... Las Vegas shooter gambled all night and slept all day New York Post Las Vegas Gunman Had a Valium Habit, Would Gamble $1 Million a Night Newsweek Las Vegas Shooter Had Gambling Problem, 'Born Bad' Newsmax Radar Online all 12 news articles »
+CNN Exclusive: Vegas killer described his unusual habits in 2013 testimony CNN Las Vegas (CNN) He was a nocturnal creature who gambled all night and slept all day. He took Valium at times for anxiousness, and had the doctor who prescribed it to him on retainer. He wagered up to a million dollars a night, but wandered around ... Vegas Shooter Stephen Paddock Lived Like a Vampire: 'I Don't Do Sun' NBCNews.com Las Vegas shooter gambled all night and slept all day New York Post New Details About Stephen Paddock Emerge, But Clarify Nothing Slate Magazine (blog) ABC News - Daily Beast - The Daily Caller - The Epoch Times all 35 news articles »
 
 
 Full story on F3News: [Exclusive: Vegas killer described his unusual habits in 2013 testimony - CNN](http://www.f3nws.com/n/PZ2pNG)

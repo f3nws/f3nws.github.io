@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sen. Bob Corker's 12 most damning quotes about Trump"
-date: 2017-10-09 15:37:39Z
+date: 2017-10-09 17:52:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Bob Corker went off on Donald Trump Sunday night.
 
 Full story on F3News: [Sen. Bob Corker's 12 most damning quotes about Trump](http://www.f3nws.com/n/TetfFH)
 
-> Posted on: Monday, October 9, 2017 3:37:39 PM
+> Posted on: Monday, October 9, 2017 5:52:03 PM

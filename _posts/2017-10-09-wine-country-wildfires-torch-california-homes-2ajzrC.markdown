@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wine country wildfires torch California homes"
-date: 2017-10-09 17:15:47Z
+date: 2017-10-09 17:46:19Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SONOMA, Calif. (AP) — Wildfires whipped by powerful winds swept through Northe
 
 Full story on F3News: [Wine country wildfires torch California homes](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 5:15:47 PM
+> Posted on: Monday, October 9, 2017 5:46:19 PM
