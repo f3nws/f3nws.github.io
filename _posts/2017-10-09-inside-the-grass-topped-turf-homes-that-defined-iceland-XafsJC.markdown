@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside the grass-topped turf homes that defined Iceland"
-date: 2017-10-09 01:43:51Z
+date: 2017-10-09 08:00:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A land of vast open spaces, steaming blue lagoons, geysers, and powerful volcano
 
 Full story on F3News: [Inside the grass-topped turf homes that defined Iceland](http://www.f3nws.com/n/XafsJC)
 
-> Posted on: Monday, October 9, 2017 1:43:51 AM
+> Posted on: Monday, October 9, 2017 8:00:08 AM
