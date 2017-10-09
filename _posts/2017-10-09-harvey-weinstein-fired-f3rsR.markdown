@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein fired"
-date: 2017-10-09 00:14:45Z
+date: 2017-10-09 01:05:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Harvey Weinstein fired](http://www.f3nws.com/n/f3rsR)
 
-> Posted on: Monday, October 9, 2017 12:14:45 AM
+> Posted on: Monday, October 9, 2017 1:05:38 AM
