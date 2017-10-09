@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Harvey Weinstein Is Fired After Sexual Harassment Reports - New York Times](https://static01.nyt.com/images/2017/10/09/us/09xp-weinstein/09xp-weinstein-facebookJumbo.jpg)
 
-New York Times Harvey Weinstein Is Fired After Sexual Harassment Reports New York Times Harvey Weinstein in January. The Weinstein Company announced his termination on Sunday. Credit Chris Pizzello/Invision, via Associated Press. The Weinstein Company fired its co-founder Harvey Weinstein on Sunday, after a New York Times investigation ... Harvey Weinstein Terminated From Weinstein Company Hollywood Reporter Harvey Weinstein fired from film studio he co-founded after recent harassment allegations Washington Post Harvey Weinstein: Hollywood Reacts To The Firing Of TWC Executive Deadline Daily Beast - Forbes - Newsweek - Bustle all 364 news articles »
+New York Times Harvey Weinstein Is Fired After Sexual Harassment Reports New York Times Harvey Weinstein in January. The Weinstein Company announced his termination on Sunday. Credit Chris Pizzello/Invision, via Associated Press. The Weinstein Company fired its co-founder Harvey Weinstein on Sunday, after a New York Times investigation ... Harvey Weinstein fired from film studio he co-founded after recent harassment allegations Washington Post The Weinstein Company set to change name amid sexual harassment accusations: report Fox News Harvey Weinstein: Hollywood Reacts To The Firing Of TWC Executive Deadline Hollywood Reporter - Forbes - Billboard - New York Daily News all 381 news articles »
 
 
 Full story on F3News: [Harvey Weinstein Is Fired After Sexual Harassment Reports - New York Times](http://www.f3nws.com/n/pzRNzF)
