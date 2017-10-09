@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nate marches across US East Coast, dumping heavy rains"
-date: 2017-10-09 08:22:41Z
+date: 2017-10-09 10:54:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BILOXI, Miss. (AP) — Nate slogged its way across the U.S. East Coast on Monday
 
 Full story on F3News: [Nate marches across US East Coast, dumping heavy rains](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 8:22:41 AM
+> Posted on: Monday, October 9, 2017 10:54:00 AM
