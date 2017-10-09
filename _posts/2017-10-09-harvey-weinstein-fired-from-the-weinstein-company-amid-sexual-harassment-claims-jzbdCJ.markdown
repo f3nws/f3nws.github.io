@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein fired from The Weinstein Company amid sexual harassment claims"
-date: 2017-10-09 00:15:00Z
+date: 2017-10-09 00:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Weinstein Company film studio announced that its directors have fired movie 
 
 Full story on F3News: [Harvey Weinstein fired from The Weinstein Company amid sexual harassment claims](http://www.f3nws.com/n/jzbdCJ)
 
-> Posted on: Monday, October 9, 2017 12:15:00 AM
+> Posted on: Monday, October 9, 2017 12:45:00 AM
