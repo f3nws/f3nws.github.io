@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's businesses lose millions in Scotland"
-date: 2017-10-09 13:34:12Z
+date: 2017-10-09 15:56:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump's businesses lose millions in Scotland](http://www.f3nws.com/n/n3ATsE)
 
-> Posted on: Monday, October 9, 2017 1:34:12 PM
+> Posted on: Monday, October 9, 2017 3:56:59 PM
