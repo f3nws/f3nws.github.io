@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hong Kong's wildest dining experience"
-date: 2017-10-09 03:39:44Z
+date: 2017-10-09 07:07:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's 8 p.m. in a rather dull multi-story government building and wet market cent
 
 Full story on F3News: [Hong Kong's wildest dining experience](http://www.f3nws.com/n/GSXVc)
 
-> Posted on: Monday, October 9, 2017 3:39:44 AM
+> Posted on: Monday, October 9, 2017 7:07:26 AM
