@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump just used Vice President Pence for a PR stunt"
-date: 2017-10-09 12:33:32Z
+date: 2017-10-09 17:16:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Saturday, Vice President Mike Pence was in Las Vegas honoring the victims of 
 
 Full story on F3News: [Trump just used Vice President Pence for a PR stunt](http://www.f3nws.com/n/znExeC)
 
-> Posted on: Monday, October 9, 2017 12:33:32 PM
+> Posted on: Monday, October 9, 2017 5:16:20 PM
