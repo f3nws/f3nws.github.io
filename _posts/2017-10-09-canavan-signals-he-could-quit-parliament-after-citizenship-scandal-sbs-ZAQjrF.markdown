@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Canavan signals he could quit parliament after citizenship scandal - SBS"
+date: 2017-10-09 08:06:04Z
+categories: google-news-australia
+---
+
+![Canavan signals he could quit parliament after citizenship scandal - SBS](http://www.sbs.com.au/news/sites/sbs.com.au.news/files/20170511001305541355-original.jpg)
+
+SBS Canavan signals he could quit parliament after citizenship scandal SBS Queensland senator Matt Canavan has signalled he could walk away from politics for good if the High Court renders him ineligible to sit. Source: AAP - SBS Wires. 1 HOUR AGO UPDATED 46 MINS AGO ... Matt Canavan suggests he could quit politics if high court rules him ineligible The Guardian all 4 news articles »
+
+
+Full story on F3News: [Canavan signals he could quit parliament after citizenship scandal - SBS](http://www.f3nws.com/n/ZAQjrF)
+
+> Posted on: Monday, October 9, 2017 8:06:04 AM

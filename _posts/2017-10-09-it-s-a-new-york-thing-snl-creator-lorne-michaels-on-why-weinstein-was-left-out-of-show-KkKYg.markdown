@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'It's a New York thing': SNL creator Lorne Michaels on why Weinstein was left out of show"
-date: 2017-10-09 08:30:06Z
+date: 2017-10-09 09:00:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ categories: fox-news
 
 Full story on F3News: ['It's a New York thing': SNL creator Lorne Michaels on why Weinstein was left out of show](http://www.f3nws.com/n/KkKYg)
 
-> Posted on: Monday, October 9, 2017 8:30:06 AM
+> Posted on: Monday, October 9, 2017 9:00:03 AM
