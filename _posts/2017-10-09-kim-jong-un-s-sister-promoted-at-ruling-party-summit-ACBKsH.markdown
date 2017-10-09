@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Jong Un's sister promoted at ruling party summit"
-date: 2017-10-09 02:26:48Z
+date: 2017-10-09 02:54:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean leader Kim Jong Un's younger sister Kim Yo Jong was promoted Saturd
 
 Full story on F3News: [Kim Jong Un's sister promoted at ruling party summit](http://www.f3nws.com/n/ACBKsH)
 
-> Posted on: Monday, October 9, 2017 2:26:48 AM
+> Posted on: Monday, October 9, 2017 2:54:20 AM
