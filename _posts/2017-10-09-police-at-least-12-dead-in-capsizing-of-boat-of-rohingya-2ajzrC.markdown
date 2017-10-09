@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: At least 12 dead in capsizing of boat of Rohingya"
-date: 2017-10-09 06:21:35Z
+date: 2017-10-09 06:48:47Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ COX'S BAZAR, Bangladesh (AP) — An overcrowded boat carrying Rohingya Muslims f
 
 Full story on F3News: [Police: At least 12 dead in capsizing of boat of Rohingya](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 6:21:35 AM
+> Posted on: Monday, October 9, 2017 6:48:47 AM

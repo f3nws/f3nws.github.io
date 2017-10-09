@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia leader expected to declare independence; Spain's PM says that 'will not happen'"
-date: 2017-10-09 06:04:58Z
+date: 2017-10-09 06:50:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spaniards woke up Monday facing a week of political uncertainty, with Catalan Pr
 
 Full story on F3News: [Catalonia leader expected to declare independence; Spain's PM says that 'will not happen'](http://www.f3nws.com/n/VcNgTD)
 
-> Posted on: Monday, October 9, 2017 6:04:58 AM
+> Posted on: Monday, October 9, 2017 6:50:44 AM

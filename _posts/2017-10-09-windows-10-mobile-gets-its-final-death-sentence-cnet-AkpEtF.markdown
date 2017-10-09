@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "Windows 10 Mobile gets its final death sentence - CNET"
-date: 2017-10-09 02:58:06Z
+title:  "Windows 10 Mobile gets its final death sentence     - CNET"
+date: 2017-10-09 04:00:54Z
 categories: google-news-technology
 ---
 
-![Windows 10 Mobile gets its final death sentence - CNET](https://cnet1.cbsistatic.com/img/98Z9_QAIxy_iJlzf_tLMqxqrsCk=/670x503/2015/12/07/660838fa-f53e-4003-ba9e-fec34f4a05ea/lumia-550-gallery-1-jpg-1024x512.jpg)
+![Windows 10 Mobile gets its final death sentence     - CNET](https://cnet1.cbsistatic.com/img/98Z9_QAIxy_iJlzf_tLMqxqrsCk=/670x503/2015/12/07/660838fa-f53e-4003-ba9e-fec34f4a05ea/lumia-550-gallery-1-jpg-1024x512.jpg)
 
-CNET Windows 10 Mobile gets its final death sentence CNET Microsoft's Lumia 550 was one of the first phones equipped with Windows 10 Mobile. But now, the OS is on the way out. Microsoft. Bill Gates has given up his Windows phone. HP is pulling production of its flagship Windows handset. Now Microsoft has ... Microsoft exec says Windows 10 Mobile is no longer a 'focus' Engadget Microsoft Exec Says Windows 10 Mobile Hardware Is No Longer A Focus Ubergizmo Microsoft Windows 10 Mobile's time is over Livemint SlashGear - Neowin - PC Perspective - BGR India all 26 news articles »
+No more new features, no more hardware -- the head of Microsoft's Windows division says Windows 10 Mobile will no longer be "a focus" for the company.
 
 
-Full story on F3News: [Windows 10 Mobile gets its final death sentence - CNET](http://www.f3nws.com/n/AkpEtF)
+Full story on F3News: [Windows 10 Mobile gets its final death sentence     - CNET](http://www.f3nws.com/n/AkpEtF)
 
-> Posted on: Monday, October 9, 2017 2:58:06 AM
+> Posted on: Monday, October 9, 2017 4:00:54 AM
