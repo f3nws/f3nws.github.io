@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Richard Thaler wins Nobel for work in behavioral economics"
-date: 2017-10-09 12:43:02Z
+date: 2017-10-09 13:24:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ STOCKHOLM (AP) — The Nobel prize in economics has been awarded to Richard Thal
 
 Full story on F3News: [Richard Thaler wins Nobel for work in behavioral economics](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 9, 2017 12:43:02 PM
+> Posted on: Monday, October 9, 2017 1:24:15 PM
