@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![After White House Issues Demands, Hopes for an Immigration Deal Dim - New York Times](https://static01.nyt.com/images/2017/10/10/us/10dc-immig1/10dc-immig1-facebookJumbo.jpg)
 
-New York Times After White House Issues Demands, Hopes for an Immigration Deal Dim New York Times A rally last month in support of the Dreamers program. Democrats rejected a list of demands by the president on immigration. Credit Yana Paskova for The New York Times. WASHINGTON — The list of hard-line immigration demands that President Trump ... If Trump doesn't deal on DACA, some Democrats threaten a government shutdown Washington Post Ivanka Trump calls on Congress to act on immigration CNN Trump demands upend immigration debate The Hill ABC News - NBCNews.com - Washington Examiner - Daily Beast all 377 news articles »
+New York Times After White House Issues Demands, Hopes for an Immigration Deal Dim New York Times A rally last month in support of the Dreamers program. Democrats rejected a list of demands by the president on immigration. Credit Yana Paskova for The New York Times. WASHINGTON — The list of hard-line immigration demands that President Trump ... If Trump doesn't deal on DACA, some Democrats threaten a government shutdown Washington Post Ivanka Trump calls on Congress to act on immigration CNN Trump demands upend immigration debate The Hill Reuters - ABC News - NBCNews.com - Daily Beast all 380 news articles »
 
 
 Full story on F3News: [After White House Issues Demands, Hopes for an Immigration Deal Dim - New York Times](http://www.f3nws.com/n/YbNCM)
