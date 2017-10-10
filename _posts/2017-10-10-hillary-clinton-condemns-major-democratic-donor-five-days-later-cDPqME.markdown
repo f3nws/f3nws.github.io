@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hillary Clinton condemns major Democratic donor, five days later"
-date: 2017-10-10 18:46:18Z
+date: 2017-10-10 22:29:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hillary Clinton condemned disgraced Hollywood executive Harvey Weinstein on Tues
 
 Full story on F3News: [Hillary Clinton condemns major Democratic donor, five days later](http://www.f3nws.com/n/cDPqME)
 
-> Posted on: Tuesday, October 10, 2017 6:46:18 PM
+> Posted on: Tuesday, October 10, 2017 10:29:14 PM
