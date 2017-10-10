@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Second uncle impregnated Indian rape victim, 10"
-date: 2017-10-10 11:30:51Z
+date: 2017-10-10 12:27:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A ten-year old Indian rape victim who gave birth in August was raped by two of h
 
 Full story on F3News: [Second uncle impregnated Indian rape victim, 10](http://www.f3nws.com/n/sjh4DB)
 
-> Posted on: Tuesday, October 10, 2017 11:30:51 AM
+> Posted on: Tuesday, October 10, 2017 12:27:45 PM
