@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump loves it when people clap for him"
-date: 2017-10-10 14:49:26Z
+date: 2017-10-10 17:57:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a terrific Washington Post piece published Tuesday that paints Donald Trump a
 
 Full story on F3News: [Trump loves it when people clap for him](http://www.f3nws.com/n/x3VtBB)
 
-> Posted on: Tuesday, October 10, 2017 2:49:26 PM
+> Posted on: Tuesday, October 10, 2017 5:57:54 PM

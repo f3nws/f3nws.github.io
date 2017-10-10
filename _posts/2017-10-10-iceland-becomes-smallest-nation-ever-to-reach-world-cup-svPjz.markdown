@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iceland becomes smallest nation ever to reach World Cup"
-date: 2017-10-10 17:07:17Z
+date: 2017-10-10 17:54:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia brace yourself -- the "Viking thunder clap" is heading your way.
 
 Full story on F3News: [Iceland becomes smallest nation ever to reach World Cup](http://www.f3nws.com/n/svPjz)
 
-> Posted on: Tuesday, October 10, 2017 5:07:17 PM
+> Posted on: Tuesday, October 10, 2017 5:54:49 PM
