@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "13 dead as fires ravage California wine region"
-date: 2017-10-10 18:38:26Z
+date: 2017-10-10 19:25:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fifteen wildfires raged across Northern California, with the biggest ones scorch
 
 Full story on F3News: [13 dead as fires ravage California wine region](http://www.f3nws.com/n/cnBybF)
 
-> Posted on: Tuesday, October 10, 2017 6:38:26 PM
+> Posted on: Tuesday, October 10, 2017 7:25:51 PM
