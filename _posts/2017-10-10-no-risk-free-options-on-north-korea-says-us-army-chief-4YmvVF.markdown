@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'No risk-free options' on North Korea, says US Army chief"
-date: 2017-10-10 08:47:26Z
+date: 2017-10-10 10:41:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Army Chief of Staff Gen. Mark Milley made clear Monday what a bind the US is 
 
 Full story on F3News: ['No risk-free options' on North Korea, says US Army chief](http://www.f3nws.com/n/4YmvVF)
 
-> Posted on: Tuesday, October 10, 2017 8:47:26 AM
+> Posted on: Tuesday, October 10, 2017 10:41:11 AM
