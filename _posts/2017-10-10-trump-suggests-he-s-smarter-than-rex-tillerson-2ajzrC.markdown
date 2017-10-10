@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump suggests he's smarter than Rex Tillerson"
-date: 2017-10-10 08:06:00Z
+date: 2017-10-10 09:12:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump suggested he's smarter than Secretary
 
 Full story on F3News: [Trump suggests he's smarter than Rex Tillerson](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 8:06:00 AM
+> Posted on: Tuesday, October 10, 2017 9:12:00 AM
