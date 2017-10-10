@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Corker raises dark concerns about Trump, president hits back"
-date: 2017-10-10 09:52:00Z
+date: 2017-10-10 10:04:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Sen. Bob Corker is hardly the only Republican lawmaker raisi
 
 Full story on F3News: [Corker raises dark concerns about Trump, president hits back](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 9:52:00 AM
+> Posted on: Tuesday, October 10, 2017 10:04:00 AM
