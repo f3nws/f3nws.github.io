@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump's IQ obsession, in 22 quotes - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170228222445-trump-congress-pointing-super-tease.jpg)
 
-CNN Donald Trump's IQ obsession, in 22 quotes CNN (CNN) In an interview with Forbes magazine published Tuesday morning, President Trump talks about his high IQ to explain away reports that Secretary of State Rex Tillerson referred to him as a "moron" over the summer. Said Trump: "I think it's fake ... A brief history of Trump challenging people to IQ tests Washington Post Trump challenges Rex Tillerson to IQ test BBC News Trump suggests he's smarter than Rex Tillerson, says 'compare IQ tests' Chicago Tribune MSNBC - Vox - Newsweek - Fortune all 196 news articles »
+CNN Donald Trump's IQ obsession, in 22 quotes CNN (CNN) In an interview with Forbes magazine published Tuesday morning, President Trump talks about his high IQ to explain away reports that Secretary of State Rex Tillerson referred to him as a "moron" over the summer. Said Trump: "I think it's fake ... Trump challenges Rex Tillerson to IQ test BBC News Trump suggests he's smarter than Rex Tillerson, says 'compare IQ tests' Chicago Tribune Following 'moron' flap, Trump ready to 'compare IQ tests' with Tillerson MSNBC U.S. News & World Report - Vox - Fortune - CBS News all 197 news articles »
 
 
 Full story on F3News: [Donald Trump's IQ obsession, in 22 quotes - CNN](http://www.f3nws.com/n/nQCsNF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI cites black extremists as new domestic terrorist threat"
-date: 2017-10-10 15:30:38Z
+date: 2017-10-10 16:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The 2014 shooting of Michael Brown in Ferguson, Missouri has spawned a violent d
 
 Full story on F3News: [FBI cites black extremists as new domestic terrorist threat](http://www.f3nws.com/n/mWsncG)
 
-> Posted on: Tuesday, October 10, 2017 3:30:38 PM
+> Posted on: Tuesday, October 10, 2017 4:00:03 PM

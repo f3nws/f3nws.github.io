@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires kill at least 11, more than 100 reported missing in wine country"
-date: 2017-10-10 14:54:00Z
+date: 2017-10-10 15:33:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least 11 people are dead and more than 100 have been reported missing as expl
 
 Full story on F3News: [California wildfires kill at least 11, more than 100 reported missing in wine country](http://www.f3nws.com/n/bzSaWD)
 
-> Posted on: Tuesday, October 10, 2017 2:54:00 PM
+> Posted on: Tuesday, October 10, 2017 3:33:00 PM
