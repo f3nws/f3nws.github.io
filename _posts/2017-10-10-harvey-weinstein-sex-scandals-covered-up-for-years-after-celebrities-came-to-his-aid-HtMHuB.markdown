@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein sex scandals ‘covered up’ for years after celebrities came to his aid"
-date: 2017-10-10 01:11:12Z
+date: 2017-10-10 01:11:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Before uncovering allegations of Hollywood bigwig Harvey Weinstein’s sexual mi
 
 Full story on F3News: [Harvey Weinstein sex scandals ‘covered up’ for years after celebrities came to his aid](http://www.f3nws.com/n/HtMHuB)
 
-> Posted on: Tuesday, October 10, 2017 1:11:12 AM
+> Posted on: Tuesday, October 10, 2017 1:11:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sheriff: Vegas gunman aimed at fuel tanks as diversion"
-date: 2017-10-10 02:26:07Z
+date: 2017-10-10 02:52:37Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LAS VEGAS (AP) — The gunman who killed 58 people in the deadliest mass shootin
 
 Full story on F3News: [Sheriff: Vegas gunman aimed at fuel tanks as diversion](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 2:26:07 AM
+> Posted on: Tuesday, October 10, 2017 2:52:37 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wine country wildfires kill at least 10, force tens of thousands to evacuate"
-date: 2017-10-10 00:47:00Z
+date: 2017-10-10 02:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Several raging wind-whipped fires killed at least 10 people and forced massive e
 
 Full story on F3News: [California wine country wildfires kill at least 10, force tens of thousands to evacuate](http://www.f3nws.com/n/bRUDVJ)
 
-> Posted on: Tuesday, October 10, 2017 12:47:00 AM
+> Posted on: Tuesday, October 10, 2017 2:30:00 AM
