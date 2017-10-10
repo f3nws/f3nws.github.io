@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: I have confidence in Tillerson. Also, a higher IQ"
-date: 2017-10-10 15:21:23Z
+date: 2017-10-10 18:33:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, scorned by reports that Rex Tillerson called him a "moro
 
 Full story on F3News: [Trump: I have confidence in Tillerson. Also, a higher IQ](http://www.f3nws.com/n/qtZNAG)
 
-> Posted on: Tuesday, October 10, 2017 3:21:23 PM
+> Posted on: Tuesday, October 10, 2017 6:33:37 PM
