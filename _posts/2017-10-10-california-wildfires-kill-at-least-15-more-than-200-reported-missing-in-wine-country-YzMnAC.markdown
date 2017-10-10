@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires kill at least 15, more than 200 reported missing in wine country"
-date: 2017-10-10 19:25:00Z
+date: 2017-10-10 20:20:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least 15 people are dead and more than 200 have been reported missing as expl
 
 Full story on F3News: [California wildfires kill at least 15, more than 200 reported missing in wine country](http://www.f3nws.com/n/YzMnAC)
 
-> Posted on: Tuesday, October 10, 2017 7:25:00 PM
+> Posted on: Tuesday, October 10, 2017 8:20:00 PM

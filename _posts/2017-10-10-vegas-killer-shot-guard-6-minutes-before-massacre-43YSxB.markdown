@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vegas killer shot guard 6 minutes before massacre"
-date: 2017-10-10 17:27:57Z
+date: 2017-10-10 20:29:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Stephen Paddock shot a security guard before opening fire on concertgoers in Las
 
 Full story on F3News: [Vegas killer shot guard 6 minutes before massacre](http://www.f3nws.com/n/43YSxB)
 
-> Posted on: Tuesday, October 10, 2017 5:27:57 PM
+> Posted on: Tuesday, October 10, 2017 8:29:11 PM
