@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zuckerberg taps VR to detail relief efforts in Puerto Rico     - CNET"
-date: 2017-10-10 01:05:02Z
+date: 2017-10-10 04:06:51Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Facebook is using artificial intelligence and satellite imagery to identify area
 
 Full story on F3News: [Zuckerberg taps VR to detail relief efforts in Puerto Rico     - CNET](http://www.f3nws.com/n/JDteFJ)
 
-> Posted on: Tuesday, October 10, 2017 1:05:02 AM
+> Posted on: Tuesday, October 10, 2017 4:06:51 AM
