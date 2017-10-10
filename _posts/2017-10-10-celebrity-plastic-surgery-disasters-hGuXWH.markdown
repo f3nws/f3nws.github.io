@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrity plastic surgery disasters"
-date: 2017-10-10 02:30:03Z
+date: 2017-10-10 05:01:30Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ What were they thinking?
 
 Full story on F3News: [Celebrity plastic surgery disasters](http://www.f3nws.com/n/hGuXWH)
 
-> Posted on: Tuesday, October 10, 2017 2:30:03 AM
+> Posted on: Tuesday, October 10, 2017 5:01:30 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 10 dead as fires rage in California wine country"
-date: 2017-10-10 01:45:51Z
+date: 2017-10-10 04:33:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Firefighters are battling several wind-whipped fires that forced evacuations of 
 
 Full story on F3News: [At least 10 dead as fires rage in California wine country](http://www.f3nws.com/n/vAkkkD)
 
-> Posted on: Tuesday, October 10, 2017 1:45:51 AM
+> Posted on: Tuesday, October 10, 2017 4:33:07 AM
