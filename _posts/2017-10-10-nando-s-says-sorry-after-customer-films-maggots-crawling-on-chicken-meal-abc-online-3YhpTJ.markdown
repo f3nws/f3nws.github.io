@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nando's says sorry after customer films maggots crawling on chicken meal - ABC Online"
-date: 2017-10-10 01:45:00Z
+date: 2017-10-10 01:49:33Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Nando's says sorry after customer films maggots crawling on chicken m
 
 Full story on F3News: [Nando's says sorry after customer films maggots crawling on chicken meal - ABC Online](http://www.f3nws.com/n/3YhpTJ)
 
-> Posted on: Tuesday, October 10, 2017 1:45:00 AM
+> Posted on: Tuesday, October 10, 2017 1:49:33 AM
