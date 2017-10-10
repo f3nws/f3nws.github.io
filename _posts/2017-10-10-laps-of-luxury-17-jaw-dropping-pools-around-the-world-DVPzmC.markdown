@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Laps of luxury: 17 jaw-dropping pools around the world"
-date: 2017-10-10 00:42:43Z
+date: 2017-10-10 08:33:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Diving in at the deep end has never been more enjoyable than in these jaw-droppi
 
 Full story on F3News: [Laps of luxury: 17 jaw-dropping pools around the world](http://www.f3nws.com/n/DVPzmC)
 
-> Posted on: Tuesday, October 10, 2017 12:42:43 AM
+> Posted on: Tuesday, October 10, 2017 8:33:25 AM

@@ -7,7 +7,7 @@ categories: cnet
 
 !['Star Wars: The Last Jedi trailer blasts fans' emotions - CNET](https://cnet3.cbsistatic.com/img/XvqAN4HsXcYcfqRv3T1LW-iyXwo=/670x503/2017/10/09/1ecec21f-8abf-40b2-bb96-be329f934a5f/1lukereylightsaber.jpg)
 
-CNET 'Star Wars: The Last Jedi trailer blasts fans' emotions CNET Warning: Possible spoilers for "Star Wars: The Last Jedi" ahead. Star Wars fans scored a touchdown Monday night when the much-anticipated second "Star Wars: The Last Jedi" trailer dropped during halftime of the "Monday Night Football" game between the ... Who is Snoke Talking to in The Last Jedi Trailer? Screen Rant 'Star Wars': How the 'Last Jedi' Trailer Nailed It Hollywood Reporter Watch the trailer for Star Wars: The Last Jedi... but only if you REALLY want to Manchester Evening News ABC15 Arizona - The Independent - MovieWeb - IGN all 824 news articles »
+CNET 'Star Wars: The Last Jedi trailer blasts fans' emotions CNET Warning: Possible spoilers for "Star Wars: The Last Jedi" ahead. Star Wars fans scored a touchdown Monday night when the much-anticipated second "Star Wars: The Last Jedi" trailer dropped during halftime of the "Monday Night Football" game between the ... Watch: The Star Wars: The Last Jedi Trailer Will Give You Goosebumps Parade Who is Snoke Talking to in The Last Jedi Trailer? Screen Rant Watch the trailer for Star Wars: The Last Jedi... but only if you REALLY want to Manchester Evening News Hollywood Reporter - ABC15 Arizona - The Independent - Times LIVE all 839 news articles »
 
 
 Full story on F3News: ['Star Wars: The Last Jedi trailer blasts fans' emotions - CNET](http://www.f3nws.com/n/rNtxtB)

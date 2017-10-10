@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "At least 10 dead as fires rage in Northern California - CNN"
-date: 2017-10-10 06:23:00Z
+date: 2017-10-10 06:38:39Z
 categories: cnn-com-top-stories
 ---
 
 ![At least 10 dead as fires rage in Northern California - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171009071730-01-napa-county-wildfire-super-tease.jpg)
 
-CNN At least 10 dead as fires rage in Northern California CNN (CNN) Fifteen wildfires raged across Northern California, with the biggest ones scorching the state's famous wine country, killing at least 10 people, and burning over 1,500 homes and businesses, authorities said. The fires burned into the night Monday ... The Latest: Over 100 reported missing in California wildfire Washington Post Thousands flee as wildfires ravage northern California; 11 killed ABC News 10 dead, more than 100 reported missing in wine country fires Fox News Chicago Tribune - NBCNews.com - KABC-TV - USA TODAY all 774 news articles »
+CNN At least 10 dead as fires rage in Northern California CNN (CNN) Fifteen wildfires raged across Northern California, with the biggest ones scorching the state's famous wine country, killing at least 10 people, and burning over 1,500 homes and businesses, authorities said. The fires burned into the night Monday ... The Latest: Over 100 reported missing in California wildfire Washington Post California Wildfires: Officials Get More Than 100 Missing Person Reports NBCNews.com California Fires Kill at Least 10 and Destroy 1500 Buildings New York Times ABC News - Chicago Tribune - Fox News - USA TODAY all 779 news articles »
 
 
 Full story on F3News: [At least 10 dead as fires rage in Northern California - CNN](http://www.f3nws.com/n/cnBybF)
 
-> Posted on: Tuesday, October 10, 2017 6:23:00 AM
+> Posted on: Tuesday, October 10, 2017 6:38:39 AM
