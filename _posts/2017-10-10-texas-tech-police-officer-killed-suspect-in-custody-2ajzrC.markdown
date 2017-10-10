@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas Tech police officer killed, suspect in custody"
-date: 2017-10-10 03:47:00Z
+date: 2017-10-10 06:49:34Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LUBBOCK, Texas (AP) — Police apprehended a 19-year-old student accused of fata
 
 Full story on F3News: [Texas Tech police officer killed, suspect in custody](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 3:47:00 AM
+> Posted on: Tuesday, October 10, 2017 6:49:34 AM
