@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 10 dead and over 1,500 homes destroyed across Napa, Mendocino and Sonoma counties"
-date: 2017-10-10 08:37:24Z
+date: 2017-10-10 11:02:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fifteen wildfires raged across Northern California, with the biggest ones scorch
 
 Full story on F3News: [At least 10 dead and over 1,500 homes destroyed across Napa, Mendocino and Sonoma counties](http://www.f3nws.com/n/cnBybF)
 
-> Posted on: Tuesday, October 10, 2017 8:37:24 AM
+> Posted on: Tuesday, October 10, 2017 11:02:14 AM
