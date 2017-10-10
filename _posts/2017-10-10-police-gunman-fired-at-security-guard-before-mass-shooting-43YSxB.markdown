@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police: Gunman fired at security guard before mass shooting"
-date: 2017-10-10 02:50:20Z
+date: 2017-10-10 03:47:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Stephen Paddock shot a security guard before opening fire on concertgoers in Las
 
 Full story on F3News: [Police: Gunman fired at security guard before mass shooting](http://www.f3nws.com/n/43YSxB)
 
-> Posted on: Tuesday, October 10, 2017 2:50:20 AM
+> Posted on: Tuesday, October 10, 2017 3:47:10 AM
