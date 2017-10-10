@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paltrow, Jolie join flood of allegations against Weinstein"
-date: 2017-10-10 14:29:00Z
+date: 2017-10-10 17:09:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — An avalanche of allegations poured out Tuesday against Harvey 
 
 Full story on F3News: [Paltrow, Jolie join flood of allegations against Weinstein](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 2:29:00 PM
+> Posted on: Tuesday, October 10, 2017 5:09:00 PM
