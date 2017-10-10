@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Fast-moving wildfires kill 10, spur evacuations in Northern California - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171009071730-01-napa-county-wildfire-super-tease.jpg)
 
-CNN Fast-moving wildfires kill 10, spur evacuations in Northern California CNN (CNN) Deadly wildfires roared across California on Monday, forcing evacuations and destroying homes and businesses in their paths. The biggest fires burned in the wine country of Napa and Sonoma counties. Here's what we know so far, according to ... Wildfires in Northern California Kill at Least 10 and Destroy 1500 Buildings New York Times 1 dead as Wine Country fires burn hundreds of homes and businesses, force evacuations, close hospitals SFGate 10 dead, 1500 structures lost in California firestorm, among worst in state's history Chicago Tribune Fox News - CBS News - NBCNews.com - Los Angeles Times all 693 news articles »
+CNN Fast-moving wildfires kill 10, spur evacuations in Northern California CNN (CNN) Deadly wildfires roared across California on Monday, forcing evacuations and destroying homes and businesses in their paths. The biggest fires burned in the wine country of Napa and Sonoma counties. Here's what we know so far, according to ... Wildfires in Northern California Kill at Least 10 and Destroy 1500 Buildings New York Times 10 dead, 1500 structures lost in California firestorm, among worst in state's history Chicago Tribune California wine country wildfires kill at least 10, force tens of thousands to evacuate Fox News CBS News - Los Angeles Times - The Mercury News - USA TODAY all 723 news articles »
 
 
 Full story on F3News: [Fast-moving wildfires kill 10, spur evacuations in Northern California - CNN](http://www.f3nws.com/n/JkbaqH)

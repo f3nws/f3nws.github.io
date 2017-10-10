@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Star Wars': How the 'Last Jedi' Trailer Nailed It - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/10/star_wars-_the_last_jedi_trailer_still_0.jpg)
 
-Hollywood Reporter 'Star Wars': How the 'Last Jedi' Trailer Nailed It Hollywood Reporter If you were blown away by the new look at 'Episode VIII', you are not alone. The new Star Wars: The Last Jedi trailer has arrived, and it's as if millions of voices suddenly cried out in happiness. To break down all of those thoughts, The Hollywood ... New 'Star Wars: The Last Jedi' trailer hints at troubling tie between Rey and Kylo Ren USA TODAY The New Trailer for Star Wars: The Last Jedi Is Here, And It Is Stunning Slate Magazine (blog) 'Star Wars: The Last Jedi': Breaking Down the New Trailer RollingStone.com Den of Geek US - Forbes - New York Times - Washington Post all 763 news articles »
+Hollywood Reporter 'Star Wars': How the 'Last Jedi' Trailer Nailed It Hollywood Reporter If you were blown away by the new look at 'Episode VIII', you are not alone. The new Star Wars: The Last Jedi trailer has arrived, and it's as if millions of voices suddenly cried out in happiness. To break down all of those thoughts, The Hollywood ... The New Trailer for Star Wars: The Last Jedi Is Here, And It Is Stunning Slate Magazine (blog) New 'Star Wars: The Last Jedi' trailer hints at troubling tie between Rey and Kylo Ren USA TODAY 'Star Wars: The Last Jedi': Breaking Down the New Trailer RollingStone.com Den of Geek US - Forbes - Washington Post - New York Times all 770 news articles »
 
 
 Full story on F3News: ['Star Wars': How the 'Last Jedi' Trailer Nailed It - Hollywood Reporter](http://www.f3nws.com/n/rtvuvH)

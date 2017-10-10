@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Wars: The Last Jedi trailer blasts fans' emotions     - CNET"
-date: 2017-10-10 04:09:54Z
+date: 2017-10-10 05:58:09Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ So much to dissect: Is Kylo Ren trying to woo Rey to the Dark Side? And will som
 
 Full story on F3News: ['Star Wars: The Last Jedi trailer blasts fans' emotions     - CNET](http://www.f3nws.com/n/rNtxtB)
 
-> Posted on: Tuesday, October 10, 2017 4:09:54 AM
+> Posted on: Tuesday, October 10, 2017 5:58:09 AM
