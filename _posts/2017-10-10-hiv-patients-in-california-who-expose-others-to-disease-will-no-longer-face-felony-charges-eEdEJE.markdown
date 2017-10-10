@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "HIV patients in California who expose others to disease will no longer face felony charges"
-date: 2017-10-10 15:00:09Z
+date: 2017-10-10 15:30:38Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ California’s governor, Jerry Brown, on Friday signed a law that lowers the pen
 
 Full story on F3News: [HIV patients in California who expose others to disease will no longer face felony charges](http://www.f3nws.com/n/eEdEJE)
 
-> Posted on: Tuesday, October 10, 2017 3:00:09 PM
+> Posted on: Tuesday, October 10, 2017 3:30:38 PM
