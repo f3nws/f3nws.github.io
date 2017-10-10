@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As Trump challenges Iran nuclear deal, those in Tehran worry"
-date: 2017-10-10 05:22:34Z
+date: 2017-10-10 05:54:56Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — As U.S. President Donald Trump threatens the Iran nuclear 
 
 Full story on F3News: [As Trump challenges Iran nuclear deal, those in Tehran worry](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, October 10, 2017 5:22:34 AM
+> Posted on: Tuesday, October 10, 2017 5:54:56 AM
