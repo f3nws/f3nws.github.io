@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korean hackers stole US-S Korea war plans, official says"
-date: 2017-10-11 07:57:17Z
+date: 2017-10-11 09:07:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean hackers allegedly stole classified military documents from a South 
 
 Full story on F3News: [N Korean hackers stole US-S Korea war plans, official says](http://www.f3nws.com/n/kkcVYD)
 
-> Posted on: Wednesday, October 11, 2017 7:57:17 AM
+> Posted on: Wednesday, October 11, 2017 9:07:15 AM

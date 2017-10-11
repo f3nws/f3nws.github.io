@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy officers lose jobs after fatal collision"
-date: 2017-10-11 03:59:15Z
+date: 2017-10-11 09:09:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The two officers in charge of the destroyer USS John S. McCain have been relieve
 
 Full story on F3News: [US Navy officers lose jobs after fatal collision](http://www.f3nws.com/n/gqWVpH)
 
-> Posted on: Wednesday, October 11, 2017 3:59:15 AM
+> Posted on: Wednesday, October 11, 2017 9:09:17 AM
