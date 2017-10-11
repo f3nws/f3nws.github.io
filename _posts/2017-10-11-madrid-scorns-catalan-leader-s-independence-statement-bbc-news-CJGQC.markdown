@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Madrid scorns Catalan leader's independence statement - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/2DBA/production/_98260711_gettyimages-859859172.jpg)
 
-BBC News Madrid scorns Catalan leader's independence statement BBC News The Spanish government has rejected a statement of independence signed by Catalan leader Carles Puigdemont and dismissed calls for mediation. Spain's deputy prime minister described Mr Puigdemont as someone "who does not know where he is, ... Catalan leader declares independence, then delays its implementation to 'give dialogue a chance' The Japan Times Catalonia's Setback May Not Stop the Advance of EU Separatists Bloomberg Spain to hold crisis talks after Catalan independence 'suspended' Hindustan Times Rappler - Voice of America - Moneycontrol.com - Reuters all 177 news articles »
+BBC News Madrid scorns Catalan leader's independence statement BBC News The Spanish government has rejected a statement of independence signed by Catalan leader Carles Puigdemont and dismissed calls for mediation. Spain's deputy prime minister described Mr Puigdemont as someone "who does not know where he is, ... Catalonia-Spain Crisis: What Happens Next? Voice of America Madrid rebukes Catalonia leader after signing of 'independence declaration' Independent.ie Catalonia baulks at formal independence declaration to allow talks Reuters Bloomberg - Livemint - Hindustan Times all 194 news articles »
 
 
 Full story on F3News: [Madrid scorns Catalan leader's independence statement - BBC News](http://www.f3nws.com/n/CJGQC)

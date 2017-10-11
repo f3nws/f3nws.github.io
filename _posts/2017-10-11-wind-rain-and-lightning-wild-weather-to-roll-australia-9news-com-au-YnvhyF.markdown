@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wind, rain and lightning: Wild weather to roll Australia - 9news.com.au"
-date: 2017-10-11 05:22:00Z
+date: 2017-10-11 05:26:09Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ NEWS.com.au Wind, rain and lightning: Wild weather to roll Australia 9news.com.a
 
 Full story on F3News: [Wind, rain and lightning: Wild weather to roll Australia - 9news.com.au](http://www.f3nws.com/n/YnvhyF)
 
-> Posted on: Wednesday, October 11, 2017 5:22:00 AM
+> Posted on: Wednesday, October 11, 2017 5:26:09 AM
