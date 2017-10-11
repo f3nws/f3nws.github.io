@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires reduce years-long dreams to embers"
-date: 2017-10-11 08:58:00Z
+date: 2017-10-11 09:51:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SANTA ROSA, Calif. (AP) — Jose Garnica worked for more than two decades to bui
 
 Full story on F3News: [California wildfires reduce years-long dreams to embers](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, October 11, 2017 8:58:00 AM
+> Posted on: Wednesday, October 11, 2017 9:51:00 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Utah officer fired for forcibly handcuffing nurse who defied him - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/170901152357-utah-nurse-arrest-3-super-tease.jpg)
 
-CNN Utah officer fired for forcibly handcuffing nurse who defied him CNN (CNN) A Utah police officer has been fired after he forcibly arrested a nurse who refused to let him draw blood from an unconscious patient in July. A police body camera recorded the July 26 arrest of Alex Wubbels, a nurse at the University of Utah's ... Utah police officer fired after manhandling, arresting nurse who was doing her job Washington Post Utah officer fired for handcuffing, dragging screaming nurse out of hospital ABC News Utah cop caught on video assaulting nurse fired from police department New York Daily News USA TODAY - Salt Lake Tribune - fox2now.com - cleveland.com all 99 news articles »
+CNN Utah officer fired for forcibly handcuffing nurse who defied him CNN (CNN) A Utah police officer has been fired after he forcibly arrested a nurse who refused to let him draw blood from an unconscious patient in July. A police body camera recorded the July 26 arrest of Alex Wubbels, a nurse at the University of Utah's ... Utah police officer fired after manhandling, arresting nurse who was doing her job Washington Post Utah officer fired for handcuffing, dragging screaming nurse out of hospital ABC News Utah cop caught on video assaulting nurse fired from police department New York Daily News USA TODAY - Salt Lake Tribune - cleveland.com all 102 news articles »
 
 
 Full story on F3News: [Utah officer fired for forcibly handcuffing nurse who defied him - CNN](http://www.f3nws.com/n/XumrgF)

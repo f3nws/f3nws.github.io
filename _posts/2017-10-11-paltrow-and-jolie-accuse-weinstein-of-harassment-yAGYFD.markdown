@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Paltrow and Jolie accuse Weinstein of harassment"
-date: 2017-10-11 13:21:13Z
+date: 2017-10-11 13:27:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ More women, including Gwyneth Paltrow and Angelina Jolie, have come forward to a
 
 Full story on F3News: [Paltrow and Jolie accuse Weinstein of harassment](http://www.f3nws.com/n/yAGYFD)
 
-> Posted on: Wednesday, October 11, 2017 1:21:13 PM
+> Posted on: Wednesday, October 11, 2017 1:27:17 PM
