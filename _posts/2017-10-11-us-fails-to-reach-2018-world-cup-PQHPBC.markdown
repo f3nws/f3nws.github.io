@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US fails to reach 2018 World Cup"
-date: 2017-10-11 05:06:45Z
+date: 2017-10-11 07:41:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For the first time since 1986, the US Men's National Team will be watching the W
 
 Full story on F3News: [US fails to reach 2018 World Cup](http://www.f3nws.com/n/PQHPBC)
 
-> Posted on: Wednesday, October 11, 2017 5:06:45 AM
+> Posted on: Wednesday, October 11, 2017 7:41:04 AM
