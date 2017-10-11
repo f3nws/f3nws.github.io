@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "VR promised us the future. Too bad we're stuck in the present     - CNET"
-date: 2017-10-11 00:26:57Z
+date: 2017-10-11 01:08:46Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Oculus, the VR company that Mark Zuckerberg bought for more than $2 billion, has
 
 Full story on F3News: [VR promised us the future. Too bad we're stuck in the present     - CNET](http://www.f3nws.com/n/tpJdNJ)
 
-> Posted on: Wednesday, October 11, 2017 12:26:57 AM
+> Posted on: Wednesday, October 11, 2017 1:08:46 AM
