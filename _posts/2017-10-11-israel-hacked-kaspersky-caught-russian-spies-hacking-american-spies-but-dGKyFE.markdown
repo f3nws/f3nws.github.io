@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel Hacked Kaspersky, Caught Russian Spies Hacking American Spies, But..."
-date: 2017-10-11 12:18:16Z
+date: 2017-10-11 12:39:46Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The cold cyber war has just turned hot. According to a story published today by
 
 Full story on F3News: [Israel Hacked Kaspersky, Caught Russian Spies Hacking American Spies, But...](http://www.f3nws.com/n/dGKyFE)
 
-> Posted on: Wednesday, October 11, 2017 12:18:16 PM
+> Posted on: Wednesday, October 11, 2017 12:39:46 PM
