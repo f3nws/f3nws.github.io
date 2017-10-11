@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Weinstein's wife is leaving him"
-date: 2017-10-11 12:11:29Z
+date: 2017-10-11 18:29:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ As allegations of rape, abuse, and other forms of sexual misconduct against him 
 
 Full story on F3News: [Weinstein's wife is leaving him](http://www.f3nws.com/n/UbVk4C)
 
-> Posted on: Wednesday, October 11, 2017 12:11:29 PM
+> Posted on: Wednesday, October 11, 2017 6:29:47 PM

@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Here Are The 2017 MacArthur 'Genius' Grant Winners - NPR](https://media.npr.org/assets/img/2017/10/10/diptych1_wide-72e51eb917196296481b81b9d9e6822fafec8746.jpg?s=1400)
 
-NPR Here Are The 2017 MacArthur 'Genius' Grant Winners NPR It's not often you'll find these 24 names in the same place. They are historians and musicians, computer scientists and social activists, writers and architects. But whatever it may read on their business cards (if they've even got business cards ... A Banjo Player From North Carolina Is Writing The Next 'Hamilton' HuffPost MacArthur Foundation Names 2017 'Genius' Grant Winners New York Times Why MacArthur fellowships matter: In modern culture, expertise is under fire Los Angeles Times Slate Magazine (blog) - OregonLive.com - CityLab - New York Daily News all 78 news articles »
+NPR Here Are The 2017 MacArthur 'Genius' Grant Winners NPR It's not often you'll find these 24 names in the same place. They are historians and musicians, computer scientists and social activists, writers and architects. But whatever it may read on their business cards (if they've even got business cards ... 24 receive 'genius grants' from MacArthur Foundation USA TODAY A Banjo Player From North Carolina Is Writing The Next 'Hamilton' HuffPost MacArthur Foundation Names 2017 'Genius' Grant Winners New York Times Los Angeles Times - Slate Magazine (blog) - CityLab - PBS NewsHour all 83 news articles »
 
 
 Full story on F3News: [Here Are The 2017 MacArthur 'Genius' Grant Winners - NPR](http://www.f3nws.com/n/vNp3RD)
