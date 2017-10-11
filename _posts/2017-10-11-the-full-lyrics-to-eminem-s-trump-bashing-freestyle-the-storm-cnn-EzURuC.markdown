@@ -7,7 +7,7 @@ categories: cnn-com-entertainment
 
 ![The full lyrics to Eminem's Trump-bashing freestyle 'The Storm' - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171011050834-eminem-super-tease.jpg)
 
-CNN The full lyrics to Eminem's Trump-bashing freestyle 'The Storm' CNN (CNN) Rapper Eminem unleashed a blistering four-and-a-half minute attack on President Donald Trump in a freestyle that aired Tuesday during the BET Hip Hop Awards. In it, he questioned the President's patriotism, criticized his policies and ridiculed ... Eminem Lashes Out at Trump With Freestyle Rap Video New York Times Read the Lyrics From Eminem's Thrashing Anti-Trump 'The Storm' Freestyle Billboard Eminem's Presidential Diss Wasn't The Only Political Statement At BET Hip Hop Awards NPR ABC News - GQ Magazine - TIME - Washington Examiner all 581 news articles »
+CNN The full lyrics to Eminem's Trump-bashing freestyle 'The Storm' CNN (CNN) Rapper Eminem unleashed a blistering four-and-a-half minute attack on President Donald Trump in a freestyle that aired Tuesday during the BET Hip Hop Awards. In it, he questioned the President's patriotism, criticized his policies and ridiculed ... 7 best lines from 'The Storm,' Eminem's Donald Trump dis track (WARNING: GRAPHIC LANGUAGE) New York Daily News Eminem Is Taking On Donald Trump, But Does It Matter? Vulture Read the Lyrics From Eminem's Thrashing Anti-Trump 'The Storm' Freestyle Billboard Washington Post - NPR - ABC News - GQ Magazine all 595 news articles »
 
 
 Full story on F3News: [The full lyrics to Eminem's Trump-bashing freestyle 'The Storm' - CNN](http://www.f3nws.com/n/EzURuC)
