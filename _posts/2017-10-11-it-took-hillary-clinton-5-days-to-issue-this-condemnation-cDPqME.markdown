@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "It took Hillary Clinton 5 days to issue this condemnation"
-date: 2017-10-11 00:00:01Z
+date: 2017-10-11 00:36:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hillary Clinton condemned disgraced Hollywood executive Harvey Weinstein on Tues
 
 Full story on F3News: [It took Hillary Clinton 5 days to issue this condemnation](http://www.f3nws.com/n/cDPqME)
 
-> Posted on: Wednesday, October 11, 2017 12:00:01 AM
+> Posted on: Wednesday, October 11, 2017 12:36:33 AM
