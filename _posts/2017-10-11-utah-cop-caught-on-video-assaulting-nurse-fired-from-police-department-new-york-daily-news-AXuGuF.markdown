@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Utah cop caught on video assaulting nurse fired from police department - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3554589.1507681701!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/nurse11n-1-web.jpg)
 
-New York Daily News Utah cop caught on video assaulting nurse fired from police department New York Daily News A Utah police officer who was caught on video dragging a nurse out of the hospital after she refused to let him draw blood has been fired. Salt Lake City Police Det. Jeff Payne was given the boot after the department found he had violated its policies ... The Police Officer Who Dragged A Nurse Out Of A Hospital For Not Drawing Blood Has Been Fired BuzzFeed News Utah cop who dragged screaming nurse fired from police department Fox News Utah police officer who dragged screaming nurse is fired The Hill (blog) fox13now.com - Inside Edition all 54 news articles »
+New York Daily News Utah cop caught on video assaulting nurse fired from police department New York Daily News A Utah police officer who was caught on video dragging a nurse out of the hospital after she refused to let him draw blood has been fired. Salt Lake City Police Det. Jeff Payne was given the boot after the department found he had violated its policies ... Utah cop fired after arresting nurse who wouldn't draw blood USA TODAY The Police Officer Who Dragged A Nurse Out Of A Hospital For Not Drawing Blood Has Been Fired BuzzFeed News Utah officer who arrested nurse is fired Press Herald International Business Times all 85 news articles »
 
 
 Full story on F3News: [Utah cop caught on video assaulting nurse fired from police department - New York Daily News](http://www.f3nws.com/n/AXuGuF)
