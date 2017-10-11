@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terry Crews captures why sexual assault survivors don't come forward"
-date: 2017-10-11 16:22:33Z
+date: 2017-10-11 16:50:18Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Terry Crews said he understands why women are reluctant to raise sexual ha
 
 Full story on F3News: [Terry Crews captures why sexual assault survivors don't come forward](http://www.f3nws.com/n/heJjDG)
 
-> Posted on: Wednesday, October 11, 2017 4:22:33 PM
+> Posted on: Wednesday, October 11, 2017 4:50:18 PM
