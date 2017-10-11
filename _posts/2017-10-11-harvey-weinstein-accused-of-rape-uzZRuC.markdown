@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein accused of rape"
-date: 2017-10-11 02:12:59Z
+date: 2017-10-11 02:29:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Harvey Weinstein accused of rape](http://www.f3nws.com/n/uzZRuC)
 
-> Posted on: Wednesday, October 11, 2017 2:12:59 AM
+> Posted on: Wednesday, October 11, 2017 2:29:17 AM

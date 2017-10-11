@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "15 dead as wildfires rage in Northern California"
-date: 2017-10-11 00:10:25Z
+date: 2017-10-11 00:10:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Wildfires in Northern California have claimed 15 lives, with officials warning t
 
 Full story on F3News: [15 dead as wildfires rage in Northern California](http://www.f3nws.com/n/tcfrhB)
 
-> Posted on: Wednesday, October 11, 2017 12:10:25 AM
+> Posted on: Wednesday, October 11, 2017 12:10:00 AM

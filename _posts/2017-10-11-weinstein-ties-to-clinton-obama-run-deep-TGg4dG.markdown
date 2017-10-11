@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Weinstein ties to Clinton, Obama run deep"
-date: 2017-10-11 00:15:00Z
+date: 2017-10-11 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ As Democratic lawmakers begin to distance themselves from disgraced movie mogul 
 
 Full story on F3News: [Weinstein ties to Clinton, Obama run deep](http://www.f3nws.com/n/TGg4dG)
 
-> Posted on: Wednesday, October 11, 2017 12:15:00 AM
+> Posted on: Wednesday, October 11, 2017 2:15:00 AM
