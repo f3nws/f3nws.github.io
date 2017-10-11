@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boiling river of wine flows through burned down California winery"
-date: 2017-10-11 16:03:00Z
+date: 2017-10-11 18:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A scalding torrent of copper-colored wine flowed among burned wine barrels and c
 
 Full story on F3News: [Boiling river of wine flows through burned down California winery](http://www.f3nws.com/n/xurkZC)
 
-> Posted on: Wednesday, October 11, 2017 4:03:00 PM
+> Posted on: Wednesday, October 11, 2017 6:45:00 PM
