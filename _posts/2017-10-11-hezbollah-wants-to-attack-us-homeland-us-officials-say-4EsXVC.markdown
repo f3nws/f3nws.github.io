@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hezbollah wants to attack US homeland, US officials say"
-date: 2017-10-11 09:52:07Z
+date: 2017-10-11 12:04:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As the Trump administration prepares to take a tougher line on Iran, senior US o
 
 Full story on F3News: [Hezbollah wants to attack US homeland, US officials say](http://www.f3nws.com/n/4EsXVC)
 
-> Posted on: Wednesday, October 11, 2017 9:52:07 AM
+> Posted on: Wednesday, October 11, 2017 12:04:07 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein's wife announces she is leaving him"
-date: 2017-10-11 07:21:09Z
+date: 2017-10-11 12:11:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ As allegations of rape, abuse, and other forms of sexual misconduct against him 
 
 Full story on F3News: [Harvey Weinstein's wife announces she is leaving him](http://www.f3nws.com/n/UbVk4C)
 
-> Posted on: Wednesday, October 11, 2017 7:21:09 AM
+> Posted on: Wednesday, October 11, 2017 12:11:29 PM
