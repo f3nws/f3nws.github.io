@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disney's Movies Anywhere is the Voltron of streaming services     - CNET"
-date: 2017-10-12 05:18:19Z
+date: 2017-10-12 06:28:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ With the backing of five Hollywood studios, Movies Anywhere lets you watch title
 
 Full story on F3News: [Disney's Movies Anywhere is the Voltron of streaming services     - CNET](http://www.f3nws.com/n/A2rjaB)
 
-> Posted on: Thursday, October 12, 2017 5:18:19 AM
+> Posted on: Thursday, October 12, 2017 6:28:16 AM
