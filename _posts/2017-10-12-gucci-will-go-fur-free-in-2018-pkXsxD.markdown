@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gucci will go fur-free in 2018"
-date: 2017-10-12 11:22:04Z
+date: 2017-10-12 12:51:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Italian luxury brand Gucci is officially going fur-free, president and CEO Marco
 
 Full story on F3News: [Gucci will go fur-free in 2018](http://www.f3nws.com/n/pkXsxD)
 
-> Posted on: Thursday, October 12, 2017 11:22:04 AM
+> Posted on: Thursday, October 12, 2017 12:51:55 PM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![British IS recruiter Sally-Anne Jones 'killed by drone' - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/11D94/production/_98280137_sallyjones.jpg)
 
-BBC News British IS recruiter Sally-Anne Jones 'killed by drone' BBC News British IS recruiter Sally-Anne Jones was reportedly killed in a US drone strike in Syria, in June. Jones, from Chatham in Kent, joined so-called Islamic State after converting to Islam and travelling to Syria in 2013. Her death was first reported by ... Jihadi bride and ISIS executioner son killed by drone strike New York Post ISIS recruiter 'White Widow' believed dead after US strike in Syria Fox News Britain's most wanted female terrorist killed in US drone strike: reports USA TODAY The Independent - Firstpost - Daily Star - HuffPost UK all 93 news articles »
+BBC News British IS recruiter Sally-Anne Jones 'killed by drone' BBC News British IS recruiter Sally-Anne Jones was reportedly killed in a US drone strike in Syria, in June. Jones, from Chatham in Kent, joined so-called Islamic State after converting to Islam and travelling to Syria in 2013. Her death was first reported by ... Jihadi bride and ISIS executioner son killed by drone strike New York Post Who was the 'White Widow' Sally Jones? What we know about the Isis member reportedly killed in US drone strike The Independent ISIS recruiter 'White Widow' believed dead after US strike in Syria Fox News Firstpost - USA TODAY - Daily Star - New York Daily News all 99 news articles »
 
 
 Full story on F3News: [British IS recruiter Sally-Anne Jones 'killed by drone' - BBC News](http://www.f3nws.com/n/QgJMyG)
