@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Climber Hayden Kennedy kills himself after girlfriend's avalanche death"
-date: 2017-10-12 02:00:00Z
+date: 2017-10-12 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Just two weeks before renowned climber Hayden Kennedy killed himself following t
 
 Full story on F3News: [Climber Hayden Kennedy kills himself after girlfriend's avalanche death](http://www.f3nws.com/n/bZQECG)
 
-> Posted on: Thursday, October 12, 2017 2:00:00 AM
+> Posted on: Thursday, October 12, 2017 2:15:00 AM
