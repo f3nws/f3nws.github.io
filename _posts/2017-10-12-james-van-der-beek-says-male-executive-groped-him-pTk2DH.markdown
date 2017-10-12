@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "James Van Der Beek says male executive groped him"
-date: 2017-10-12 14:54:06Z
+date: 2017-10-12 20:27:33Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Women aren't the only ones compelled to share their stories in the wake of the H
 
 Full story on F3News: [James Van Der Beek says male executive groped him](http://www.f3nws.com/n/pTk2DH)
 
-> Posted on: Thursday, October 12, 2017 2:54:06 PM
+> Posted on: Thursday, October 12, 2017 8:27:33 PM
