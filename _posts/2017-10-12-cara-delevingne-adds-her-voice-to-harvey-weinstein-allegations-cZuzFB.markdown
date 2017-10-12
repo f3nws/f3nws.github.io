@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cara Delevingne adds her voice to Harvey Weinstein allegations"
-date: 2017-10-12 08:41:09Z
+date: 2017-10-12 11:38:09Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actress and model Cara Delevingne is the latest woman to accuse Harvey Weinstein
 
 Full story on F3News: [Cara Delevingne adds her voice to Harvey Weinstein allegations](http://www.f3nws.com/n/cZuzFB)
 
-> Posted on: Thursday, October 12, 2017 8:41:09 AM
+> Posted on: Thursday, October 12, 2017 11:38:09 AM

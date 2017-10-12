@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Questions remain about police response to Las Vegas massacre"
-date: 2017-10-12 03:17:00Z
+date: 2017-10-12 07:19:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ A revised chronology given by investigators for the Las Vegas massacre is intens
 
 Full story on F3News: [Questions remain about police response to Las Vegas massacre](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 12, 2017 3:17:00 AM
+> Posted on: Thursday, October 12, 2017 7:19:00 AM
