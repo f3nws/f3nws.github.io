@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea official: Trump has 'lit the wick' of war"
-date: 2017-10-12 11:32:10Z
+date: 2017-10-12 15:16:41Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has "lit the wick of the war" against North Korea, a R
 
 Full story on F3News: [North Korea official: Trump has 'lit the wick' of war](http://www.f3nws.com/n/hqkVHG)
 
-> Posted on: Thursday, October 12, 2017 11:32:10 AM
+> Posted on: Thursday, October 12, 2017 3:16:41 PM

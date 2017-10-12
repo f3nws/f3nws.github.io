@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The little red pill being pushed on the elderly"
-date: 2017-10-12 14:58:39Z
+date: 2017-10-12 15:03:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The maker of a little red pill intended to treat a rare condition is raking in h
 
 Full story on F3News: [The little red pill being pushed on the elderly](http://www.f3nws.com/n/MWKuJJ)
 
-> Posted on: Thursday, October 12, 2017 2:58:39 PM
+> Posted on: Thursday, October 12, 2017 3:03:13 PM
