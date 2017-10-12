@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Massive morale problems aboard US Navy ship"
-date: 2017-10-12 00:01:52Z
+date: 2017-10-12 09:42:35Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Morale aboard a US warship operating in the Pacific reached such a low ebb that 
 
 Full story on F3News: [Report: Massive morale problems aboard US Navy ship](http://www.f3nws.com/n/U3QFXF)
 
-> Posted on: Thursday, October 12, 2017 12:01:52 AM
+> Posted on: Thursday, October 12, 2017 9:42:35 AM
