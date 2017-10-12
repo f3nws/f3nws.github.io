@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Family held hostage by Taliban freed after 5 years"
-date: 2017-10-12 14:46:21Z
+date: 2017-10-12 16:19:07Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ An American woman, her Canadian husband and their three children have been freed
 
 Full story on F3News: [Family held hostage by Taliban freed after 5 years](http://www.f3nws.com/n/QJaFFH)
 
-> Posted on: Thursday, October 12, 2017 2:46:21 PM
+> Posted on: Thursday, October 12, 2017 4:19:07 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scandal grows as more women come forward"
-date: 2017-10-12 01:52:59Z
+date: 2017-10-12 16:06:21Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Harvey Weinstein is heading to rehab. His wife of 10 years, Georgina Chapman, is
 
 Full story on F3News: [Scandal grows as more women come forward](http://www.f3nws.com/n/PrYSmC)
 
-> Posted on: Thursday, October 12, 2017 1:52:59 AM
+> Posted on: Thursday, October 12, 2017 4:06:21 PM

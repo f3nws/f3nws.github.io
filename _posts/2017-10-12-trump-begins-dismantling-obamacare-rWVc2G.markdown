@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump begins dismantling Obamacare"
-date: 2017-10-12 15:53:48Z
+date: 2017-10-12 16:12:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is taking his first steps to fulfill his vow to dismantle
 
 Full story on F3News: [Trump begins dismantling Obamacare](http://www.f3nws.com/n/rWVc2G)
 
-> Posted on: Thursday, October 12, 2017 3:53:48 PM
+> Posted on: Thursday, October 12, 2017 4:12:49 PM
