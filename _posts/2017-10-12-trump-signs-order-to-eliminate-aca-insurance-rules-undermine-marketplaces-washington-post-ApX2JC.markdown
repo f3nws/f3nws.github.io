@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump signs order to eliminate ACA insurance rules, undermine marketplaces - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/08/09/Others/Images/2017-08-09/healthcare.gov.JPG?t=20170517)
 
-Washington Post Trump signs order to eliminate ACA insurance rules, undermine marketplaces Washington Post President Trump signed an executive order on Thursday intended to allow small businesses and potentially individuals to buy a long-disputed type of health insurance that skirts state regulations and Affordable Care Act protections. The White House and ... Foiled in Congress, Trump Signs Order to Undermine Obamacare New York Times Trump eases ObamaCare rules with executive order The Hill Experts Say Trump Order Could Upend Health Care System NBCNews.com HuffPost - Fox News - NPR - Los Angeles Times all 468 news articles »
+Washington Post Trump signs order to eliminate ACA insurance rules, undermine marketplaces Washington Post President Trump signed an executive order on Thursday intended to allow small businesses and potentially individuals to buy a long-disputed type of health insurance that skirts state regulations and Affordable Care Act protections. The White House and ... Foiled in Congress, Trump Signs Order to Undermine Obamacare New York Times Experts Say Trump Order Could Upend Health Care System NBCNews.com Trump eases ObamaCare rules with executive order The Hill NPR - U.S. News & World Report - HuffPost - Fox News all 489 news articles »
 
 
 Full story on F3News: [Trump signs order to eliminate ACA insurance rules, undermine marketplaces - Washington Post](http://www.f3nws.com/n/ApX2JC)
