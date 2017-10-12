@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Equifax website hacked again, this time to redirect to fake Flash update - Ars Technica](https://cdn.arstechnica.net/wp-content/uploads/2017/10/flash-download2-760x380.jpg)
 
-Ars Technica Equifax website hacked again, this time to redirect to fake Flash update Ars Technica In May credit reporting service Equifax's website was breached by attackers who eventually made off with Social Security numbers, names, and a dizzying amount of other details for some 145.5 million US consumers. For several hours on Wednesday the site ... Equifax Website Hacked Again PCMag Equifax has probably been hacked again The INQUIRER Equifax's site hacked to redirect info-seeking visitors to adware Help Net Security all 6 news articles »
+Ars Technica Equifax website hacked again, this time to redirect to fake Flash update Ars Technica In May credit reporting service Equifax's website was breached by attackers who eventually made off with Social Security numbers, names, and a dizzying amount of other details for some 145.5 million US consumers. For several hours on Wednesday the site ... Equifax may have been hacked again Engadget Equifax Website Hacked Again PCMag Equifax has probably been hacked again The INQUIRER Help Net Security all 6 news articles »
 
 
 Full story on F3News: [Equifax website hacked again, this time to redirect to fake Flash update - Ars Technica](http://www.f3nws.com/n/rn4CvF)
