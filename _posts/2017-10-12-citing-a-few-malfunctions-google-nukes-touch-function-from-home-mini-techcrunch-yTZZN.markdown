@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Citing 'a few' malfunctions, Google nukes touch function from Home Mini - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2017/10/google-home-mini1.jpg)
 
-TechCrunch Citing 'a few' malfunctions, Google nukes touch function from Home Mini TechCrunch Google is permanently axing all “top touch” functionality from its new Home Mini device after a nasty bug was documented yesterday that essentially recorded everything around the gadget and sent it to Google. These things happen! Either the company ... Google disables Home Mini's top button so it won't record everything Engadget Google dumps Home Mini's top touch function over privacy CNET Google will permanently disable a control on its new $50 speaker after the gadget listened in on some users Business Insider Android Headlines - The Verge - SlashGear - Ars Technica all 24 news articles »
+TechCrunch Citing 'a few' malfunctions, Google nukes touch function from Home Mini TechCrunch Google is permanently axing all “top touch” functionality from its new Home Mini device after a nasty bug was documented yesterday that essentially recorded everything around the gadget and sent it to Google. These things happen! Either the company ... Google dumps Home Mini's top touch function over privacy CNET [Updated]Google Is Permanently Removing Home Mini Touch Feature Android Headlines Google disables Home Mini's top button so it won't record everything Engadget SlashGear - Droid Life - Business Insider - Ars Technica all 25 news articles »
 
 
 Full story on F3News: [Citing 'a few' malfunctions, Google nukes touch function from Home Mini - TechCrunch](http://www.f3nws.com/n/yTZZN)

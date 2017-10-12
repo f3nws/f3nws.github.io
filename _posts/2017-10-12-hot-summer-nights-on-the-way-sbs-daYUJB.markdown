@@ -5,6 +5,8 @@ date: 2017-10-12 01:17:08Z
 categories: google-news-australia
 ---
 
+![Hot summer nights on the way - SBS](http://www.sbs.com.au/news/sites/sbs.com.au.news/files/images/s/u/Summer_4-3_12815250_1784036_20171012121012c3af9c57-2977-44bf-8162-8b5a7fbf5b26.jpg_sd_800x600.jpg)
+
 The Sydney Morning Herald Hot summer nights on the way SBS The Bureau of Meteorology is forecasting hot summer nights for most of Australia between November and January. Source: AAP. 52 MINS AGO UPDATED 51 MINS AGO. Hot summer nights are in store for large parts of Australia in the lead up to Christmas ... Sydney weather: Odds favour an end to Sydney's long dry spell The Sydney Morning Herald all 3 news articles »
 
 
