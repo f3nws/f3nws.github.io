@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US out of UNESCO over 'anti-Israel bias'"
-date: 2017-10-12 14:44:00Z
+date: 2017-10-12 18:17:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US is withdrawing from the United Nations Educational Scientific and Cultura
 
 Full story on F3News: [US out of UNESCO over 'anti-Israel bias'](http://www.f3nws.com/n/cJeNHJ)
 
-> Posted on: Thursday, October 12, 2017 2:44:00 PM
+> Posted on: Thursday, October 12, 2017 6:17:43 PM
