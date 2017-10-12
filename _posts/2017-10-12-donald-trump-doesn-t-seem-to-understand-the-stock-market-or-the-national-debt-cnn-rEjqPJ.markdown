@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump doesn't seem to understand the stock market. Or the national debt. - CNN](http://i2.cdn.cnn.com/cnnnext/dam/assets/171012080300-trump-today-super-tease.jpg)
 
-CNN Donald Trump doesn't seem to understand the stock market. Or the national debt. CNN (CNN) Conservative TV host Sean Hannity opened his interview with President Donald Trump on Wednesday night by touting the various -- and allegedly underplayed -- successes in the economy over the first nine months of Trump's tenure. Yes, you're right ... Trump praises Hannity's ratings: 'I'm very proud of you' The Hill President Trump's interview with Fox's Sean Hannity: Three moments that stood out USA TODAY President Trump Said Stock Market Gains Reduced the National Debt. That's Not How It Works Fortune Newsweek - TheStreet.com - Paste Magazine - Washington Post all 118 news articles »
+CNN Donald Trump doesn't seem to understand the stock market. Or the national debt. CNN (CNN) Conservative TV host Sean Hannity opened his interview with President Donald Trump on Wednesday night by touting the various -- and allegedly underplayed -- successes in the economy over the first nine months of Trump's tenure. Yes, you're right ... Trump praises Hannity's ratings: 'I'm very proud of you' The Hill President Trump's interview with Fox's Sean Hannity: Three moments that stood out USA TODAY Donald Trump Claims Stock-Market Gains Cancel Out National Debt Vanity Fair Salon - New York Post - TheStreet.com - Fortune all 127 news articles »
 
 
 Full story on F3News: [Donald Trump doesn't seem to understand the stock market. Or the national debt. - CNN](http://www.f3nws.com/n/rEjqPJ)
