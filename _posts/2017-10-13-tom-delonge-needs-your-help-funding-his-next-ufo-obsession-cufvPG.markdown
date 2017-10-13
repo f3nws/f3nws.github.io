@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Tom DeLonge needs your help funding his next UFO obsession"
+date: 2017-10-13 02:19:00Z
+categories: engadget
+---
+
+![Tom DeLonge needs your help funding his next UFO obsession](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D3000%252C2104%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1122%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F1a8af2b6e13e6ee83af28a1e43ca43fe%252F205760812%252Fradio-personality-kyle-anderson-recording-artist-tom-delonge-and-picture-id480123634%26client%3Da1acac3e1b3290917d92%26signature%3D3d71fb996dcaeebc71d4db97e5af89bee2e40eb7&client=cbc79c14efcebee57402&signature=76f9649bc1ff3f542a39870ab959ddbae1f2cf81)
+
+Former Blink-182 singer and guitarist Tom DeLonge is taking his fascination with /conspiracy theories about UFOs to their logical conclusion point: He's partnering with former government officials on a public benefit corporation studying "exotic technologies" from Unidentified Aerial Phenomenon (UAP) that the consortium says can "revolutionize the human experience." To The Stars Academy says it strives to be a powerful vehicle for change and that its members will have the "freedom to explore exotic science and technologies with the infrastructure and resources to rapidly transition them to products that can change the world." Phew . The Academy will focus on three pillars: science, aerospace and entertainment. For science, DeLonge and Co. want to study consciousness, brain-computer interfaces, UAPs and telepathy. That's in addition to a proposed human ultra-experience database that they hope will collect "supranormal experienced, with the goal of creating proprietary algorithms to find detailed patterns and correlate them with other academic research." Sure. As far as the other pillars go, To the Stars wants to further develop the tech needed to launch small satellites into orbit using ground-based lasers. Entertainment includes plans to develop a feature film, further expand Delonge's Sekret Machines novel and move into animation and short films. To The Stars is raising money via crowdfunding and currently has pulled in $265,605 from 535 investors. "The public interest in the outer edges of science and the understanding of phenomena has always been suffocated by mainstream ideology and bureaucratic constraint," the pitch page says. "We believe there are transformative discoveries within our reach that will revolutionize the human experience, but they can only be accomplished through the unrestricted support of breakthrough research, discovery and innovation." Sounds pretty normal right? Buckle up. "The team members all share a common thread of frustration and determination to disrupt the status quo, wanting to use their expertise and credibility to bring t...
+
+
+Full story on F3News: [Tom DeLonge needs your help funding his next UFO obsession](http://www.f3nws.com/n/cufvPG)
+
+> Posted on: Friday, October 13, 2017 2:19:00 AM
