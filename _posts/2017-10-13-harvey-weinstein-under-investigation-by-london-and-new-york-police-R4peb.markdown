@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein under investigation by London and New York police"
-date: 2017-10-13 12:34:39Z
+date: 2017-10-13 13:12:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police on both sides of the Atlantic are investigating Harvey Weinstein over all
 
 Full story on F3News: [Harvey Weinstein under investigation by London and New York police](http://www.f3nws.com/n/R4peb)
 
-> Posted on: Friday, October 13, 2017 12:34:39 PM
+> Posted on: Friday, October 13, 2017 1:12:00 PM
