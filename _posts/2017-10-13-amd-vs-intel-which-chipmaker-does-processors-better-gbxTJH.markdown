@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AMD vs Intel: which chipmaker does processors better?"
-date: 2017-10-13 18:58:00Z
+date: 2017-10-13 19:45:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ With Kaby Lake, Coffee Lake and Ryzen at the forefront, we're here to help you d
 
 Full story on F3News: [AMD vs Intel: which chipmaker does processors better?](http://www.f3nws.com/n/gbxTJH)
 
-> Posted on: Friday, October 13, 2017 6:58:00 PM
+> Posted on: Friday, October 13, 2017 7:45:00 PM
