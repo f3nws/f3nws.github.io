@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amid California wildfires, a blaze burns inside a tree"
-date: 2017-10-13 16:24:45Z
+date: 2017-10-13 17:07:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Matthew McDermott was trying to get out of town.
 
 Full story on F3News: [Amid California wildfires, a blaze burns inside a tree](http://www.f3nws.com/n/BexatH)
 
-> Posted on: Friday, October 13, 2017 4:24:45 PM
+> Posted on: Friday, October 13, 2017 5:07:32 PM
