@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Trump gets hero's welcome at Christian summit - The Hill"
-date: 2017-10-13 15:50:00Z
+date: 2017-10-13 15:50:44Z
 categories: google-news-top-stories
 ---
 
 ![Trump gets hero's welcome at Christian summit - The Hill](http://thehill.com/sites/default/files/trumpdonald10132017getty.jpg)
 
-The Hill Trump gets hero's welcome at Christian summit The Hill President Trump received a rock star reception at a gathering of religious conservatives in Washington, D.C. on Friday, where he vowed to protect Christian values and be an anti-abortion champion for the right. Trump received multiple standing ovations ... Trump: My presidency is 'substantially ahead of schedule' Politico Trump: 'We are stopping cold the attacks on Judeo-Christian values' CNN At Values Voter Summit, Trump calls his actions on health care "a very big step" CBS News Fox News - TIME - USA TODAY - NPR all 96 news articles »
+The Hill Trump gets hero's welcome at Christian summit The Hill President Trump received a rock star reception at a gathering of religious conservatives in Washington, D.C. on Friday, where he vowed to protect Christian values and be an anti-abortion champion for the right. Trump received multiple standing ovations ... Trump: 'We are stopping cold the attacks on Judeo-Christian values' CNN At Values Voter Summit, Trump calls his actions on health care "a very big step" CBS News Trump touts First Amendment rights for religious groups ABC News Fox News - TIME - USA TODAY - Politico all 112 news articles »
 
 
 Full story on F3News: [Trump gets hero's welcome at Christian summit - The Hill](http://www.f3nws.com/n/sUEPR)
 
-> Posted on: Friday, October 13, 2017 3:50:00 PM
+> Posted on: Friday, October 13, 2017 3:50:44 PM
