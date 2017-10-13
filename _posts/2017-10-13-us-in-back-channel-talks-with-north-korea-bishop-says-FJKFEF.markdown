@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![US in back channel talks with North Korea, Bishop says](http://www.abc.net.au/news/image/8263586-1x1-700x700.jpg)
 
-The United States has developed "advanced" methods of communicating with North Korea on its nuclear and missile programs, according to Australia's Foreign Minister.
+Donald Trump has told his Secretary of State Rex Tillerson not to "waste his time" trying to talk to North Korea — but Australia's Foreign Minister says the US has "advanced" back-channel communication systems between Washington and Pyongyang.
 
 
 Full story on F3News: [US in back channel talks with North Korea, Bishop says](http://www.f3nws.com/n/FJKFEF)

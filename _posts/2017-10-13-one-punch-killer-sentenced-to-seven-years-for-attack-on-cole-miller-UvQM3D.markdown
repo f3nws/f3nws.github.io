@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![One-punch killer sentenced to seven years for attack on Cole Miller](http://www.abc.net.au/news/image/7065960-1x1-700x700.jpg)
 
-Armstrong Renata, who killed 18-year-old water polo player Cole Miller in Brisbane's Fortitude Valley in a random one-punch attack, is sentenced to seven years in prison.
+Armstrong Renata, who killed 18-year-old water polo player Cole Miller in a one-punch attack in Brisbane's Fortitude Valley, blindsided his victim and then left as though nothing had occurred, prosecutors told the court.
 
 
 Full story on F3News: [One-punch killer sentenced to seven years for attack on Cole Miller](http://www.f3nws.com/n/UvQM3D)

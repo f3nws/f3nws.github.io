@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vegas shooting: What we still don't know"
-date: 2017-10-13 00:35:44Z
+date: 2017-10-13 03:03:12Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The gunman's motive, the timeline of the shooting and why he stopped shooting --
 
 Full story on F3News: [Vegas shooting: What we still don't know](http://www.f3nws.com/n/GjKkSE)
 
-> Posted on: Friday, October 13, 2017 12:35:44 AM
+> Posted on: Friday, October 13, 2017 3:03:12 AM

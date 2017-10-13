@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['HW raped me', Rose McGowan tweets](http://www.abc.net.au/news/image/9046876-1x1-700x700.jpg)
 
-The Hollywood actress and director suggests Harvey Weinstein raped her after earlier saying the disgraced mogul sexually assaulted her in 1997.
+The Hollywood actress and director uses Twitter to suggest Harvey Weinstein raped her, after earlier saying the disgraced mogul sexually assaulted her in 1997.
 
 
 Full story on F3News: ['HW raped me', Rose McGowan tweets](http://www.f3nws.com/n/ceFmp)
