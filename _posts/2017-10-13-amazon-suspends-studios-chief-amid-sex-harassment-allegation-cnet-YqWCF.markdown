@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon suspends Studios chief amid sex harassment allegation     - CNET"
-date: 2017-10-13 03:55:15Z
+date: 2017-10-13 06:17:58Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A producer says Roy Price repeatedly made unwanted sexual advances toward her at
 
 Full story on F3News: [Amazon suspends Studios chief amid sex harassment allegation     - CNET](http://www.f3nws.com/n/YqWCF)
 
-> Posted on: Friday, October 13, 2017 3:55:15 AM
+> Posted on: Friday, October 13, 2017 6:17:58 AM
