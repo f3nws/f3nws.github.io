@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Peanuts' creator's home burns down"
-date: 2017-10-13 08:50:31Z
+date: 2017-10-13 20:11:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The home of Charles Schulz, the creator of the "Peanuts" comic strip, was lost i
 
 Full story on F3News: ['Peanuts' creator's home burns down](http://www.f3nws.com/n/ybzc2G)
 
-> Posted on: Friday, October 13, 2017 8:50:31 AM
+> Posted on: Friday, October 13, 2017 8:11:03 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Penguin catastrophe leaves thousands of chicks dead with only two survivors"
-date: 2017-10-13 19:19:19Z
+date: 2017-10-13 20:17:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A penguin colony in Antarctica has suffered a massive breeding failure, with onl
 
 Full story on F3News: [Penguin catastrophe leaves thousands of chicks dead with only two survivors](http://www.f3nws.com/n/xkBgF)
 
-> Posted on: Friday, October 13, 2017 7:19:19 PM
+> Posted on: Friday, October 13, 2017 8:17:02 PM
