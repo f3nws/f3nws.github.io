@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In a smoldering winery, a boiling river of red wine emerges"
-date: 2017-10-13 18:09:28Z
+date: 2017-10-13 20:58:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Among smoldering casks and ruined wine bottles in a burnt-out California winery,
 
 Full story on F3News: [In a smoldering winery, a boiling river of red wine emerges](http://www.f3nws.com/n/MSVTmB)
 
-> Posted on: Friday, October 13, 2017 6:09:28 PM
+> Posted on: Friday, October 13, 2017 8:58:55 PM

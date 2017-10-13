@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump To Values Voters: In America 'We Don't Worship Government, We Worship God' - NPR](https://media.npr.org/assets/img/2017/10/13/ap_17286525867233vvs_wide-60e520a887f35d7295f0f02d69c05cb8e0105547.jpg?s=1400)
 
-NPR Trump To Values Voters: In America 'We Don't Worship Government, We Worship God' NPR Updated at 5:38 p.m. ET. President Trump spoke to one of the most faithful blocs of his base on Friday, telling attendees of this year's Values Voter Summit that in America "we don't worship government, we worship God." Trump was the first sitting ... ANALYSIS: Why Trump's remarks about times 'changing back' are troubling ABC News At Values Voter Summit, a Converted Commander in Chief U.S. News & World Report Trump tells religious group that US will return to Christian values New York Post New York Daily News - Forward - The Hill - Advocate.com all 235 news articles »
+NPR Trump To Values Voters: In America 'We Don't Worship Government, We Worship God' NPR Updated at 5:38 p.m. ET. President Trump spoke to one of the most faithful blocs of his base on Friday, telling attendees of this year's Values Voter Summit that in America "we don't worship government, we worship God." Trump was the first sitting ... 'Hazards of Homosexuality' Flier Distributed at Values Voter Summit NBCNews.com Trump: My agenda is 'substantially ahead of schedule' CNBC Trump touts First Amendment rights for religious groups ABC News U.S. News & World Report - Hot Air - New York Daily News - The Hill all 165 news articles »
 
 
 Full story on F3News: [Trump To Values Voters: In America 'We Don't Worship Government, We Worship God' - NPR](http://www.f3nws.com/n/b3fWQG)
