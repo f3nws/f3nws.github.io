@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A man finds a $24 million lottery ticket in an old shirt -- just in the nick of time - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171013100056-lottery-winner-super-tease.jpg)
 
-CNN A man finds a $24 million lottery ticket in an old shirt -- just in the nick of time CNN (CNN) Everyone has that spot in their house or car where they let the mail and receipts pile up. For 68-year old Jimmie Smith, it was an old shirt hanging in his closet. Stuffed in its pockets was a stack of unchecked lottery tickets. "I always told ... New Jersey Man Finds $24 Million Winning Lottery Ticket in an Old Shirt TIME New Jersey man finds $24 million lottery ticket in old shirt Asbury Park Press Grandfather finds missing $24m lottery ticket in old shirt after last-minute reminder Telegraph.co.uk all 24 news articles »
+CNN A man finds a $24 million lottery ticket in an old shirt -- just in the nick of time CNN (CNN) Everyone has that spot in their house or car where they let the mail and receipts pile up. For 68-year old Jimmie Smith, it was an old shirt hanging in his closet. Stuffed in its pockets was a stack of unchecked lottery tickets. "I always told ... Grandfather found a $24 million lottery ticket in an old shirt just before it expired CNBC New Jersey Grandfather Finds $24M Lottery Ticket In Old Shirt Patch.com Grandfather discovers $24m winning lottery ticket in old shirt two days before deadline expires The Independent WTHR all 26 news articles »
 
 
 Full story on F3News: [A man finds a $24 million lottery ticket in an old shirt -- just in the nick of time - CNN](http://www.f3nws.com/n/RVNb2G)
