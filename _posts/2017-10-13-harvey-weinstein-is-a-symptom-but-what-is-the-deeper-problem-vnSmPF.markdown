@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein is a symptom, but what is the deeper problem?"
-date: 2017-10-13 15:04:49Z
+date: 2017-10-13 16:25:58Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ CNN asked a group of women and men -- actors, writers and other thinkers -- to e
 
 Full story on F3News: [Harvey Weinstein is a symptom, but what is the deeper problem?](http://www.f3nws.com/n/vnSmPF)
 
-> Posted on: Friday, October 13, 2017 3:04:49 PM
+> Posted on: Friday, October 13, 2017 4:25:58 PM
