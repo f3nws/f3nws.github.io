@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Oakleigh hit-and-run suspect Sebastian Kennett charged over death of Melbourne nurse Lynda Hansen - ABC Online](http://www.abc.net.au/news/image/9037146-3x2-220x147.jpg)
 
-ABC Online Oakleigh hit-and-run suspect Sebastian Kennett charged over death of Melbourne nurse Lynda Hansen ABC Online A 20-year-old man has been charged over the hit-and-run crash that killed Melbourne nurse Lynda Hansen, who died after her car was slammed into in the city's south-east on Monday. Police said Sebastian Kennett was arrested at an address in Blackburn ... Sebastian Kennett, 20, charged over fatal Oakleigh crash The Age Two men charged over hiding accused driver of fatal hit-run crash 9news.com.au Man charged over suspected hit-and-run The Australian Sky News Australia - Yahoo7 News - NEWS.com.au - Ten Eyewitness News all 23 news articles »
+ABC Online Oakleigh hit-and-run suspect Sebastian Kennett charged over death of Melbourne nurse Lynda Hansen ABC Online A 20-year-old man has been charged over the hit-and-run crash that killed Melbourne nurse Lynda Hansen, who died after her car was slammed into in the city's south-east on Monday. Police said Sebastian Kennett was arrested at an address in Blackburn ... Sebastian Kennett, 20, charged over fatal Oakleigh crash The Age Man accused of hiding suspected driver of fatal hit-run was 'trying to help his friend' 9news.com.au Man charged over suspected hit-and-run The Australian Sky News Australia - Yahoo7 News - NEWS.com.au - Ten Eyewitness News all 24 news articles »
 
 
 Full story on F3News: [Oakleigh hit-and-run suspect Sebastian Kennett charged over death of Melbourne nurse Lynda Hansen - ABC Online](http://www.f3nws.com/n/cfdumG)
