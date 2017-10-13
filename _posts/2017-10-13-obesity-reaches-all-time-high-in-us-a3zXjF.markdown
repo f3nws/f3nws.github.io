@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obesity reaches all-time high in US"
-date: 2017-10-13 13:54:45Z
+date: 2017-10-13 15:00:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States will not be escaping the obesity epidemic crisis anytime soon:
 
 Full story on F3News: [Obesity reaches all-time high in US](http://www.f3nws.com/n/a3zXjF)
 
-> Posted on: Friday, October 13, 2017 1:54:45 PM
+> Posted on: Friday, October 13, 2017 3:00:04 PM

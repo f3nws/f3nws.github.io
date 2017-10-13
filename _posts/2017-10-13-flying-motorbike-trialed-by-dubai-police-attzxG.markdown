@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flying motorbike trialed by Dubai Police"
-date: 2017-10-13 14:51:57Z
+date: 2017-10-13 14:58:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dubai Police, already home to Lamborghini patrol cars, self-driving robots and a
 
 Full story on F3News: [Flying motorbike trialed by Dubai Police](http://www.f3nws.com/n/attzxG)
 
-> Posted on: Friday, October 13, 2017 2:51:57 PM
+> Posted on: Friday, October 13, 2017 2:58:20 PM

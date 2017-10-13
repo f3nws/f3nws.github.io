@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials: Trump will scorn but not bolt from Iran nuke deal"
-date: 2017-10-13 08:09:00Z
+date: 2017-10-13 11:15:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump will say Friday the Iran nuclear deal
 
 Full story on F3News: [Officials: Trump will scorn but not bolt from Iran nuke deal](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 13, 2017 8:09:00 AM
+> Posted on: Friday, October 13, 2017 11:15:00 AM
