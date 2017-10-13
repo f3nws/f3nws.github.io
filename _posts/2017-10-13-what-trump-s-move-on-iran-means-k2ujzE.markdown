@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What Trump's move on Iran means"
-date: 2017-10-13 20:12:58Z
+date: 2017-10-13 21:02:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will not kill the Iran nuclear deal on Friday.
 
 Full story on F3News: [What Trump's move on Iran means](http://www.f3nws.com/n/k2ujzE)
 
-> Posted on: Friday, October 13, 2017 8:12:58 PM
+> Posted on: Friday, October 13, 2017 9:02:17 PM
