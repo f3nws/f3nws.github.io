@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "They adopted her thinking she was abandoned. Then they learned the truth."
-date: 2017-10-13 02:53:34Z
+date: 2017-10-13 12:18:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The 7-year-old girl, dressed in bright pink and holding one of her favorite stuf
 
 Full story on F3News: [They adopted her thinking she was abandoned. Then they learned the truth.](http://www.f3nws.com/n/mMWSzH)
 
-> Posted on: Friday, October 13, 2017 2:53:34 AM
+> Posted on: Friday, October 13, 2017 12:18:04 PM
