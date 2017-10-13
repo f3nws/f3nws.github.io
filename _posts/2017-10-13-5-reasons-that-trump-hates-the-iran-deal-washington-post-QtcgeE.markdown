@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![5 reasons that Trump hates the Iran deal - Washington Post](https://img.washingtonpost.com/pbox.php?url=http://img.washingtonpost.com/blogs/worldviews/files/2017/10/849534086.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post 5 reasons that Trump hates the Iran deal Washington Post In this occasional series, we will bring you up to speed on the biggest national security stories of the week. President Trump hasn't been shy expressing his distaste for the Iran nuclear deal negotiated under his predecessor. He has called the 2015 ... How Trump Tries to Play Both Sides of the Iran Deal U.S. News & World Report Trump speech to vilify Iran over nuke deal, non-nuke issues Fox News Trump expected to make US move against Iran nuclear deal: officials Reuters The Hill - BBC News - Daily Beast - ABC News all 441 news articles »
+Washington Post 5 reasons that Trump hates the Iran deal Washington Post In this occasional series, we will bring you up to speed on the biggest national security stories of the week. President Trump hasn't been shy expressing his distaste for the Iran nuclear deal negotiated under his predecessor. He has called the 2015 ... How Trump Tries to Play Both Sides of the Iran Deal U.S. News & World Report Trump expected to make US move against Iran nuclear deal: officials Reuters Trump speech to vilify Iran over nuke deal, non-nuke issues Fox News BBC News - Daily Beast - ABC News - Bloomberg all 449 news articles »
 
 
 Full story on F3News: [5 reasons that Trump hates the Iran deal - Washington Post](http://www.f3nws.com/n/QtcgeE)
