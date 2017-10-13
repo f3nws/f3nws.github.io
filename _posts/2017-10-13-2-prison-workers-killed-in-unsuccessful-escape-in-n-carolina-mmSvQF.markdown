@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 prison workers killed in unsuccessful escape in N Carolina"
-date: 2017-10-13 02:21:20Z
+date: 2017-10-13 03:42:36Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Several employees of a North Carolina prison were injured Thursday during an att
 
 Full story on F3News: [2 prison workers killed in unsuccessful escape in N Carolina](http://www.f3nws.com/n/mmSvQF)
 
-> Posted on: Friday, October 13, 2017 2:21:20 AM
+> Posted on: Friday, October 13, 2017 3:42:36 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two young men hacked dead in Narayanganj"
-date: 2017-10-13 03:22:46Z
+date: 2017-10-13 05:02:12Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Two young men hacked dead in Narayanganj](http://www.f3nws.com/n/UhkyN)
 
-> Posted on: Friday, October 13, 2017 3:22:46 AM
+> Posted on: Friday, October 13, 2017 5:02:12 AM
