@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "Dangerous sound? What Americans heard in Cuba attacks"
-date: 2017-10-13 02:41:00Z
+date: 2017-10-13 04:16:00Z
 categories: associated-press-ap-top-headlines
 ---
 
-WASHINGTON (AP) — It sounds sort of like a mass of crickets. A high-pitched whine, but from what? It seems to undulate, even writhe. Listen closely: There are multiple, distinct tones that sound to some like they're colliding in a nails-on-the-chalkboard effect.
+WASHINGTON (AP) — The Associated Press has obtained a recording of what some U.S. Embassy workers heard in Havana, part of the series of unnerving incidents later deemed to be deliberate attacks.
 
 
 Full story on F3News: [Dangerous sound? What Americans heard in Cuba attacks](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 13, 2017 2:41:00 AM
+> Posted on: Friday, October 13, 2017 4:16:00 AM

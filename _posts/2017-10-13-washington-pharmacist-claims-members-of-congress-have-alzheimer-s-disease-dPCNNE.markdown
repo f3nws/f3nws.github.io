@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Washington pharmacist claims members of Congress have Alzheimer’s disease"
-date: 2017-10-13 01:49:40Z
+date: 2017-10-13 01:49:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A pharmacist who fills prescriptions for some members of Congress told reporters
 
 Full story on F3News: [Washington pharmacist claims members of Congress have Alzheimer’s disease](http://www.f3nws.com/n/dPCNNE)
 
-> Posted on: Friday, October 13, 2017 1:49:40 AM
+> Posted on: Friday, October 13, 2017 1:49:00 AM
