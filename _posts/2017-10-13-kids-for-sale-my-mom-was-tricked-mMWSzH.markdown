@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kids for sale: 'My mom was tricked'"
-date: 2017-10-13 12:50:04Z
+date: 2017-10-13 22:45:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The 7-year-old girl, dressed in bright pink and holding one of her favorite stuf
 
 Full story on F3News: [Kids for sale: 'My mom was tricked'](http://www.f3nws.com/n/mMWSzH)
 
-> Posted on: Friday, October 13, 2017 12:50:04 PM
+> Posted on: Friday, October 13, 2017 10:45:22 PM
