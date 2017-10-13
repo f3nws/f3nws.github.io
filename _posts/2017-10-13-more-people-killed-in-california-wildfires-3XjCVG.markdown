@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More people killed in California wildfires"
-date: 2017-10-13 01:51:15Z
+date: 2017-10-13 02:49:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The misery and heartbreak caused by nearly two dozen wildfires devastating homes
 
 Full story on F3News: [More people killed in California wildfires](http://www.f3nws.com/n/3XjCVG)
 
-> Posted on: Friday, October 13, 2017 1:51:15 AM
+> Posted on: Friday, October 13, 2017 2:49:06 AM
