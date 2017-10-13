@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eating egg everyday: Healthy or not?"
-date: 2017-10-13 03:00:05Z
+date: 2017-10-13 03:00:06Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Eating egg everyday: Healthy or not?](http://www.f3nws.com/n/GqYhMB)
 
-> Posted on: Friday, October 13, 2017 3:00:05 AM
+> Posted on: Friday, October 13, 2017 3:00:06 AM

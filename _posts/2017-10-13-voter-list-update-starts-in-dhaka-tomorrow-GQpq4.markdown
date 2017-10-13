@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Voter list update starts in Dhaka tomorrow"
-date: 2017-10-13 02:50:54Z
+date: 2017-10-13 04:28:20Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Voter list update starts in Dhaka tomorrow](http://www.f3nws.com/n/GQpq4)
 
-> Posted on: Friday, October 13, 2017 2:50:54 AM
+> Posted on: Friday, October 13, 2017 4:28:20 AM
