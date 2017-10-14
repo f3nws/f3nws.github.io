@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-Canadian couple returns to Canada"
-date: 2017-10-14 05:47:00Z
+date: 2017-10-14 07:23:56Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [US-Canadian couple returns to Canada](http://www.f3nws.com/n/VN4BVF)
 
-> Posted on: Saturday, October 14, 2017 5:47:00 AM
+> Posted on: Saturday, October 14, 2017 7:23:56 AM
