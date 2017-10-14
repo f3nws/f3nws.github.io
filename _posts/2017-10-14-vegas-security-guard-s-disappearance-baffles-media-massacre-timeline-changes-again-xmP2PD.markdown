@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vegas security guard's disappearance baffles media, massacre timeline changes again"
-date: 2017-10-14 02:17:20Z
+date: 2017-10-14 02:17:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Jesus Campos, the Mandalay Bay security guard shot by gunman Stephen Paddock - w
 
 Full story on F3News: [Vegas security guard's disappearance baffles media, massacre timeline changes again](http://www.f3nws.com/n/xmP2PD)
 
-> Posted on: Saturday, October 14, 2017 2:17:20 AM
+> Posted on: Saturday, October 14, 2017 2:17:00 AM
