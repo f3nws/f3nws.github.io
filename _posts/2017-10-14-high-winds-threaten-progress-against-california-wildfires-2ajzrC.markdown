@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "High winds threaten progress against California wildfires"
-date: 2017-10-14 15:46:00Z
+date: 2017-10-14 16:19:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SONOMA, Calif. (AP) — Rising winds fanned the California wildfires again Satur
 
 Full story on F3News: [High winds threaten progress against California wildfires](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 14, 2017 3:46:00 PM
+> Posted on: Saturday, October 14, 2017 4:19:00 PM
