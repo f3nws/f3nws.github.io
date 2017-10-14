@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Freed Taliban hostage says wife was raped - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171012115610-taliban-family-release-1-super-tease.jpg)
 
-CNN Freed Taliban hostage says wife was raped CNN (CNN) A Canadian man who was freed along with his family after five years in militant captivity in Pakistan said his captors authorized the killing of one of his children and raped his wife. "The stupidity and the evil of the Haqqani network's ... Canadian hostage Joshua Boyle says Taliban killed daughter BBC News Caitlan Coleman and Joshua Boyle are free. Their mysterious story is raising new questions. Washington Post Family Freed Returns to Canada, Says 1 Child Killed New York Times (blog) Fox News - NBCNews.com - New York Daily News - Reuters all 1,123 news articles »
+CNN Freed Taliban hostage says wife was raped CNN (CNN) A Canadian man who was freed along with his family after five years in militant captivity in Pakistan said his captors authorized the killing of one of his children and raped his wife. "The stupidity and the evil of the Haqqani network's ... Caitlan Coleman and Joshua Boyle are free. Their mysterious story is raising new questions. Washington Post Canadian hostage Joshua Boyle says Taliban killed daughter BBC News Family Freed Returns to Canada, Says 1 Child Killed New York Times (blog) NBCNews.com - New York Daily News - Reuters - USA TODAY all 1,130 news articles »
 
 
 Full story on F3News: [Freed Taliban hostage says wife was raped - CNN](http://www.f3nws.com/n/DQhRpC)
