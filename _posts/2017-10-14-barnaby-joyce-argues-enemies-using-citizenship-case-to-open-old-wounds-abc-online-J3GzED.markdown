@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Barnaby Joyce argues enemies using citizenship case to open old wounds - ABC Online](http://www.abc.net.au/news/image/8373158-1x1-700x700.jpg)
 
-ABC Online Barnaby Joyce argues enemies using citizenship case to open old wounds ABC Online Deputy Prime Minister Barnaby Joyce has described his citizenship case as being forced on him by "malicious fate" and accused others of using it to "open wounds and play a very poor game". Key points: Barnaby Joyce is the only Lower House MP caught up ... Court case used to open wounds: Joyce The Australian Canberra Inc: 'The revolving door' of lobbyists shaping today's policies Brisbane Times Opinion: New England MP Barnaby Joyce 'Getting on with the job of governing' The Northern Daily Leader all 5 news articles »
+ABC Online Barnaby Joyce argues enemies using citizenship case to open old wounds ABC Online Deputy Prime Minister Barnaby Joyce has described his citizenship case as being forced on him by "malicious fate" and accused others of using it to "open wounds and play a very poor game". Key points: Barnaby Joyce is the only Lower House MP caught up ... Court case used to open wounds: Joyce The Australian Canberra Inc: 'The revolving door' of lobbyists shaping today's policies Brisbane Times Opinion: New England MP Barnaby Joyce 'Getting on with the job of governing' The Northern Daily Leader Moree Champion all 5 news articles »
 
 
 Full story on F3News: [Barnaby Joyce argues enemies using citizenship case to open old wounds - ABC Online](http://www.f3nws.com/n/J3GzED)
