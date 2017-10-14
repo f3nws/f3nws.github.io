@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President raises 11 corruption charges against CJ Sinha"
-date: 2017-10-14 12:21:10Z
+date: 2017-10-14 12:30:42Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [President raises 11 corruption charges against CJ Sinha](http://www.f3nws.com/n/VMS3TE)
 
-> Posted on: Saturday, October 14, 2017 12:21:10 PM
+> Posted on: Saturday, October 14, 2017 12:30:42 PM
