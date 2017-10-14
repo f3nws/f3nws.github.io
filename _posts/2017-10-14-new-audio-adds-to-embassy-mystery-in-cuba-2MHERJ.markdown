@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New audio adds to embassy mystery in Cuba"
-date: 2017-10-14 00:40:39Z
+date: 2017-10-14 16:33:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A new audio recording said to capture what was heard by some US embassy workers 
 
 Full story on F3News: [New audio adds to embassy mystery in Cuba](http://www.f3nws.com/n/2MHERJ)
 
-> Posted on: Saturday, October 14, 2017 12:40:39 AM
+> Posted on: Saturday, October 14, 2017 4:33:31 PM
