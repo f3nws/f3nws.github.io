@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan says Turkish forces have ‘own game plan’ in Idlib, Syria"
-date: 2017-10-14 02:28:24Z
+date: 2017-10-14 02:28:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Turkish military forces have been deployed to Syria's Idlib province to monitor 
 
 Full story on F3News: [Erdogan says Turkish forces have ‘own game plan’ in Idlib, Syria](http://www.f3nws.com/n/ebUCPD)
 
-> Posted on: Saturday, October 14, 2017 2:28:24 AM
+> Posted on: Saturday, October 14, 2017 2:28:00 AM
