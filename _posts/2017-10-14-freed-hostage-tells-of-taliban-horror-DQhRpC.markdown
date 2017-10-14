@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Freed hostage tells of Taliban horror"
-date: 2017-10-14 12:37:49Z
+date: 2017-10-14 14:22:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Canadian man who was freed along with his family after five years in militant 
 
 Full story on F3News: [Freed hostage tells of Taliban horror](http://www.f3nws.com/n/DQhRpC)
 
-> Posted on: Saturday, October 14, 2017 12:37:49 PM
+> Posted on: Saturday, October 14, 2017 2:22:10 PM
