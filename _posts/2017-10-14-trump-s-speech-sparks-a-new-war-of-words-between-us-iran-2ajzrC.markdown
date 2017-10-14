@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's speech sparks a new war of words between US, Iran"
-date: 2017-10-14 11:52:00Z
+date: 2017-10-14 14:24:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — President Donald Trump's refusal to certify the Iran nucle
 
 Full story on F3News: [Trump's speech sparks a new war of words between US, Iran](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 14, 2017 11:52:00 AM
+> Posted on: Saturday, October 14, 2017 2:24:00 PM

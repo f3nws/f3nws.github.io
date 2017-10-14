@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man charged after fatal truck crash on Hume Highway near Berrima - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/s/2/s/d/l/image.related.socialLead.620x349.gz0yn1.png/1507980273833.jpg)
 
-The Sydney Morning Herald Man charged after fatal truck crash on Hume Highway near Berrima The Sydney Morning Herald A man has been charged following a fatal truck crash near Berrima early on Saturday morning. NSW Police said emergency services were called to the crash on the south bound lanes of The Hume Highway near the Medway Road off ramp near Berrima ... Truck driver charged after man killed in NSW crash 9news.com.au Man and teen dead in separate NSW crashes Yahoo7 News Police are urging anyone who witnessed the crash to come forward Illawarra Mercury Huffington Post Australia - Daily Mail - myGC.com.au all 9 news articles »
+The Sydney Morning Herald Man charged after fatal truck crash on Hume Highway near Berrima The Sydney Morning Herald A man has been charged following a fatal truck crash near Berrima early on Saturday morning. NSW Police said emergency services were called to the crash on the south bound lanes of The Hume Highway near the Medway Road off ramp near Berrima ... Truck driver charged after man killed in NSW crash 9news.com.au Man and teen dead in separate NSW crashes Yahoo7 News Man Trapped In Ute Dies In Horror NSW Truck Crash Huffington Post Australia Daily Mail - myGC.com.au - Mirage News all 9 news articles »
 
 
 Full story on F3News: [Man charged after fatal truck crash on Hume Highway near Berrima - The Sydney Morning Herald](http://www.f3nws.com/n/KntJY)
