@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harvey Weinstein expelled from the Movie Academy"
-date: 2017-10-14 20:23:18Z
+date: 2017-10-14 20:58:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Harvey Weinstein -- who more than anyone defined and shaped the sharp-elbowed ar
 
 Full story on F3News: [Harvey Weinstein expelled from the Movie Academy](http://www.f3nws.com/n/sKUm3)
 
-> Posted on: Saturday, October 14, 2017 8:23:18 PM
+> Posted on: Saturday, October 14, 2017 8:58:35 PM

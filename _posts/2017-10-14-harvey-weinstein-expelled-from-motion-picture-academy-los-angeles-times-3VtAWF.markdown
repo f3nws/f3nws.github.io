@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Harvey Weinstein expelled from motion picture academy - Los Angeles Times](http://www.trbimg.com/img-59e270ec/turbine/la-et-mn-harvey-weinstein-film-academy-20171014)
 
-Los Angeles Times Harvey Weinstein expelled from motion picture academy Los Angeles Times Embattled film mogul Harvey Weinstein — a once-dominant force in the Academy Awards who rewrote the rules of Oscar campaigning — has been expelled from the Academy of Motion Picture Arts and Sciences in response to mounting allegations of sexual ... Harvey Weinstein Ousted From Motion Picture Academy New York Times Bob Weinstein Gets Emotional on "Depraved" Harvey, Saving the Company and His "Waking Nightmare" (Exclusive) Hollywood Reporter Movie Academy Votes To Expel Harvey Weinstein: Complicity “In Our Industry Is Over” Deadline BBC News - NPR - PEOPLE.com - USA TODAY all 69 news articles »
+Los Angeles Times Harvey Weinstein expelled from motion picture academy Los Angeles Times Embattled film mogul Harvey Weinstein — a once-dominant force in the Academy Awards who rewrote the rules of Oscar campaigning — has been expelled from the Academy of Motion Picture Arts and Sciences in response to mounting allegations of sexual ... Movie Academy Votes To Expel Harvey Weinstein: Complicity “In Our Industry Is Over” Deadline Harvey Weinstein Ousted From Motion Picture Academy New York Times Motion picture academy expels Harvey Weinstein from lifetime membership amid sex abuse allegations Washington Post NPR - Hollywood Reporter - PEOPLE.com - BBC News all 108 news articles »
 
 
 Full story on F3News: [Harvey Weinstein expelled from motion picture academy - Los Angeles Times](http://www.f3nws.com/n/3VtAWF)

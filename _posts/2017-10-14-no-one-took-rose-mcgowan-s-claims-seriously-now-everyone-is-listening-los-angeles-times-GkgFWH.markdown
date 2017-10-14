@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![No one took Rose McGowan's claims seriously. Now everyone is listening - Los Angeles Times](http://www.trbimg.com/img-59e15dae/turbine/la-fi-rose-mcgowan-harvey-weinstein-20171013)
 
-Los Angeles Times No one took Rose McGowan's claims seriously. Now everyone is listening Los Angeles Times Well before the Harvey Weinstein scandal broke, Rose McGowan was already, in her words, a “feminist whistleblowing badass.” For months, the actress had warned of a powerful Hollywood figure who had allegedly raped her. She railed against a casting call ... Rose McGowan's powerful voice CNN Rose McGowan Accuses Harvey Weinstein of Rape and Claims She Told Amazon Studios E! Online Rose McGowan suggests in tweet that Harvey Weinstein 'raped' her ABC News Washington Post - RollingStone.com - CBS News - Chicago Tribune all 904 news articles »
+Los Angeles Times No one took Rose McGowan's claims seriously. Now everyone is listening Los Angeles Times Well before the Harvey Weinstein scandal broke, Rose McGowan was already, in her words, a “feminist whistleblowing badass.” For months, the actress had warned of a powerful Hollywood figure who had allegedly raped her. She railed against a casting call ... Rose McGowan's powerful voice CNN Rose McGowan Accuses Harvey Weinstein of Rape and Claims She Told Amazon Studios E! Online Rose McGowan suggests in tweet that Harvey Weinstein 'raped' her ABC News Washington Post - RollingStone.com - CBS News - BBC News all 909 news articles »
 
 
 Full story on F3News: [No one took Rose McGowan's claims seriously. Now everyone is listening - Los Angeles Times](http://www.f3nws.com/n/GkgFWH)
