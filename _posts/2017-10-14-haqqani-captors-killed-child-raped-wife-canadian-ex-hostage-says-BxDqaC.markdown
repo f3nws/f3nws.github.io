@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Haqqani captors killed child, raped wife, Canadian ex-hostage says"
-date: 2017-10-14 07:30:02Z
+date: 2017-10-14 08:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ After landing in Canada with his family Friday night, Canadian ex-hostage Joshua
 
 Full story on F3News: [Haqqani captors killed child, raped wife, Canadian ex-hostage says](http://www.f3nws.com/n/BxDqaC)
 
-> Posted on: Saturday, October 14, 2017 7:30:02 AM
+> Posted on: Saturday, October 14, 2017 8:00:03 AM
