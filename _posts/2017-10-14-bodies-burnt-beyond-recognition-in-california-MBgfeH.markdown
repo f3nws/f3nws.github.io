@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bodies burnt beyond recognition in California"
-date: 2017-10-14 01:08:12Z
+date: 2017-10-14 03:05:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Amid the scorched ruins left by the wildfires that continue to burn in Northern 
 
 Full story on F3News: [Bodies burnt beyond recognition in California](http://www.f3nws.com/n/MBgfeH)
 
-> Posted on: Saturday, October 14, 2017 1:08:12 AM
+> Posted on: Saturday, October 14, 2017 3:05:31 AM

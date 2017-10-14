@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Doob promotion on campuses begins"
-date: 2017-10-14 02:57:18Z
+date: 2017-10-14 03:04:10Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Doob promotion on campuses begins](http://www.f3nws.com/n/jeQBGC)
 
-> Posted on: Saturday, October 14, 2017 2:57:18 AM
+> Posted on: Saturday, October 14, 2017 3:04:10 AM
