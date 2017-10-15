@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Death toll rises to 40 as firefighters continue to battle massive California wildfires - Los Angeles Times](http://www.trbimg.com/img-59e272dc/turbine/la-me-california-fires-20171014)
 
-Los Angeles Times Death toll rises to 40 as firefighters continue to battle massive California wildfires Los Angeles Times As the death toll rose to 40, firefighters struggled to get the upper hand against several massive wildfires that have ravaged Northern California for almost a week. The winds that bedeviled firefighters Saturday are expected to die down Sunday ... Californians say they didn't receive emergency wildfire alerts CNN Death toll continues to rise as California wildfires burn on Washington Post Wildfires up to 100 miles wide as death toll rises to 40 CBS News NPR - Reuters - Sacramento Bee - NBCNews.com all 3,163 news articles »
+Los Angeles Times Death toll rises to 40 as firefighters continue to battle massive California wildfires Los Angeles Times As the death toll rose to 40, firefighters struggled to get the upper hand against several massive wildfires that have ravaged Northern California for almost a week. The winds that bedeviled firefighters Saturday are expected to die down Sunday ... Californians say they didn't receive emergency wildfire alerts CNN Death toll continues to rise as California wildfires burn on Washington Post Wildfires up to 100 miles wide as death toll rises to 40 CBS News NPR - Reuters - Sacramento Bee - The Mercury News all 3,323 news articles »
 
 
 Full story on F3News: [Death toll rises to 40 as firefighters continue to battle massive California wildfires - Los Angeles Times](http://www.f3nws.com/n/SbdZPG)
