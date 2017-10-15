@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The NFL is attacking an America that has treated it very well. Time to end the tax breaks"
-date: 2017-10-15 02:00:07Z
+date: 2017-10-15 02:30:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Taxpayers pay over 70 percent of the cost of stadiums. Our citizens pay more and
 
 Full story on F3News: [The NFL is attacking an America that has treated it very well. Time to end the tax breaks](http://www.f3nws.com/n/DAV4rG)
 
-> Posted on: Sunday, October 15, 2017 2:00:07 AM
+> Posted on: Sunday, October 15, 2017 2:30:01 AM
