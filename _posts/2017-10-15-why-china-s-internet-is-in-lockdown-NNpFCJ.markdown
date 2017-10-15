@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why China's internet is in lockdown"
-date: 2017-10-15 11:21:29Z
+date: 2017-10-15 14:36:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As China's leaders gather in Beijing this week for the 19th National Congress of
 
 Full story on F3News: [Why China's internet is in lockdown](http://www.f3nws.com/n/NNpFCJ)
 
-> Posted on: Sunday, October 15, 2017 11:21:29 AM
+> Posted on: Sunday, October 15, 2017 2:36:31 PM
