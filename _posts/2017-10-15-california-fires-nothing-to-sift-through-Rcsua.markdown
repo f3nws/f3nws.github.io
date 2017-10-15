@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California fires: 'Nothing to sift through'"
-date: 2017-10-15 18:06:30Z
+date: 2017-10-15 21:08:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [California fires: 'Nothing to sift through'](http://www.f3nws.com/n/Rcsua)
 
-> Posted on: Sunday, October 15, 2017 6:06:30 PM
+> Posted on: Sunday, October 15, 2017 9:08:45 PM

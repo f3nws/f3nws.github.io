@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British actor Lysette Anthony accuses Weinstein of rape"
-date: 2017-10-15 20:56:01Z
+date: 2017-10-15 21:12:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British actress Lysette Anthony has become the latest woman to accuse Harvey Wei
 
 Full story on F3News: [British actor Lysette Anthony accuses Weinstein of rape](http://www.f3nws.com/n/CrRXMB)
 
-> Posted on: Sunday, October 15, 2017 8:56:01 PM
+> Posted on: Sunday, October 15, 2017 9:12:27 PM
