@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard lesson - TheBlaze.com](http://www.theblaze.com/wp-content/uploads/2017/10/GettyImages-520337898-1280x720.jpg)
 
-TheBlaze.com George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard lesson TheBlaze.com George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard George Lopez was recently booed off stage at a benefit gala over anti-Trump jokes, Page Six reported. (Mark Davis/Getty Images for TV Land). 44 Follow. Chris ... Comedian George Lopez booed off stage for anti-Trump jokes: Report Washington Examiner all 10 news articles »
+TheBlaze.com George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard lesson TheBlaze.com George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard George Lopez was recently booed off stage at a benefit gala over anti-Trump jokes, Page Six reported. (Mark Davis/Getty Images for TV Land). 44 Follow. Chris ... and more »
 
 
 Full story on F3News: [George Lopez unleashes barrage of anti-Trump jokes at charity event — quickly learns hard lesson - TheBlaze.com](http://www.f3nws.com/n/FmsjUH)
