@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yellen sounds upbeat note on economy and inflation prospects"
-date: 2017-10-15 11:41:00Z
+date: 2017-10-15 13:19:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Federal Reserve Chair Janet Yellen on Sunday sketched a brig
 
 Full story on F3News: [Yellen sounds upbeat note on economy and inflation prospects](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 15, 2017 11:41:00 AM
+> Posted on: Sunday, October 15, 2017 1:19:00 PM

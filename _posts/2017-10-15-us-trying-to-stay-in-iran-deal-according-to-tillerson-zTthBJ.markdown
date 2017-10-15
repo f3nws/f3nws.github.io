@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US trying to stay in Iran deal, according to Tillerson"
-date: 2017-10-15 14:52:30Z
+date: 2017-10-15 17:13:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson said Sunday the US is trying to stay in the Ira
 
 Full story on F3News: [US trying to stay in Iran deal, according to Tillerson](http://www.f3nws.com/n/zTthBJ)
 
-> Posted on: Sunday, October 15, 2017 2:52:30 PM
+> Posted on: Sunday, October 15, 2017 5:13:24 PM
