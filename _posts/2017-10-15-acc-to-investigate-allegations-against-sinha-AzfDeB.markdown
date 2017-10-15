@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ACC to investigate allegations against Sinha"
-date: 2017-10-15 07:12:28Z
+date: 2017-10-15 08:25:16Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [ACC to investigate allegations against Sinha](http://www.f3nws.com/n/AzfDeB)
 
-> Posted on: Sunday, October 15, 2017 7:12:28 AM
+> Posted on: Sunday, October 15, 2017 8:25:16 AM
