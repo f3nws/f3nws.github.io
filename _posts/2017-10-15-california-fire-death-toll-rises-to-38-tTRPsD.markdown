@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California fire death toll rises to 38"
-date: 2017-10-15 05:00:09Z
+date: 2017-10-15 05:00:12Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [California fire death toll rises to 38](http://www.f3nws.com/n/tTRPsD)
 
-> Posted on: Sunday, October 15, 2017 5:00:09 AM
+> Posted on: Sunday, October 15, 2017 5:00:12 AM

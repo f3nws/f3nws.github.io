@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UNHCR collecting details of displaced Rohingyas"
-date: 2017-10-15 04:26:17Z
+date: 2017-10-15 05:54:58Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [UNHCR collecting details of displaced Rohingyas](http://www.f3nws.com/n/RqrfCJ)
 
-> Posted on: Sunday, October 15, 2017 4:26:17 AM
+> Posted on: Sunday, October 15, 2017 5:54:58 AM
