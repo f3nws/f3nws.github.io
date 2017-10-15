@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea threatens Australia with ‘disaster’ for engagement in US ‘war preparations’"
-date: 2017-10-15 01:47:10Z
+date: 2017-10-15 01:47:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Pyongyang has threatened Australia with “disaster” unless the island nation 
 
 Full story on F3News: [N. Korea threatens Australia with ‘disaster’ for engagement in US ‘war preparations’](http://www.f3nws.com/n/KsDTmH)
 
-> Posted on: Sunday, October 15, 2017 1:47:10 AM
+> Posted on: Sunday, October 15, 2017 1:47:00 AM

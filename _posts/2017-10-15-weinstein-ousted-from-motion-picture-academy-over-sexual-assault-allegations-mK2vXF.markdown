@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Weinstein ousted from Motion Picture Academy over sexual assault allegations"
-date: 2017-10-15 04:24:25Z
+date: 2017-10-15 04:43:44Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Weinstein ousted from Motion Picture Academy over sexual assault allegations](http://www.f3nws.com/n/mK2vXF)
 
-> Posted on: Sunday, October 15, 2017 4:24:25 AM
+> Posted on: Sunday, October 15, 2017 4:43:44 AM
