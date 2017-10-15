@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Oculus' Nate Mitchell: VR 'expectations got ahead of themselves' - VentureBeat](https://venturebeat.com/wp-content/uploads/2017/10/gap-of-disappointment-unity.jpg?fit=780%2C384&strip=all)
 
-VentureBeat Oculus' Nate Mitchell: VR 'expectations got ahead of themselves' VentureBeat Nate Mitchell is one of the Oculus co-founders and continues to be a key leader at Facebook defining the product strategy for VR going forward. While he works closely with the Rift team, he's also keenly aware of VR's evolution over the last five years ... How Facebook plans to get 1 billion people into virtual reality, according to the VP tasked with doing it Business Insider Facebook announces a wireless $200 virtual reality headset Pocono Record A wireless headset let me shoot zombies in a mall in VR CNET VRFocus - Tom's Hardware - Gears Of Biz - Road to VR all 38 news articles »
+VentureBeat Oculus' Nate Mitchell: VR 'expectations got ahead of themselves' VentureBeat Nate Mitchell is one of the Oculus co-founders and continues to be a key leader at Facebook defining the product strategy for VR going forward. While he works closely with the Rift team, he's also keenly aware of VR's evolution over the last five years ... How Facebook plans to get 1 billion people into virtual reality, according to the VP tasked with doing it Business Insider Facebook announces a wireless $200 virtual reality headset Pocono Record A wireless headset let me shoot zombies in a mall in VR CNET VRFocus - Tom's Hardware - Gears Of Biz - Road to VR all 39 news articles »
 
 
 Full story on F3News: [Oculus' Nate Mitchell: VR 'expectations got ahead of themselves' - VentureBeat](http://www.f3nws.com/n/SRDZa)
