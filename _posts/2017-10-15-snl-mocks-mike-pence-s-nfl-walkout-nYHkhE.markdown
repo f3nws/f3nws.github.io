@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SNL mocks Mike Pence's NFL walkout"
-date: 2017-10-15 10:54:33Z
+date: 2017-10-15 17:36:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [SNL mocks Mike Pence's NFL walkout](http://www.f3nws.com/n/nYHkhE)
 
-> Posted on: Sunday, October 15, 2017 10:54:33 AM
+> Posted on: Sunday, October 15, 2017 5:36:08 PM
