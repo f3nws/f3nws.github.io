@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "RT crew films stockpiles of ISIS arms abandoned inside liberated Al-Mayadeen (VIDEO)"
-date: 2017-10-15 00:40:04Z
+date: 2017-10-15 00:40:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ An enormous arsenal of various weapons and production facilities, plus a fleet o
 
 Full story on F3News: [RT crew films stockpiles of ISIS arms abandoned inside liberated Al-Mayadeen (VIDEO)](http://www.f3nws.com/n/PhRuNB)
 
-> Posted on: Sunday, October 15, 2017 12:40:04 AM
+> Posted on: Sunday, October 15, 2017 12:40:00 AM
