@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Hurricane Ophelia heading to Ireland, then Scotland - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171012114915-weather-ophelia-satellite-super-tease.jpg)
 
-CNN Hurricane Ophelia heading to Ireland, then Scotland CNN (CNN) Hurricane Ophelia continued moving east toward Ireland on Sunday as officials there announced school closings, prepared for flooding -- and planned for power outages. Ophelia's position is the farthest east that a major hurricane has traveled in ... Fresh warnings as powerful storm heads to UK BBC News Ophelia, strongest eastern Atlantic hurricane on record, roars toward Ireland Washington Post Already A Historic Storm, Weakening Ophelia Draws A Bead On British Isles NPR NBCNews.com - New York Daily News - AL.com - USA TODAY all 259 news articles »
+CNN Hurricane Ophelia heading to Ireland, then Scotland CNN (CNN) Hurricane Ophelia continued moving east toward Ireland on Sunday as officials there announced school closings, prepared for flooding -- and planned for power outages. Ophelia's position is the farthest east that a major hurricane has traveled in ... Ophelia, strongest eastern Atlantic hurricane on record, roars toward Ireland Washington Post Fresh warnings as powerful storm heads to UK BBC News Ireland, UK Brace for Impact of Hurricane Ophelia U.S. News & World Report NPR - NBCNews.com - New York Daily News - AL.com all 270 news articles »
 
 
 Full story on F3News: [Hurricane Ophelia heading to Ireland, then Scotland - CNN](http://www.f3nws.com/n/PBFCbB)

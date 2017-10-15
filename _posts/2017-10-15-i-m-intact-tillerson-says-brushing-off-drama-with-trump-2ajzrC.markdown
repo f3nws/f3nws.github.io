@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I'm intact,' Tillerson says, brushing off drama with Trump"
-date: 2017-10-15 15:02:00Z
+date: 2017-10-15 15:56:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Secretary of State Rex Tillerson on Sunday ducked, danced an
 
 Full story on F3News: ['I'm intact,' Tillerson says, brushing off drama with Trump](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, October 15, 2017 3:02:00 PM
+> Posted on: Sunday, October 15, 2017 3:56:00 PM
