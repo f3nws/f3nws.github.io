@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 230 die in 'unprecedented' Somalia blasts"
-date: 2017-10-15 18:23:47Z
+date: 2017-10-15 19:19:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Mogadishu bombings kill 'unprecedented number of civilians' CNN Mogadishu, S
 
 Full story on F3News: [At least 230 die in 'unprecedented' Somalia blasts](http://www.f3nws.com/n/jStHAD)
 
-> Posted on: Sunday, October 15, 2017 6:23:47 PM
+> Posted on: Sunday, October 15, 2017 7:19:51 PM
