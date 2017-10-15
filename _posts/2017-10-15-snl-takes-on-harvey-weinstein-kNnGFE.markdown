@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'SNL' takes on Harvey Weinstein"
-date: 2017-10-15 05:08:48Z
+date: 2017-10-15 11:36:09Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['SNL' takes on Harvey Weinstein](http://www.f3nws.com/n/kNnGFE)
 
-> Posted on: Sunday, October 15, 2017 5:08:48 AM
+> Posted on: Sunday, October 15, 2017 11:36:09 AM

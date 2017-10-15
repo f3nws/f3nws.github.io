@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Somalia: Deadly explosion hits Mogadishu"
-date: 2017-10-15 10:54:56Z
+date: 2017-10-15 11:49:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 20 people were killed and many more injured Saturday in a massive vehic
 
 Full story on F3News: [Somalia: Deadly explosion hits Mogadishu](http://www.f3nws.com/n/WkK2kB)
 
-> Posted on: Sunday, October 15, 2017 10:54:56 AM
+> Posted on: Sunday, October 15, 2017 11:49:32 AM
