@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea calls Trump a 'strangler of peace'"
-date: 2017-10-15 07:04:01Z
+date: 2017-10-15 10:17:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea continued its harsh anti-US rhetoric Sunday, calling President Donal
 
 Full story on F3News: [North Korea calls Trump a 'strangler of peace'](http://www.f3nws.com/n/a3YUdD)
 
-> Posted on: Sunday, October 15, 2017 7:04:01 AM
+> Posted on: Sunday, October 15, 2017 10:17:50 AM

@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Kaya Jones alleges Pussycat Dolls was a prostitution ring - India Today](http://media2.intoday.in/indiatoday/defaulimages/India-Today.jpg)
 
-E! Online Kaya Jones alleges Pussycat Dolls was a prostitution ring India Today Los Angeles, Oct 15 (PTI) Former Pussycat Dolls member Kaya Jones has claimed that the group was like a "prostitution ring". Taking to Twitter over the past week, the 33-year-old singer has responded to the Harvey Weinstein scandal by detailing what it ... Former Pussycat Dolls Member Kaya Jones Calls the Group a ''Prostitution Ring'' E! Online 'I will end up dead' says ex-Pussycat Dolls member as she alleges group was a 'prostitution ring' International Business Times UK Former Pussycat Dolls Member Kaya Jones Calls Members Of The Group 'Prostitution Ring' On Twitter The Inquisitr Independent Journal Review all 6 news articles »
+International Business Times Kaya Jones alleges Pussycat Dolls was a prostitution ring India Today Los Angeles, Oct 15 (PTI) Former Pussycat Dolls member Kaya Jones has claimed that the group was like a "prostitution ring". Taking to Twitter over the past week, the 33-year-old singer has responded to the Harvey Weinstein scandal by detailing what it ... 'I will end up dead' says ex-Pussycat Dolls member as she alleges group was a 'prostitution ring' International Business Times UK Former Pussycat Dolls Member Kaya Jones Calls Members Of The Group 'Prostitution Ring' On Twitter The Inquisitr Former Pussycat Dolls Singer: 'I Wasn't in a Girl Group — I Was in a Prostitution Ring' Independent Journal Review all 7 news articles »
 
 
 Full story on F3News: [Kaya Jones alleges Pussycat Dolls was a prostitution ring - India Today](http://www.f3nws.com/n/zyfGpB)
