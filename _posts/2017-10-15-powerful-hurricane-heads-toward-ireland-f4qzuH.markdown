@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powerful hurricane heads toward Ireland"
-date: 2017-10-15 05:27:55Z
+date: 2017-10-15 06:27:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Record-setting Ophelia, a Category 3 hurricane with sustained winds of 185 kilom
 
 Full story on F3News: [Powerful hurricane heads toward Ireland](http://www.f3nws.com/n/f4qzuH)
 
-> Posted on: Sunday, October 15, 2017 5:27:55 AM
+> Posted on: Sunday, October 15, 2017 6:27:38 AM
