@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi forces near the city of Kirkuk"
-date: 2017-10-16 06:44:17Z
+date: 2017-10-16 09:37:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi forces are approaching the Kurdish-controlled city of Kirkuk, with Iraq's 
 
 Full story on F3News: [Iraqi forces near the city of Kirkuk](http://www.f3nws.com/n/G3nUdF)
 
-> Posted on: Monday, October 16, 2017 6:44:17 AM
+> Posted on: Monday, October 16, 2017 9:37:52 AM
