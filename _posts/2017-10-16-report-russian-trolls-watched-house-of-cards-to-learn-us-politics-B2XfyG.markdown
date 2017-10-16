@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Russian trolls watched House of Cards to learn US politics"
-date: 2017-10-16 17:54:55Z
+date: 2017-10-16 20:13:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Yahoo correspondent Michael Isikoff said on CNN's "New Day" Monday that Russians
 
 Full story on F3News: [Report: Russian trolls watched House of Cards to learn US politics](http://www.f3nws.com/n/B2XfyG)
 
-> Posted on: Monday, October 16, 2017 5:54:55 PM
+> Posted on: Monday, October 16, 2017 8:13:44 PM
