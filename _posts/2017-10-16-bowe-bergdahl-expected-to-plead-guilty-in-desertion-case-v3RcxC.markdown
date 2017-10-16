@@ -5,6 +5,8 @@ date: 2017-10-16 11:15:00Z
 categories: fox-news
 ---
 
+![Bowe Bergdahl expected to plead guilty in desertion case](http://a57.foxnews.com/images.foxnews.com/content/fox-news/us/2017/10/16/bowe-bergdahl-expected-to-plead-guilty-in-desertion-case/_jcr_content/article-text/article-par-2/inline_spotlight_ima/image.img.jpg/612/344/1508152614969.jpg?ve=1&tl=1)
+
 Army Sgt. Bowe Bergdahl is set to plead guilty Monday to charges he endangered comrades by walking away from his post in Afghanistan in 2009 -- the court case wrapping up just three years after a stunning Rose Garden spectacle in which former President Barack Obama, flanked by Bergdahl's parents, triumphantly announced the soldier's release from captivity.
 
 
