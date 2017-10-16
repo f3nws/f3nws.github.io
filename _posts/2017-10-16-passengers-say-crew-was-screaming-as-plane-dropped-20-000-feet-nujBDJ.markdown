@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passengers say crew was screaming as plane dropped 20,000 feet"
-date: 2017-10-16 07:16:00Z
+date: 2017-10-16 08:36:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Passengers aboard an AirAsia flight from Perth to Bali Sunday have criticized th
 
 Full story on F3News: [Passengers say crew was screaming as plane dropped 20,000 feet](http://www.f3nws.com/n/nujBDJ)
 
-> Posted on: Monday, October 16, 2017 7:16:00 AM
+> Posted on: Monday, October 16, 2017 8:36:16 AM
