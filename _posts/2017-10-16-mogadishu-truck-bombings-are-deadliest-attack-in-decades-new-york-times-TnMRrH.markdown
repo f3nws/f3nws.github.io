@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mogadishu Truck Bombings Are Deadliest Attack in Decades - New York Times](https://static01.nyt.com/images/2017/10/16/world/16somalia-1/16somalia-1-facebookJumbo.jpg)
 
-New York Times Mogadishu Truck Bombings Are Deadliest Attack in Decades New York Times More than 270 were killed and hundreds injured in Mogadishu on Saturday, in twin blasts that officials called one of the deadliest attacks to hit the capital since an Islamist insurgency began in 2007. By AINARA TIEFENTHÄLER, DAPHNE RUSTOW and ... Somalia's decade-long battle against extremists hits grim milestone in huge blasts Washington Post Death toll from truck bombing in Somalia rises to 276 New York Daily News The American Found in the Rubble of the Mogadishu Terrorist Blast Daily Beast Los Angeles Times - NPR - NBCNews.com - New York Magazine all 503 news articles »
+New York Times Mogadishu Truck Bombings Are Deadliest Attack in Decades New York Times More than 270 were killed and hundreds injured in Mogadishu on Saturday, in twin blasts that officials called one of the deadliest attacks to hit the capital since an Islamist insurgency began in 2007. By AINARA TIEFENTHÄLER, DAPHNE RUSTOW and ... Somalia's decade-long battle against extremists hits grim milestone in huge blasts Washington Post Death toll from truck bombing in Somalia rises to 276 New York Daily News Death toll rises to 276 in Somalia's worst bomb attack Los Angeles Times NPR - NBCNews.com - U.S. News & World Report - New York Magazine all 511 news articles »
 
 
 Full story on F3News: [Mogadishu Truck Bombings Are Deadliest Attack in Decades - New York Times](http://www.f3nws.com/n/TnMRrH)
