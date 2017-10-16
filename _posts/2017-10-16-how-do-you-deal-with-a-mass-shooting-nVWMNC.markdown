@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How do you deal with a mass shooting?"
-date: 2017-10-16 02:12:51Z
+date: 2017-10-16 03:14:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [How do you deal with a mass shooting?](http://www.f3nws.com/n/nVWMNC)
 
-> Posted on: Monday, October 16, 2017 2:12:51 AM
+> Posted on: Monday, October 16, 2017 3:14:36 AM
