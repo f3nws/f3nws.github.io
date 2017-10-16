@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mogadishu bombings kill hundreds"
-date: 2017-10-16 05:24:34Z
+date: 2017-10-16 08:09:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 276 people have now been confirmed killed in Saturday's double car bomb
 
 Full story on F3News: [Mogadishu bombings kill hundreds](http://www.f3nws.com/n/jStHAD)
 
-> Posted on: Monday, October 16, 2017 5:24:34 AM
+> Posted on: Monday, October 16, 2017 8:09:35 AM

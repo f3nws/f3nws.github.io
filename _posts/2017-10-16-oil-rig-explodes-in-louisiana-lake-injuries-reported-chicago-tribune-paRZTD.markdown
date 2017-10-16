@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Oil rig explodes in Louisiana lake, injuries reported - Chicago Tribune](http://www.trbimg.com/img-59e43321/turbine/ct-louisiana-oil-rig-explosion-20171015)
 
-Chicago Tribune Oil rig explodes in Louisiana lake, injuries reported Chicago Tribune Rescue boats surround a rig in Lake Pontchartrain near New Orleans, La., after the rig exploded late on Sunday, Oct. 15, 2017. The explosion took place Sunday night in Lake Pontchartrain in St. Charles Parish, a Louisiana police department said. Explosion hits oil rig on Lake Pontchartrain USA TODAY Seven Are Hospitalized After Oil Rig Explodes in Louisiana New York Times Oil rig explosion rocks Kenner, injures 7 people Sunday NOLA.com New York Daily News - Fox News - U.S. News & World Report - NBCNews.com all 79 news articles »
+Chicago Tribune Oil rig explodes in Louisiana lake, injuries reported Chicago Tribune Rescue boats surround a rig in Lake Pontchartrain near New Orleans, La., after the rig exploded late on Sunday, Oct. 15, 2017. The explosion took place Sunday night in Lake Pontchartrain in St. Charles Parish, a Louisiana police department said. Explosion hits oil rig on Lake Pontchartrain USA TODAY Seven Are Hospitalized After Oil Rig Explodes in Louisiana New York Times Oil rig explosion rocks Kenner, injures 7 people Sunday NOLA.com New York Daily News - Fox News - U.S. News & World Report - NBCNews.com all 81 news articles »
 
 
 Full story on F3News: [Oil rig explodes in Louisiana lake, injuries reported - Chicago Tribune](http://www.f3nws.com/n/paRZTD)

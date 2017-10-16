@@ -7,7 +7,7 @@ categories: ars-technica
 
 ![Severe flaw in WPA2 protocol leaves Wi-Fi traffic open to eavesdropping - Ars Technica](https://cdn.arstechnica.net/wp-content/uploads/2014/04/ssl-eavesdropping-640x215.jpg)
 
-Ars Technica Severe flaw in WPA2 protocol leaves Wi-Fi traffic open to eavesdropping Ars Technica An air of unease set into the security circles on Sunday as they prepared for the disclosure of high-severe vulnerabilities in the Wi-Fi Protected Access II protocol that make it possible for attackers to eavesdrop Wi-Fi traffic passing between ... Wi-Fi security has been breached, say researchers The Verge Wi-Fi has been hacked MyBroadband All your Wi-Fi are now belong to hackers (probably) TNW I4U News - htxt.africa - Gizmodo Australia - MSPoweruser all 13 news articles »
+Ars Technica Severe flaw in WPA2 protocol leaves Wi-Fi traffic open to eavesdropping Ars Technica An air of unease set into the security circles on Sunday as they prepared for the disclosure of high-severity vulnerabilities in the Wi-Fi Protected Access II protocol that make it possible for attackers to eavesdrop Wi-Fi traffic passing between ... Wi-Fi security has been breached, say researchers The Verge Wi-Fi Security Has Been Compromised, Say Researchers; Nearly All Routers at Risk NDTV Devastating flaw in Wi-Fi encryption dubbed “the dawn of the crypto dead” IT PRO MyBroadband - TNW - htxt.africa - I4U News all 17 news articles »
 
 
 Full story on F3News: [Severe flaw in WPA2 protocol leaves Wi-Fi traffic open to eavesdropping - Ars Technica](http://www.f3nws.com/n/4fmEfE)
