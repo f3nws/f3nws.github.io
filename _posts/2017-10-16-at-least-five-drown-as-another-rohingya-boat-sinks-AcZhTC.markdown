@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least five drown as another Rohingya boat sinks"
-date: 2017-10-16 02:48:41Z
+date: 2017-10-16 03:49:24Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [At least five drown as another Rohingya boat sinks](http://www.f3nws.com/n/AcZhTC)
 
-> Posted on: Monday, October 16, 2017 2:48:41 AM
+> Posted on: Monday, October 16, 2017 3:49:24 AM
