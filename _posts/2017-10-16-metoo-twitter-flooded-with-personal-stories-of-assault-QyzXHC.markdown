@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "#MeToo: Twitter flooded with personal stories of assault"
-date: 2017-10-16 18:07:02Z
+date: 2017-10-16 18:56:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two simple words became a rallying cry on Twitter to stand against sexual harass
 
 Full story on F3News: [#MeToo: Twitter flooded with personal stories of assault](http://www.f3nws.com/n/QyzXHC)
 
-> Posted on: Monday, October 16, 2017 6:07:02 PM
+> Posted on: Monday, October 16, 2017 6:56:30 PM
