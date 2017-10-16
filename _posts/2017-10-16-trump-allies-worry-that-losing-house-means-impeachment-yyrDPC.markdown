@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump allies worry that losing House means impeachment"
-date: 2017-10-16 11:13:09Z
+date: 2017-10-16 15:55:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Top White House aides, lawmakers, donors and political consultants are privately
 
 Full story on F3News: [Trump allies worry that losing House means impeachment](http://www.f3nws.com/n/yyrDPC)
 
-> Posted on: Monday, October 16, 2017 11:13:09 AM
+> Posted on: Monday, October 16, 2017 3:55:57 PM

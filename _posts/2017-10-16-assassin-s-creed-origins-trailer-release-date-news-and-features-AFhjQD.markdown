@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Assassin’s Creed Origins trailer, release date, news and features"
+date: 2017-10-16 15:39:09Z
+categories: techradar
+---
+
+![Assassin’s Creed Origins trailer, release date, news and features](http://cdn.mos.cms.futurecdn.net/TcjCb959Kr7jh73tKpmYKk-1200-80.png)
+
+Post-release content plans have been revealed.
+
+
+Full story on F3News: [Assassin’s Creed Origins trailer, release date, news and features](http://www.f3nws.com/n/AFhjQD)
+
+> Posted on: Monday, October 16, 2017 3:39:09 PM
