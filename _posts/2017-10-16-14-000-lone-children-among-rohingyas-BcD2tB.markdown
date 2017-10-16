@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'14,000 lone children among Rohingyas'"
-date: 2017-10-16 02:24:27Z
+date: 2017-10-16 05:54:03Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: ['14,000 lone children among Rohingyas'](http://www.f3nws.com/n/BcD2tB)
 
-> Posted on: Monday, October 16, 2017 2:24:27 AM
+> Posted on: Monday, October 16, 2017 5:54:03 AM
