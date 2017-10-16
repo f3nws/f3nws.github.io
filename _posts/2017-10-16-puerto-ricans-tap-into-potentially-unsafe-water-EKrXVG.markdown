@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Ricans tap into potentially unsafe water"
-date: 2017-10-16 12:13:12Z
+date: 2017-10-16 13:59:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A tall chain link fence, shrouded in vines, surrounds an aging water well tucked
 
 Full story on F3News: [Puerto Ricans tap into potentially unsafe water](http://www.f3nws.com/n/EKrXVG)
 
-> Posted on: Monday, October 16, 2017 12:13:12 PM
+> Posted on: Monday, October 16, 2017 1:59:11 PM
