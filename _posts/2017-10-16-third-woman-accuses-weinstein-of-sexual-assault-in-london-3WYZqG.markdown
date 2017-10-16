@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Third woman accuses Weinstein of sexual assault in London"
-date: 2017-10-16 11:56:31Z
+date: 2017-10-16 15:20:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A third woman in London has made sexual assault allegations against disgraced Ho
 
 Full story on F3News: [Third woman accuses Weinstein of sexual assault in London](http://www.f3nws.com/n/3WYZqG)
 
-> Posted on: Monday, October 16, 2017 11:56:31 AM
+> Posted on: Monday, October 16, 2017 3:20:00 PM

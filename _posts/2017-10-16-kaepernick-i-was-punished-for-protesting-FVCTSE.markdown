@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kaepernick: I was 'punished' for protesting"
-date: 2017-10-16 02:32:40Z
+date: 2017-10-16 15:15:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Kaepernick: I was 'punished' for protesting](http://www.f3nws.com/n/FVCTSE)
 
-> Posted on: Monday, October 16, 2017 2:32:40 AM
+> Posted on: Monday, October 16, 2017 3:15:42 PM
