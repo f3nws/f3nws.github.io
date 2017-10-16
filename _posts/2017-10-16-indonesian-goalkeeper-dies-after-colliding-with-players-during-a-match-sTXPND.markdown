@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Indonesian goalkeeper dies after colliding with players during a match"
-date: 2017-10-16 08:00:01Z
+date: 2017-10-16 09:30:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A goalkeeper for an Indonesian football club died after colliding with another p
 
 Full story on F3News: [Indonesian goalkeeper dies after colliding with players during a match](http://www.f3nws.com/n/sTXPND)
 
-> Posted on: Monday, October 16, 2017 8:00:01 AM
+> Posted on: Monday, October 16, 2017 9:30:02 AM
