@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Scientists detect gravitational waves from a new kind of nova, sparking a new era in astronomy - Washington Post"
-date: 2017-10-16 14:03:31Z
+date: 2017-10-16 15:26:12Z
 categories: google-news-top-stories
 ---
 
 ![Scientists detect gravitational waves from a new kind of nova, sparking a new era in astronomy - Washington Post](https://img.washingtonpost.com/pbox.php?url=http://img.washingtonpost.com/news/speaking-of-science/wp-content/uploads/sites/36/2017/10/neutron-merger-graphic.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Scientists detect gravitational waves from a new kind of nova, sparking a new era in astronomy Washington Post Some 130 million years ago, in a galaxy far away, the smoldering cores of two collapsed stars smashed into each other. The resulting explosion sent a burst of gamma rays streaming through space and rippled the very fabric of the universe. On Aug. 17 ... LIGO Detects Fierce Collision of Neutron Stars for the First Time New York Times Astronomers Strike Gravitational Gold In Colliding Neutron Stars NPR Gravitational Waves from Neutron-Star Crashes: The Discovery Explained Space.com BBC News - CNN - Los Angeles Times - The Verge all 202 news articles »
+Newsweek Scientists detect gravitational waves from a new kind of nova, sparking a new era in astronomy Washington Post Some 130 million years ago, in a galaxy far away, the smoldering cores of two collapsed stars smashed into each other. The resulting explosion sent a burst of gamma rays streaming through space and rippled the very fabric of the universe. On Aug. 17 ... First-seen neutron star collision creates light, gravitational waves and gold CNN LIGO Detects Fierce Collision of Neutron Stars for the First Time New York Times Astronomers Strike Gravitational Gold In Colliding Neutron Stars NPR Space.com - BBC News - The Verge - Los Angeles Times all 211 news articles »
 
 
 Full story on F3News: [Scientists detect gravitational waves from a new kind of nova, sparking a new era in astronomy - Washington Post](http://www.f3nws.com/n/ZSh2rC)
 
-> Posted on: Monday, October 16, 2017 2:03:31 PM
+> Posted on: Monday, October 16, 2017 3:26:12 PM
