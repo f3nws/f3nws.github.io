@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Drone hits passenger plane in Canada"
-date: 2017-10-16 06:02:38Z
+date: 2017-10-16 09:57:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Drone hits passenger plane in Canada](http://www.f3nws.com/n/rBMHcF)
 
-> Posted on: Monday, October 16, 2017 6:02:38 AM
+> Posted on: Monday, October 16, 2017 9:57:28 AM

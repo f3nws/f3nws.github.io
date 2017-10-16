@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia leader fails to clarify independence declaration"
-date: 2017-10-16 08:31:52Z
+date: 2017-10-16 10:16:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The President of Catalonia, Carles Puigdemont, failed to clarify Monday whether 
 
 Full story on F3News: [Catalonia leader fails to clarify independence declaration](http://www.f3nws.com/n/ygDbrD)
 
-> Posted on: Monday, October 16, 2017 8:31:52 AM
+> Posted on: Monday, October 16, 2017 10:16:25 AM

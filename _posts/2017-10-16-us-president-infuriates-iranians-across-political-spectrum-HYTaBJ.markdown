@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President infuriates Iranians across political spectrum"
-date: 2017-10-16 05:16:41Z
+date: 2017-10-16 10:20:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tehran is a city that wears its political colors on its sleeve. The sprawling Ir
 
 Full story on F3News: [US President infuriates Iranians across political spectrum](http://www.f3nws.com/n/HYTaBJ)
 
-> Posted on: Monday, October 16, 2017 5:16:41 AM
+> Posted on: Monday, October 16, 2017 10:20:14 AM
