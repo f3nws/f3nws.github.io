@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ophelia races toward Ireland"
-date: 2017-10-16 10:18:14Z
+date: 2017-10-16 12:56:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Former Hurricane Ophelia is racing toward Ireland and the United Kingdom as a po
 
 Full story on F3News: [Ophelia races toward Ireland](http://www.f3nws.com/n/fcYMFD)
 
-> Posted on: Monday, October 16, 2017 10:18:14 AM
+> Posted on: Monday, October 16, 2017 12:56:49 PM
