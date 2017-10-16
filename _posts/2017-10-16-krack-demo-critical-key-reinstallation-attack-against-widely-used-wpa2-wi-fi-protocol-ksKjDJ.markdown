@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "KRACK Demo: Critical Key Reinstallation Attack Against Widely-Used WPA2 Wi-Fi Protocol"
-date: 2017-10-16 10:56:53Z
+date: 2017-10-16 11:09:34Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Do you think your wireless network is secure because you're using WPA2 encryptio
 
 Full story on F3News: [KRACK Demo: Critical Key Reinstallation Attack Against Widely-Used WPA2 Wi-Fi Protocol](http://www.f3nws.com/n/ksKjDJ)
 
-> Posted on: Monday, October 16, 2017 10:56:53 AM
+> Posted on: Monday, October 16, 2017 11:09:34 AM
