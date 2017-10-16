@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Colin Kaepernick's Collusion Claim: Does He Have a Case? - Sports Illustrated](https://cdn-s3.si.com/images/colin-kaepernick-2.jpg)
 
-Sports Illustrated Colin Kaepernick's Collusion Claim: Does He Have a Case? Sports Illustrated Colin Kaepernick, unemployed since opting out of his 49ers contract March, is filing a grievance against the NFL, claiming teams have colluded in not signing him. Our legal expert weighs the merits of his claim and whether he has any chance of winning. Proving collusion by NFL owners will be tough for Colin Kaepernick ESPN (blog) Colin Kaepernick files grievance accusing NFL teams of colluding against him Washington Post Colin Kaepernick files collusion grievance against NFL owners USA TODAY Miami Herald - New York Times - Yahoo Sports - ABC News all 212 news articles »
+Sports Illustrated Colin Kaepernick's Collusion Claim: Does He Have a Case? Sports Illustrated Colin Kaepernick, unemployed since opting out of his 49ers contract March, is filing a grievance against the NFL, claiming teams have colluded in not signing him. Our legal expert weighs the merits of his claim and whether he has any chance of winning. Colin Kaepernick files grievance accusing NFL teams of colluding against him Washington Post Colin Kaepernick reportedly filed collusion grievance after Titans snubbed him CBSSports.com Colin Kaepernick, Who Began Anthem Kneeling, Files Complaint Against NFL New York Times ESPN - STLtoday.com - WJLA - Reuters all 238 news articles »
 
 
 Full story on F3News: [Colin Kaepernick's Collusion Claim: Does He Have a Case? - Sports Illustrated](http://www.f3nws.com/n/zzBGFJ)

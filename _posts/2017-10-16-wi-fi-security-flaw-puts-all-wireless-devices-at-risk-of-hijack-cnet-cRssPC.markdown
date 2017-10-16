@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wi-Fi security flaw puts all wireless devices at risk of hijack     - CNET"
-date: 2017-10-16 12:48:18Z
+date: 2017-10-16 14:16:18Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The weakness was found in the WPA2 security protocol used by almost every modern
 
 Full story on F3News: [Wi-Fi security flaw puts all wireless devices at risk of hijack     - CNET](http://www.f3nws.com/n/cRssPC)
 
-> Posted on: Monday, October 16, 2017 12:48:18 PM
+> Posted on: Monday, October 16, 2017 2:16:18 PM
