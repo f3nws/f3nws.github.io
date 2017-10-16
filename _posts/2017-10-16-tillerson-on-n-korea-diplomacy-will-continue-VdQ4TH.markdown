@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson on N. Korea: Diplomacy will continue"
-date: 2017-10-16 10:15:17Z
+date: 2017-10-16 12:56:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Secretary of State Rex Tillerson said Sunday his diplomatic efforts will cont
 
 Full story on F3News: [Tillerson on N. Korea: Diplomacy will continue](http://www.f3nws.com/n/VdQ4TH)
 
-> Posted on: Monday, October 16, 2017 10:15:17 AM
+> Posted on: Monday, October 16, 2017 12:56:09 PM
