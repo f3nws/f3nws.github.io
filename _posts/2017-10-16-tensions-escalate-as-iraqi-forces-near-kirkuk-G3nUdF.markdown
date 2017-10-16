@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tensions escalate as Iraqi forces near Kirkuk"
-date: 2017-10-16 03:12:13Z
+date: 2017-10-16 05:18:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iraqi forces are approaching the Kurdish-controlled city of Kirkuk, with Iraq's 
 
 Full story on F3News: [Tensions escalate as Iraqi forces near Kirkuk](http://www.f3nws.com/n/G3nUdF)
 
-> Posted on: Monday, October 16, 2017 3:12:13 AM
+> Posted on: Monday, October 16, 2017 5:18:02 AM

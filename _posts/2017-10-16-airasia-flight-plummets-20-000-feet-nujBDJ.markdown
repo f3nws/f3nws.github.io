@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AirAsia flight plummets 20,000 feet"
-date: 2017-10-16 03:47:43Z
+date: 2017-10-16 05:03:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Passengers aboard an AirAsia flight from Perth to Bali Sunday have criticized th
 
 Full story on F3News: [AirAsia flight plummets 20,000 feet](http://www.f3nws.com/n/nujBDJ)
 
-> Posted on: Monday, October 16, 2017 3:47:43 AM
+> Posted on: Monday, October 16, 2017 5:03:54 AM
