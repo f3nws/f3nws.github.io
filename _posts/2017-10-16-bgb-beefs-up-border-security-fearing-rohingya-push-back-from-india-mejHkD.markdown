@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "BGB beefs up border security fearing Rohingya push-back from India"
-date: 2017-10-16 02:54:18Z
+date: 2017-10-16 04:56:50Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [BGB beefs up border security fearing Rohingya push-back from India](http://www.f3nws.com/n/mejHkD)
 
-> Posted on: Monday, October 16, 2017 2:54:18 AM
+> Posted on: Monday, October 16, 2017 4:56:50 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS-affiliated leaders killed in Philippines"
-date: 2017-10-16 04:13:27Z
+date: 2017-10-16 04:57:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two key ISIS-affiliated leaders engaged in a standoff with Philippines forces in
 
 Full story on F3News: [ISIS-affiliated leaders killed in Philippines](http://www.f3nws.com/n/xrREuF)
 
-> Posted on: Monday, October 16, 2017 4:13:27 AM
+> Posted on: Monday, October 16, 2017 4:57:32 AM
