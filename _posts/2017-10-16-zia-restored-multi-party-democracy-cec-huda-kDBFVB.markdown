@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zia restored multi-party democracy: CEC Huda"
-date: 2017-10-16 02:32:44Z
+date: 2017-10-16 04:18:30Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Zia restored multi-party democracy: CEC Huda](http://www.f3nws.com/n/kDBFVB)
 
-> Posted on: Monday, October 16, 2017 2:32:44 AM
+> Posted on: Monday, October 16, 2017 4:18:30 AM
