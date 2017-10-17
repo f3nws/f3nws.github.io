@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McCain condemns isolationist politics, calls it 'unpatriotic'"
-date: 2017-10-17 11:30:05Z
+date: 2017-10-17 12:00:07Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ U.S. Sen. John McCain, R-Ariz., delivered speech Monday night at the National Co
 
 Full story on F3News: [McCain condemns isolationist politics, calls it 'unpatriotic'](http://www.f3nws.com/n/nrCUgB)
 
-> Posted on: Tuesday, October 17, 2017 11:30:05 AM
+> Posted on: Tuesday, October 17, 2017 12:00:07 PM
