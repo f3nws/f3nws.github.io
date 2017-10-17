@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Get ready for 'unlimited data' of 5G networks in 2019     - CNET"
-date: 2017-10-17 01:35:06Z
+date: 2017-10-17 12:48:36Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Next-gen networks will have vast capacity so your phone can handle data even in 
 
 Full story on F3News: [Get ready for 'unlimited data' of 5G networks in 2019     - CNET](http://www.f3nws.com/n/HVrnZD)
 
-> Posted on: Tuesday, October 17, 2017 1:35:06 AM
+> Posted on: Tuesday, October 17, 2017 12:48:36 PM
