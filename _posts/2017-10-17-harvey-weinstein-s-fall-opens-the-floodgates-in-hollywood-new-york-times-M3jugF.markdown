@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Harvey Weinstein's Fall Opens the Floodgates in Hollywood - New York Times](https://static01.nyt.com/images/2017/10/17/business/17WEINSTEIN-1/17WEINSTEIN-1-facebookJumbo.jpg)
 
-New York Times Harvey Weinstein's Fall Opens the Floodgates in Hollywood New York Times Sunset Boulevard in Los Angeles. Hollywood associations like the Academy of Motion Picture Arts and Sciences and the Producers Guild of America have moved to strip Harvey Weinstein of his membership. Credit Chad Ress for The New York Times. Harvey Weinstein Resigns from The Weinstein Co. Board Hollywood Reporter Harvey Weinstein Resigns From TWC Board As Termination Ratified In Meeting Deadline Harvey Weinstein Resigns from His Movie Studio's Board of Directors in Wake of Sexual Assault Allegations PEOPLE.com Washington Post - Us Weekly - Los Angeles Times - The New Yorker all 1,156 news articles »
+New York Times Harvey Weinstein's Fall Opens the Floodgates in Hollywood New York Times Sunset Boulevard in Los Angeles. Hollywood associations like the Academy of Motion Picture Arts and Sciences and the Producers Guild of America have moved to strip Harvey Weinstein of his membership. Credit Chad Ress for The New York Times. Harvey Weinstein Resigns From The Weinstein Co. Board Hollywood Reporter Bob Weinstein Refutes Sexual Harassment Claims From 'The Mist' Showrunner Deadline The end of Harvey Weinstein and an industry that secretly loves its bullies Los Angeles Times Fox News - PEOPLE.com - Page Six - Washington Post all 1,209 news articles »
 
 
 Full story on F3News: [Harvey Weinstein's Fall Opens the Floodgates in Hollywood - New York Times](http://www.f3nws.com/n/M3jugF)

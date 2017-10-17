@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump warns McCain: 'Be careful because at some point I fight back'"
-date: 2017-10-17 16:13:15Z
+date: 2017-10-17 19:31:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, hours after Sen. John McCain delivered a speech that rep
 
 Full story on F3News: [Trump warns McCain: 'Be careful because at some point I fight back'](http://www.f3nws.com/n/QRMs4B)
 
-> Posted on: Tuesday, October 17, 2017 4:13:15 PM
+> Posted on: Tuesday, October 17, 2017 7:31:21 PM

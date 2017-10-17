@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korea rejects diplomacy with US for now"
-date: 2017-10-17 11:12:17Z
+date: 2017-10-17 19:58:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A North Korean official reaffirmed Pyongyang's commitment to developing a long-r
 
 Full story on F3News: [N Korea rejects diplomacy with US for now](http://www.f3nws.com/n/RMXamB)
 
-> Posted on: Tuesday, October 17, 2017 11:12:17 AM
+> Posted on: Tuesday, October 17, 2017 7:58:47 PM
