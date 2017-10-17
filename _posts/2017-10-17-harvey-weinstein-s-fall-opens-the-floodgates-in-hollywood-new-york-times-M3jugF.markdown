@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Harvey Weinstein's Fall Opens the Floodgates in Hollywood - New York Times](https://static01.nyt.com/images/2017/10/17/business/17WEINSTEIN-1/17WEINSTEIN-1-facebookJumbo.jpg)
 
-New York Times Harvey Weinstein's Fall Opens the Floodgates in Hollywood New York Times Hollywood associations like the Academy of Motion Picture Arts and Sciences and the Producers Guild of America have moved to strip Harvey Weinstein of his membership. Credit Chad Ress for The New York Times. LOS ANGELES — Harvey Weinstein is ... 'Shakespeare in Love' Director on Harvey Weinstein: "It's About an Abuse of Power" Hollywood Reporter Weinstein criminal probes growing in New York and London, but so far no cases in LA Los Angeles Times Hollywood continues to sever ties with Harvey Weinstein ABC News Daily Beast - Slate Magazine - Washington Post - National Review all 2,626 news articles »
+New York Times Harvey Weinstein's Fall Opens the Floodgates in Hollywood New York Times Hollywood associations like the Academy of Motion Picture Arts and Sciences and the Producers Guild of America have moved to strip Harvey Weinstein of his membership. Credit Chad Ress for The New York Times. LOS ANGELES — Harvey Weinstein is ... 'Shakespeare in Love' Director on Harvey Weinstein: "It's About an Abuse of Power" Hollywood Reporter Jeffrey Katzenberg: Harvey Weinstein Is a Monster, But Didn't Act Alone Variety Harvey Weinstein's company gets a financial lifeline as he faces new criminal probe Los Angeles Times Daily Beast - ABC News - Slate Magazine - Washington Post all 2,617 news articles »
 
 
 Full story on F3News: [Harvey Weinstein's Fall Opens the Floodgates in Hollywood - New York Times](http://www.f3nws.com/n/M3jugF)
