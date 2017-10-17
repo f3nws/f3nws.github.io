@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Marawi liberated after 5-month siege, Duterte says"
-date: 2017-10-17 07:26:09Z
+date: 2017-10-17 08:13:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Philippines city of Marawi has been liberated from ISIS-affiliated militants
 
 Full story on F3News: [Marawi liberated after 5-month siege, Duterte says](http://www.f3nws.com/n/bZDDKD)
 
-> Posted on: Tuesday, October 17, 2017 7:26:09 AM
+> Posted on: Tuesday, October 17, 2017 8:13:47 AM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![For a measly $200,000, Channel Nine has bought a PR disaster](http://www.abc.net.au/news/image/8727144-1x1-700x700.jpg)
 
-The broadcaster had an opportunity to take the lead on equal pay, but its tone-deaf decision is from the dinosaur era, writes Alana Schetzer.
+The broadcaster had an opportunity to take the lead on equal pay, but its tone-deaf decision on Lisa Wilkinson's future is from the dinosaur era, writes Alana Schetzer.
 
 
 Full story on F3News: [For a measly $200,000, Channel Nine has bought a PR disaster](http://www.f3nws.com/n/jpNmm)

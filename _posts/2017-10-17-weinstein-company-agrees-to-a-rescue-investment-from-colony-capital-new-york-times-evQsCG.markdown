@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Weinstein Company Agrees to a Rescue Investment From Colony Capital - New York Times](https://static01.nyt.com/images/2017/10/17/business/17WEINSTEINDEAL/17colony1-facebookJumbo.jpg)
 
-New York Times Weinstein Company Agrees to a Rescue Investment From Colony Capital New York Times Thomas J. Barrack Jr. is the founder and chief executive of Colony Capital. Credit Peter Foley/Bloomberg. LOS ANGELES — The embattled Weinstein Company on Monday secured a financial lifeline — and possible new owner — from an investor with ... 'Shakespeare in Love' Director on Harvey Weinstein: "It's About an Abuse of Power" Hollywood Reporter Harvey Weinstein's company gets a financial lifeline as he faces new criminal probe Los Angeles Times Hollywood continues to sever ties with Harvey Weinstein ABC News Washington Post - Page Six - Daily Beast - HuffPost all 2,688 news articles »
+New York Times Weinstein Company Agrees to a Rescue Investment From Colony Capital New York Times Thomas J. Barrack Jr. is the founder and chief executive of Colony Capital. Credit Peter Foley/Bloomberg. LOS ANGELES — The embattled Weinstein Company on Monday secured a financial lifeline — and possible new owner — from an investor with ... 'Shakespeare in Love' Director on Harvey Weinstein: "It's About an Abuse of Power" Hollywood Reporter Harvey Weinstein's company gets a financial lifeline as he faces new criminal probe Los Angeles Times Hollywood continues to sever ties with Harvey Weinstein ABC News Washington Post - Slate Magazine - Page Six - HuffPost all 2,719 news articles »
 
 
 Full story on F3News: [Weinstein Company Agrees to a Rescue Investment From Colony Capital - New York Times](http://www.f3nws.com/n/evQsCG)
