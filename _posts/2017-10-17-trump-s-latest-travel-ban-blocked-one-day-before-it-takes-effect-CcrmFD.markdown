@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's latest travel ban blocked one day before it takes effect"
-date: 2017-10-17 20:58:44Z
+date: 2017-10-17 21:38:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A federal judge in Hawaii has blocked President Donald Trump's revised travel ba
 
 Full story on F3News: [Trump's latest travel ban blocked one day before it takes effect](http://www.f3nws.com/n/CcrmFD)
 
-> Posted on: Tuesday, October 17, 2017 8:58:44 PM
+> Posted on: Tuesday, October 17, 2017 9:38:52 PM
