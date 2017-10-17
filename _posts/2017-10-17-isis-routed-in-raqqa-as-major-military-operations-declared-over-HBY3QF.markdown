@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS routed in Raqqa as 'major military operations' declared over"
-date: 2017-10-17 16:19:55Z
+date: 2017-10-17 16:48:17Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ US-backed forces fighting ISIS in Raqqa say "major military operations" in the c
 
 Full story on F3News: [ISIS routed in Raqqa as 'major military operations' declared over](http://www.f3nws.com/n/HBY3QF)
 
-> Posted on: Tuesday, October 17, 2017 4:19:55 PM
+> Posted on: Tuesday, October 17, 2017 4:48:17 PM
