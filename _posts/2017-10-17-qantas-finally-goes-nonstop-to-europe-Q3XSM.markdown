@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Qantas finally goes nonstop to Europe"
-date: 2017-10-17 03:38:11Z
+date: 2017-10-17 12:20:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Qantas finally goes nonstop to Europe](http://www.f3nws.com/n/Q3XSM)
 
-> Posted on: Tuesday, October 17, 2017 3:38:11 AM
+> Posted on: Tuesday, October 17, 2017 12:20:26 PM

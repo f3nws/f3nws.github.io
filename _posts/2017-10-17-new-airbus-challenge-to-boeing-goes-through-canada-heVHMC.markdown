@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Airbus challenge to Boeing goes through Canada"
-date: 2017-10-17 08:45:28Z
+date: 2017-10-17 12:06:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [New Airbus challenge to Boeing goes through Canada](http://www.f3nws.com/n/heVHMC)
 
-> Posted on: Tuesday, October 17, 2017 8:45:28 AM
+> Posted on: Tuesday, October 17, 2017 12:06:08 PM

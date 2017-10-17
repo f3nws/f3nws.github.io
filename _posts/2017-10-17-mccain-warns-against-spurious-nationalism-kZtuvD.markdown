@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McCain warns against 'spurious nationalism'"
-date: 2017-10-17 03:05:02Z
+date: 2017-10-17 14:58:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a lofty and at moments pointed speech, Sen. John McCain on Monday cautioned a
 
 Full story on F3News: [McCain warns against 'spurious nationalism'](http://www.f3nws.com/n/kZtuvD)
 
-> Posted on: Tuesday, October 17, 2017 3:05:02 AM
+> Posted on: Tuesday, October 17, 2017 2:58:59 PM
