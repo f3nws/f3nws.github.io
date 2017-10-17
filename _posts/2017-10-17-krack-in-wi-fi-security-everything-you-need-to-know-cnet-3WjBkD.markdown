@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "KRACK in Wi-Fi security: Everything you need to know     - CNET"
-date: 2017-10-17 01:09:26Z
+date: 2017-10-17 02:18:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A weakness in Wi-Fi-connected devices could expose you to nearby hackers. Here a
 
 Full story on F3News: [KRACK in Wi-Fi security: Everything you need to know     - CNET](http://www.f3nws.com/n/3WjBkD)
 
-> Posted on: Tuesday, October 17, 2017 1:09:26 AM
+> Posted on: Tuesday, October 17, 2017 2:18:23 AM

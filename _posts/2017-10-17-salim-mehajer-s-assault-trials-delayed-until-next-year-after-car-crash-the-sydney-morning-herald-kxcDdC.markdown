@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Salim Mehajer's assault trials delayed until next year after car crash - The Sydney Morning Herald](http://www.smh.com.au/content/dam/images/g/w/s/a/l/p/image.related.articleLeadwide.620x349.gz2cps.png/1508204003489.jpg)
 
-The Sydney Morning Herald Salim Mehajer's assault trials delayed until next year after car crash The Sydney Morning Herald Colourful former Auburn deputy mayor Salim Mehajer will avoid standing trial this year for allegedly assaulting a taxi driver and a journalist, after his lawyers successfully applied to have the hearings delayed following his car accident on Monday. Mr ... Salim Mehajer's medical certificate delays trial after car crash The Australian Salim Mehajer 'unfit to attend' court to face assault charges after car accident in Sydney ABC Online Salim Mehajer on crutches after car crash Daily Telegraph NEWS.com.au - 9news.com.au all 8 news articles »
+The Sydney Morning Herald Salim Mehajer's assault trials delayed until next year after car crash The Sydney Morning Herald Colourful former Auburn deputy mayor Salim Mehajer will avoid standing trial this year for allegedly assaulting a taxi driver and a journalist, after his lawyers successfully applied to have the hearings delayed following his car accident on Monday. Mr ... Salim Mehajer's medical certificate delays trial after car crash The Australian Salim Mehajer 'unfit to attend' court to face assault charges after car accident in Sydney ABC Online Salim Mehajer assault case delayed until next year NEWS.com.au Daily Telegraph - 9news.com.au all 8 news articles »
 
 
 Full story on F3News: [Salim Mehajer's assault trials delayed until next year after car crash - The Sydney Morning Herald](http://www.f3nws.com/n/kxcDdC)
