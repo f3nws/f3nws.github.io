@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Opternative sues Warby Parker for allegedly stealing its online eye exam](https://tctechcrunch2011.files.wordpress.com/2017/10/opternative-feature.png)
 
-Eyewear ecommerce giant Warby Parker is accused of signing partnership contracts and NDAs with online eyeglass prescription test startup Opternative, then stealing the technology to launch its own competing “Prescription Check” feature. That’s according to a legal complaint filed by Opternative last month that was unsealed today as the lawsuit unfolds. Opternative is… Read More
+Eyewear e-commerce giant Warby Parker is accused of signing partnership contracts and NDAs with online eyeglass prescription test startup Opternative, then stealing the technology to launch its own competing “Prescription Check” feature. That’s according to a legal complaint filed by Opternative last month that was unsealed today as the lawsuit unfolds. Read More
 
 
 Full story on F3News: [Opternative sues Warby Parker for allegedly stealing its online eye exam](http://www.f3nws.com/n/Dcpjb)
