@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McDonald's wants you to lock up your phone"
-date: 2017-10-17 07:03:28Z
+date: 2017-10-17 09:27:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nothing ruins lunchtime conversations more than a smartphone.
 
 Full story on F3News: [McDonald's wants you to lock up your phone](http://www.f3nws.com/n/PFxGcB)
 
-> Posted on: Tuesday, October 17, 2017 7:03:28 AM
+> Posted on: Tuesday, October 17, 2017 9:27:01 AM
