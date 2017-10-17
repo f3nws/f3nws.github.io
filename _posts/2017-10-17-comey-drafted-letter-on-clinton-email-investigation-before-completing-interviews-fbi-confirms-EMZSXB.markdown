@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey drafted letter on Clinton email investigation before completing interviews, FBI confirms"
-date: 2017-10-17 00:15:00Z
+date: 2017-10-17 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The FBI released documents Monday proving former FBI Director James Comey began 
 
 Full story on F3News: [Comey drafted letter on Clinton email investigation before completing interviews, FBI confirms](http://www.f3nws.com/n/EMZSXB)
 
-> Posted on: Tuesday, October 17, 2017 12:15:00 AM
+> Posted on: Tuesday, October 17, 2017 2:15:00 AM
