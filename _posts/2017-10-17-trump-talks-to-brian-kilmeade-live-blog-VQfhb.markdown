@@ -5,7 +5,7 @@ date: 2017-10-17 12:21:00Z
 categories: fox-news
 ---
 
-President Donald Trump talks to Brian Kilmeade on Fox News Radio.
+President Donald Trump talked to Brian Kilmeade on Fox News Radio.
 
 
 Full story on F3News: [Trump talks to Brian Kilmeade -- live blog](http://www.f3nws.com/n/VQfhb)
