@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A new look, and life, for the digital photo frame"
-date: 2017-10-17 10:00:01Z
+date: 2017-10-17 10:31:03Z
 categories: fox-news-technology
 ---
 
@@ -10,4 +10,4 @@ They say a picture is worth a thousand words which is true if you're looking at 
 
 Full story on F3News: [A new look, and life, for the digital photo frame](http://www.f3nws.com/n/zZA2u)
 
-> Posted on: Tuesday, October 17, 2017 10:00:01 AM
+> Posted on: Tuesday, October 17, 2017 10:31:03 AM
