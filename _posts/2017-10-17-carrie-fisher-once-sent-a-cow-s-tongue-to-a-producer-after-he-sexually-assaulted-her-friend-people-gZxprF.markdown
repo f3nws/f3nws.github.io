@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Carrie Fisher Once Sent a Cow's Tongue to a Producer After He Sexually Assaulted Her Friend - PEOPLE.com](http://peopledotcom.files.wordpress.com/2017/10/carrie-fisher1.jpg?crop=0px%2C0px%2C2000px%2C1050px&resize=1200%2C630)
 
-PEOPLE.com Carrie Fisher Once Sent a Cow's Tongue to a Producer After He Sexually Assaulted Her Friend PEOPLE.com On screen she fought bad guys from a galaxy far, far away, but during her time on Earth, Carrie Fisher fought bad guys a lot closer to home. The Star Wars actress' longtime friend, Heather Ross, opened up to a Tucson, Arizona, radio station 94.9 MixFM ... A Tucson woman's "Weinstein like" experience with another Oscar winning producer - Story - KMXZ KMXZ Carrie Fisher's response after finding out a friend was sexually assaulted is perfect Mashable all 38 news articles »
+PEOPLE.com Carrie Fisher Once Sent a Cow's Tongue to a Producer After He Sexually Assaulted Her Friend PEOPLE.com On screen she fought bad guys from a galaxy far, far away, but during her time on Earth, Carrie Fisher fought bad guys a lot closer to home. The Star Wars actress' longtime friend, Heather Ross, opened up to a Tucson, Arizona, radio station 94.9 MixFM ... Carrie Fisher sent cow tongue to Hollywood producer who sexually harassed her friend New York Daily News Carrie Fisher Once Had a Heroic Response to Hollywood Sexual Assault Vanity Fair Carrie Fisher Gave A Cow Tongue To A Man Who Allegedly Assaulted Her Friend In A Kickass Move Bustle Cinema Blend - Mashable - Comicbook.com - Refinery29 all 43 news articles »
 
 
 Full story on F3News: [Carrie Fisher Once Sent a Cow's Tongue to a Producer After He Sexually Assaulted Her Friend - PEOPLE.com](http://www.f3nws.com/n/gZxprF)

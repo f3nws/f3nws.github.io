@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Hostage couple had kids in captivity to 'start dream family'](http://www.abc.net.au/news/image/9057354-1x1-700x700.jpg)
 
-Former hostage Joshua Boyle says he and his wife, who were abducted while travelling in Afghanistan five years ago, decided to have children in captivity because they always planned to have a big family.
+Former hostage Joshua Boyle says he and his wife, who were abducted while travelling in Afghanistan five years ago, decided to have children in captivity because they always planned to have a big family and "didn't want to waste time".
 
 
 Full story on F3News: [Hostage couple had kids in captivity to 'start dream family'](http://www.f3nws.com/n/SfzMAC)

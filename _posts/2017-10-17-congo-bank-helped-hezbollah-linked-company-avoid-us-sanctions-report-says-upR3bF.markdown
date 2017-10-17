@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Congo bank helped Hezbollah-linked company avoid US sanctions, report says"
-date: 2017-10-17 01:00:02Z
+date: 2017-10-17 01:19:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An explosive new report sheds light on how one of the most prominent banks in th
 
 Full story on F3News: [Congo bank helped Hezbollah-linked company avoid US sanctions, report says](http://www.f3nws.com/n/upR3bF)
 
-> Posted on: Tuesday, October 17, 2017 1:00:02 AM
+> Posted on: Tuesday, October 17, 2017 1:19:00 AM
