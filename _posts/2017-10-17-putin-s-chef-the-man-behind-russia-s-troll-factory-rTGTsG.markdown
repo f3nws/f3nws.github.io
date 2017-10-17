@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin's 'chef,' the man behind Russia's troll factory"
-date: 2017-10-17 20:22:40Z
+date: 2017-10-17 20:47:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Yevgeny Prigozhin is a Russian oligarch dubbed "chef" to President Vladimir Puti
 
 Full story on F3News: [Putin's 'chef,' the man behind Russia's troll factory](http://www.f3nws.com/n/rTGTsG)
 
-> Posted on: Tuesday, October 17, 2017 8:22:40 PM
+> Posted on: Tuesday, October 17, 2017 8:47:29 PM
