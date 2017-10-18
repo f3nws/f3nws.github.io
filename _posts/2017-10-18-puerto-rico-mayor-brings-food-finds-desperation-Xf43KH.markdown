@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico mayor brings food, finds desperation"
-date: 2017-10-18 12:07:40Z
+date: 2017-10-18 14:08:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The mayor has supplies of water and food. Now he just has to get it to the resid
 
 Full story on F3News: [Puerto Rico mayor brings food, finds desperation](http://www.f3nws.com/n/Xf43KH)
 
-> Posted on: Wednesday, October 18, 2017 12:07:40 PM
+> Posted on: Wednesday, October 18, 2017 2:08:36 PM

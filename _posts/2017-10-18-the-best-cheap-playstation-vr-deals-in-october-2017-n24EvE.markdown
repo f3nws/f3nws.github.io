@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best cheap PlayStation VR deals in October 2017"
-date: 2017-10-18 13:30:00Z
+date: 2017-10-18 13:40:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Looking for the best deals on the PlayStation VR headset, Move motion controller
 
 Full story on F3News: [The best cheap PlayStation VR deals in October 2017](http://www.f3nws.com/n/n24EvE)
 
-> Posted on: Wednesday, October 18, 2017 1:30:00 PM
+> Posted on: Wednesday, October 18, 2017 1:40:00 PM
