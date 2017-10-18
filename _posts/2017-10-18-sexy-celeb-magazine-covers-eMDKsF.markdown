@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sexy celeb magazine covers"
-date: 2017-10-18 06:31:13Z
+date: 2017-10-18 07:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Remember when models were on magazine covers? Not anymore!
 
 Full story on F3News: [Sexy celeb magazine covers](http://www.f3nws.com/n/eMDKsF)
 
-> Posted on: Wednesday, October 18, 2017 6:31:13 AM
+> Posted on: Wednesday, October 18, 2017 7:00:03 AM
