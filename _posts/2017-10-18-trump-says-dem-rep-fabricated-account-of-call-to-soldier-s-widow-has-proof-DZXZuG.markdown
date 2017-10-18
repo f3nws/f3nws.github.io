@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says Dem rep 'fabricated' account of call to soldier's widow, has 'proof'"
-date: 2017-10-18 12:10:00Z
+date: 2017-10-18 17:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump on Wednesday rejected a Democratic congresswoman’s claim that 
 
 Full story on F3News: [Trump says Dem rep 'fabricated' account of call to soldier's widow, has 'proof'](http://www.f3nws.com/n/DZXZuG)
 
-> Posted on: Wednesday, October 18, 2017 12:10:00 PM
+> Posted on: Wednesday, October 18, 2017 5:00:00 PM
