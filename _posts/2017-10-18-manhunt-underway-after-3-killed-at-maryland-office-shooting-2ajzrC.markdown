@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manhunt underway after 3 killed at Maryland office shooting"
-date: 2017-10-18 12:55:00Z
+date: 2017-10-18 13:30:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ EDGEWOOD, Md. (AP) — A gunman opened fire at a Maryland office park on Wednesd
 
 Full story on F3News: [Manhunt underway after 3 killed at Maryland office shooting](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, October 18, 2017 12:55:00 PM
+> Posted on: Wednesday, October 18, 2017 1:30:00 PM
