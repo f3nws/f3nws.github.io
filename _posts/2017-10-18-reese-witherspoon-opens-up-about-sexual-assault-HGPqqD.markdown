@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reese Witherspoon opens up about sexual assault"
-date: 2017-10-18 12:08:14Z
+date: 2017-10-18 15:07:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Allegations of sexual misconduct against Harvey Weinstein have opened the tap in
 
 Full story on F3News: [Reese Witherspoon opens up about sexual assault](http://www.f3nws.com/n/HGPqqD)
 
-> Posted on: Wednesday, October 18, 2017 12:08:14 PM
+> Posted on: Wednesday, October 18, 2017 3:07:48 PM
