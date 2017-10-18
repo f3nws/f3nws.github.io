@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Molly Ringwald: 'I Have Had Plenty Harveys of My Own' - RollingStone.com](http://img.wennermedia.com/social/gettyimages-677108514-5f3b24b9-236c-47e3-83de-d7b06015522c.jpg)
 
-RollingStone.com Molly Ringwald: 'I Have Had Plenty Harveys of My Own' RollingStone.com Molly Ringwald opened up about her experiences with sexual harassment in Hollywood, saying, "I have had plenty of Harveys of my own." Credit: Roy Rochlin/Getty. By Jon Blistein. 1 hour ago. More News. Alyssa Milano Wants Her 'Me Too' Campaign to ... Molly Ringwald tells her own 'Harvey story' in revealing New Yorker essay EW.com Molly Ringwald Says She Was Sexually Assaulted by a Director When She Was 14 Us Weekly Molly Ringwald has encountered 'plenty of Harveys of my own' in Hollywood Page Six Slate Magazine (blog) - Vanity Fair - Breitbart News - PerezHilton.com all 36 news articles »
+RollingStone.com Molly Ringwald: 'I Have Had Plenty Harveys of My Own' RollingStone.com Molly Ringwald opened up about her experiences with sexual harassment in Hollywood, saying, "I have had plenty of Harveys of my own." Credit: Roy Rochlin/Getty. By Jon Blistein. 2 hours ago ... Molly Ringwald tells her own 'Harvey story' in revealing New Yorker essay EW.com Molly Ringwald Says She Was Sexually Assaulted by a Director When She Was 14 Us Weekly Molly Ringwald has encountered 'plenty of Harveys of my own' in Hollywood Page Six Slate Magazine (blog) - Vanity Fair - Breitbart News - International Business Times all 36 news articles »
 
 
 Full story on F3News: [Molly Ringwald: 'I Have Had Plenty Harveys of My Own' - RollingStone.com](http://www.f3nws.com/n/ygbhQ)
