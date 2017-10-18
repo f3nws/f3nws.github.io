@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Grandmother in The Gap, Brisbane, accused of slashing baby grandson to undergo medical assessment - ABC Online"
-date: 2017-10-18 05:11:00Z
+date: 2017-10-18 05:12:50Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Grandmother in The Gap, Brisbane, accused of slashing baby grandson t
 
 Full story on F3News: [Grandmother in The Gap, Brisbane, accused of slashing baby grandson to undergo medical assessment - ABC Online](http://www.f3nws.com/n/4NVaSE)
 
-> Posted on: Wednesday, October 18, 2017 5:11:00 AM
+> Posted on: Wednesday, October 18, 2017 5:12:50 AM
