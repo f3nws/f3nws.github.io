@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What's next for ISIS after the fall of Raqqa?"
-date: 2017-10-18 14:43:12Z
+date: 2017-10-18 16:16:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US-backed forces in Raqqa said Tuesday that major military operations against IS
 
 Full story on F3News: [What's next for ISIS after the fall of Raqqa?](http://www.f3nws.com/n/CknfXG)
 
-> Posted on: Wednesday, October 18, 2017 2:43:12 PM
+> Posted on: Wednesday, October 18, 2017 4:16:59 PM
