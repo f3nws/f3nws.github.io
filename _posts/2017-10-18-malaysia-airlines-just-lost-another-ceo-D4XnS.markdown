@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Malaysia Airlines just lost another CEO"
-date: 2017-10-18 04:57:16Z
+date: 2017-10-18 08:06:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Malaysia Airlines just lost another CEO](http://www.f3nws.com/n/D4XnS)
 
-> Posted on: Wednesday, October 18, 2017 4:57:16 AM
+> Posted on: Wednesday, October 18, 2017 8:06:31 AM
