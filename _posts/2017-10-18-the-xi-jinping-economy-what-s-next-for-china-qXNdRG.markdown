@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Xi Jinping economy: What's next for China?"
-date: 2017-10-18 06:04:18Z
+date: 2017-10-18 09:25:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The Xi Jinping economy: What's next for China?](http://www.f3nws.com/n/qXNdRG)
 
-> Posted on: Wednesday, October 18, 2017 6:04:18 AM
+> Posted on: Wednesday, October 18, 2017 9:25:43 AM
