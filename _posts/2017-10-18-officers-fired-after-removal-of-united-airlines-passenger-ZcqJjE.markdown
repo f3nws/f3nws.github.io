@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officers fired after removal of United Airlines passenger"
-date: 2017-10-18 01:34:21Z
+date: 2017-10-18 02:49:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chicago aviation officials fired two officers and suspended two others involved 
 
 Full story on F3News: [Officers fired after removal of United Airlines passenger](http://www.f3nws.com/n/ZcqJjE)
 
-> Posted on: Wednesday, October 18, 2017 1:34:21 AM
+> Posted on: Wednesday, October 18, 2017 2:49:46 AM
