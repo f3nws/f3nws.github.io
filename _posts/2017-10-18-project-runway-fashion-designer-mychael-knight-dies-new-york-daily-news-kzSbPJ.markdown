@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Project Runway' fashion designer Mychael Knight dies - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3570201.1508288447!/img/httpImage/image._gen/derivatives/landscape_1200/obit-knight-71669-jpg.)
 
-New York Daily News 'Project Runway' fashion designer Mychael Knight dies New York Daily News FILE - In this July 28, 2007 file photo, designer Mychael Knight, of "Project Runway," addresses the similarities of fashion today with models wearing his designs to fashion during the time of Mary Todd Lincoln, during the Abraham Lincoln Presidential ... Former Project Runway Finalist Mychael Knight Dead at 39 E! Online Mychael Knight Dies: 'Project Runway' Fashion Designer Was 39 Deadline Project Runway contestant and fashion designer Mychael Knight dead at 39 EW.com (blog) Hollywood Life - Page Six - TMZ.com - VH1.com (blog) all 60 news articles »
+New York Daily News 'Project Runway' fashion designer Mychael Knight dies New York Daily News FILE - In this July 28, 2007 file photo, designer Mychael Knight, of "Project Runway," addresses the similarities of fashion today with models wearing his designs to fashion during the time of Mary Todd Lincoln, during the Abraham Lincoln Presidential ... Former Project Runway Finalist Mychael Knight Dead at 39 E! Online Mychael Knight Dies: 'Project Runway' Fashion Designer Was 39 Deadline Project Runway contestant and fashion designer Mychael Knight dead at 39 EW.com (blog) Hollywood Life - TMZ.com - VH1.com (blog) - HuffPost all 60 news articles »
 
 
 Full story on F3News: ['Project Runway' fashion designer Mychael Knight dies - New York Daily News](http://www.f3nws.com/n/kzSbPJ)
