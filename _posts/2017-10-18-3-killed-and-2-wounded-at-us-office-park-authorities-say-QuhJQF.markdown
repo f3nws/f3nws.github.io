@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 killed and 2 wounded at US office park, authorities say"
-date: 2017-10-18 18:25:59Z
+date: 2017-10-18 19:36:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five people have been shot at an office park in the Maryland community of Edgewo
 
 Full story on F3News: [3 killed and 2 wounded at US office park, authorities say](http://www.f3nws.com/n/QuhJQF)
 
-> Posted on: Wednesday, October 18, 2017 6:25:59 PM
+> Posted on: Wednesday, October 18, 2017 7:36:59 PM
