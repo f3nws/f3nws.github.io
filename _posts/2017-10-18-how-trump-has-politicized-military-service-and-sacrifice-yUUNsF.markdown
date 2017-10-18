@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Trump has politicized military service and sacrifice"
-date: 2017-10-18 11:46:20Z
+date: 2017-10-18 12:02:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, though often acting as a champion of the military, has a
 
 Full story on F3News: [How Trump has politicized military service and sacrifice](http://www.f3nws.com/n/yUUNsF)
 
-> Posted on: Wednesday, October 18, 2017 11:46:20 AM
+> Posted on: Wednesday, October 18, 2017 12:02:39 PM
