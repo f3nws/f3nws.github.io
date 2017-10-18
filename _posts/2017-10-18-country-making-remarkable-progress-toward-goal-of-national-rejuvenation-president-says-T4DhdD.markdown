@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Country making remarkable progress toward goal of 'national rejuvenation,' President says"
-date: 2017-10-18 03:49:36Z
+date: 2017-10-18 07:45:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chinese President Xi Jinping laid out a sweeping vision for the country Wednesda
 
 Full story on F3News: [Country making remarkable progress toward goal of 'national rejuvenation,' President says](http://www.f3nws.com/n/T4DhdD)
 
-> Posted on: Wednesday, October 18, 2017 3:49:36 AM
+> Posted on: Wednesday, October 18, 2017 7:45:04 AM
