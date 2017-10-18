@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Royal baby: Duchess of Cambridge's due date announced"
-date: 2017-10-18 00:59:46Z
+date: 2017-10-18 05:28:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's Prince William and his wife Catherine have revealed that their third c
 
 Full story on F3News: [Royal baby: Duchess of Cambridge's due date announced](http://www.f3nws.com/n/gVUCuF)
 
-> Posted on: Wednesday, October 18, 2017 12:59:46 AM
+> Posted on: Wednesday, October 18, 2017 5:28:22 AM
