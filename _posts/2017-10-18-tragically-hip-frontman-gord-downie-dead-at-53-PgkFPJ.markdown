@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Tragically Hip frontman Gord Downie dead at 53](https://www.thestar.com/content/dam/thestar/entertainment/music/2017/10/18/tragically-hip-frontman-gord-downie-has-died-band-repiorts/downie_2010_star_interview.jpg)
 
-The band released a statement early Wednesday on the band’s Twitter page.
+'Gord knew this day was coming – his response was to spend this precious time as he always had – making music, making memories and expressing deep gratitude to his family and friends for a life well lived, often sealing it with a kiss… on the lips,' a statement said.
 
 
 Full story on F3News: [Tragically Hip frontman Gord Downie dead at 53](http://www.f3nws.com/n/PgkFPJ)
