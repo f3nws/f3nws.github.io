@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McKayla Maroney alleges USA Gymnastics doctor abused her at 13"
-date: 2017-10-19 09:40:20Z
+date: 2017-10-19 13:55:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Former Olympic gymnast McKayla Maroney alleged Wednesday that former USA Gymnast
 
 Full story on F3News: [McKayla Maroney alleges USA Gymnastics doctor abused her at 13](http://www.f3nws.com/n/uarUAC)
 
-> Posted on: Thursday, October 19, 2017 9:40:20 AM
+> Posted on: Thursday, October 19, 2017 1:55:47 PM
