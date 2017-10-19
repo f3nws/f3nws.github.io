@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bush: Bigotry, white supremacy are 'blasphemy' against America"
-date: 2017-10-19 16:57:02Z
+date: 2017-10-19 19:24:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former President George W. Bush condemned bigotry and white supremacy Thursday m
 
 Full story on F3News: [Bush: Bigotry, white supremacy are 'blasphemy' against America](http://www.f3nws.com/n/ECgnTE)
 
-> Posted on: Thursday, October 19, 2017 4:57:02 PM
+> Posted on: Thursday, October 19, 2017 7:24:39 PM
