@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "An uneasy Florida braces for white supremacist speech"
-date: 2017-10-19 09:37:32Z
+date: 2017-10-19 12:25:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The University of Florida in Gainesville is bracing for a day of protests Thursd
 
 Full story on F3News: [An uneasy Florida braces for white supremacist speech](http://www.f3nws.com/n/mTgD2C)
 
-> Posted on: Thursday, October 19, 2017 9:37:32 AM
+> Posted on: Thursday, October 19, 2017 12:25:45 PM
