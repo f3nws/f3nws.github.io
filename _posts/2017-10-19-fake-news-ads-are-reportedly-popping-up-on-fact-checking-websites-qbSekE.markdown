@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fake news ads are reportedly popping up on fact-checking websites"
-date: 2017-10-19 06:00:02Z
+date: 2017-10-19 07:00:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The New York Times reported that as recent as last week, these ads were found on
 
 Full story on F3News: [Fake news ads are reportedly popping up on fact-checking websites](http://www.f3nws.com/n/qbSekE)
 
-> Posted on: Thursday, October 19, 2017 6:00:02 AM
+> Posted on: Thursday, October 19, 2017 7:00:01 AM

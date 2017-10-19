@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ellen DeGeneres fails to get key questions answered in Las Vegas guard interview"
-date: 2017-10-19 06:00:04Z
+date: 2017-10-19 07:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Mandalay Bay security guard who was shot and wounded during the Las Vegas ma
 
 Full story on F3News: [Ellen DeGeneres fails to get key questions answered in Las Vegas guard interview](http://www.f3nws.com/n/2CEPKJ)
 
-> Posted on: Thursday, October 19, 2017 6:00:04 AM
+> Posted on: Thursday, October 19, 2017 7:00:00 AM

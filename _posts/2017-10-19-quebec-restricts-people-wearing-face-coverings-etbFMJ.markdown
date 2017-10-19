@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Quebec restricts people wearing face coverings"
-date: 2017-10-19 04:42:26Z
+date: 2017-10-19 06:04:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Quebec's lawmakers passed a bill Wednesday that would require workers in public-
 
 Full story on F3News: [Quebec restricts people wearing face coverings](http://www.f3nws.com/n/etbFMJ)
 
-> Posted on: Thursday, October 19, 2017 4:42:26 AM
+> Posted on: Thursday, October 19, 2017 6:04:47 AM

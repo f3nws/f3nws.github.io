@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Insect populations decline by 75%, new study shows"
-date: 2017-10-19 05:22:02Z
+date: 2017-10-19 06:26:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A new scientific study has found "dramatic" and "alarming" declines in insect po
 
 Full story on F3News: [Insect populations decline by 75%, new study shows](http://www.f3nws.com/n/dpJyRG)
 
-> Posted on: Thursday, October 19, 2017 5:22:02 AM
+> Posted on: Thursday, October 19, 2017 6:26:09 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Suspect in shootings of 6 in Maryland and Delaware caught, officials say - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/10/18/Local/Images/radee%20labeeb%20prince.jpg?t=20170517)
 
-Washington Post Suspect in shootings of 6 in Maryland and Delaware caught, officials say Washington Post A shooting suspect who was the focus of a day-long manhunt was arrested Wednesday evening, hours after, police said, he opened fire on his co-workers in Maryland, killing three and wounding two, and then drove 50 miles to his home state of Delaware, ... Police: Suspect in 6 shootings in Maryland, Delaware, caught CNN Man Shoots 6, 3 Fatally, at Two Places He Worked, Police Say New York Times Edgewood, Maryland, shooting suspect Radee Labeeb Prince in police custody CBS News Fox News - USA TODAY - ABC News - KTLA all 358 news articles »
+Washington Post Suspect in shootings of 6 in Maryland and Delaware caught, officials say Washington Post A shooting suspect who was the focus of a day-long manhunt was arrested Wednesday evening, hours after, police said, he opened fire on his co-workers in Maryland, killing three and wounding two, and then drove 50 miles to his home state of Delaware, ... Police: Suspect in 6 shootings in Maryland, Delaware, caught CNN Man Shoots 6, 3 Fatally, at Two Places He Worked, Police Say New York Times Maryland-Delaware shooting suspect caught after 3 killed, 3 others wounded Fox News CBS News - USA TODAY - ABC News - KTLA all 357 news articles »
 
 
 Full story on F3News: [Suspect in shootings of 6 in Maryland and Delaware caught, officials say - Washington Post](http://www.f3nws.com/n/3jNfeF)
