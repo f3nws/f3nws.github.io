@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's economy cools slightly in third quarter"
-date: 2017-10-19 02:14:50Z
+date: 2017-10-19 03:47:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [China's economy cools slightly in third quarter](http://www.f3nws.com/n/QEK4CB)
 
-> Posted on: Thursday, October 19, 2017 2:14:50 AM
+> Posted on: Thursday, October 19, 2017 3:47:38 AM

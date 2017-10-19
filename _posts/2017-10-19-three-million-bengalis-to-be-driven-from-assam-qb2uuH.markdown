@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three million Bengalis to be driven from Assam"
-date: 2017-10-19 03:00:25Z
+date: 2017-10-19 03:00:34Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Three million Bengalis to be driven from Assam](http://www.f3nws.com/n/qb2uuH)
 
-> Posted on: Thursday, October 19, 2017 3:00:25 AM
+> Posted on: Thursday, October 19, 2017 3:00:34 AM
