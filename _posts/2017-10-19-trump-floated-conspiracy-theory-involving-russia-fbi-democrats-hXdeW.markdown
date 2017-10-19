@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump floated conspiracy theory involving Russia, FBI, Democrats"
-date: 2017-10-19 21:01:47Z
+date: 2017-10-19 22:57:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump sent this tweet on Thursday morning: "Workers of firm inv
 
 Full story on F3News: [Trump floated conspiracy theory involving Russia, FBI, Democrats](http://www.f3nws.com/n/hXdeW)
 
-> Posted on: Thursday, October 19, 2017 9:01:47 PM
+> Posted on: Thursday, October 19, 2017 10:57:46 PM
