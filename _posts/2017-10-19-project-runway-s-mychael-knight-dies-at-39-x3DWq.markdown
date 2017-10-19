@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Project Runway's' Mychael Knight dies at 39"
-date: 2017-10-19 00:10:45Z
+date: 2017-10-19 07:39:14Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Fashion designer and popular "Project Runway" contestant Mychael Knight has died
 
 Full story on F3News: ['Project Runway's' Mychael Knight dies at 39](http://www.f3nws.com/n/x3DWq)
 
-> Posted on: Thursday, October 19, 2017 12:10:45 AM
+> Posted on: Thursday, October 19, 2017 7:39:14 AM

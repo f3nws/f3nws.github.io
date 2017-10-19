@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Japan just ban tattoo artists?"
-date: 2017-10-19 01:16:29Z
+date: 2017-10-19 07:03:18Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Black is a color you won't find on the walls of Ron Sugano's tattoo parlor in th
 
 Full story on F3News: [Did Japan just ban tattoo artists?](http://www.f3nws.com/n/sDNtWH)
 
-> Posted on: Thursday, October 19, 2017 1:16:29 AM
+> Posted on: Thursday, October 19, 2017 7:03:18 AM
