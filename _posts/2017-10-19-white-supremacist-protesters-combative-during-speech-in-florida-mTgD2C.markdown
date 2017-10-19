@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White supremacist, protesters combative during speech in Florida"
-date: 2017-10-19 20:25:36Z
+date: 2017-10-19 21:33:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The University of Florida in Gainesville is bracing for a day of protests Thursd
 
 Full story on F3News: [White supremacist, protesters combative during speech in Florida](http://www.f3nws.com/n/mTgD2C)
 
-> Posted on: Thursday, October 19, 2017 8:25:36 PM
+> Posted on: Thursday, October 19, 2017 9:33:04 PM

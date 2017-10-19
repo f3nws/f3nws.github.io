@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "4 soldiers dead. A chaotic scene. Few answers"
-date: 2017-10-19 19:46:24Z
+date: 2017-10-19 21:41:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Defense Secretary James Mattis wants answers regarding the ambush by 50 ISIS-aff
 
 Full story on F3News: [4 soldiers dead. A chaotic scene. Few answers](http://www.f3nws.com/n/mCRu3B)
 
-> Posted on: Thursday, October 19, 2017 7:46:24 PM
+> Posted on: Thursday, October 19, 2017 9:41:41 PM
