@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Three dead in shooting at US office park"
-date: 2017-10-19 03:30:49Z
+date: 2017-10-19 04:13:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five people have been shot at an office park in the Maryland community of Edgewo
 
 Full story on F3News: [Three dead in shooting at US office park](http://www.f3nws.com/n/QuhJQF)
 
-> Posted on: Thursday, October 19, 2017 3:30:49 AM
+> Posted on: Thursday, October 19, 2017 4:13:43 AM

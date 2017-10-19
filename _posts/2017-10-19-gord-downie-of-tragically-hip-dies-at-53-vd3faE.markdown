@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gord Downie of Tragically Hip dies at 53"
-date: 2017-10-19 01:48:52Z
+date: 2017-10-19 04:12:02Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Gord Downie, frontman of the Canadian rock band Tragically Hip, has died, his fa
 
 Full story on F3News: [Gord Downie of Tragically Hip dies at 53](http://www.f3nws.com/n/vd3faE)
 
-> Posted on: Thursday, October 19, 2017 1:48:52 AM
+> Posted on: Thursday, October 19, 2017 4:12:02 AM
