@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pixel 2 XL: What's up with that screen?     - CNET"
-date: 2017-10-19 01:02:53Z
+date: 2017-10-19 02:14:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Some people are complaining about the Pixel 2 XL's screen. But the issue isn't a
 
 Full story on F3News: [Pixel 2 XL: What's up with that screen?     - CNET](http://www.f3nws.com/n/qhnW2)
 
-> Posted on: Thursday, October 19, 2017 1:02:53 AM
+> Posted on: Thursday, October 19, 2017 2:14:35 AM
