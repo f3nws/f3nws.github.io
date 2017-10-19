@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Zealand to get youngest-ever female Prime Minister"
-date: 2017-10-19 13:14:17Z
+date: 2017-10-19 16:15:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jacinda Ardern will be the next New Zealand Prime Minister, after Winston Peters
 
 Full story on F3News: [New Zealand to get youngest-ever female Prime Minister](http://www.f3nws.com/n/gGZrDH)
 
-> Posted on: Thursday, October 19, 2017 1:14:17 PM
+> Posted on: Thursday, October 19, 2017 4:15:46 PM

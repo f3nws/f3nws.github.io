@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump reacts and a crisis is born"
-date: 2017-10-19 07:05:29Z
+date: 2017-10-19 16:12:56Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's chronic inability to turn the other cheek to a perceive
 
 Full story on F3News: [Trump reacts and a crisis is born](http://www.f3nws.com/n/zCD3mF)
 
-> Posted on: Thursday, October 19, 2017 7:05:29 AM
+> Posted on: Thursday, October 19, 2017 4:12:56 PM
