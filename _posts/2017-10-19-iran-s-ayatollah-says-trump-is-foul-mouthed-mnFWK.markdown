@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran's Ayatollah says Trump is 'foul-mouthed'"
-date: 2017-10-19 11:24:50Z
+date: 2017-10-19 15:10:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In his first comments after Donald Trump said he intended to decertify the Iran 
 
 Full story on F3News: [Iran's Ayatollah says Trump is 'foul-mouthed'](http://www.f3nws.com/n/mnFWK)
 
-> Posted on: Thursday, October 19, 2017 11:24:50 AM
+> Posted on: Thursday, October 19, 2017 3:10:44 PM
