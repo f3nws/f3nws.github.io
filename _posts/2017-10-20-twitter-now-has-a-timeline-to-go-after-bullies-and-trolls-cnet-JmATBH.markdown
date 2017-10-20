@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter now has a timeline to go after bullies and trolls     - CNET"
-date: 2017-10-20 00:06:56Z
+date: 2017-10-20 00:13:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ For the first time, the social network makes its safety calendar public. Now you
 
 Full story on F3News: [Twitter now has a timeline to go after bullies and trolls     - CNET](http://www.f3nws.com/n/JmATBH)
 
-> Posted on: Friday, October 20, 2017 12:06:56 AM
+> Posted on: Friday, October 20, 2017 12:13:23 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The simple yes-no question dividing Australia"
-date: 2017-10-20 00:25:56Z
+date: 2017-10-20 01:45:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Few issues have divided the Australian public in recent times as much as the vot
 
 Full story on F3News: [The simple yes-no question dividing Australia](http://www.f3nws.com/n/yrZRbH)
 
-> Posted on: Friday, October 20, 2017 12:25:56 AM
+> Posted on: Friday, October 20, 2017 1:45:37 AM
