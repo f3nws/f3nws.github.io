@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Your brain knows when you've just died, researchers say"
-date: 2017-10-20 07:25:11Z
+date: 2017-10-20 08:03:10Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Researchers from New York’s NYU Langone School of Medicine said in an intervie
 
 Full story on F3News: [Your brain knows when you've just died, researchers say](http://www.f3nws.com/n/BxpAqG)
 
-> Posted on: Friday, October 20, 2017 7:25:11 AM
+> Posted on: Friday, October 20, 2017 8:03:10 AM
