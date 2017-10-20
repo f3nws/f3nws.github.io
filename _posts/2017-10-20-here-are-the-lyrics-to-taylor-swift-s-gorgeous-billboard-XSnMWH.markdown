@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Here Are the Lyrics to Taylor Swift's 'Gorgeous' - Billboard](http://www.billboard.com/files/media/03-Taylor-Swift-press-photo-2017-a-billboard-1548.jpg)
 
-USA TODAY Here Are the Lyrics to Taylor Swift's 'Gorgeous' Billboard Since midnight, Swifties around the planet have been singing along to Taylor Swift's new number, "Gorgeous." Just to be sure you're doing it right, here are the full lyrics with the official lyric video at the bottom. Enjoy! Taylor Swift performs ... Taylor Swift's 'Gorgeous' Lyrics Decoded: All About the Singer's Romance with Boyfriend Joe Alwyn PEOPLE.com Taylor Swift's "Gorgeous" Lyrics Are (Almost) Definitely About Tom Hiddleston & Here Are All The Clues Bustle Kim Kardashian Refuses To Let Taylor Swift 'Bully' Kanye West With More Diss Tracks Hollywood Life NPR - Entertainment Tonight - USA TODAY - EW.com all 176 news articles »
+Billboard Here Are the Lyrics to Taylor Swift's 'Gorgeous' Billboard Since midnight, Swifties around the planet have been singing along to Taylor Swift's new number, "Gorgeous." Just to be sure you're doing it right, here are the full lyrics with the official lyric video at the bottom. Enjoy! Taylor Swift performs ... Taylor Swift's 'Gorgeous' Lyrics Decoded: All About the Singer's Romance with Boyfriend Joe Alwyn PEOPLE.com Kim Kardashian Refuses To Let Taylor Swift 'Bully' Kanye West With More Diss Tracks Hollywood Life Taylor Swift's "Gorgeous" Lyrics Are (Almost) Definitely About Tom Hiddleston & Here Are All The Clues Bustle NPR - Entertainment Tonight - EW.com - Cosmopolitan.com all 181 news articles »
 
 
 Full story on F3News: [Here Are the Lyrics to Taylor Swift's 'Gorgeous' - Billboard](http://www.f3nws.com/n/XSnMWH)
