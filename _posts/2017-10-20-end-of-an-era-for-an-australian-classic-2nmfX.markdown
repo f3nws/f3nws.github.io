@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "End of an era for an Australian classic"
-date: 2017-10-20 01:50:43Z
+date: 2017-10-20 07:07:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rock music plays on the radio in Romano Puntin's workshop which is littered with
 
 Full story on F3News: [End of an era for an Australian classic](http://www.f3nws.com/n/2nmfX)
 
-> Posted on: Friday, October 20, 2017 1:50:43 AM
+> Posted on: Friday, October 20, 2017 7:07:02 AM
