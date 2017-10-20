@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US preparing for North Korea's 'final step'"
-date: 2017-10-20 13:04:07Z
+date: 2017-10-20 22:30:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CIA Director Mike Pompeo said the United States has to act as if North Korea is 
 
 Full story on F3News: [US preparing for North Korea's 'final step'](http://www.f3nws.com/n/PMeGh)
 
-> Posted on: Friday, October 20, 2017 1:04:07 PM
+> Posted on: Friday, October 20, 2017 10:30:44 PM
