@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3-month-old rescued in sex trafficking crackdown"
-date: 2017-10-20 01:47:54Z
+date: 2017-10-20 09:50:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two sisters, one 5 years old and the other 3 months old, were rescued in Denver 
 
 Full story on F3News: [3-month-old rescued in sex trafficking crackdown](http://www.f3nws.com/n/PrnEDF)
 
-> Posted on: Friday, October 20, 2017 1:47:54 AM
+> Posted on: Friday, October 20, 2017 9:50:33 AM
