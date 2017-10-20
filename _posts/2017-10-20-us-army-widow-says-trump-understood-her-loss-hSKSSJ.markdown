@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US army widow says Trump understood her loss"
-date: 2017-10-20 14:34:10Z
+date: 2017-10-20 14:51:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Natasha De Alencar was sitting at home after a trip to Walmart in April when a p
 
 Full story on F3News: [US army widow says Trump understood her loss](http://www.f3nws.com/n/hSKSSJ)
 
-> Posted on: Friday, October 20, 2017 2:34:10 PM
+> Posted on: Friday, October 20, 2017 2:51:51 PM
