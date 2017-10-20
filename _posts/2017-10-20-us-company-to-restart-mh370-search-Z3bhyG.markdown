@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US company to restart MH370 search"
-date: 2017-10-20 07:28:55Z
+date: 2017-10-20 09:17:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US marine exploration company has agreed to restart the search for missing Mal
 
 Full story on F3News: [US company to restart MH370 search](http://www.f3nws.com/n/Z3bhyG)
 
-> Posted on: Friday, October 20, 2017 7:28:55 AM
+> Posted on: Friday, October 20, 2017 9:17:42 AM
