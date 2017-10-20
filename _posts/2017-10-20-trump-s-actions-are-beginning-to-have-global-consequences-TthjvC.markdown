@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's actions are beginning to have global consequences"
-date: 2017-10-20 11:47:18Z
+date: 2017-10-20 12:57:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The last time Baghdad sent troops into Kirkuk to kick out Kurdish forces, I was 
 
 Full story on F3News: [Trump's actions are beginning to have global consequences](http://www.f3nws.com/n/TthjvC)
 
-> Posted on: Friday, October 20, 2017 11:47:18 AM
+> Posted on: Friday, October 20, 2017 12:57:55 PM

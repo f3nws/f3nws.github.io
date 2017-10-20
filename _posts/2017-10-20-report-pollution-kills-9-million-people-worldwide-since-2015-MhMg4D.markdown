@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Pollution kills 9 million people worldwide since 2015"
-date: 2017-10-20 08:50:07Z
+date: 2017-10-20 13:27:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The fatal effects of pollution are seen across our planet.
 
 Full story on F3News: [Report: Pollution kills 9 million people worldwide since 2015](http://www.f3nws.com/n/MhMg4D)
 
-> Posted on: Friday, October 20, 2017 8:50:07 AM
+> Posted on: Friday, October 20, 2017 1:27:24 PM

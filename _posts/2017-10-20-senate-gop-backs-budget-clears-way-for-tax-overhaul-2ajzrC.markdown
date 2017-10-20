@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate GOP backs budget, clears way for tax overhaul"
-date: 2017-10-20 06:32:00Z
+date: 2017-10-20 09:17:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Republicans must now shift their focus to enacting President
 
 Full story on F3News: [Senate GOP backs budget, clears way for tax overhaul](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 20, 2017 6:32:00 AM
+> Posted on: Friday, October 20, 2017 9:17:00 AM
