@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Incessant rains, longstanding drainage problem to continue to bring sufferings"
-date: 2017-10-21 06:31:56Z
+date: 2017-10-21 10:33:00Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Incessant rains, longstanding drainage problem to continue to bring sufferings](http://www.f3nws.com/n/VGGVKD)
 
-> Posted on: Saturday, October 21, 2017 6:31:56 AM
+> Posted on: Saturday, October 21, 2017 10:33:00 AM
