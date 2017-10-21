@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Video shows Kelly made inaccurate claims about lawmaker in feud over Trump's condolence call - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/10/21/National-Politics/Images/Botsford171019Trump21355.JPG?t=20170517)
 
-Washington Post Video shows Kelly made inaccurate claims about lawmaker in feud over Trump's condolence call Washington Post The White House's aggressive effort to discredit a Florida congresswoman who criticized President Trump over a military condolence call ran into a new set of problems Friday when a video emerged showing that the chief of staff had made false claims ... After Video Refutes Kelly's Charges, Congresswoman Raises Issue of Race New York Times 'Trump is messing with the wrong woman' Politico John Kelly showed his true colors CNN The Hill - TIME - U.S. News & World Report - Los Angeles Times all 1,617 news articles »
+Washington Post Video shows Kelly made inaccurate claims about lawmaker in feud over Trump's condolence call Washington Post The White House's aggressive effort to discredit a Florida congresswoman who criticized President Trump over a military condolence call ran into a new set of problems Friday when a video emerged showing that the chief of staff had made false claims ... After Video Refutes Kelly's Charges, Congresswoman Raises Issue of Race New York Times 'Trump is messing with the wrong woman' Politico John Kelly showed his true colors CNN Los Angeles Times - PolitiFact - CBS News - ABC News all 1,385 news articles »
 
 
 Full story on F3News: [Video shows Kelly made inaccurate claims about lawmaker in feud over Trump's condolence call - Washington Post](http://www.f3nws.com/n/XSk4VB)

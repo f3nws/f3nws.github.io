@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Driver in Sydney charged after allegedly hitting police officer at 121kph to escape speeding fine - ABC Online"
-date: 2017-10-21 02:29:00Z
+date: 2017-10-21 02:33:11Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Driver in Sydney charged after allegedly hitting police officer at 12
 
 Full story on F3News: [Driver in Sydney charged after allegedly hitting police officer at 121kph to escape speeding fine - ABC Online](http://www.f3nws.com/n/tCDME)
 
-> Posted on: Saturday, October 21, 2017 2:29:00 AM
+> Posted on: Saturday, October 21, 2017 2:33:11 AM
