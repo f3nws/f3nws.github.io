@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump plans to release classified JFK documents"
-date: 2017-10-21 13:30:28Z
+date: 2017-10-21 15:16:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Saturday he intends to allow the release of classifi
 
 Full story on F3News: [Trump plans to release classified JFK documents](http://www.f3nws.com/n/P2raCG)
 
-> Posted on: Saturday, October 21, 2017 1:30:28 PM
+> Posted on: Saturday, October 21, 2017 3:16:08 PM
