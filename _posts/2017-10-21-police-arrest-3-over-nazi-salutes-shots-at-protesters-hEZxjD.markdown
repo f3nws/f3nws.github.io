@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police arrest 3 over Nazi salutes, shots at protesters"
-date: 2017-10-21 02:29:33Z
+date: 2017-10-21 18:56:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in Florida arrested three men who allegedly made Nazi salutes, repeated H
 
 Full story on F3News: [Police arrest 3 over Nazi salutes, shots at protesters](http://www.f3nws.com/n/hEZxjD)
 
-> Posted on: Saturday, October 21, 2017 2:29:33 AM
+> Posted on: Saturday, October 21, 2017 6:56:27 PM
