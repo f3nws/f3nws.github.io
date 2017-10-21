@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![DeVos Is Sued By 17 States; Richard Spencer And Colleges; Race and Student Loans - NPR](https://media.npr.org/assets/img/2017/10/20/ap_17292762862083_wide-10968d5fcfe9c4f9e2ca9ab010d68695bae0cf30.jpg?s=1400)
 
-NPR DeVos Is Sued By 17 States; Richard Spencer And Colleges; Race and Student Loans NPR A supporter of white nationalist Richard Spencer (center in white shirt) tries to cover up as he clashes with the crowd after a speech by Spencer on Thursday at the University of Florida in Gainesville. Chris O'Meara/AP hide caption. toggle caption. Ohio State University denies appearance by white nationalist Richard Spencer Chicago Tribune 3 Texans with extremist ties charged in shooting after Richard Spencer speech in Florida Dallas News (blog) Ohio State denies request to have Richard Spencer speak on campus The Hill (blog) Savannah Morning News - The Root - FOX40 - The Columbus Dispatch all 174 news articles »
+NPR DeVos Is Sued By 17 States; Richard Spencer And Colleges; Race and Student Loans NPR A supporter of white nationalist Richard Spencer (center in white shirt) tries to cover up as he clashes with the crowd after a speech by Spencer on Thursday at the University of Florida in Gainesville. Chris O'Meara/AP hide caption. toggle caption. Ohio State University denies appearance by white nationalist Richard Spencer Chicago Tribune 'Alt-Right' Richard Spencer Banned From Speaking on Campus By Ohio State University Newsweek 3 charged in shooting after Richard Spencer speech Philly.com Dallas News (blog) - The Hill (blog) - NBC4i.com - The Root all 211 news articles »
 
 
 Full story on F3News: [DeVos Is Sued By 17 States; Richard Spencer And Colleges; Race and Student Loans - NPR](http://www.f3nws.com/n/PQp42H)

@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Steve Bannon delivers blistering attack on former President George W. Bush - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171014123903-steve-bannon-season-of-war-gop-values-voters-sot-00002129-super-tease.jpg)
 
-CNN Steve Bannon delivers blistering attack on former President George W. Bush CNN Anaheim, California (CNN) Steve Bannon delivered a withering attack on George W. Bush Friday night, bluntly questioning the former President's intelligence and his grasp of the concepts that he outlined in a speech that he gave New York this week. Stephen K. Bannon brings his 'war' against the GOP establishment to California Los Angeles Times Bannon faults George W. Bush for 'destructive' presidency ABC News Bannon on Fire in CA: Three Standing Ovations at GOP Convention Keynote Breitbart News Sacramento Bee - Washington Examiner - U.S. News & World Report - KABC-TV all 67 news articles »
+CNN Steve Bannon delivers blistering attack on former President George W. Bush CNN Anaheim, California (CNN) Steve Bannon delivered a withering attack on George W. Bush Friday night, bluntly questioning the former President's intelligence and his grasp of the concepts that he outlined in a speech that he gave New York this week. Stephen Bannon takes fierce aim at George W. Bush in wake of speech seen as critical of President Trump Washington Post Bannon rips Bush, Silicon Valley 'lords of technology' Politico Bannon slams former President Bush as most 'destructive' president in ongoing attack to GOP establishment Fox News The Hill - Los Angeles Times - ABC News - Newsweek all 594 news articles »
 
 
 Full story on F3News: [Steve Bannon delivers blistering attack on former President George W. Bush - CNN](http://www.f3nws.com/n/fMJac)
