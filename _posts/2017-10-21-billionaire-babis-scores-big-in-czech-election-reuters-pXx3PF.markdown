@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Billionaire Babis scores big in Czech election - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20171021&t=2&i=1206420083&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPED9K059)
 
-Reuters Billionaire Babis scores big in Czech election Reuters PRAGUE (Reuters) - Czech billionaire Andrej Babis won a thumping victory in Saturday's parliamentary election, giving the anti-establishment businessman facing fraud charges a strong mandate to cut taxes, lift public investment and fight immigration. Czech Election Won by Anti-Establishment Party Led by Billionaire New York Times Populist billionaire's party wins big in Czech Republic Washington Post Czech election: Billionaire Babis wins by large margin BBC News USA TODAY - The Atlantic - Bloomberg - Breitbart News all 194 news articles »
+Reuters Billionaire Babis scores big in Czech election Reuters PRAGUE (Reuters) - Czech billionaire Andrej Babis won a thumping victory in Saturday's parliamentary election, giving the anti-establishment businessman facing fraud charges a strong mandate to cut taxes, lift public investment and fight immigration. Czech Election Won by Anti-Establishment Party Led by Billionaire New York Times Czech election: Billionaire Babis wins by large margin BBC News The Czech Republic's Fake News Problem The Atlantic USA TODAY - Washington Post - Bloomberg - U.S. News & World Report all 196 news articles »
 
 
 Full story on F3News: [Billionaire Babis scores big in Czech election - Reuters](http://www.f3nws.com/n/pXx3PF)
