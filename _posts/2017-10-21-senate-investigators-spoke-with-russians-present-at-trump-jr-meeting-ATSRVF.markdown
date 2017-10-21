@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate investigators spoke with Russians present at Trump Jr. meeting"
-date: 2017-10-21 00:39:36Z
+date: 2017-10-21 00:40:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senate intelligence committee investigators have spoken with several Russians wh
 
 Full story on F3News: [Senate investigators spoke with Russians present at Trump Jr. meeting](http://www.f3nws.com/n/ATSRVF)
 
-> Posted on: Saturday, October 21, 2017 12:39:36 AM
+> Posted on: Saturday, October 21, 2017 12:40:52 AM
