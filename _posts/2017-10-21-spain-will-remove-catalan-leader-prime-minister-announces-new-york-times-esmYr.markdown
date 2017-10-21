@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Spain Will Remove Catalan Leader, Prime Minister Announces - New York Times](https://static01.nyt.com/images/2017/10/22/world/22spain-2/22spain-2-facebookJumbo.jpg)
 
-New York Times Spain Will Remove Catalan Leader, Prime Minister Announces New York Times Prime Minister Mariano Rajoy of Spain announced that fresh regional elections would take place in Catalonia within six months. Credit Gabriel Bouys/Agence France-Presse — Getty Images. MADRID — In a first for Spain, Prime Minister Mariano Rajoy ... Catalonia crisis: Rajoy urges removal of region's leaders, new elections CNN Catalonia independence: Spain pushes to remove leaders BBC News Spain demands Catalonia elect new leaders weeks after region voted for independence Washington Post Reuters - U.S. News & World Report - Bloomberg - NBCNews.com all 595 news articles »
+New York Times Spain Will Remove Catalan Leader, Prime Minister Announces New York Times Prime Minister Mariano Rajoy of Spain announced that fresh regional elections would take place in Catalonia within six months. Credit Gabriel Bouys/Agence France-Presse — Getty Images. MADRID — In a first for Spain, Prime Minister Mariano Rajoy ... Catalonia crisis: Rajoy urges removal of region's leaders, new elections CNN Spain demands Catalonia elect new leaders weeks after region voted for independence Washington Post Spanish Prime Minister Takes Unprecedented Step To Dissolve Catalan Government NPR BBC News - Fox News - CBS News - Bloomberg all 611 news articles »
 
 
 Full story on F3News: [Spain Will Remove Catalan Leader, Prime Minister Announces - New York Times](http://www.f3nws.com/n/esmYr)

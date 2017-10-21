@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain's Rajoy to sack Catalan leaders amid independence standoff"
-date: 2017-10-21 13:34:17Z
+date: 2017-10-21 15:05:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Spanish Prime Minister Mariano Rajoy is expected to set out Saturday how his gov
 
 Full story on F3News: [Spain's Rajoy to sack Catalan leaders amid independence standoff](http://www.f3nws.com/n/avREzF)
 
-> Posted on: Saturday, October 21, 2017 1:34:17 PM
+> Posted on: Saturday, October 21, 2017 3:05:22 PM
