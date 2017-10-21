@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon's blistering attack on former President George W. Bush"
-date: 2017-10-21 05:48:05Z
+date: 2017-10-21 07:40:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Steve Bannon delivered a blistering attack on former President George W. Bush du
 
 Full story on F3News: [Bannon's blistering attack on former President George W. Bush](http://www.f3nws.com/n/fMJac)
 
-> Posted on: Saturday, October 21, 2017 5:48:05 AM
+> Posted on: Saturday, October 21, 2017 7:40:57 AM
