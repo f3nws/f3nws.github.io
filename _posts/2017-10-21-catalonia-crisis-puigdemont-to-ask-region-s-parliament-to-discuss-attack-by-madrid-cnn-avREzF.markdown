@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Catalonia crisis: Puigdemont to ask region's parliament to discuss 'attack' by Madrid - CNN"
-date: 2017-10-21 19:35:00Z
+date: 2017-10-21 19:37:47Z
 categories: cnn-com-top-stories
 ---
 
 ![Catalonia crisis: Puigdemont to ask region's parliament to discuss 'attack' by Madrid - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171021095424-mariano-rajoy-brussels-super-tease.jpg)
 
-CNN Catalonia crisis: Puigdemont to ask region's parliament to discuss 'attack' by Madrid CNN Barcelona, Spain (CNN) [Breaking news update, posted at 3:35 p.m. ET]. Catalan President Carles Puigdemont will ask the region's parliament to discuss Spain's attempt to curb Catalan self-government, he said Saturday in a televised address. "The ... Spanish government moves to take control of Catalonia The Hill Catalonia independence: Puigdemont 'will not accept' Rajoy plan BBC News Spain acts to sack Catalonia's government, take control of the region MarketWatch U.S. News & World Report - Minneapolis Star Tribune - Aljazeera.com - Daily Mail all 718 news articles »
+CNN Catalonia crisis: Puigdemont to ask region's parliament to discuss 'attack' by Madrid CNN Barcelona, Spain (CNN) With half a million people protesting in the streets of Barcelona, Catalan President Carles Puigdemont harshly denounced Spain's attempt to curb Catalan's regional government on Saturday but stopped short of declaring regional ... Spain Will Remove Catalonia Leader, Escalating Secession Crisis New York Times Spain Staging a 'Coup' in Catalonia, Parliament Official Says NBCNews.com Catalonia independence: Puigdemont 'will not accept' Rajoy plan BBC News SFGate - MarketWatch - ThinkProgress - Las Vegas Review-Journal all 750 news articles »
 
 
 Full story on F3News: [Catalonia crisis: Puigdemont to ask region's parliament to discuss 'attack' by Madrid - CNN](http://www.f3nws.com/n/avREzF)
 
-> Posted on: Saturday, October 21, 2017 7:35:00 PM
+> Posted on: Saturday, October 21, 2017 7:37:47 PM

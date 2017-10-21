@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WHO under fire after Mugabe named 'goodwill' ambassador"
-date: 2017-10-21 11:58:30Z
+date: 2017-10-21 19:44:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The World Health Organization is under fire after it selected Zimbabwean Preside
 
 Full story on F3News: [WHO under fire after Mugabe named 'goodwill' ambassador](http://www.f3nws.com/n/eYCGWD)
 
-> Posted on: Saturday, October 21, 2017 11:58:30 AM
+> Posted on: Saturday, October 21, 2017 7:44:45 PM
