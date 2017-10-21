@@ -7,7 +7,7 @@ categories: bgr
 
 ![Apple won't try and upsell iPhone buyers on the iPhone X - BGR](https://boygeniusreport.files.wordpress.com/2017/10/iphone-x-in-hand.jpg?quality=98&strip=all)
 
-BGR Apple won't try and upsell iPhone buyers on the iPhone X BGR Amid reports that iPhone 8 sales are reportedly falling below expectations, with the CEO of Rogers Communications going so far as to call iPhone 8 demand “anemic,” Apple's financial prospects for the next year rest heavily on the company's highly ... There Might Only Be 3 Million iPhone X Units Ready for Launch Motley Fool Apple invites Upgrade Program members to 'get a head start on your upgrade to iPhone X' 9to5Mac iPhone X Pre-Order Pre-Approval For iPhone Upgrade Program Customers Starts October 23 Forbes Engadget - CNET - Mac Rumors - AppleInsider (press release) (blog) all 85 news articles »
+BGR Apple won't try and upsell iPhone buyers on the iPhone X BGR Amid reports that iPhone 8 sales are reportedly falling below expectations, with the CEO of Rogers Communications going so far as to call iPhone 8 demand “anemic,” Apple's financial prospects for the next year rest heavily on the company's highly ... Apple invites Upgrade Program members to 'get a head start on your upgrade to iPhone X' 9to5Mac iPhone X Pre-Order Pre-Approval For iPhone Upgrade Program Customers Starts October 23 Forbes Apple Allowing iPhone Upgrade Program Customers to Get a 'Head Start' on iPhone X Upgrade Mac Rumors CNET - Engadget - AppleInsider (press release) (blog) - The Mac Observer all 91 news articles »
 
 
 Full story on F3News: [Apple won't try and upsell iPhone buyers on the iPhone X - BGR](http://www.f3nws.com/n/hRZajD)
