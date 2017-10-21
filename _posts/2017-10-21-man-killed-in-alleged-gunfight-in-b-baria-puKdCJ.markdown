@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man killed in alleged gunfight in B’baria"
-date: 2017-10-21 07:45:09Z
+date: 2017-10-21 10:36:15Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Man killed in alleged gunfight in B’baria](http://www.f3nws.com/n/puKdCJ)
 
-> Posted on: Saturday, October 21, 2017 7:45:09 AM
+> Posted on: Saturday, October 21, 2017 10:36:15 AM
