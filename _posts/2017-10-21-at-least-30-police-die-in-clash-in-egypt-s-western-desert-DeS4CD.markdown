@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![At least 30 police die in clash in Egypt's Western desert](https://static.toiimg.com/photo/msid-61160247/61160247.jpg?72281)
 
-The security sources said authorities were following a lead to a hideout deep in the desert thought to house eight suspected members of Hasm, a group which has claimed several attacks around the capital targeting judges and police since last year.
+Egypt is facing an Islamist insurgency concentrated in the Sinai peninsula from two main groups, including an Islamic State affiliate, that has killed hundreds of security forces since 2013.
 
 
 Full story on F3News: [At least 30 police die in clash in Egypt's Western desert](http://www.f3nws.com/n/DeS4CD)
