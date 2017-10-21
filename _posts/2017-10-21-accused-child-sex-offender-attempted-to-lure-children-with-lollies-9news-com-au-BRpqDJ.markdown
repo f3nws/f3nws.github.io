@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Accused child sex offender attempted to 'lure children with lollies' - 9news.com.au"
-date: 2017-10-21 10:00:06Z
+date: 2017-10-21 10:27:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ categories: google-news-australia
 
 Full story on F3News: [Accused child sex offender attempted to 'lure children with lollies' - 9news.com.au](http://www.f3nws.com/n/BRpqDJ)
 
-> Posted on: Saturday, October 21, 2017 10:00:06 AM
+> Posted on: Saturday, October 21, 2017 10:27:00 AM

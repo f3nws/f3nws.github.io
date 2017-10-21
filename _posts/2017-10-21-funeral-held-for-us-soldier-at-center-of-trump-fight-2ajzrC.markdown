@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Funeral held for US soldier at center of Trump fight"
-date: 2017-10-21 17:27:00Z
+date: 2017-10-21 17:57:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ COOPER CITY, Fla. (AP) — Mourners remembered not only a U.S. soldier whose com
 
 Full story on F3News: [Funeral held for US soldier at center of Trump fight](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, October 21, 2017 5:27:00 PM
+> Posted on: Saturday, October 21, 2017 5:57:00 PM
