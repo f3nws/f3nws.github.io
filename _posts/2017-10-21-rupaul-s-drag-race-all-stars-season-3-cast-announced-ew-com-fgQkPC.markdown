@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![RuPaul's Drag Race All Stars season 3 cast announced - EW.com](https://ewedit.files.wordpress.com/2017/10/klkl.jpg)
 
-EW.com RuPaul's Drag Race All Stars season 3 cast announced EW.com Just between us squirrel friends, EW has an exclusive first look at the full cast from the upcoming season of RuPaul's Drag Race All Stars 3. As part of a previously announced one-hour VH1 special, the two-time Emmy-winning host and drag queen ... RuPaul Reveals the Queens Competing in 'RuPaul's Drag Race All Stars' Season 3 Variety Aja, Shangela & More Returning for 'RuPaul's Drag Race All Stars' Season 3 Us Weekly RuPaul's Drag Race All Stars Season 3 Cast Revealed — Who Will Reign? TVLine NewNowNext - VH1.com (blog) - Chron.com - Queerty all 24 news articles »
+EW.com RuPaul's Drag Race All Stars season 3 cast announced EW.com Just between us squirrel friends, EW has an exclusive first look at the full cast from the upcoming season of RuPaul's Drag Race All Stars 3. As part of a previously announced one-hour VH1 special, the two-time Emmy-winning host and drag queen ... Who Will Be The 10th Queen On 'RuPaul's Drag Race: All Stars 3'? The Final Contestant Remains A Mystery Bustle RuPaul Reveals the Queens Competing in 'RuPaul's Drag Race All Stars' Season 3 Variety Aja, Shangela & More Returning for 'RuPaul's Drag Race All Stars' Season 3 Us Weekly TVLine - NewNowNext - The Inquisitr - VH1.com (blog) all 26 news articles »
 
 
 Full story on F3News: [RuPaul's Drag Race All Stars season 3 cast announced - EW.com](http://www.f3nws.com/n/fgQkPC)
