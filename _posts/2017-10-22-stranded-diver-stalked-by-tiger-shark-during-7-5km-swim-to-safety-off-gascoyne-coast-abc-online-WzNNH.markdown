@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stranded diver stalked by tiger shark during 7.5km swim to safety off Gascoyne coast - ABC Online"
-date: 2017-10-22 04:21:34Z
+date: 2017-10-22 04:33:11Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Stranded diver stalked by tiger shark during 7.5km swim to safety off
 
 Full story on F3News: [Stranded diver stalked by tiger shark during 7.5km swim to safety off Gascoyne coast - ABC Online](http://www.f3nws.com/n/WzNNH)
 
-> Posted on: Sunday, October 22, 2017 4:21:34 AM
+> Posted on: Sunday, October 22, 2017 4:33:11 AM
