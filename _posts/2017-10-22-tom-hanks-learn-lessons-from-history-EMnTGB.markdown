@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tom Hanks: Learn lessons from history"
-date: 2017-10-22 03:00:01Z
+date: 2017-10-22 11:48:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Academy Award-winning actor Tom Hanks on Saturday night urged the importance of 
 
 Full story on F3News: [Tom Hanks: Learn lessons from history](http://www.f3nws.com/n/EMnTGB)
 
-> Posted on: Sunday, October 22, 2017 3:00:01 AM
+> Posted on: Sunday, October 22, 2017 11:48:44 AM
