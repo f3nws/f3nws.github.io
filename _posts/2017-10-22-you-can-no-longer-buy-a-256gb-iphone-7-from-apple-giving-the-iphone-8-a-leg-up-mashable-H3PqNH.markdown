@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "You can no longer buy a 256GB iPhone 7 from Apple, giving the iPhone 8 a leg up - Mashable"
-date: 2017-10-22 15:19:26Z
+date: 2017-10-22 13:47:00Z
 categories: mashable
 ---
 
@@ -12,4 +12,4 @@ Mashable You can no longer buy a 256GB iPhone 7 from Apple, giving the iPhone 8 
 
 Full story on F3News: [You can no longer buy a 256GB iPhone 7 from Apple, giving the iPhone 8 a leg up - Mashable](http://www.f3nws.com/n/H3PqNH)
 
-> Posted on: Sunday, October 22, 2017 3:19:26 PM
+> Posted on: Sunday, October 22, 2017 1:47:00 PM
