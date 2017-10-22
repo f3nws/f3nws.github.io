@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Report listing RT’s guests is designed to intimidate'"
-date: 2017-10-22 02:08:12Z
+date: 2017-10-22 02:08:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A new report by a US-funded Czech think tank that targeted RT’s on-air guests 
 
 Full story on F3News: [‘Report listing RT’s guests is designed to intimidate'](http://www.f3nws.com/n/xHsKQH)
 
-> Posted on: Sunday, October 22, 2017 2:08:12 AM
+> Posted on: Sunday, October 22, 2017 2:08:00 AM
