@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![More than 30 women come forward to accuse director James Toback of sexual harassment - Los Angeles Times](http://www.trbimg.com/img-59ec722f/turbine/la-et-mn-james-toback-sexual-harassment-allegations-20171018)
 
-Los Angeles Times More than 30 women come forward to accuse director James Toback of sexual harassment Los Angeles Times He prowled the streets of Manhattan looking for attractive young women, usually in their early 20s, sometimes college students, on occasion a high schooler. He approached them in Central Park, standing in line at a bank or drug store or at a copy ... and more »
+Los Angeles Times More than 30 women come forward to accuse director James Toback of sexual harassment Los Angeles Times He prowled the streets of Manhattan looking for attractive young women, usually in their early 20s, sometimes college students, on occasion a high schooler. He approached them in Central Park, standing in line at a bank or drug store or at a copy ... 30-plus women accuse James Toback of sexual harassment, misconduct Death and Taxes Writer/Director James Toback Accused of Sexual Harassment By 38 Women Mediaite More than 30 women accuse Hollywood director James Toback of 'dry-humping their legs, masturbating in front of them ... Daily Mail all 5 news articles »
 
 
 Full story on F3News: [More than 30 women come forward to accuse director James Toback of sexual harassment - Los Angeles Times](http://www.f3nws.com/n/JaaAW)

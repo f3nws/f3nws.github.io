@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Carter: I'd go to work for Trump"
-date: 2017-10-22 10:55:26Z
+date: 2017-10-22 12:51:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump may have found an unlikely ally in the presidents' club.
 
 Full story on F3News: [Jimmy Carter: I'd go to work for Trump](http://www.f3nws.com/n/EZKHu)
 
-> Posted on: Sunday, October 22, 2017 10:55:26 AM
+> Posted on: Sunday, October 22, 2017 12:51:45 PM
