@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why China has so few female leaders"
-date: 2017-10-22 05:24:48Z
+date: 2017-10-22 10:20:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The biggest event in China's political calendar is currently taking place in Bei
 
 Full story on F3News: [Why China has so few female leaders](http://www.f3nws.com/n/rmYnZC)
 
-> Posted on: Sunday, October 22, 2017 5:24:48 AM
+> Posted on: Sunday, October 22, 2017 10:20:06 AM

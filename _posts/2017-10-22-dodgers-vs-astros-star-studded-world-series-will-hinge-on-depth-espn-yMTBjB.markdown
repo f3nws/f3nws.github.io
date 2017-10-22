@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Dodgers vs. Astros: Star-studded World Series will hinge on depth - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1020%2Fastros_dodgers_16x9.jpg)
 
-ESPN Dodgers vs. Astros: Star-studded World Series will hinge on depth ESPN This is one Fall Classic that has a great chance to live up to its name. The Houston Astros will play the Los Angeles Dodgers -- the first showdown of 100-win teams since the Baltimore Orioles and Cincinnati Reds met in 1970. The Astros were born in ... Despite Game 7 loss, the Yankees' youth movement remains well ahead of schedule CBSSports.com Astros Shove Aside the Yankees and Head to the World Series New York Times Astros to face Dodgers in World Series after shutting out Yankees in Game 7 of ALCS Los Angeles Times New York Post - Washington Post - Sports Illustrated - SFGate all 838 news articles »
+ESPN Dodgers vs. Astros: Star-studded World Series will hinge on depth ESPN This is one Fall Classic that has a great chance to live up to its name. The Houston Astros will play the Los Angeles Dodgers -- the first showdown of 100-win teams since the Baltimore Orioles and Cincinnati Reds met in 1970. The Astros were born in ... Astros Shove Aside the Yankees and Head to the World Series New York Times Despite Game 7 loss, the Yankees' youth movement remains well ahead of schedule CBSSports.com Astros to face Dodgers in World Series after shutting out Yankees in Game 7 of ALCS Los Angeles Times New York Post - Sports Illustrated - Bleacher Report - Yahoo Sports all 934 news articles »
 
 
 Full story on F3News: [Dodgers vs. Astros: Star-studded World Series will hinge on depth - ESPN](http://www.f3nws.com/n/yMTBjB)
