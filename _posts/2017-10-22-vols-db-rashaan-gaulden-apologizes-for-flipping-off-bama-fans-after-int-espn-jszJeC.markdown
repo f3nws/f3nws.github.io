@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Vols DB Rashaan Gaulden apologizes for flipping off Bama fans after INT - ESPN](http://a.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F0505%2Fr80351_1296x729_16%2D9.jpg)
 
-ESPN Vols DB Rashaan Gaulden apologizes for flipping off Bama fans after INT ESPN TUSCALOOSA, Ala. -- Tennessee defensive back Rashaan Gaulden flipped off the Alabama student section with both hands after a 97-yard interception return resulted in a touchdown Saturday. Tennessee's Rashaan Gaulden apologizes for flipping off Alabama fans NBCSports.com Roll Tide: No. 1 Alabama routs rival Tennessee 45-7 Washington Post Vols football has a future, even if it was hard to read in Alabama The Tennessean CBSSports.com - Knoxville News Sentinel - Yahoo Sports - Bleacher Report all 291 news articles »
+ESPN Vols DB Rashaan Gaulden apologizes for flipping off Bama fans after INT ESPN TUSCALOOSA, Ala. -- Tennessee defensive back Rashaan Gaulden apologized after he flipped off the Alabama student section with both hands following the Volunteers' 97-yard interception return for a touchdown midway through the third quarter of ... The 45-7 Alabama win over Tennessee, one quarter at a time AL.com Tennessee's Rashaan Gaulden apologizes for flipping off Alabama fans NBCSports.com Tim Tebow, bless his heart, tries to fire up Tennessee ahead of Alabama game Washington Post The Tennessean - CBSSports.com - Montgomery Advertiser - Knoxville News Sentinel all 315 news articles »
 
 
 Full story on F3News: [Vols DB Rashaan Gaulden apologizes for flipping off Bama fans after INT - ESPN](http://www.f3nws.com/n/jszJeC)
