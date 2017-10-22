@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mugabe removed as WHO ambassador amid outcry"
-date: 2017-10-22 13:02:00Z
+date: 2017-10-22 14:48:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwean President Robert Mugabe may be one of the longest-serving leaders, bu
 
 Full story on F3News: [Mugabe removed as WHO ambassador amid outcry](http://www.f3nws.com/n/cWgvBD)
 
-> Posted on: Sunday, October 22, 2017 1:02:00 PM
+> Posted on: Sunday, October 22, 2017 2:48:35 PM
