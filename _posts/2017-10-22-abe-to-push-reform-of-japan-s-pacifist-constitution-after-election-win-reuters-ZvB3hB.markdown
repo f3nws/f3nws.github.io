@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Abe to push reform of Japan's pacifist constitution after election win - Reuters"
-date: 2017-10-22 16:54:48Z
+date: 2017-10-22 00:03:25Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Reuters Abe to push reform of Japan's pacifist constitution after election win R
 
 Full story on F3News: [Abe to push reform of Japan's pacifist constitution after election win - Reuters](http://www.f3nws.com/n/ZvB3hB)
 
-> Posted on: Sunday, October 22, 2017 4:54:48 PM
+> Posted on: Sunday, October 22, 2017 12:03:25 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump on North Korea: 'We're prepared for anything'"
-date: 2017-10-22 16:02:40Z
+date: 2017-10-22 20:03:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump boasted that the US is "prepared for anything" when it co
 
 Full story on F3News: [Trump on North Korea: 'We're prepared for anything'](http://www.f3nws.com/n/dpEgYD)
 
-> Posted on: Sunday, October 22, 2017 4:02:40 PM
+> Posted on: Sunday, October 22, 2017 8:03:36 PM
