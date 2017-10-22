@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mammoth typhoon closes in on Japan"
-date: 2017-10-22 16:39:10Z
+date: 2017-10-22 17:53:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mammoth typhoon is closing in on Japan, hurling dangerous winds and threatenin
 
 Full story on F3News: [Mammoth typhoon closes in on Japan](http://www.f3nws.com/n/akntgF)
 
-> Posted on: Sunday, October 22, 2017 4:39:10 PM
+> Posted on: Sunday, October 22, 2017 5:53:36 PM
