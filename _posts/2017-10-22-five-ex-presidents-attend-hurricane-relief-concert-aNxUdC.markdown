@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Five ex-Presidents attend hurricane relief concert"
-date: 2017-10-22 03:17:59Z
+date: 2017-10-22 14:29:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Members of an exclusive club made a rare joint appearance Saturday.
 
 Full story on F3News: [Five ex-Presidents attend hurricane relief concert](http://www.f3nws.com/n/aNxUdC)
 
-> Posted on: Sunday, October 22, 2017 3:17:59 AM
+> Posted on: Sunday, October 22, 2017 2:29:06 PM

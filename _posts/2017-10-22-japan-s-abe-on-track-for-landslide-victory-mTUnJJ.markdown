@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan's Abe on track for landslide victory"
-date: 2017-10-22 12:33:02Z
+date: 2017-10-22 13:55:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japanese Prime Minister Shinzo Abe appears on course to win a decisive third ter
 
 Full story on F3News: [Japan's Abe on track for landslide victory](http://www.f3nws.com/n/mTUnJJ)
 
-> Posted on: Sunday, October 22, 2017 12:33:02 PM
+> Posted on: Sunday, October 22, 2017 1:55:35 PM
