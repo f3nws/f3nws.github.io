@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Banged up for a ‘what’s up?’: Israelis arrest Palestinian man over mistranslated FB greeting"
-date: 2017-10-22 07:16:59Z
+date: 2017-10-22 07:16:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ An erroneous automatic translation has triggered Israeli police in the West Bank
 
 Full story on F3News: [Banged up for a ‘what’s up?’: Israelis arrest Palestinian man over mistranslated FB greeting](http://www.f3nws.com/n/r3ygGG)
 
-> Posted on: Sunday, October 22, 2017 7:16:59 AM
+> Posted on: Sunday, October 22, 2017 7:16:00 AM
