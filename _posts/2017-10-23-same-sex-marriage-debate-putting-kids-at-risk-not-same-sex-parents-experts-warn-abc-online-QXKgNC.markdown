@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Same-sex marriage debate putting kids at risk, not same-sex parents, experts warn - ABC Online](http://www.abc.net.au/cm/rimage/9075592-1x1-large.jpg?v=7)
 
-ABC Online Same-sex marriage debate putting kids at risk, not same-sex parents, experts warn ABC Online Children raised by same-sex parents do as well as their peers, an Australian research analysis has found. (Getty Images: svetikd). Share. Share on Facebook · Share on Twitter · Share on WhatsApp; Print; Mail; Other share options. Reddit · Tumblr ... Yes campaign increasingly concerned about millions of same-sex marriage supporters who may never vote NEWS.com.au The controversial No campaign ad banned from daytime TV SBS 'No' campaign ad deemed too rude for TV prime time The New Daily Yahoo7 News - Australian Journal of Pharmacy (blog) - The Sunshine Coast Daily - The Australian all 57 news articles »
+ABC Online Same-sex marriage debate putting kids at risk, not same-sex parents, experts warn ABC Online Children raised by same-sex parents do as well as their peers, an Australian research analysis has found. (Getty Images: svetikd). Share. Share on Facebook · Share on Twitter · Share on WhatsApp; Print; Mail; Other share options. Reddit · Tumblr ... Yes campaign increasingly concerned about millions of same-sex marriage supporters who may never vote NEWS.com.au The controversial No campaign ad banned from daytime TV SBS 'No' campaign ad deemed too rude for TV prime time The New Daily Yahoo7 News - The Sunshine Coast Daily - Australian Journal of Pharmacy (blog) - The Australian all 59 news articles »
 
 
 Full story on F3News: [Same-sex marriage debate putting kids at risk, not same-sex parents, experts warn - ABC Online](http://www.f3nws.com/n/QXKgNC)

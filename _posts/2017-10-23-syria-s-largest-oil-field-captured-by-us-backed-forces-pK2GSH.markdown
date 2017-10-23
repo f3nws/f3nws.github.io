@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria's largest oil field captured by US-backed forces"
-date: 2017-10-23 10:37:18Z
+date: 2017-10-23 10:47:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US-backed Kurdish and Arab forces say they have captured Syria's largest oil fie
 
 Full story on F3News: [Syria's largest oil field captured by US-backed forces](http://www.f3nws.com/n/pK2GSH)
 
-> Posted on: Monday, October 23, 2017 10:37:18 AM
+> Posted on: Monday, October 23, 2017 10:47:56 AM

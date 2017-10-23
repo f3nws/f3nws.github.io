@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![McCain hits Trump where it hurts, attacking 'bone spur' deferments in Vietnam - Washington Post](https://img.washingtonpost.com/pbox.php?url=http://img.washingtonpost.com/blogs/the-fix/files/2017/07/johnmccain_b.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post McCain hits Trump where it hurts, attacking 'bone spur' deferments in Vietnam Washington Post After a week in which President Trump endured not-so-veiled criticisms from his two predecessors as president and Sen. John McCain (R-Ariz.), McCain delivered another broadside that seems clearly aimed at Trump — in the most personal terms yet. McCain ... McCain Takes Swipe At President For Vietnam 'Bone Spur' Deferment NPR McCain appears to mock Trump's draft deferments CNN McCain blasts Vietnam War 'bone spur' deferments in apparent swipe at Trump ABC News TIME - The Hill - Fox News - Business Insider all 59 news articles »
+Washington Post McCain hits Trump where it hurts, attacking 'bone spur' deferments in Vietnam Washington Post After a week in which President Trump endured not-so-veiled criticisms from his two predecessors as president and Sen. John McCain (R-Ariz.), McCain delivered another broadside that seems clearly aimed at Trump — in the most personal terms yet. McCain ... McCain appears to mock Trump's draft deferments CNN McCain Takes Swipe At President For Vietnam 'Bone Spur' Deferment NPR McCain appears to criticize Trump's draft deferment with 'bone spur' quip Politico TIME - The Hill - ABC News - Business Insider all 73 news articles »
 
 
 Full story on F3News: [McCain hits Trump where it hurts, attacking 'bone spur' deferments in Vietnam - Washington Post](http://www.f3nws.com/n/QvhbeH)
