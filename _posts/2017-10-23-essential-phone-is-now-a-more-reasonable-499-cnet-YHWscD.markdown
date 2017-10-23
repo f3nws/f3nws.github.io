@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Essential Phone is now a more reasonable $499     - CNET"
-date: 2017-10-23 01:22:34Z
+date: 2017-10-23 03:39:09Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The phone is now $200 cheaper, with the company saying it chose the price drop o
 
 Full story on F3News: [Essential Phone is now a more reasonable $499     - CNET](http://www.f3nws.com/n/YHWscD)
 
-> Posted on: Monday, October 23, 2017 1:22:34 AM
+> Posted on: Monday, October 23, 2017 3:39:09 AM
