@@ -5,6 +5,8 @@ date: 2017-10-23 10:46:07Z
 categories: the-verge
 ---
 
+![Samsung drags Apple back to court for a retrial over $400 million patent damages](https://cdn.vox-cdn.com/thumbor/8o9BCpbVojOqJumoYBJGXtqsi9M=/0x115:900x586/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9515723/samsung_apple_patent_infringement_lawsuit.jpg)
+
 
 
 
