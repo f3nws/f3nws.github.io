@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump to address bullying in surprise trip to Michigan"
-date: 2017-10-23 11:04:49Z
+date: 2017-10-23 17:43:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ First lady Melania Trump is making good on a promise she made earlier this year 
 
 Full story on F3News: [Melania Trump to address bullying in surprise trip to Michigan](http://www.f3nws.com/n/EQCkn)
 
-> Posted on: Monday, October 23, 2017 11:04:49 AM
+> Posted on: Monday, October 23, 2017 5:43:26 PM
