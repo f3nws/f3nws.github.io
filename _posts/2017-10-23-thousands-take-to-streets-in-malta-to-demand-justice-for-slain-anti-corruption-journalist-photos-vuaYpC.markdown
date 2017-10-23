@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thousands take to streets in Malta to demand justice for slain anti-corruption journalist (PHOTOS)"
-date: 2017-10-23 03:44:35Z
+date: 2017-10-23 03:44:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Thousands of people poured into the streets of the Maltese capital, Valletta, on
 
 Full story on F3News: [Thousands take to streets in Malta to demand justice for slain anti-corruption journalist (PHOTOS)](http://www.f3nws.com/n/vuaYpC)
 
-> Posted on: Monday, October 23, 2017 3:44:35 AM
+> Posted on: Monday, October 23, 2017 3:44:00 AM
