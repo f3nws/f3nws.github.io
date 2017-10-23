@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shinzo Abe on track for landslide victory, exit polls show"
-date: 2017-10-23 08:00:12Z
+date: 2017-10-23 13:21:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japanese Prime Minister Shinzo Abe and his ruling coalition are on course for a 
 
 Full story on F3News: [Shinzo Abe on track for landslide victory, exit polls show](http://www.f3nws.com/n/mTUnJJ)
 
-> Posted on: Monday, October 23, 2017 8:00:12 AM
+> Posted on: Monday, October 23, 2017 1:21:22 PM
