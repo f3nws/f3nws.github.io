@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US official sorry after Indonesian military chief denied entry"
-date: 2017-10-23 18:06:31Z
+date: 2017-10-23 20:23:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The chief of Indonesia's military was denied entry to the United States on Satur
 
 Full story on F3News: [US official sorry after Indonesian military chief denied entry](http://www.f3nws.com/n/DNChDD)
 
-> Posted on: Monday, October 23, 2017 6:06:31 PM
+> Posted on: Monday, October 23, 2017 8:23:49 PM
