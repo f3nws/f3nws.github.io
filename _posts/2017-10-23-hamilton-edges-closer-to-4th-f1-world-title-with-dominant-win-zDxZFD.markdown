@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hamilton edges closer to 4th F1 world title with dominant win"
-date: 2017-10-23 08:04:43Z
+date: 2017-10-23 10:22:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lewis Hamilton has moved a step closer to a fourth Formula One world title follo
 
 Full story on F3News: [Hamilton edges closer to 4th F1 world title with dominant win](http://www.f3nws.com/n/zDxZFD)
 
-> Posted on: Monday, October 23, 2017 8:04:43 AM
+> Posted on: Monday, October 23, 2017 10:22:51 AM
