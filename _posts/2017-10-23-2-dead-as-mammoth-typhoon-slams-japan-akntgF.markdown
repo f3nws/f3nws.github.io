@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 dead as mammoth typhoon slams Japan"
-date: 2017-10-23 04:57:32Z
+date: 2017-10-23 07:22:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mammoth typhoon is closing in on Japan, hurling dangerous winds and threatenin
 
 Full story on F3News: [2 dead as mammoth typhoon slams Japan](http://www.f3nws.com/n/akntgF)
 
-> Posted on: Monday, October 23, 2017 4:57:32 AM
+> Posted on: Monday, October 23, 2017 7:22:45 AM
