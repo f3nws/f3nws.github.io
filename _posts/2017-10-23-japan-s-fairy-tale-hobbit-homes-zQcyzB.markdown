@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan's fairy tale hobbit homes"
-date: 2017-10-23 01:37:14Z
+date: 2017-10-23 02:21:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Viewed from afar it looks like something magical: A fairytale village, a group o
 
 Full story on F3News: [Japan's fairy tale hobbit homes](http://www.f3nws.com/n/zQcyzB)
 
-> Posted on: Monday, October 23, 2017 1:37:14 AM
+> Posted on: Monday, October 23, 2017 2:21:11 AM
