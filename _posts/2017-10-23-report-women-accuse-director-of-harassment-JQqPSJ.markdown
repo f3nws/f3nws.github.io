@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Women accuse director of harassment"
-date: 2017-10-23 05:43:04Z
+date: 2017-10-23 08:24:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Numerous women have accused Hollywood screenwriter and director James Toback of 
 
 Full story on F3News: [Report: Women accuse director of harassment](http://www.f3nws.com/n/JQqPSJ)
 
-> Posted on: Monday, October 23, 2017 5:43:04 AM
+> Posted on: Monday, October 23, 2017 8:24:19 AM
