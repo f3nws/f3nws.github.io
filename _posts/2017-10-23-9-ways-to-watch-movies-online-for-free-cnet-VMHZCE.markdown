@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "9 ways to watch movies online for free     - CNET"
-date: 2017-10-23 19:41:45Z
+date: 2017-10-23 20:57:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Only the popcorn will cost you. Well, that and the internet connection for your 
 
 Full story on F3News: [9 ways to watch movies online for free     - CNET](http://www.f3nws.com/n/VMHZCE)
 
-> Posted on: Monday, October 23, 2017 7:41:45 PM
+> Posted on: Monday, October 23, 2017 8:57:55 PM
