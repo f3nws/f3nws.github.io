@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Abe targets N Korea after 'super-majority' vote win](https://static.toiimg.com/photo/msid-61178450/61178450.jpg?75630)
 
-Prime Minister Shinzo Abe stormed to a landslide "super-majority" in snap Japanese elections, near complete projections showed Monday, with the hardline nationalist immediately pledging to "deal firmly" with North Korea.
+PM Shinzo Abe stormed to a landslide "super-majority" in snap Japanese elections, near complete projections showed Monday, with the hardline nationalist immediately pledging to "deal firmly" with North Korea.
 
 
 Full story on F3News: [Abe targets N Korea after 'super-majority' vote win](http://www.f3nws.com/n/qky2AF)
