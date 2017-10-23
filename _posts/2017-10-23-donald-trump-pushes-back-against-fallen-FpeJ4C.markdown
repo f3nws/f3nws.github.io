@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump pushes back against fallen..."
-date: 2017-10-23 16:31:12Z
+date: 2017-10-23 16:31:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ The president is challenging the credibility of a fallen U.S. soldier's pregnant
 
 Full story on F3News: [Donald Trump pushes back against fallen...](http://www.f3nws.com/n/FpeJ4C)
 
-> Posted on: Monday, October 23, 2017 4:31:12 PM
+> Posted on: Monday, October 23, 2017 4:31:00 PM
