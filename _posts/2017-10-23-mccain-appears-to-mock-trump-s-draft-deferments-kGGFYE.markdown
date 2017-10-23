@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McCain appears to mock Trump's draft deferments"
-date: 2017-10-23 10:11:38Z
+date: 2017-10-23 12:23:13Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. John McCain, in an interview about the Vietnam War, appeared to take a swip
 
 Full story on F3News: [McCain appears to mock Trump's draft deferments](http://www.f3nws.com/n/kGGFYE)
 
-> Posted on: Monday, October 23, 2017 10:11:38 AM
+> Posted on: Monday, October 23, 2017 12:23:13 PM
