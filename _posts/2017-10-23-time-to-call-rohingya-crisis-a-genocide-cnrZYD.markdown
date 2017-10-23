@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Time to call Rohingya crisis a genocide"
-date: 2017-10-23 11:44:39Z
+date: 2017-10-23 15:31:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Rohingya crisis in Myanmar is now widely described as ethnic cleansing. But 
 
 Full story on F3News: [Time to call Rohingya crisis a genocide](http://www.f3nws.com/n/cnrZYD)
 
-> Posted on: Monday, October 23, 2017 11:44:39 AM
+> Posted on: Monday, October 23, 2017 3:31:27 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump just hit a new low in the La David Johnson fiasco"
-date: 2017-10-23 14:13:52Z
+date: 2017-10-23 14:48:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Calling the widow of an American soldier killed in action is, emotionally speaki
 
 Full story on F3News: [Trump just hit a new low in the La David Johnson fiasco](http://www.f3nws.com/n/HVcGEE)
 
-> Posted on: Monday, October 23, 2017 2:13:52 PM
+> Posted on: Monday, October 23, 2017 2:48:18 PM
