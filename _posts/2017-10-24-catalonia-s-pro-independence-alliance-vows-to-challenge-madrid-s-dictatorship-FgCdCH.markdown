@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia’s pro-independence alliance vows to challenge Madrid’s ‘dictatorship’"
-date: 2017-10-24 02:00:25Z
+date: 2017-10-24 02:00:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Catalan pro-independence parliamentary group, Junts pel Sí, has promised to leg
 
 Full story on F3News: [Catalonia’s pro-independence alliance vows to challenge Madrid’s ‘dictatorship’](http://www.f3nws.com/n/FgCdCH)
 
-> Posted on: Tuesday, October 24, 2017 2:00:25 AM
+> Posted on: Tuesday, October 24, 2017 2:00:00 AM
