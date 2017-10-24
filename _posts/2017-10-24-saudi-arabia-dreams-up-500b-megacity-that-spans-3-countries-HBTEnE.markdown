@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia dreams up $500B megacity that spans 3 countries"
-date: 2017-10-24 16:15:41Z
+date: 2017-10-24 20:12:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Saudi Arabia dreams up $500B megacity that spans 3 countries](http://www.f3nws.com/n/HBTEnE)
 
-> Posted on: Tuesday, October 24, 2017 4:15:41 PM
+> Posted on: Tuesday, October 24, 2017 8:12:52 PM
