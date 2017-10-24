@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republican senator Corker delivers scathing interview on US President"
-date: 2017-10-24 17:05:07Z
+date: 2017-10-24 19:34:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump ripped Sen. Bob Corker on Tuesday morning after the Tenne
 
 Full story on F3News: [Republican senator Corker delivers scathing interview on US President](http://www.f3nws.com/n/uN4z3E)
 
-> Posted on: Tuesday, October 24, 2017 5:05:07 PM
+> Posted on: Tuesday, October 24, 2017 7:34:23 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bob Corker's most devastating lines on Trump, ranked"
-date: 2017-10-24 15:28:45Z
+date: 2017-10-24 19:12:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hours before Donald Trump was set to huddle with Senate Republicans to rally sup
 
 Full story on F3News: [Bob Corker's most devastating lines on Trump, ranked](http://www.f3nws.com/n/HRhMGD)
 
-> Posted on: Tuesday, October 24, 2017 3:28:45 PM
+> Posted on: Tuesday, October 24, 2017 7:12:50 PM
