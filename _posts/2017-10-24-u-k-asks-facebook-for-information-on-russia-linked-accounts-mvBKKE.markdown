@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "U.K. asks Facebook for information on Russia-linked accounts"
-date: 2017-10-24 11:31:46Z
+date: 2017-10-24 11:55:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Facebook is facing more questions over Russian-linked ads -- this time in Britai
 
 Full story on F3News: [U.K. asks Facebook for information on Russia-linked accounts](http://www.f3nws.com/n/mvBKKE)
 
-> Posted on: Tuesday, October 24, 2017 11:31:46 AM
+> Posted on: Tuesday, October 24, 2017 11:55:59 AM
