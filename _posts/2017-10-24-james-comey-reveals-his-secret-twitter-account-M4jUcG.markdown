@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "James Comey reveals his secret Twitter account"
-date: 2017-10-24 07:03:44Z
+date: 2017-10-24 10:15:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former FBI Director James Comey revealed his secret Twitter account Monday with 
 
 Full story on F3News: [James Comey reveals his secret Twitter account](http://www.f3nws.com/n/M4jUcG)
 
-> Posted on: Tuesday, October 24, 2017 7:03:44 AM
+> Posted on: Tuesday, October 24, 2017 10:15:16 AM

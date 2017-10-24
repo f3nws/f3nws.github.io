@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Police raid cotton farm over alleged Murray-Darling Basin fraud](http://www.abc.net.au/news/image/9080026-1x1-700x700.jpg)
 
-Police raid a large cotton farm near Goondiwindi on the New South Wales-Queensland border as part of a major criminal investigation into possible fraudulent use of Commonwealth Murray-Darling Basin funds.
+Police raid a large cotton farm operated by former Cotton Grower of the Year John Norman as part of a major criminal investigation into possible fraudulent use of Commonwealth Murray-Darling Basin funds.
 
 
 Full story on F3News: [Police raid cotton farm over alleged Murray-Darling Basin fraud](http://www.f3nws.com/n/3GQg2H)
