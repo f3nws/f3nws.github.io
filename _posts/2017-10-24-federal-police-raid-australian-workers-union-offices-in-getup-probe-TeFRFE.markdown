@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Federal police raid Australian Workers' Union offices in GetUp probe](http://www.abc.net.au/news/image/9081638-1x1-700x700.jpg)
 
-Federal police raid the AWU headquarters in Melbourne and Sydney over donations made to GetUp, one day after it was revealed the Australian Electoral Commission is investigating the activist group's funding.
+The Australian Federal Police launch raids on the Australian Workers' Union offices in Melbourne and Sydney, as it investigates payments made by the union when Opposition Leader Bill Shorten was Secretary.
 
 
 Full story on F3News: [Federal police raid Australian Workers' Union offices in GetUp probe](http://www.f3nws.com/n/TeFRFE)
