@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The jacket that diagnoses pneumonia"
-date: 2017-10-24 12:17:54Z
+date: 2017-10-24 12:54:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Getting a pneumonia diagnosis wrong can be fatal. As Ugandan inventor Brian Tury
 
 Full story on F3News: [The jacket that diagnoses pneumonia](http://www.f3nws.com/n/KxvSsC)
 
-> Posted on: Tuesday, October 24, 2017 12:17:54 PM
+> Posted on: Tuesday, October 24, 2017 12:54:45 PM
