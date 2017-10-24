@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lonely Planet's top 10 cities for 2018"
-date: 2017-10-24 13:07:52Z
+date: 2017-10-24 14:25:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Known for its celebratory street life, excellent tapas scene and the near consta
 
 Full story on F3News: [Lonely Planet's top 10 cities for 2018](http://www.f3nws.com/n/BdtmkD)
 
-> Posted on: Tuesday, October 24, 2017 1:07:52 PM
+> Posted on: Tuesday, October 24, 2017 2:25:05 PM
