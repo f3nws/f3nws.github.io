@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP Sen. Jeff Flake won't seek re-election in 2018"
-date: 2017-10-24 20:30:00Z
+date: 2017-10-24 21:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Arizona Republican Sen. Jeff Flake, facing a tough primary fight, announced Tues
 
 Full story on F3News: [GOP Sen. Jeff Flake won't seek re-election in 2018](http://www.f3nws.com/n/rrWccH)
 
-> Posted on: Tuesday, October 24, 2017 8:30:00 PM
+> Posted on: Tuesday, October 24, 2017 9:00:00 PM
