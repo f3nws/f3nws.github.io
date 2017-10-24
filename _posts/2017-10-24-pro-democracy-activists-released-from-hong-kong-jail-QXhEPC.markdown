@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pro-democracy activists released from Hong Kong jail"
-date: 2017-10-24 08:40:08Z
+date: 2017-10-24 08:48:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two leaders of Hong Kong's pro-democracy movement jailed in August have been rel
 
 Full story on F3News: [Pro-democracy activists released from Hong Kong jail](http://www.f3nws.com/n/QXhEPC)
 
-> Posted on: Tuesday, October 24, 2017 8:40:08 AM
+> Posted on: Tuesday, October 24, 2017 8:48:41 AM
