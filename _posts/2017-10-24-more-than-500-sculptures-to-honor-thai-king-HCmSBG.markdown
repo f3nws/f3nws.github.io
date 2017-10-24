@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More than 500 sculptures to honor Thai King"
-date: 2017-10-24 01:09:35Z
+date: 2017-10-24 02:37:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Preparations for the late Thai King Bhumibol Adulyadej's cremation have been und
 
 Full story on F3News: [More than 500 sculptures to honor Thai King](http://www.f3nws.com/n/HCmSBG)
 
-> Posted on: Tuesday, October 24, 2017 1:09:35 AM
+> Posted on: Tuesday, October 24, 2017 2:37:09 AM
