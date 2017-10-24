@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jeff Flake bemoans US President's 'flagrant disregard for the truth' in speech on Senate floor"
-date: 2017-10-24 21:26:07Z
+date: 2017-10-24 22:03:43Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republican Sen. Jeff Flake of Arizona, who has sparred frequently with President
 
 Full story on F3News: [Jeff Flake bemoans US President's 'flagrant disregard for the truth' in speech on Senate floor](http://www.f3nws.com/n/znXNWG)
 
-> Posted on: Tuesday, October 24, 2017 9:26:07 PM
+> Posted on: Tuesday, October 24, 2017 10:03:43 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sessions: All bets are off in hunt for MS-13 street gang"
-date: 2017-10-24 20:45:02Z
+date: 2017-10-24 22:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ U.S. Attorney General Jeff Sessions on Monday promised an all-out assault on the
 
 Full story on F3News: [Sessions: All bets are off in hunt for MS-13 street gang](http://www.f3nws.com/n/sjm3pH)
 
-> Posted on: Tuesday, October 24, 2017 8:45:02 PM
+> Posted on: Tuesday, October 24, 2017 10:45:02 PM
