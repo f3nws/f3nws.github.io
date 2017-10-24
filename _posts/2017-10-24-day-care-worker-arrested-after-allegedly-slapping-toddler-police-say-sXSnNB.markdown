@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Day care worker arrested  after allegedly slapping toddler, police say"
-date: 2017-10-24 00:45:02Z
+date: 2017-10-24 01:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A New York woman was arrested Thursday for allegedly slapping a toddler on multi
 
 Full story on F3News: [Day care worker arrested  after allegedly slapping toddler, police say](http://www.f3nws.com/n/sXSnNB)
 
-> Posted on: Tuesday, October 24, 2017 12:45:02 AM
+> Posted on: Tuesday, October 24, 2017 1:45:02 AM

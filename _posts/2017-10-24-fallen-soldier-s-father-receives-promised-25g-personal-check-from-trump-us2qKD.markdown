@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fallen soldier's father receives promised $25G personal check from Trump"
-date: 2017-10-24 00:30:00Z
+date: 2017-10-24 01:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Almost a week after the father of a soldier killed overseas said President Trump
 
 Full story on F3News: [Fallen soldier's father receives promised $25G personal check from Trump](http://www.f3nws.com/n/us2qKD)
 
-> Posted on: Tuesday, October 24, 2017 12:30:00 AM
+> Posted on: Tuesday, October 24, 2017 1:15:00 AM
