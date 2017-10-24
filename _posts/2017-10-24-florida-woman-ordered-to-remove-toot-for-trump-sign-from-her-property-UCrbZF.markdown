@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Florida woman ordered to remove 'Toot for Trump' sign from her property"
-date: 2017-10-24 01:25:00Z
+date: 2017-10-24 02:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Florida woman who had a pro-Donald Trump sign standing on her property for mor
 
 Full story on F3News: [Florida woman ordered to remove 'Toot for Trump' sign from her property](http://www.f3nws.com/n/UCrbZF)
 
-> Posted on: Tuesday, October 24, 2017 1:25:00 AM
+> Posted on: Tuesday, October 24, 2017 2:15:00 AM
