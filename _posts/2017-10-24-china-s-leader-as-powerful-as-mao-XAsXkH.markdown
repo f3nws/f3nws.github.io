@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China's leader as powerful as Mao"
-date: 2017-10-24 10:39:17Z
+date: 2017-10-24 10:45:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ China has elevated the stature of President Xi Jinping by including his politica
 
 Full story on F3News: [China's leader as powerful as Mao](http://www.f3nws.com/n/XAsXkH)
 
-> Posted on: Tuesday, October 24, 2017 10:39:17 AM
+> Posted on: Tuesday, October 24, 2017 10:45:08 AM

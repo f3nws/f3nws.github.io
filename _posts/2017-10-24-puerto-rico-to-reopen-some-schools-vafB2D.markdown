@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico to reopen some schools"
-date: 2017-10-24 07:05:18Z
+date: 2017-10-24 11:23:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Some public schools in Puerto Rico will begin to reopen Tuesday, a small step to
 
 Full story on F3News: [Puerto Rico to reopen some schools](http://www.f3nws.com/n/vafB2D)
 
-> Posted on: Tuesday, October 24, 2017 7:05:18 AM
+> Posted on: Tuesday, October 24, 2017 11:23:24 AM

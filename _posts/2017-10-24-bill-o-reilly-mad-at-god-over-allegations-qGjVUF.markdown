@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill O'Reilly 'mad at God' over allegations"
-date: 2017-10-24 02:25:18Z
+date: 2017-10-24 11:16:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Bill O'Reilly claims The New York Times' latest bombshell is just "another smear
 
 Full story on F3News: [Bill O'Reilly 'mad at God' over allegations](http://www.f3nws.com/n/qGjVUF)
 
-> Posted on: Tuesday, October 24, 2017 2:25:18 AM
+> Posted on: Tuesday, October 24, 2017 11:16:00 AM
