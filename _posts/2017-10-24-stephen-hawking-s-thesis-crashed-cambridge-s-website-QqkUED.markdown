@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stephen Hawking's thesis crashed Cambridge's website"
-date: 2017-10-24 17:08:46Z
+date: 2017-10-24 18:23:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For the first time ever, influential British scientist Stephen Hawking's doctora
 
 Full story on F3News: [Stephen Hawking's thesis crashed Cambridge's website](http://www.f3nws.com/n/QqkUED)
 
-> Posted on: Tuesday, October 24, 2017 5:08:46 PM
+> Posted on: Tuesday, October 24, 2017 6:23:21 PM

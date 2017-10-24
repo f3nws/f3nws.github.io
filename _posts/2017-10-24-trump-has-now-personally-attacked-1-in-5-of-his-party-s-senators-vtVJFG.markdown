@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump has now personally attacked 1 in 5 of his party's senators"
-date: 2017-10-24 17:36:27Z
+date: 2017-10-24 18:21:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Just hours before President Donald Trump is set to head to Capitol Hill to meet 
 
 Full story on F3News: [Trump has now personally attacked 1 in 5 of his party's senators](http://www.f3nws.com/n/vtVJFG)
 
-> Posted on: Tuesday, October 24, 2017 5:36:27 PM
+> Posted on: Tuesday, October 24, 2017 6:21:30 PM
