@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Black passengers warned about flying American Airlines"
-date: 2017-10-25 18:31:18Z
+date: 2017-10-25 19:13:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The NAACP has warned African-American travelers to be careful when flying with A
 
 Full story on F3News: [Black passengers warned about flying American Airlines](http://www.f3nws.com/n/aK4QCF)
 
-> Posted on: Wednesday, October 25, 2017 6:31:18 PM
+> Posted on: Wednesday, October 25, 2017 7:13:38 PM

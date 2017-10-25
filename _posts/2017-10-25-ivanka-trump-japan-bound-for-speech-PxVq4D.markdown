@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump Japan-bound for speech"
-date: 2017-10-25 02:32:28Z
+date: 2017-10-25 18:45:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump is heading to Japan next week, where she will deliver a speech at t
 
 Full story on F3News: [Ivanka Trump Japan-bound for speech](http://www.f3nws.com/n/PxVq4D)
 
-> Posted on: Wednesday, October 25, 2017 2:32:28 AM
+> Posted on: Wednesday, October 25, 2017 6:45:15 PM
