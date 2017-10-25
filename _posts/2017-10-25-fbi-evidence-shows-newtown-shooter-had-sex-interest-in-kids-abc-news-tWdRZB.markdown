@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![FBI: Evidence shows Newtown shooter had sex interest in kids - ABC News](http://a.abcnews.com/images/US/WireAP_0a1a9cf037bc41bf8f7280d5b776ffa1_16x9_992.jpg)
 
-USA TODAY FBI: Evidence shows Newtown shooter had sex interest in kids ABC News Add Sandy Hook as an interest to stay up to date on the latest Sandy Hook news, video, and analysis from ABC News. Sandy Hook. Add Interest. There was evidence the Newtown school shooter had an interest in children that could be categorized as ... Unsealed FBI docs paint disturbing portrait of Sandy Hook shooter Adam Lanza CNN FBI releases files on Sandy Hook massacre The Hill Newly released FBI documents reveal disturbing details about Sandy Hook shooter Adam Lanza USA TODAY New York Daily News - New York Post - Syracuse.com - UPI.com all 53 news articles »
+TIME FBI: Evidence shows Newtown shooter had sex interest in kids ABC News Add Sandy Hook as an interest to stay up to date on the latest Sandy Hook news, video, and analysis from ABC News. Sandy Hook. Add Interest. There was evidence the Newtown school shooter had an interest in children that could be categorized as ... Unsealed FBI docs paint disturbing portrait of Sandy Hook shooter Adam Lanza CNN FBI releases files on Sandy Hook massacre The Hill Newly released FBI documents reveal disturbing details about Sandy Hook shooter Adam Lanza USA TODAY New York Daily News - Fox News - New York Post - Newsweek all 58 news articles »
 
 
 Full story on F3News: [FBI: Evidence shows Newtown shooter had sex interest in kids - ABC News](http://www.f3nws.com/n/tWdRZB)
