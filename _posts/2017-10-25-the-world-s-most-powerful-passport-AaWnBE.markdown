@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The world's most powerful passport"
-date: 2017-10-25 05:17:28Z
+date: 2017-10-25 09:46:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When it comes to global travel, not all passports are created equal. But which o
 
 Full story on F3News: [The world's most powerful passport](http://www.f3nws.com/n/AaWnBE)
 
-> Posted on: Wednesday, October 25, 2017 5:17:28 AM
+> Posted on: Wednesday, October 25, 2017 9:46:49 AM
