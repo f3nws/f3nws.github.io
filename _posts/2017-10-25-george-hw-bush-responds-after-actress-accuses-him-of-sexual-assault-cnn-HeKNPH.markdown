@@ -7,7 +7,7 @@ categories: cnn-com-entertainment
 
 ![George HW Bush responds after actress accuses him of sexual assault - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171025082130-heather-lind-george-bush-split-super-tease.jpg)
 
-CNN George HW Bush responds after actress accuses him of sexual assault CNN (CNN) Former president George H.W. Bush has responded after an actress alleged that he touched her inappropriately while he was sitting in his wheelchair during a photo op that took place a few years ago. In a now deleted Instagram post published on ... George Bush Senior apology to Heather Lind after sex assault claim BBC News An actress accused George HW Bush of groping her. The former president has apologized. Washington Post Who is Heather Lind, the actress who accused George HW Bush of sexual assault? USA TODAY HuffPost - RollingStone.com - The Hill (blog) - Business Insider all 172 news articles »
+CNN George HW Bush responds after actress accuses him of sexual assault CNN (CNN) Former president George H.W. Bush has responded after an actress alleged that he touched her inappropriately while he was sitting in his wheelchair during a photo op that took place a few years ago. In a now deleted Instagram post published on ... George Bush Senior apology to Heather Lind after sex assault claim BBC News An actress accused George HW Bush of groping her. The former president has apologized. Washington Post George HW Bush Apologizes After Actress Claims He “Sexually Assaulted” Her Deadline The Hill (blog) - Business Insider - NBCNews.com - Salon all 189 news articles »
 
 
 Full story on F3News: [George HW Bush responds after actress accuses him of sexual assault - CNN](http://www.f3nws.com/n/HeKNPH)

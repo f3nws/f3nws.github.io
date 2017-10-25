@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Man killed in attack outside his Brisbane home 'didn't have enemies', friends say - ABC Online](http://www.abc.net.au/news/image/9082960-1x1-700x700.jpg)
 
-ABC Online Man killed in attack outside his Brisbane home 'didn't have enemies', friends say ABC Online A 35-year-old father of four who was killed after going to investigate a power issue outside his Kuraby home on Brisbane's southside this morning was a popular member of the community who "didn't have any enemies", a friend has said. Police said ... Brisbane murderer on the run Sky News Australia Slain Brisbane dad may have been lured out by killer 9news.com.au Brisbane man 'lured' outside before fatal stabbing The Australian SBS - Courier Mail - The Sydney Morning Herald - NEWS.com.au all 30 news articles »
+ABC Online Man killed in attack outside his Brisbane home 'didn't have enemies', friends say ABC Online A 35-year-old father of four who was killed after going to investigate a power issue outside his Kuraby home on Brisbane's southside this morning was a popular member of the community who "didn't have any enemies", a friend has said. Police said ... Brisbane murderer on the run Sky News Australia Slain Brisbane dad may have been lured out by killer 9news.com.au Brisbane man 'lured' outside before fatal stabbing The Australian SBS - Courier Mail - The Sydney Morning Herald - NEWS.com.au all 33 news articles »
 
 
 Full story on F3News: [Man killed in attack outside his Brisbane home 'didn't have enemies', friends say - ABC Online](http://www.f3nws.com/n/SY3aqF)

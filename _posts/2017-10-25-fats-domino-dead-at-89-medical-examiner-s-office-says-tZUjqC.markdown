@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fats Domino dead at 89, medical examiner's office says"
-date: 2017-10-25 16:59:25Z
+date: 2017-10-25 19:53:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Antoine "Fats" Domino, a titan of early rock 'n' roll whose piano-based hits -- 
 
 Full story on F3News: [Fats Domino dead at 89, medical examiner's office says](http://www.f3nws.com/n/tZUjqC)
 
-> Posted on: Wednesday, October 25, 2017 4:59:25 PM
+> Posted on: Wednesday, October 25, 2017 7:53:20 PM
