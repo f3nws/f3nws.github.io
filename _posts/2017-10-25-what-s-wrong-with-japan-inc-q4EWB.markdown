@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![What's wrong with Japan Inc?](http://i2.cdn.turner.com/money/dam/assets/171023085201-japan-inc-corporate-scandals-780x439.jpg)
 
-
+Top Japanese companies are doing damage control once again.
 
 
 Full story on F3News: [What's wrong with Japan Inc?](http://www.f3nws.com/n/q4EWB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Einstein's handwritten notes sell for $1.8M"
-date: 2017-10-25 05:41:52Z
+date: 2017-10-25 07:44:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two handwritten notes penned by Albert Einstein have been sold at an auction for
 
 Full story on F3News: [Einstein's handwritten notes sell for $1.8M](http://www.f3nws.com/n/SNhttH)
 
-> Posted on: Wednesday, October 25, 2017 5:41:52 AM
+> Posted on: Wednesday, October 25, 2017 7:44:13 AM
