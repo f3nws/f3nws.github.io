@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man killed in attack outside his Brisbane home 'didn't have enemies', friends say - ABC Online"
-date: 2017-10-25 04:56:00Z
+date: 2017-10-25 05:04:49Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online Man killed in attack outside his Brisbane home 'didn't have enemies',
 
 Full story on F3News: [Man killed in attack outside his Brisbane home 'didn't have enemies', friends say - ABC Online](http://www.f3nws.com/n/SY3aqF)
 
-> Posted on: Wednesday, October 25, 2017 4:56:00 AM
+> Posted on: Wednesday, October 25, 2017 5:04:49 AM
