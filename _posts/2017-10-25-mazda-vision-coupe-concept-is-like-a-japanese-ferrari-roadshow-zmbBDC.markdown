@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mazda Vision Coupe concept is like a Japanese Ferrari     - Roadshow"
-date: 2017-10-25 04:38:45Z
+date: 2017-10-25 05:45:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It's a sleek little number that tells us the future of Mazda's design language w
 
 Full story on F3News: [Mazda Vision Coupe concept is like a Japanese Ferrari     - Roadshow](http://www.f3nws.com/n/zmbBDC)
 
-> Posted on: Wednesday, October 25, 2017 4:38:45 AM
+> Posted on: Wednesday, October 25, 2017 5:45:06 AM
