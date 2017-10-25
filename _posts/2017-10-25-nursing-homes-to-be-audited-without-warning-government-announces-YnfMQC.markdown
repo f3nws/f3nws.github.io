@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Nursing homes to be audited without warning, Government announces](http://www.abc.net.au/news/image/8511160-1x1-700x700.jpg)
 
-Nursing homes will no longer get any warning they are about to be audited under a big Commonwealth shake-up of the aged care industry.
+Barb and Clive Spriggs' complaints about the Oakden nursing home rocked the aged care sector to its core. Now the Federal Government says it will send auditors into care homes with no notice in a bid to tighten standards in the sector.
 
 
 Full story on F3News: [Nursing homes to be audited without warning, Government announces](http://www.f3nws.com/n/YnfMQC)
