@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Half a million dishwashers recalled due to risk of fire     - CNET"
-date: 2017-10-25 00:44:29Z
+date: 2017-10-25 02:23:46Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ An overheating power cord is causing an issue with certain dishwashers. Check to
 
 Full story on F3News: [Half a million dishwashers recalled due to risk of fire     - CNET](http://www.f3nws.com/n/sC43KC)
 
-> Posted on: Wednesday, October 25, 2017 12:44:29 AM
+> Posted on: Wednesday, October 25, 2017 2:23:46 AM
