@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton campaign, DNC helped fund research that led to salacious Trump dossier"
-date: 2017-10-25 00:15:00Z
+date: 2017-10-25 01:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The controversial dossier containing salacious allegations about President Donal
 
 Full story on F3News: [Clinton campaign, DNC helped fund research that led to salacious Trump dossier](http://www.f3nws.com/n/epzbvC)
 
-> Posted on: Wednesday, October 25, 2017 12:15:00 AM
+> Posted on: Wednesday, October 25, 2017 1:30:00 AM
