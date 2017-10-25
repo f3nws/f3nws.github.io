@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Marilyn Manson Splits With Twiggy Ramirez After Rape Allegations - RollingStone.com](http://img.wennermedia.com/social/gettyimages-105667433-4cd54aea-4884-44e1-ab52-1add110ac137.jpg)
 
-RollingStone.com Marilyn Manson Splits With Twiggy Ramirez After Rape Allegations RollingStone.com Marilyn Manson has split with his longtime bassist and guitarist Twiggy Ramirez after the musician was accused of rape. Credit: Jason LaVeris/Getty. By Jon Blistein. 8 hours ago. More News. Marilyn Manson Founding Guitarist Daisy Berkowitz Dead at 49 ... Marilyn Manson Splits With Bassist Twiggy Ramirez After Rape Accusations Billboard Marilyn Manson parts ways with bassist Twiggy Ramirez after rape accusation New York Daily News TWIGGY RAMIREZ Fired From MARILYN MANSON's Band After Ex-Girlfriend's Rape Accusation BLABBERMOUTH.NET Vulture - UPROXX - Heavy.com - BBC News all 33 news articles »
+RollingStone.com Marilyn Manson Splits With Twiggy Ramirez After Rape Allegations RollingStone.com Marilyn Manson has split with his longtime bassist and guitarist Twiggy Ramirez after the musician was accused of rape. Credit: Jason LaVeris/Getty. By Jon Blistein. 8 hours ago. More News. Marilyn Manson Founding Guitarist Daisy Berkowitz Dead at 49 ... Marilyn Manson Splits With Bassist Twiggy Ramirez After Rape Accusations Billboard Marilyn Manson parts ways with bassist Twiggy Ramirez after rape accusation New York Daily News TWIGGY RAMIREZ Fired From MARILYN MANSON's Band After Ex-Girlfriend's Rape Accusation BLABBERMOUTH.NET Vulture - UPROXX - Heavy.com - BBC News all 34 news articles »
 
 
 Full story on F3News: [Marilyn Manson Splits With Twiggy Ramirez After Rape Allegations - RollingStone.com](http://www.f3nws.com/n/zauFZG)
