@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Fats Domino, Rock and Roll Pioneer, Dead at 89 - RollingStone.com](http://img.wennermedia.com/social/fats-domino-dead-87bb9d92-d14f-428f-af60-e1a02f7e9ef1.jpg)
 
-RollingStone.com Fats Domino, Rock and Roll Pioneer, Dead at 89 RollingStone.com Fats Domino, rock and roll pioneer who penned classics like "I'm Walkin" and "Ain't That a Shame" and popularized "Blueberry Hill," has died at 89. Everett Collection. Fats Domino, the genial, good-natured symbol of the dawn of rock and roll and the ... Fats Domino, Architect Of Rock And Roll, Dead At 89 NPR Fats Domino, 89, One of Rock 'n' Roll's First Stars, Is Dead New York Times Rock Pioneer Fats Domino Dies at 89 Billboard CNN - Washington Post - BBC News - Variety all 135 news articles »
+RollingStone.com Fats Domino, Rock and Roll Pioneer, Dead at 89 RollingStone.com Fats Domino, the genial, good-natured symbol of the dawn of rock and roll and the voice and piano behind enduring hits like "Blueberry Hill" and "Ain't That a Shame," died Tuesday at the age of 89. Mark Bone, chief investigator with the Jefferson ... Fats Domino, Early Rock 'n' Roller With a Boogie-Woogie Piano, Is Dead at 89 New York Times Fats Domino, Architect Of Rock 'N' Roll, Dead At 89 NPR Fats Domino's 10 Best Songs: Critic's Picks Billboard SFGate - Washington Post - Variety - Los Angeles Times all 251 news articles »
 
 
 Full story on F3News: [Fats Domino, Rock and Roll Pioneer, Dead at 89 - RollingStone.com](http://www.f3nws.com/n/NQW3vF)
