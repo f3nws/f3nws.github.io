@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![I'm Playing The Animal Crossing Phone Game, And It's Pretty Good - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--7wvWZMy1--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/qqe6xowsrdqqt77szfd1.jpg)
 
-Kotaku I'm Playing The Animal Crossing Phone Game, And It's Pretty Good Kotaku Animal Crossing: Pocket Camp isn't supposed to be out until November, but for some reason Android owners in Australia can download and play the game right now. And hey, I'm an Android owner in Australia, so let me show you how this thing actually works ... Nintendo Reveals Animal Crossing: Pocket Camp PCMag Animal Crossing: Pocket Camp coming to your phone in November CNET Nintendo announces Animal Crossing Pocket Camp for Mobile; Details GameZone BGR - Tech Times - Bloomberg - Android Headlines all 221 news articles »
+Kotaku I'm Playing The Animal Crossing Phone Game, And It's Pretty Good Kotaku Animal Crossing: Pocket Camp isn't supposed to be out until November, but for some reason Android owners in Australia can download and play the game right now. And hey, I'm an Android owner in Australia, so let me show you how this thing actually works ... Nintendo Reveals Animal Crossing: Pocket Camp PCMag Animal Crossing: Pocket Camp coming to your phone in November CNET Nintendo announces Animal Crossing Pocket Camp for Mobile; Details GameZone Android Headlines - BGR - Tech Times - Crunchyroll News all 234 news articles »
 
 
 Full story on F3News: [I'm Playing The Animal Crossing Phone Game, And It's Pretty Good - Kotaku](http://www.f3nws.com/n/UGKZuH)

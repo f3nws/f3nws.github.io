@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Guillaume, 'Benson' star, dies at 89"
-date: 2017-10-25 03:11:30Z
+date: 2017-10-25 14:31:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actor Robert Guillaume, best known for his title role in the TV series "Benson,"
 
 Full story on F3News: [Robert Guillaume, 'Benson' star, dies at 89](http://www.f3nws.com/n/2Qu3SC)
 
-> Posted on: Wednesday, October 25, 2017 3:11:30 AM
+> Posted on: Wednesday, October 25, 2017 2:31:46 PM

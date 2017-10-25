@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Cash admits staffer told media about federal police raids on AWU offices](http://www.abc.net.au/news/image/8372396-1x1-700x700.jpg)
 
-Labor is demanding Employment Minister Michaelia Cash resign after she admitted one of her staffers tipped off the media about yesterday's police raids on the Australian Workers' Union.
+Labor is demanding Employment Minister Michaelia Cash resign after she admitted one of her staffers tipped off the media about Tuesday's police raids on the Australian Workers' Union.
 
 
 Full story on F3News: [Cash admits staffer told media about federal police raids on AWU offices](http://www.f3nws.com/n/qQ3KaC)
