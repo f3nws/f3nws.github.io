@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton campaign helped fund Russia-Trump dossier research"
-date: 2017-10-25 02:23:45Z
+date: 2017-10-25 18:04:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hillary Clinton's presidential campaign and the Democratic National Committee he
 
 Full story on F3News: [Clinton campaign helped fund Russia-Trump dossier research](http://www.f3nws.com/n/aXZkqH)
 
-> Posted on: Wednesday, October 25, 2017 2:23:45 AM
+> Posted on: Wednesday, October 25, 2017 6:04:34 PM
