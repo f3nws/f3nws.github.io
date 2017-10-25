@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean official: Take hydrogen bomb threat 'literally'"
-date: 2017-10-25 19:50:45Z
+date: 2017-10-25 22:20:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A senior North Korean official has issued a stern warning to the world that it s
 
 Full story on F3News: [North Korean official: Take hydrogen bomb threat 'literally'](http://www.f3nws.com/n/qfCttG)
 
-> Posted on: Wednesday, October 25, 2017 7:50:45 PM
+> Posted on: Wednesday, October 25, 2017 10:20:51 PM

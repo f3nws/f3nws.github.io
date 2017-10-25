@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean defector describes 'life of hell' for Christians"
-date: 2017-10-25 21:45:03Z
+date: 2017-10-25 22:45:05Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Choi Kwanghyuk is one of the lucky ones. He was able to free himself from the cl
 
 Full story on F3News: [North Korean defector describes 'life of hell' for Christians](http://www.f3nws.com/n/Wr3mEG)
 
-> Posted on: Wednesday, October 25, 2017 9:45:03 PM
+> Posted on: Wednesday, October 25, 2017 10:45:05 PM
