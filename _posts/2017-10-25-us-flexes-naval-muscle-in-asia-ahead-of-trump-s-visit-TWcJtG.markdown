@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US flexes naval muscle in Asia ahead of Trump's visit"
-date: 2017-10-25 07:10:45Z
+date: 2017-10-25 08:54:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two US Navy aircraft carrier strike groups have arrived in the Pacific in the pa
 
 Full story on F3News: [US flexes naval muscle in Asia ahead of Trump's visit](http://www.f3nws.com/n/TWcJtG)
 
-> Posted on: Wednesday, October 25, 2017 7:10:45 AM
+> Posted on: Wednesday, October 25, 2017 8:54:10 AM
