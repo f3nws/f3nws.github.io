@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hacker Hijacks CoinHive's DNS to Mine Cryptocurrency Using Thousands of Websites"
-date: 2017-10-25 06:42:09Z
+date: 2017-10-25 07:18:14Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ When yesterday I was reporting about the sudden outbreak of another global ranso
 
 Full story on F3News: [Hacker Hijacks CoinHive's DNS to Mine Cryptocurrency Using Thousands of Websites](http://www.f3nws.com/n/UHVt2F)
 
-> Posted on: Wednesday, October 25, 2017 6:42:09 AM
+> Posted on: Wednesday, October 25, 2017 7:18:14 AM
