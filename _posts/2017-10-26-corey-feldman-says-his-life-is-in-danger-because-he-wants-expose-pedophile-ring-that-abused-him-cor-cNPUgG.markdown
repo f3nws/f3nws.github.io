@@ -5,6 +5,8 @@ date: 2017-10-26 16:09:00Z
 categories: fox-news
 ---
 
+![Corey Feldman says his life is in danger because he wants expose 'pedophile ring' that abused him, Corey Haim](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2017/10/26/corey-feldman-claims-hes-being-targeted-for-death-for-trying-to-expose-hollywood-pedophile-ring/_jcr_content/article-text/article-par-3/inline_spotlight_ima/image.img.jpg/612/344/1509023141756.jpg?ve=1&tl=1)
+
 Corey Feldman has long said that he and ‘80s pal Corey Haim were victims of sexual abuse in Hollywood when they were children – now he’s determined to expose the pedophiles he said abused him and raped Haim.
 
 
