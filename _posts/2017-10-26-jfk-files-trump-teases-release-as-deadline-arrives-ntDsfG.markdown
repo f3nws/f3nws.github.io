@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "JFK files: Trump teases release as deadline arrives"
-date: 2017-10-26 05:11:01Z
+date: 2017-10-26 22:26:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 50 years after President John F. Kennedy was killed, Americans on Thur
 
 Full story on F3News: [JFK files: Trump teases release as deadline arrives](http://www.f3nws.com/n/ntDsfG)
 
-> Posted on: Thursday, October 26, 2017 5:11:01 AM
+> Posted on: Thursday, October 26, 2017 10:26:29 PM
