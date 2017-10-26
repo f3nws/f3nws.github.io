@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Mother 'assaulted and tied up teen in torture ordeal' over missing car - 9news.com.au](http://prod.static9.net.au/_/media/2017/10/26/20/23/1026_torture.jpg)
 
-9news.com.au Mother 'assaulted and tied up teen in torture ordeal' over missing car 9news.com.au A mother-of-two has faced court after allegedly subjecting a teenager to horrifying three-day ordeal south of Brisbane. Police found the 19-year-old woman bound in a bedroom at the suburban home in Waterford West by pure coincidence after executing an ... Teen 'held hostage, beaten' at Brisbane home Fraser Coast Chronicle Woman 'kidnapped, held captive and tortured for three days' ABC Online Queensland Police charge woman with kidnapping and torture after finding teen bound in routine home visit The West Australian Courier Mail - The Australian - Brisbane Times - Triple M all 14 news articles »
+9news.com.au Mother 'assaulted and tied up teen in torture ordeal' over missing car 9news.com.au A mother-of-two has faced court after allegedly subjecting a teenager to horrifying three-day ordeal south of Brisbane. Police found the 19-year-old woman bound in a bedroom at the suburban home in Waterford West by pure coincidence after executing an ... Teen 'held hostage, beaten' at Brisbane home Fraser Coast Chronicle Woman 'kidnapped, held captive and tortured for three days' ABC Online Queensland Police charge woman with kidnapping and torture after finding teen bound in routine home visit The West Australian Courier Mail - The Australian - Brisbane Times - Triple M all 13 news articles »
 
 
 Full story on F3News: [Mother 'assaulted and tied up teen in torture ordeal' over missing car - 9news.com.au](http://www.f3nws.com/n/dU2XnE)
