@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Weinstein Co. Saga: Did Colony Pull Plug on Cash Infusion? - Hollywood Reporter](http://cdn5.thr.com/sites/default/files/2013/07/tom_barrack.jpg)
 
-Hollywood Reporter Weinstein Co. Saga: Did Colony Pull Plug on Cash Infusion? Hollywood Reporter If Colony recedes from the TWC mix, other suitors in the hunt for a distressed asset await, including Fortress Investment Group and Vine Alternative Investments. With one week remaining on its exclusive negotiating window, is Colony Capital pulling the ... Weinstein Co. Lifeline Pulled By Colony Capital — Report Deadline Can We End the Myth That You Have to Be a Bully to Make It in Hollywood? Variety As Harvey Weinstein sex scandal grows, one accuser says his company was negligent Los Angeles Times New York Times - IndieWire - BBC News - CBS News all 482 news articles »
+Hollywood Reporter Weinstein Co. Saga: Did Colony Pull Plug on Cash Infusion? Hollywood Reporter If Colony recedes from the TWC mix, other suitors in the hunt for a distressed asset await, including Fortress Investment Group and Vine Alternative Investments. With one week remaining on its exclusive negotiating window, is Colony Capital pulling the ... Weinstein Co. Lifeline Pulled By Colony Capital — Report Deadline Can We End the Myth That You Have to Be a Bully to Make It in Hollywood? Variety As Harvey Weinstein sex scandal grows, one accuser says his company was negligent Los Angeles Times CNN - New York Times - IndieWire - HuffPost all 505 news articles »
 
 
 Full story on F3News: [Weinstein Co. Saga: Did Colony Pull Plug on Cash Infusion? - Hollywood Reporter](http://www.f3nws.com/n/SDaCZD)

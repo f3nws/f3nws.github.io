@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eager anticipation of JFK documents release"
-date: 2017-10-26 02:30:58Z
+date: 2017-10-26 01:41:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Philip Shenon, former New York Times reporter, talks with Rachel Maddow about wh
 
 Full story on F3News: [Eager anticipation of JFK documents release](http://www.f3nws.com/n/uaxFED)
 
-> Posted on: Thursday, October 26, 2017 2:30:58 AM
+> Posted on: Thursday, October 26, 2017 1:41:00 AM

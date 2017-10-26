@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawrence exposes Donald Trump's false..."
-date: 2017-10-26 03:24:55Z
+date: 2017-10-26 02:03:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Lawrence O'Donnell shows how President Donald Trump's false story about Sen. Jef
 
 Full story on F3News: [Lawrence exposes Donald Trump's false...](http://www.f3nws.com/n/TQSAkG)
 
-> Posted on: Thursday, October 26, 2017 3:24:55 AM
+> Posted on: Thursday, October 26, 2017 2:03:00 AM
