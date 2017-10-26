@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US envoy under investigation for comments in Samoa"
-date: 2017-10-26 00:13:28Z
+date: 2017-10-26 01:31:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to New Zealand and Samoa Scott Brown says cultural differences pro
 
 Full story on F3News: [US envoy under investigation for comments in Samoa](http://www.f3nws.com/n/yeuTQH)
 
-> Posted on: Thursday, October 26, 2017 12:13:28 AM
+> Posted on: Thursday, October 26, 2017 1:31:27 AM

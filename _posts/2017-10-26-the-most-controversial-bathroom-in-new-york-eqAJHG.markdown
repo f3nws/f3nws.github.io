@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The most controversial bathroom in New York"
-date: 2017-10-26 00:33:45Z
+date: 2017-10-26 00:41:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Of all the provocative strategies to reduce harm from opioid addiction, the one 
 
 Full story on F3News: [The most controversial bathroom in New York](http://www.f3nws.com/n/eqAJHG)
 
-> Posted on: Thursday, October 26, 2017 12:33:45 AM
+> Posted on: Thursday, October 26, 2017 12:41:57 AM
