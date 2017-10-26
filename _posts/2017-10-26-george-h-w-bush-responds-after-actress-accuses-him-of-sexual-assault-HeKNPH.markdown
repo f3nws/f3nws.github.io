@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "George H.W. Bush responds after actress accuses him of sexual assault"
-date: 2017-10-26 00:43:55Z
+date: 2017-10-26 12:47:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Former president George H.W. Bush has responded after an actress alleged that he
 
 Full story on F3News: [George H.W. Bush responds after actress accuses him of sexual assault](http://www.f3nws.com/n/HeKNPH)
 
-> Posted on: Thursday, October 26, 2017 12:43:55 AM
+> Posted on: Thursday, October 26, 2017 12:47:24 PM

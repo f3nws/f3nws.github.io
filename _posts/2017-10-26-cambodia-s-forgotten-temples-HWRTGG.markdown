@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cambodia's forgotten temples"
-date: 2017-10-26 00:16:46Z
+date: 2017-10-26 14:00:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If you've heard of one Cambodian temple, it's probably Angkor Wat -- an awe-insp
 
 Full story on F3News: [Cambodia's forgotten temples](http://www.f3nws.com/n/HWRTGG)
 
-> Posted on: Thursday, October 26, 2017 12:16:46 AM
+> Posted on: Thursday, October 26, 2017 2:00:13 PM
