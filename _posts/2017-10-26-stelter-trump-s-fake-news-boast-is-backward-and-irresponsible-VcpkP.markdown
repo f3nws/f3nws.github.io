@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stelter: Trump's 'fake news' boast is backward and irresponsible"
-date: 2017-10-26 15:39:17Z
+date: 2017-10-26 19:31:47Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Stelter: Trump's 'fake news' boast is backward and irresponsible](http://www.f3nws.com/n/VcpkP)
 
-> Posted on: Thursday, October 26, 2017 3:39:17 PM
+> Posted on: Thursday, October 26, 2017 7:31:47 PM
