@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Can a plant fix the opioid crisis?"
-date: 2017-10-26 08:30:45Z
+date: 2017-10-26 13:10:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Multiple surgeries couldn't help Lisa Vinson with the chronic abdominal pain ste
 
 Full story on F3News: [Can a plant fix the opioid crisis?](http://www.f3nws.com/n/BP23FG)
 
-> Posted on: Thursday, October 26, 2017 8:30:45 AM
+> Posted on: Thursday, October 26, 2017 1:10:49 PM
