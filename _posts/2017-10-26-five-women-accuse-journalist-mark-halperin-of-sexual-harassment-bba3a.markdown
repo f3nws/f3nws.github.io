@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Five women accuse journalist Mark Halperin of sexual harassment"
-date: 2017-10-26 05:31:40Z
+date: 2017-10-26 19:27:01Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ CNNMoney Five women accuse journalist and 'Game Change' co-author Mark Halperin 
 
 Full story on F3News: [Five women accuse journalist Mark Halperin of sexual harassment](http://www.f3nws.com/n/bba3a)
 
-> Posted on: Thursday, October 26, 2017 5:31:40 AM
+> Posted on: Thursday, October 26, 2017 7:27:01 PM
