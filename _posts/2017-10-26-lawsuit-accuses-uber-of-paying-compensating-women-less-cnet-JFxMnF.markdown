@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawsuit accuses Uber of paying, compensating women less     - CNET"
-date: 2017-10-26 00:46:06Z
+date: 2017-10-26 01:33:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Three Latina software engineers say the startup discriminates against women and 
 
 Full story on F3News: [Lawsuit accuses Uber of paying, compensating women less     - CNET](http://www.f3nws.com/n/JFxMnF)
 
-> Posted on: Thursday, October 26, 2017 12:46:06 AM
+> Posted on: Thursday, October 26, 2017 1:33:27 AM

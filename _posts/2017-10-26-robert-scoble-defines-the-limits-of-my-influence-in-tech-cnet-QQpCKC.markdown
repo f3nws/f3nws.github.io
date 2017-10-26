@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Scoble defines the 'limits of my influence' in tech     - CNET"
-date: 2017-10-26 00:30:46Z
+date: 2017-10-26 01:03:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The tech evangelist and blogger answers our questions about how he views sexual 
 
 Full story on F3News: [Robert Scoble defines the 'limits of my influence' in tech     - CNET](http://www.f3nws.com/n/QQpCKC)
 
-> Posted on: Thursday, October 26, 2017 12:30:46 AM
+> Posted on: Thursday, October 26, 2017 1:03:52 AM
