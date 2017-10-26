@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Large hail hits south-east Queensland amid 'very dangerous storms'](http://www.abc.net.au/news/image/9090016-1x1-700x700.jpg)
 
-Severe thunderstorms lash south-east Queensland, with destructive winds and large hailstones hitting parts of the Darling Downs and Scenic Rim.
+Severe thunderstorms lash south-east Queensland with destructive winds and large hailstones hitting parts of the Darling Downs and Scenic Rim.
 
 
 Full story on F3News: [Large hail hits south-east Queensland amid 'very dangerous storms'](http://www.f3nws.com/n/mtECdB)

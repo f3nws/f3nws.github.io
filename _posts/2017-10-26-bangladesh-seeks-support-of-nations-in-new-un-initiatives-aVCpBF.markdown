@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladesh seeks support of nations in new UN initiatives"
-date: 2017-10-26 06:33:42Z
+date: 2017-10-26 09:21:39Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Bangladesh seeks support of nations in new UN initiatives](http://www.f3nws.com/n/aVCpBF)
 
-> Posted on: Thursday, October 26, 2017 6:33:42 AM
+> Posted on: Thursday, October 26, 2017 9:21:39 AM

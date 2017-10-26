@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Indigenous advisory body rejected by PM in 'kick in the guts' for advocates - ABC Online](http://www.abc.net.au/news/image/7149566-1x1-700x700.jpg)
 
-ABC Online Indigenous advisory body rejected by PM in 'kick in the guts' for advocates ABC Online The Prime Minister has dashed hopes for a referendum to establish a new Indigenous advisory body, saying the idea is neither "desirable or capable of winning acceptance". Key points: Indigenous leaders at the Uluru convention in May called for advisory ... Mundane end to historic reform to recognise indigenous Australians The Australian Government rejection of Indigenous referendum proposal 'sending shockwaves' through country The Sydney Morning Herald Turnbull government formally rejects proposal for Indigenous voice to Parliament SBS Sky News Australia - The Guardian - NEWS.com.au all 12 news articles »
+ABC Online Indigenous advisory body rejected by PM in 'kick in the guts' for advocates ABC Online The Prime Minister has dashed hopes for a referendum to establish a new Indigenous advisory body, saying the idea is neither "desirable or capable of winning acceptance". Key points: Indigenous leaders at the Uluru convention in May called for advisory ... Mundane end to historic reform to recognise indigenous Australians The Australian Government rejection of referendum proposal sends 'shockwaves' through Indigenous community The Sydney Morning Herald Turnbull government formally rejects proposal for Indigenous voice to Parliament SBS Sky News Australia - NEWS.com.au - The Guardian - Financial Times all 13 news articles »
 
 
 Full story on F3News: [Indigenous advisory body rejected by PM in 'kick in the guts' for advocates - ABC Online](http://www.f3nws.com/n/kn4RFG)

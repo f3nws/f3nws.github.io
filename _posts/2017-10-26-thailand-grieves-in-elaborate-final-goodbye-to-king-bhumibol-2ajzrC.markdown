@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thailand grieves in elaborate final goodbye to King Bhumibol"
-date: 2017-10-26 03:56:00Z
+date: 2017-10-26 04:46:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BANGKOK (AP) — With solemn faces and outright tears, black-clad Thais said far
 
 Full story on F3News: [Thailand grieves in elaborate final goodbye to King Bhumibol](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 26, 2017 3:56:00 AM
+> Posted on: Thursday, October 26, 2017 4:46:00 AM
