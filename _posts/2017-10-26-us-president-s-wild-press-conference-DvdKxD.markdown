@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President's wild press conference"
-date: 2017-10-26 10:17:10Z
+date: 2017-10-26 16:41:55Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump wasn't scheduled to talk to the press on Wednesday. He sp
 
 Full story on F3News: [US President's wild press conference](http://www.f3nws.com/n/DvdKxD)
 
-> Posted on: Thursday, October 26, 2017 10:17:10 AM
+> Posted on: Thursday, October 26, 2017 4:41:55 PM
