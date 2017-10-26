@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House passes $4T budget in step forward for Trump tax plan"
-date: 2017-10-26 11:26:00Z
+date: 2017-10-26 12:30:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The House on Thursday gave a significant boost to President 
 
 Full story on F3News: [House passes $4T budget in step forward for Trump tax plan](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, October 26, 2017 11:26:00 AM
+> Posted on: Thursday, October 26, 2017 12:30:00 PM
