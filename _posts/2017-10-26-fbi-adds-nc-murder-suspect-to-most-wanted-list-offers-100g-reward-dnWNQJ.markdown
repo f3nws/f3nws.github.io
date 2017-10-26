@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI adds NC murder suspect to 'Most Wanted' list, offers $100G reward"
-date: 2017-10-26 02:45:03Z
+date: 2017-10-26 03:31:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Alejandro “Alex” Castillo, the man wanted in the killing of a North Carolina
 
 Full story on F3News: [FBI adds NC murder suspect to 'Most Wanted' list, offers $100G reward](http://www.f3nws.com/n/dnWNQJ)
 
-> Posted on: Thursday, October 26, 2017 2:45:03 AM
+> Posted on: Thursday, October 26, 2017 3:31:00 AM

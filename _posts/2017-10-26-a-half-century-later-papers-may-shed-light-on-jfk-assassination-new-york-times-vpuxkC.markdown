@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Half-Century Later, Papers May Shed Light on JFK Assassination - New York Times](https://static01.nyt.com/images/2017/10/26/autossell/JFK_794/JFK_794-facebookJumbo.jpg)
 
-New York Times A Half-Century Later, Papers May Shed Light on JFK Assassination New York Times As a new trove of documents about the killing of President John F. Kennedy is released, the New York Times correspondent Peter Baker walks us through who's who in this historic American tragedy. By NATALIE RENEAU and PETER BAKER on Publish Date ... What Could Be in the New Kennedy Assassination Records? NBCNews.com Trump to release JFK files Thursday CNN Trump teases release of JFK files: 'So interesting!' The Hill Philly.com - ABC Online - Business Insider - Allentown Morning Call all 85 news articles »
+New York Times A Half-Century Later, Papers May Shed Light on JFK Assassination New York Times As a new trove of documents about the killing of President John F. Kennedy is released, the New York Times correspondent Peter Baker walks us through who's who in this historic American tragedy. By NATALIE RENEAU and PETER BAKER on Publish Date ... Trump to release JFK files Thursday CNN Trump teases release of JFK files: 'So interesting!' The Hill Zapruder captured JFK's assassination in riveting detail, and 'it brought him nothing but heartbreak' Philly.com SFGate - ABC Online - Sky News - Allentown Morning Call all 90 news articles »
 
 
 Full story on F3News: [A Half-Century Later, Papers May Shed Light on JFK Assassination - New York Times](http://www.f3nws.com/n/vpuxkC)

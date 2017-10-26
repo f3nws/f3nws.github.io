@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New details revealed in California mom's disappearance"
-date: 2017-10-26 01:40:51Z
+date: 2017-10-26 03:05:50Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A California sheriff released new details Wednesday in the mysterious case of a 
 
 Full story on F3News: [New details revealed in California mom's disappearance](http://www.f3nws.com/n/DguqRD)
 
-> Posted on: Thursday, October 26, 2017 1:40:51 AM
+> Posted on: Thursday, October 26, 2017 3:05:50 AM

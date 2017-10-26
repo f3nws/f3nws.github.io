@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Crowds gather for Thai king's funeral"
-date: 2017-10-26 00:17:58Z
+date: 2017-10-26 02:47:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Draped in plastic sheets to keep off the rain, Thais slept in the streets of Ban
 
 Full story on F3News: [Crowds gather for Thai king's funeral](http://www.f3nws.com/n/fKex2H)
 
-> Posted on: Thursday, October 26, 2017 12:17:58 AM
+> Posted on: Thursday, October 26, 2017 2:47:39 AM

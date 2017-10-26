@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lawsuit claims Weinstein Company 'condoned and enabled' misconduct"
-date: 2017-10-26 02:23:26Z
+date: 2017-10-26 03:14:11Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Another actress has come forward claiming Harvey Weinstein sexually assaulted an
 
 Full story on F3News: [Lawsuit claims Weinstein Company 'condoned and enabled' misconduct](http://www.f3nws.com/n/TaQYHC)
 
-> Posted on: Thursday, October 26, 2017 2:23:26 AM
+> Posted on: Thursday, October 26, 2017 3:14:11 AM
