@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ambushed US soldiers in Niger separated during firefight"
-date: 2017-10-27 05:33:53Z
+date: 2017-10-27 06:47:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The vehicles carrying the 12-member Green Beret-led team that was ambushed in Ni
 
 Full story on F3News: [Ambushed US soldiers in Niger separated during firefight](http://www.f3nws.com/n/4Pr2KE)
 
-> Posted on: Friday, October 27, 2017 5:33:53 AM
+> Posted on: Friday, October 27, 2017 6:47:22 AM
