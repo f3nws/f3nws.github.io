@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia Parliament votes to split from Spain as Madrid plans to impose direct rule"
-date: 2017-10-27 17:18:23Z
+date: 2017-10-27 19:28:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Spanish Senate was due to vote on the Madrid government's unprecedented plan
 
 Full story on F3News: [Catalonia Parliament votes to split from Spain as Madrid plans to impose direct rule](http://www.f3nws.com/n/jtDU4)
 
-> Posted on: Friday, October 27, 2017 5:18:23 PM
+> Posted on: Friday, October 27, 2017 7:28:23 PM
