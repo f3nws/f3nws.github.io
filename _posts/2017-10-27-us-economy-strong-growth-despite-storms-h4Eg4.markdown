@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US economy: Strong growth despite storms"
-date: 2017-10-27 13:45:33Z
+date: 2017-10-27 16:41:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US economy: Strong growth despite storms](http://www.f3nws.com/n/h4Eg4)
 
-> Posted on: Friday, October 27, 2017 1:45:33 PM
+> Posted on: Friday, October 27, 2017 4:41:37 PM
