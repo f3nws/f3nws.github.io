@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'We'll see!' Art of the Trumpian non-answer"
-date: 2017-10-27 12:47:23Z
+date: 2017-10-27 14:39:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Just two weeks into Donald Trump's new presidency, he announced he was going to 
 
 Full story on F3News: ['We'll see!' Art of the Trumpian non-answer](http://www.f3nws.com/n/WYNY4G)
 
-> Posted on: Friday, October 27, 2017 12:47:23 PM
+> Posted on: Friday, October 27, 2017 2:39:30 PM

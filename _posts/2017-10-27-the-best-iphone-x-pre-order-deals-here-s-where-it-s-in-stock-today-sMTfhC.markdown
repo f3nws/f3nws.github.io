@@ -7,7 +7,7 @@ categories: techradar
 
 ![The best iPhone X pre-order deals: here's where it's in stock today](http://cdn.mos.cms.futurecdn.net/cNe6DJy8yejWaHcu6kwbW9-1200-80.jpg)
 
-iPhone X pre-order deals are now available from US carriers but you'll need to be quick to get one before stock runs out - use our price comparison tools to find the best iPhone X deal for you!
+iPhone X pre-order deals are now available from US carriers but you'll need to be quick to get one before stock runs out.
 
 
 Full story on F3News: [The best iPhone X pre-order deals: here's where it's in stock today](http://www.f3nws.com/n/sMTfhC)
