@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia crisis: Spain on verge of seizing control"
-date: 2017-10-27 12:14:49Z
+date: 2017-10-27 13:30:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Spanish Senate was due to vote on the Madrid government's unprecedented plan
 
 Full story on F3News: [Catalonia crisis: Spain on verge of seizing control](http://www.f3nws.com/n/jtDU4)
 
-> Posted on: Friday, October 27, 2017 12:14:49 PM
+> Posted on: Friday, October 27, 2017 1:30:58 PM
