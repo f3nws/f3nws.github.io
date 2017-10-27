@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump wanted FBI informant's gag order lifted"
-date: 2017-10-27 14:33:08Z
+date: 2017-10-27 21:04:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In response to reporting that President Donald Trump personally pressed for an i
 
 Full story on F3News: [Trump wanted FBI informant's gag order lifted](http://www.f3nws.com/n/3mWpAJ)
 
-> Posted on: Friday, October 27, 2017 2:33:08 PM
+> Posted on: Friday, October 27, 2017 9:04:11 PM
