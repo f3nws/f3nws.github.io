@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Defense Secretary visits Korean DMZ"
-date: 2017-10-27 06:26:47Z
+date: 2017-10-27 07:46:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Defense Secretary James Mattis has arrived at the demilitarized zone (DMZ) be
 
 Full story on F3News: [US Defense Secretary visits Korean DMZ](http://www.f3nws.com/n/AWegDJ)
 
-> Posted on: Friday, October 27, 2017 6:26:47 AM
+> Posted on: Friday, October 27, 2017 7:46:30 AM
