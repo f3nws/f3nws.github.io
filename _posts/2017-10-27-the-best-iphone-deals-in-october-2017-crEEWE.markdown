@@ -12,4 +12,4 @@ We've tracked down all the best deals on every iPhone model, so you don't have t
 
 Full story on F3News: [The best iPhone deals in October 2017](http://www.f3nws.com/n/crEEWE)
 
-> Posted on: Friday, 27 October 2017 10:31:00
+> Posted on: Friday, October 27, 2017 11:31:00 AM

@@ -12,4 +12,4 @@ As the preorders begin, rumors about Apple's limited supply intensify
 
 Full story on F3News: [iPhone X: Absolutely everything you need to know     - CNET](http://www.f3nws.com/n/sN4zjB)
 
-> Posted on: Friday, 27 October 2017 11:00:18
+> Posted on: Friday, October 27, 2017 12:00:18 PM

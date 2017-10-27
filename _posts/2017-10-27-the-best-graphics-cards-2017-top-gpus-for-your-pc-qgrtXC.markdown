@@ -12,4 +12,4 @@ All the best graphics cards or best GPUs in one place – always up to date and 
 
 Full story on F3News: [The best graphics cards 2017: top GPUs for your PC](http://www.f3nws.com/n/qgrtXC)
 
-> Posted on: Friday, 27 October 2017 13:12:00
+> Posted on: Friday, October 27, 2017 2:12:00 PM
