@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan's lonely vending machines"
-date: 2017-10-27 02:06:24Z
+date: 2017-10-27 09:41:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Vending machines are a mainstay of Japanese culture. There are over 5.5 million 
 
 Full story on F3News: [Japan's lonely vending machines](http://www.f3nws.com/n/qARUHF)
 
-> Posted on: Friday, October 27, 2017 2:06:24 AM
+> Posted on: Friday, October 27, 2017 9:41:01 AM
