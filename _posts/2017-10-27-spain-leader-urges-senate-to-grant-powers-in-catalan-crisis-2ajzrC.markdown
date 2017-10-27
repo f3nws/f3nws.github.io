@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spain leader urges Senate to grant powers in Catalan crisis"
-date: 2017-10-27 06:32:00Z
+date: 2017-10-27 07:04:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MADRID (AP) — In an impassioned address, Spain's prime minister on Friday urge
 
 Full story on F3News: [Spain leader urges Senate to grant powers in Catalan crisis](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 27, 2017 6:32:00 AM
+> Posted on: Friday, October 27, 2017 7:04:00 AM

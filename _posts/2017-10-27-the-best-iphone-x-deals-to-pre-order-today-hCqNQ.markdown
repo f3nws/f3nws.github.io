@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone X deals to pre-order today"
-date: 2017-10-27 07:01:49Z
+date: 2017-10-27 11:01:49Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The 10th anniversary iPhone X is extremely expensive. We tell you the handset pr
 
 Full story on F3News: [The best iPhone X deals to pre-order today](http://www.f3nws.com/n/hCqNQ)
 
-> Posted on: Friday, October 27, 2017 7:01:49 AM
+> Posted on: Friday, October 27, 2017 11:01:49 AM
