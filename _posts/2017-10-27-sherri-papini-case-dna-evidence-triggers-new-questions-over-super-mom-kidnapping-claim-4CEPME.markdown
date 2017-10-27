@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sherri Papini case: DNA evidence triggers new questions over 'super mom' kidnapping claim"
-date: 2017-10-27 05:45:03Z
+date: 2017-10-27 06:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities have released new details in the mysterious case of a young mother i
 
 Full story on F3News: [Sherri Papini case: DNA evidence triggers new questions over 'super mom' kidnapping claim](http://www.f3nws.com/n/4CEPME)
 
-> Posted on: Friday, October 27, 2017 5:45:03 AM
+> Posted on: Friday, October 27, 2017 6:00:00 AM
