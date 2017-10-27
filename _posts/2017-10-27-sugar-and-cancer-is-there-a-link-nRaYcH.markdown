@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sugar and cancer: Is there a link?"
-date: 2017-10-27 10:00:53Z
+date: 2017-10-27 17:37:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Does sugar, which makes all things delicious, lead to cancer?
 
 Full story on F3News: [Sugar and cancer: Is there a link?](http://www.f3nws.com/n/nRaYcH)
 
-> Posted on: Friday, October 27, 2017 10:00:53 AM
+> Posted on: Friday, October 27, 2017 5:37:49 PM
