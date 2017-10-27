@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dozens of Russian defense companies included in list of potential new US sanction targets"
-date: 2017-10-27 00:26:26Z
+date: 2017-10-27 00:26:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The US is edging towards the eventual implementation of a new round of sanctions
 
 Full story on F3News: [Dozens of Russian defense companies included in list of potential new US sanction targets](http://www.f3nws.com/n/MuYaYG)
 
-> Posted on: Friday, October 27, 2017 12:26:26 AM
+> Posted on: Friday, October 27, 2017 12:26:00 AM
