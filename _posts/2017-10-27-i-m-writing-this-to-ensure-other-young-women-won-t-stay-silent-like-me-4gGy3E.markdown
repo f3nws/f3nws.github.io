@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "I'm writing this to ensure other young women won't stay silent like me"
-date: 2017-10-27 04:09:45Z
+date: 2017-10-27 12:18:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The first 10 years of my professional career were spent at CNN. Beginning as a p
 
 Full story on F3News: [I'm writing this to ensure other young women won't stay silent like me](http://www.f3nws.com/n/4gGy3E)
 
-> Posted on: Friday, October 27, 2017 4:09:45 AM
+> Posted on: Friday, October 27, 2017 12:18:43 PM
