@@ -5,6 +5,8 @@ date: 2017-10-27 02:15:00Z
 categories: fox-news
 ---
 
+![Suspect arrested in Grambling State University shooting that left 2 dead](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 A suspect was arrested on Thursday in a shooting that killed a Grambling State University student and his friend on the Louisiana college's campus.
 
 
