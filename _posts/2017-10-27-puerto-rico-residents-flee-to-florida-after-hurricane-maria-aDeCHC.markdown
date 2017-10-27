@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico residents flee to Florida after Hurricane Maria"
-date: 2017-10-27 09:21:44Z
+date: 2017-10-27 10:35:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of Puerto Rico residents are fleeing to Florida after Hurrican
 
 Full story on F3News: [Puerto Rico residents flee to Florida after Hurricane Maria](http://www.f3nws.com/n/aDeCHC)
 
-> Posted on: Friday, October 27, 2017 9:21:44 AM
+> Posted on: Friday, October 27, 2017 10:35:24 AM
