@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pixel 2 XL is a promising phone with new caveats     - CNET"
-date: 2017-10-27 00:06:11Z
+date: 2017-10-27 02:25:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Pixel 2 XL serves up an exceptional camera and Google Lens in a bigger packa
 
 Full story on F3News: [Pixel 2 XL is a promising phone with new caveats     - CNET](http://www.f3nws.com/n/SMcCBC)
 
-> Posted on: Friday, October 27, 2017 12:06:11 AM
+> Posted on: Friday, October 27, 2017 2:25:00 AM

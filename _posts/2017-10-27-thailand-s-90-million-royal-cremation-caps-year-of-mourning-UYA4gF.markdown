@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thailand's $90 million royal cremation caps year of mourning"
-date: 2017-10-27 02:26:32Z
+date: 2017-10-27 03:41:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A sea of black-clad mourners in Bangkok said a final goodbye to their beloved mo
 
 Full story on F3News: [Thailand's $90 million royal cremation caps year of mourning](http://www.f3nws.com/n/UYA4gF)
 
-> Posted on: Friday, October 27, 2017 2:26:32 AM
+> Posted on: Friday, October 27, 2017 3:41:56 AM
