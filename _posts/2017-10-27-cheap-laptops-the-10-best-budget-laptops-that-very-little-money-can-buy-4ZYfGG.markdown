@@ -12,4 +12,4 @@ Read on for cheap laptops running Windows 10 and Chrome OS, from notebooks to 2-
 
 Full story on F3News: [Cheap laptops: the 10 best budget laptops that (very little) money can buy](http://www.f3nws.com/n/4ZYfGG)
 
-> Posted on: Friday, 27 October 2017 13:29:00
+> Posted on: Friday, October 27, 2017 2:29:00 PM

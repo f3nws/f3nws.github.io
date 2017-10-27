@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan lawmakers vote to split from Spain"
-date: 2017-10-27 14:17:54Z
+date: 2017-10-27 15:32:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Spanish Senate was due to vote on the Madrid government's unprecedented plan
 
 Full story on F3News: [Catalan lawmakers vote to split from Spain](http://www.f3nws.com/n/jtDU4)
 
-> Posted on: Friday, October 27, 2017 2:17:54 PM
+> Posted on: Friday, October 27, 2017 3:32:57 PM

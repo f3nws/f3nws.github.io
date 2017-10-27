@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan parliament declares independence as Spanish government imposes direct rule"
-date: 2017-10-27 14:28:00Z
+date: 2017-10-27 15:33:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Catalonia’s regional parliament declared its independence from Spain in a disp
 
 Full story on F3News: [Catalan parliament declares independence as Spanish government imposes direct rule](http://www.f3nws.com/n/svbkuB)
 
-> Posted on: Friday, October 27, 2017 2:28:00 PM
+> Posted on: Friday, October 27, 2017 3:33:00 PM
