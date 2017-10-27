@@ -12,4 +12,4 @@ Compare mobile phone deals on the latest iPhones, Samsung Galaxys and more - we'
 
 Full story on F3News: [Mobile phone deals: the best contracts in October 2017](http://www.f3nws.com/n/tWxWZB)
 
-> Posted on: Friday, October 27, 2017 11:28:40 AM
+> Posted on: Friday, 27 October 2017 10:28:40

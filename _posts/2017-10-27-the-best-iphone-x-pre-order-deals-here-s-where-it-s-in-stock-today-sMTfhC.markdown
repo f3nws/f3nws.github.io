@@ -12,4 +12,4 @@ iPhone X pre-order deals are now available from US carriers but you'll need to b
 
 Full story on F3News: [The best iPhone X pre-order deals: here's where it's in stock today](http://www.f3nws.com/n/sMTfhC)
 
-> Posted on: Friday, October 27, 2017 1:00:58 PM
+> Posted on: Friday, 27 October 2017 12:00:58

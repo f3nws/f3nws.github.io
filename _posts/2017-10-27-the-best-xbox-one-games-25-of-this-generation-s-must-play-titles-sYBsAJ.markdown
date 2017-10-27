@@ -12,4 +12,4 @@ Narrowing the best Xbox One games down this far wasn't easy, but somebody had to
 
 Full story on F3News: [The best Xbox One games - 25 of this generation's must-play titles](http://www.f3nws.com/n/sYBsAJ)
 
-> Posted on: Friday, October 27, 2017 11:06:00 AM
+> Posted on: Friday, 27 October 2017 10:06:00

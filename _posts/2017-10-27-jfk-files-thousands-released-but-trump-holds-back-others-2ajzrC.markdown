@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "JFK Files: Thousands released but Trump holds back others"
-date: 2017-10-27 04:09:00Z
+date: 2017-10-27 10:44:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump has blocked the release of hundreds o
 
 Full story on F3News: [JFK Files: Thousands released but Trump holds back others](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, October 27, 2017 4:09:00 AM
+> Posted on: Friday, 27 October 2017 09:44:00
