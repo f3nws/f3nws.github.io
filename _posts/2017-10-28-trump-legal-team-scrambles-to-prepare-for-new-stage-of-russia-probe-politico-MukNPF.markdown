@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump legal team scrambles to prepare for new stage of Russia probe - Politico](https://static.politico.com/d3/63/f107a645450583e5ec87af44c86c/23-donald-trump-126-gty-1160.jpg)
 
-Politico Trump legal team scrambles to prepare for new stage of Russia probe Politico President Donald Trump's White House and personal lawyers scrambled Saturday to learn where the knife might fall in the investigation by special counsel Robert Mueller, triggering a guessing game among aides after days of trying to turn attention away ... Reliving the day Hillary Clinton says cost her the election, one year later CNN Indictment in Mueller's Russia probe to be served Monday: report The Hill Robert Mueller Sends a Message: He's Deadly Serious The New Yorker The Atlantic - Fortune - New York Daily News - SFGate all 271 news articles »
+Politico Trump legal team scrambles to prepare for new stage of Russia probe Politico President Donald Trump's White House and personal lawyers scrambled Saturday to learn where the knife might fall in the investigation by special counsel Robert Mueller, triggering a guessing game among aides after days of trying to turn attention away ... Mueller's latest move has Trump's staunchest allies melting down on Twitter Business Insider Timeline: Mueller's Russia probe The Hill Robert Mueller's Office Will Serve First Indictment Monday, Sources Confirm NBCNews.com The New Yorker - The Atlantic - Fortune - CBS News all 276 news articles »
 
 
 Full story on F3News: [Trump legal team scrambles to prepare for new stage of Russia probe - Politico](http://www.f3nws.com/n/MukNPF)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump does things her way"
-date: 2017-10-28 16:32:53Z
+date: 2017-10-28 17:55:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Melania Trump does things her way](http://www.f3nws.com/n/GUXrUJ)
 
-> Posted on: Saturday, October 28, 2017 4:32:53 PM
+> Posted on: Saturday, October 28, 2017 5:55:20 PM
