@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Shots fired’: Audio of Mandalay Bay security guard reporting Las Vegas shooting released"
-date: 2017-10-28 05:24:34Z
+date: 2017-10-28 05:24:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Audio of the dispatch call from a Mandalay Bay security guard capturing the pivo
 
 Full story on F3News: [‘Shots fired’: Audio of Mandalay Bay security guard reporting Las Vegas shooting released](http://www.f3nws.com/n/xeJgxC)
 
-> Posted on: Saturday, October 28, 2017 5:24:34 AM
+> Posted on: Saturday, October 28, 2017 5:24:00 AM
