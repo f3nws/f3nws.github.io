@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![JFK assassination records: The promise of revelations derailed by CIA and FBI - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/10/27/Local-Enterprise/Images/JFK_Files_53880-3f72d.jpg?t=20170517)
 
-Washington Post JFK assassination records: The promise of revelations derailed by CIA and FBI Washington Post They'd been waiting 25 years to see the final — and potentially most sensitive — batch of records related to President John F. Kennedy's assassination. Then came word late Thursday that President Trump had acquiesced to CIA and FBI lobbying to ... Judge rebukes handling of JFK records Politico The most bizarre, outlandish documents from the newly released JFK files Business Insider Trump says he'll release all JFK files to put 'conspiracy theories to rest' The Hill Fox News - BBC News - New York Post - NBCNews.com all 1,530 news articles »
+Washington Post JFK assassination records: The promise of revelations derailed by CIA and FBI Washington Post They'd been waiting 25 years to see the final — and potentially most sensitive — batch of records related to President John F. Kennedy's assassination. Then came word late Thursday that President Trump had acquiesced to CIA and FBI lobbying to ... The latest JFK documents still don't show a Russian conspiracy Los Angeles Times JFK files: Withheld documents only encourage more conspiracy theories, expert says USA TODAY The most bizarre, outlandish documents from the newly released JFK files Business Insider Politico - CNN - The Hill - Fox News all 1,771 news articles »
 
 
 Full story on F3News: [JFK assassination records: The promise of revelations derailed by CIA and FBI - Washington Post](http://www.f3nws.com/n/fQBdME)
