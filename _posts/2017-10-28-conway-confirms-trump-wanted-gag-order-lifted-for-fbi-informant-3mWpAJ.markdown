@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conway confirms Trump wanted gag order lifted for FBI informant"
-date: 2017-10-28 15:04:25Z
+date: 2017-10-28 16:40:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In response to reporting that President Donald Trump personally pressed for an i
 
 Full story on F3News: [Conway confirms Trump wanted gag order lifted for FBI informant](http://www.f3nws.com/n/3mWpAJ)
 
-> Posted on: Saturday, October 28, 2017 3:04:25 PM
+> Posted on: Saturday, October 28, 2017 4:40:45 PM

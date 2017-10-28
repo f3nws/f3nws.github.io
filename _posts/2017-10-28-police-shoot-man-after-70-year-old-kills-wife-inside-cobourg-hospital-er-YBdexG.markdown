@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police shoot man after 70-year-old kills wife inside Cobourg hospital ER"
-date: 2017-10-28 11:39:55Z
+date: 2017-10-28 11:39:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ The Special Investigations Unit is looking into a the incident at Northumberland
 
 Full story on F3News: [Police shoot man after 70-year-old kills wife inside Cobourg hospital ER](http://www.f3nws.com/n/YBdexG)
 
-> Posted on: Saturday, October 28, 2017 11:39:55 AM
+> Posted on: Saturday, October 28, 2017 11:39:00 AM
