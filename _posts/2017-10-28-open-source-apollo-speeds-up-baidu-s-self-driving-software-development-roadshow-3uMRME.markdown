@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Open source Apollo speeds up Baidu's self-driving software development     - Roadshow"
-date: 2017-10-28 00:30:38Z
+date: 2017-10-28 00:58:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Chinese technology company announced version 1.0 of its open-source Apollo s
 
 Full story on F3News: [Open source Apollo speeds up Baidu's self-driving software development     - Roadshow](http://www.f3nws.com/n/3uMRME)
 
-> Posted on: Saturday, October 28, 2017 12:30:38 AM
+> Posted on: Saturday, October 28, 2017 12:58:39 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conservative website funded initial Fusion GPS Trump opposition effort"
-date: 2017-10-28 00:45:00Z
+date: 2017-10-28 01:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The opposition research project that ultimately produced the controversial Trump
 
 Full story on F3News: [Conservative website funded initial Fusion GPS Trump opposition effort](http://www.f3nws.com/n/YhqDRG)
 
-> Posted on: Saturday, October 28, 2017 12:45:00 AM
+> Posted on: Saturday, October 28, 2017 1:00:00 AM
