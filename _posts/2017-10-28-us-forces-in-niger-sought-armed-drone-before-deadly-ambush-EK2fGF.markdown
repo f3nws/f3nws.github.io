@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US forces in Niger sought armed drone before deadly ambush"
-date: 2017-10-28 03:45:02Z
+date: 2017-10-28 04:01:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ U.S. military officials sought permission to send an armed drone near a patrol o
 
 Full story on F3News: [US forces in Niger sought armed drone before deadly ambush](http://www.f3nws.com/n/EK2fGF)
 
-> Posted on: Saturday, October 28, 2017 3:45:02 AM
+> Posted on: Saturday, October 28, 2017 4:01:00 AM
