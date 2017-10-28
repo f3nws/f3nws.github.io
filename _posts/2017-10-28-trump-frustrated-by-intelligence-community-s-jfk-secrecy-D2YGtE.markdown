@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump frustrated by intelligence community's JFK secrecy"
-date: 2017-10-28 01:31:45Z
+date: 2017-10-28 06:15:20Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ It was a showdown 25 years in the making: With the world itching to finally get 
 
 Full story on F3News: [Trump frustrated by intelligence community's JFK secrecy](http://www.f3nws.com/n/D2YGtE)
 
-> Posted on: Saturday, October 28, 2017 1:31:45 AM
+> Posted on: Saturday, October 28, 2017 6:15:20 AM

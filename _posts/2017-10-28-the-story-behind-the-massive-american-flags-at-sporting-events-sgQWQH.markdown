@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The story behind the massive American flags at sporting events"
-date: 2017-10-28 05:45:01Z
+date: 2017-10-28 10:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Freedom isn't free -- it costs about $7,500.
 
 Full story on F3News: [The story behind the massive American flags at sporting events](http://www.f3nws.com/n/sgQWQH)
 
-> Posted on: Saturday, October 28, 2017 5:45:01 AM
+> Posted on: Saturday, October 28, 2017 10:45:02 AM
