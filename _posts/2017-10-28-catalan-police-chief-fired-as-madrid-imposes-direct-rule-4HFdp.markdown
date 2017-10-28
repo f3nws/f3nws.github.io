@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan police chief fired as Madrid imposes direct rule"
-date: 2017-10-28 09:06:58Z
+date: 2017-10-28 11:38:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Spanish government has taken its first steps to impose direct rule on Catalo
 
 Full story on F3News: [Catalan police chief fired as Madrid imposes direct rule](http://www.f3nws.com/n/4HFdp)
 
-> Posted on: Saturday, October 28, 2017 9:06:58 AM
+> Posted on: Saturday, October 28, 2017 11:38:24 AM

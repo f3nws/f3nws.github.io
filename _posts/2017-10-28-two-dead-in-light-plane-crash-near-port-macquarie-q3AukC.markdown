@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Two dead in light plane crash near Port Macquarie](http://www.abc.net.au/news/image/9096182-1x1-700x700.jpg)
 
-A witness describes the "catastrophic" and "frightening" moment a light plane crashes on the New South Wales mid-north coast, killing two people.
+A witness describes the "catastrophic" and "frightening" moment a light plane crashes on the New South Wales mid-north coast, killing a man and a woman.
 
 
 Full story on F3News: [Two dead in light plane crash near Port Macquarie](http://www.f3nws.com/n/q3AukC)
