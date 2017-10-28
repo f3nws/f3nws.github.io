@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bangladesh eyes sterilisation to curb Rohingya population"
-date: 2017-10-28 02:48:04Z
+date: 2017-10-28 04:58:48Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Bangladesh eyes sterilisation to curb Rohingya population](http://www.f3nws.com/n/MajSu)
 
-> Posted on: Saturday, October 28, 2017 2:48:04 AM
+> Posted on: Saturday, October 28, 2017 4:58:48 AM
