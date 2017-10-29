@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "300,000 rally against Catalan independence as autonomy stripped"
-date: 2017-10-29 13:42:55Z
+date: 2017-10-29 17:14:06Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Hundreds of thousands of anti-independence protesters rallied in the Catalan cap
 
 Full story on F3News: [300,000 rally against Catalan independence as autonomy stripped](http://www.f3nws.com/n/mDa2xD)
 
-> Posted on: Sunday, October 29, 2017 1:42:55 PM
+> Posted on: Sunday, October 29, 2017 5:14:06 PM
