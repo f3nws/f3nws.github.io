@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Christie: Mueller's targets should be concerned"
-date: 2017-10-29 15:40:06Z
+date: 2017-10-29 16:08:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The news that a federal grand jury has approved charges in special counsel Rober
 
 Full story on F3News: [Christie: Mueller's targets should be concerned](http://www.f3nws.com/n/RjCxWH)
 
-> Posted on: Sunday, October 29, 2017 3:40:06 PM
+> Posted on: Sunday, October 29, 2017 4:08:44 PM
