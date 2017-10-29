@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Roads Minister labels truck drivers 'dickheads' for repeatedly hitting notorious Footscray bridge - ABC Online](http://www.abc.net.au/news/image/9097174-1x1-700x700.jpg)
 
-ABC Online Roads Minister labels truck drivers 'dickheads' for repeatedly hitting notorious Footscray bridge ABC Online A million-dollar high-technology warning system will be installed at a notorious bridge in Melbourne's west, to stop trucks and large vehicles from crashing into it. The Napier Street bridge in Footscray has been struck more than 70 times in the past ... and more »
+ABC Online Roads Minister labels truck drivers 'dickheads' for repeatedly hitting notorious Footscray bridge ABC Online A million-dollar high-technology warning system will be installed at a notorious bridge in Melbourne's west, to stop trucks and large vehicles from crashing into it. The Napier Street bridge in Footscray has been struck more than 70 times in the past ... Laser beams aim to fix notorious Napier Street bridge The Age all 2 news articles »
 
 
 Full story on F3News: [Roads Minister labels truck drivers 'dickheads' for repeatedly hitting notorious Footscray bridge - ABC Online](http://www.f3nws.com/n/rHhmRF)

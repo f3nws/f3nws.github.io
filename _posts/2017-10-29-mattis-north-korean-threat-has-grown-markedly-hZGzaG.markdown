@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mattis: North Korean threat 'has grown markedly'"
-date: 2017-10-29 01:05:09Z
+date: 2017-10-29 02:21:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of Defense James Mattis said Friday ET that the increasing nuclear thr
 
 Full story on F3News: [Mattis: North Korean threat 'has grown markedly'](http://www.f3nws.com/n/hZGzaG)
 
-> Posted on: Sunday, October 29, 2017 1:05:09 AM
+> Posted on: Sunday, October 29, 2017 2:21:46 AM
