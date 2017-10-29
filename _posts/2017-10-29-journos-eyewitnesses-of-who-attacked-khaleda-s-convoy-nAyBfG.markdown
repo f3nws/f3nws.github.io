@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Journos eyewitnesses of who attacked Khaleda’s convoy'"
-date: 2017-10-29 07:44:01Z
+date: 2017-10-29 11:21:59Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: ['Journos eyewitnesses of who attacked Khaleda’s convoy'](http://www.f3nws.com/n/nAyBfG)
 
-> Posted on: Sunday, October 29, 2017 7:44:01 AM
+> Posted on: Sunday, October 29, 2017 11:21:59 AM

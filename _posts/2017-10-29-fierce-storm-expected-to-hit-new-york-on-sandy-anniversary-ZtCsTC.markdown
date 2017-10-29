@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fierce storm expected to hit New York on Sandy anniversary"
-date: 2017-10-29 10:23:06Z
+date: 2017-10-29 11:13:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Near hurricane-force wind gusts and heavy rain are set to batter the Northeast S
 
 Full story on F3News: [Fierce storm expected to hit New York on Sandy anniversary](http://www.f3nws.com/n/ZtCsTC)
 
-> Posted on: Sunday, October 29, 2017 10:23:06 AM
+> Posted on: Sunday, October 29, 2017 11:13:42 AM
