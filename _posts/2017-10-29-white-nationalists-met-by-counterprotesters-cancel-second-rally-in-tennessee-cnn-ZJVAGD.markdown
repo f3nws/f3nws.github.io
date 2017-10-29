@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![White nationalists met by counterprotesters cancel second rally in Tennessee - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171028155629-01-white-lives-matter-tn-super-tease.jpg)
 
-CNN White nationalists met by counterprotesters cancel second rally in Tennessee CNN (CNN) White nationalists groups that rallied Saturday in Shelbyville, Tennessee, were met by a large police presence and dozens of shouting counterprotesters. Hours later, a second rally planned in nearby Murfreesboro was canceled. The demonstrations ... 'White Lives Matter' organizers cancel second rally after taunts from counterprotesters Washington Post Murfreesboro rally canceled as counterprotesters outnumber White Lives Matter activists The Tennessean Tennessee cities brace for protests over refugee resettlement Business Insider TIME - ThinkProgress - The Hill - Patch.com all 261 news articles »
+CNN White nationalists met by counterprotesters cancel second rally in Tennessee CNN (CNN) White nationalists groups that rallied Saturday in Shelbyville, Tennessee, were met by a large police presence and dozens of shouting counterprotesters. Hours later, a second rally planned in nearby Murfreesboro was canceled. The demonstrations ... 'White Lives Matter' organizers cancel second rally after taunts from counterprotesters Washington Post Murfreesboro rally canceled as counterprotesters outnumber White Lives Matter activists The Tennessean Tennessee cities brace for protests over refugee resettlement Business Insider TIME - Newsweek - ThinkProgress - WBIR-TV all 262 news articles »
 
 
 Full story on F3News: [White nationalists met by counterprotesters cancel second rally in Tennessee - CNN](http://www.f3nws.com/n/ZJVAGD)
