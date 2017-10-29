@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two car bombs leave at least 23 dead"
-date: 2017-10-29 11:09:09Z
+date: 2017-10-29 19:50:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 10 people were killed Saturday when a car bomb was set off outside a ho
 
 Full story on F3News: [Two car bombs leave at least 23 dead](http://www.f3nws.com/n/qDHn2F)
 
-> Posted on: Sunday, October 29, 2017 11:09:09 AM
+> Posted on: Sunday, October 29, 2017 7:50:44 PM
