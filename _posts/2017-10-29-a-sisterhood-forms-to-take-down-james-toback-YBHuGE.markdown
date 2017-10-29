@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A sisterhood forms to take down James Toback"
-date: 2017-10-29 11:08:59Z
+date: 2017-10-29 19:19:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a group none of them would have ever wanted to be a part of. But joining it
 
 Full story on F3News: [A sisterhood forms to take down James Toback](http://www.f3nws.com/n/YBHuGE)
 
-> Posted on: Sunday, October 29, 2017 11:08:59 AM
+> Posted on: Sunday, October 29, 2017 7:19:46 PM
