@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wozniacki beats Williams for first time to win WTA Finals"
-date: 2017-10-29 15:50:15Z
+date: 2017-10-29 18:39:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Caroline Wozniacki exorcised a couple of demons in Singapore on Sunday to win th
 
 Full story on F3News: [Wozniacki beats Williams for first time to win WTA Finals](http://www.f3nws.com/n/KTyTtF)
 
-> Posted on: Sunday, October 29, 2017 3:50:15 PM
+> Posted on: Sunday, October 29, 2017 6:39:52 PM
