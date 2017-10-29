@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan police chief resigns, urges officers to ‘stay loyal’ to Madrid-appointed boss"
-date: 2017-10-29 02:39:14Z
+date: 2017-10-29 02:39:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Catalan police chief, Josep Lluis Trapero, has officially resigned after the gov
 
 Full story on F3News: [Catalan police chief resigns, urges officers to ‘stay loyal’ to Madrid-appointed boss](http://www.f3nws.com/n/sHjSyE)
 
-> Posted on: Sunday, October 29, 2017 2:39:14 AM
+> Posted on: Sunday, October 29, 2017 2:39:00 AM
