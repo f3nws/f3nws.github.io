@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gowdy slams Mueller team over leaks about charges in Trump-Russia probe"
-date: 2017-10-29 15:45:00Z
+date: 2017-10-29 21:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Republican Rep. Trey Gowdy, the leader of the House’s top investigative commit
 
 Full story on F3News: [Gowdy slams Mueller team over leaks about charges in Trump-Russia probe](http://www.f3nws.com/n/TYuCKH)
 
-> Posted on: Sunday, October 29, 2017 3:45:00 PM
+> Posted on: Sunday, October 29, 2017 9:00:00 PM
