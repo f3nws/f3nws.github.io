@@ -7,7 +7,7 @@ categories: cnn-com-world
 
 ![300000 rally against Catalan independence as autonomy stripped - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171029111818-03-catalonia-anti-independence-rally-291017-super-tease.jpg)
 
-CNN 300000 rally against Catalan independence as autonomy stripped CNN Barcelona, Spain (CNN) Hundreds of thousands of anti-independence protesters rallied in the Catalan capital of Barcelona on Sunday after Madrid took unprecedented measures to quash the region's bid to split from Spain. The protest comes as tensions ... Catalonia independence: Huge Barcelona pro-Spain rally BBC News Spain Is a Collection of Glued Regions. Or Maybe Not So Glued. New York Times The Latest: Catalan leader can run in vote 'if not in jail' Washington Post Reuters - Bloomberg - Fox News - Salon all 766 news articles »
+CNN 300000 rally against Catalan independence as autonomy stripped CNN Barcelona, Spain (CNN) Hundreds of thousands of anti-independence protesters rallied in the Catalan capital of Barcelona on Sunday after Madrid took unprecedented measures to quash the region's bid to split from Spain. The protest comes as tensions ... Catalonia independence: Huge Barcelona pro-Spain rally BBC News Spain Is a Collection of Glued Regions. Or Maybe Not So Glued. New York Times Hundreds of thousands in Barcelona rally against independence for Catalonia Los Angeles Times Bloomberg - Fox News - USA TODAY - mySanAntonio.com all 786 news articles »
 
 
 Full story on F3News: [300000 rally against Catalan independence as autonomy stripped - CNN](http://www.f3nws.com/n/mDa2xD)
