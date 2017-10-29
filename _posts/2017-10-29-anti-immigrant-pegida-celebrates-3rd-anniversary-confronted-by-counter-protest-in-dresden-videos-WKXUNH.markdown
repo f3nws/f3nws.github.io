@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anti-immigrant PEGIDA celebrates 3rd anniversary confronted by counter-protest in Dresden (VIDEOS)"
-date: 2017-10-29 01:17:28Z
+date: 2017-10-29 01:17:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Around 2,800 far-right PEGIDA activists gathered in the German city of Dresden t
 
 Full story on F3News: [Anti-immigrant PEGIDA celebrates 3rd anniversary confronted by counter-protest in Dresden (VIDEOS)](http://www.f3nws.com/n/WKXUNH)
 
-> Posted on: Sunday, October 29, 2017 1:17:28 AM
+> Posted on: Sunday, October 29, 2017 1:17:00 AM
