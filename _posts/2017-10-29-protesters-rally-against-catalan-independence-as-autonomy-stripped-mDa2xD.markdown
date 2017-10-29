@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protesters rally against Catalan independence as autonomy stripped"
-date: 2017-10-29 12:37:24Z
+date: 2017-10-29 13:42:55Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Anti-independence protesters were gathering in the Catalan capital of Barcelona 
 
 Full story on F3News: [Protesters rally against Catalan independence as autonomy stripped](http://www.f3nws.com/n/mDa2xD)
 
-> Posted on: Sunday, October 29, 2017 12:37:24 PM
+> Posted on: Sunday, October 29, 2017 1:42:55 PM
