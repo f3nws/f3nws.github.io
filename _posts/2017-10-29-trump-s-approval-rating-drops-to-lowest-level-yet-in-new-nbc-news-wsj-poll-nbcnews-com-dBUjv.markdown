@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's Approval Rating Drops to Lowest Level Yet in New NBC News/WSJ Poll - NBCNews.com](https://media4.s-nbcnews.com/j/newscms/2017_43/2140961/170901-trump-2-ew-1229p_3f3fcbcfa710c068abf499ec8f7397d2.nbcnews-fp-1200-630.jpg)
 
-NBCNews.com Trump's Approval Rating Drops to Lowest Level Yet in New NBC News/WSJ Poll NBCNews.com WASHINGTON — President Donald Trump's job approval rating has declined to the lowest point of his presidency, and nearly half of voters want their vote in the 2018 midterms to be a message for more Democrats in Congress to check Trump and ... Poll: Trump disapproval rating drops to lowest of presidency The Hill Trump's Approval Rating Falls to Lowest Level Since Taking Office Wall Street Journal all 5 news articles »
+NBCNews.com Trump's Approval Rating Drops to Lowest Level Yet in New NBC News/WSJ Poll NBCNews.com WASHINGTON — President Donald Trump's job approval rating has declined to the lowest point of his presidency, and nearly half of voters want their vote in the 2018 midterms to be a message for more Democrats in Congress to check Trump and ... Poll: Trump approval rating drops to lowest of presidency The Hill Trump approval rating hits lowest ever amid tax reform debate, GOP departures from Senate CNBC Trump's Approval Rating Falls to Lowest Level Since Taking Office Wall Street Journal all 11 news articles »
 
 
 Full story on F3News: [Trump's Approval Rating Drops to Lowest Level Yet in New NBC News/WSJ Poll - NBCNews.com](http://www.f3nws.com/n/dBUjv)
