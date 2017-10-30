@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southeast Asia's new nightlife hotspot"
-date: 2017-10-30 02:35:39Z
+date: 2017-10-30 07:18:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Gabriel García Márquez visited Hanoi to see how the capital of Vietnam wa
 
 Full story on F3News: [Southeast Asia's new nightlife hotspot](http://www.f3nws.com/n/gUnAkC)
 
-> Posted on: Monday, October 30, 2017 2:35:39 AM
+> Posted on: Monday, October 30, 2017 7:18:31 AM

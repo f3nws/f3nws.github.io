@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Not even classed as citizens': Remembering the Indigenous soldiers at Beersheba - ABC Online"
-date: 2017-10-30 06:11:54Z
+date: 2017-10-30 06:06:00Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC Online 'Not even classed as citizens': Remembering the Indigenous soldiers a
 
 Full story on F3News: ['Not even classed as citizens': Remembering the Indigenous soldiers at Beersheba - ABC Online](http://www.f3nws.com/n/juPVSD)
 
-> Posted on: Monday, October 30, 2017 6:11:54 AM
+> Posted on: Monday, October 30, 2017 6:06:00 AM
