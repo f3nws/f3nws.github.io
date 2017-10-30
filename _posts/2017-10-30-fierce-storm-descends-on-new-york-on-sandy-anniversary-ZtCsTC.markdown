@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fierce storm descends on New York on Sandy anniversary"
-date: 2017-10-30 07:41:11Z
+date: 2017-10-30 10:10:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Near hurricane-force wind gusts and heavy rain are set to batter the Northeast S
 
 Full story on F3News: [Fierce storm descends on New York on Sandy anniversary](http://www.f3nws.com/n/ZtCsTC)
 
-> Posted on: Monday, October 30, 2017 7:41:11 AM
+> Posted on: Monday, October 30, 2017 10:10:46 AM
