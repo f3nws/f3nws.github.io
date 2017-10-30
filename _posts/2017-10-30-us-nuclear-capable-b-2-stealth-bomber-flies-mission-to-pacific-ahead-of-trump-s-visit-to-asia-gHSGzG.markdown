@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US nuclear-capable B-2 stealth bomber flies mission to Pacific ahead of Trump’s visit to Asia"
-date: 2017-10-30 03:01:30Z
+date: 2017-10-30 03:01:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ An American nuclear-capable B-2 stealth bomber has conducted a long-range missio
 
 Full story on F3News: [US nuclear-capable B-2 stealth bomber flies mission to Pacific ahead of Trump’s visit to Asia](http://www.f3nws.com/n/gHSGzG)
 
-> Posted on: Monday, October 30, 2017 3:01:30 AM
+> Posted on: Monday, October 30, 2017 3:01:00 AM

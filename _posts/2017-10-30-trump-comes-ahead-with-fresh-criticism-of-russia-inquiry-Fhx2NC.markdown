@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![Trump comes ahead with fresh criticism of Russia inquiry](https://static.toiimg.com/photo/msid-61331049/61331049.jpg?115004)
 
-In the tweets, Trump referenced the fact that Clinton's presidential campaign helped fund political research into Trump that ultimately produced a dossier of allegations about his ties to Russia.
+President Donald Trump expressed renewed frustration on Sunday over the investigations into alleged ties between his campaign associates and Russian government officials, saying on Twitter that the "facts are pouring out" about links to Russia by his former presidential opponent, Hillary Clinton.
 
 
 Full story on F3News: [Trump comes ahead with fresh criticism of Russia inquiry](http://www.f3nws.com/n/Fhx2NC)
