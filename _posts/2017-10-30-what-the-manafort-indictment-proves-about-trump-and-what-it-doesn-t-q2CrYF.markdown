@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What the Manafort indictment proves about Trump (and what it doesn't)"
-date: 2017-10-30 15:33:58Z
+date: 2017-10-30 16:23:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Monday morning former Trump presidential campaign chairman Paul Manafort was 
 
 Full story on F3News: [What the Manafort indictment proves about Trump (and what it doesn't)](http://www.f3nws.com/n/q2CrYF)
 
-> Posted on: Monday, October 30, 2017 3:33:58 PM
+> Posted on: Monday, October 30, 2017 4:23:20 PM
