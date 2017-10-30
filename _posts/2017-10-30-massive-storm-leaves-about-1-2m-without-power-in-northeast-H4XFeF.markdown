@@ -5,6 +5,8 @@ date: 2017-10-30 16:14:00Z
 categories: fox-news
 ---
 
+![Massive storm leaves about 1.2M without power in Northeast](http://a57.foxnews.com/images.foxnews.com/content/dam/fox-news/images/2017/10/30/storm1.jpg.img.png/0/0/1509375011239.png?ve=1)
+
 A massive storm system packing powerful winds and drenching rains left more 1.2 million without power Monday across the Northeast, forcing hundreds of schools to close.
 
 
