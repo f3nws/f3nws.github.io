@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CO2 levels in atmosphere hit record high in 2016"
-date: 2017-10-30 12:44:53Z
+date: 2017-10-30 19:32:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Concentrations of carbon dioxide surged at a record breaking speed in 2016, acco
 
 Full story on F3News: [CO2 levels in atmosphere hit record high in 2016](http://www.f3nws.com/n/CTezvD)
 
-> Posted on: Monday, October 30, 2017 12:44:53 PM
+> Posted on: Monday, October 30, 2017 7:32:57 PM

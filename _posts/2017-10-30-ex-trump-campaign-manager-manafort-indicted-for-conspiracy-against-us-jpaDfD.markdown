@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Ex-Trump campaign manager Manafort indicted for 'conspiracy against US'](http://www.abc.net.au/news/image/9101510-1x1-700x700.jpg)
 
-Donald Trump's former campaign manager Paul Manafort is indicted by a federal grand jury on 12 counts including conspiracy against the US, following an investigation into possible Russian meddling in the 2016 US election.
+Donald Trump's former campaign manager Paul Manafort and another associate are indicted by a federal grand jury on 12 counts including conspiracy against the US, following an investigation into possible Russian meddling in the 2016 US election.
 
 
 Full story on F3News: [Ex-Trump campaign manager Manafort indicted for 'conspiracy against US'](http://www.f3nws.com/n/jpaDfD)
