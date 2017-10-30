@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Candid shots of Berlin during the Cold War"
-date: 2017-10-30 10:34:49Z
+date: 2017-10-30 10:48:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For photographer Allan Hailstone, 1950s Berlin had an irresistible attraction.
 
 Full story on F3News: [Candid shots of Berlin during the Cold War](http://www.f3nws.com/n/r4HtMG)
 
-> Posted on: Monday, October 30, 2017 10:34:49 AM
+> Posted on: Monday, October 30, 2017 10:48:43 AM
