@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why this adviser's guilty plea is a much bigger problem for Trump"
-date: 2017-10-30 21:38:03Z
+date: 2017-10-30 21:44:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Even as President Trump was on Twitter insisting that the indictment of former c
 
 Full story on F3News: [Why this adviser's guilty plea is a much bigger problem for Trump](http://www.f3nws.com/n/f3bdmC)
 
-> Posted on: Monday, October 30, 2017 9:38:03 PM
+> Posted on: Monday, October 30, 2017 9:44:16 PM

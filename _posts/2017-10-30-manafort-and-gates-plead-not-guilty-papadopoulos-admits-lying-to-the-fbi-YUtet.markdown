@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manafort and Gates plead not guilty; Papadopoulos admits lying to the FBI"
-date: 2017-10-30 18:14:04Z
+date: 2017-10-30 19:46:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Trump campaign chairman Paul Manafort is turning himself in Monday to Jus
 
 Full story on F3News: [Manafort and Gates plead not guilty; Papadopoulos admits lying to the FBI](http://www.f3nws.com/n/YUtet)
 
-> Posted on: Monday, October 30, 2017 6:14:04 PM
+> Posted on: Monday, October 30, 2017 7:46:36 PM
