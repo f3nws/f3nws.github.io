@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who's in charge? Catalans wonder after Spain takes control"
-date: 2017-10-30 06:21:00Z
+date: 2017-10-30 07:18:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BARCELONA, Spain (AP) — Catalonia's civil servants returned to work Monday for
 
 Full story on F3News: [Who's in charge? Catalans wonder after Spain takes control](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, October 30, 2017 6:21:00 AM
+> Posted on: Monday, October 30, 2017 7:18:00 AM

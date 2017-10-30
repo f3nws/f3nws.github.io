@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kevin Spacey apologizes after accusation of sexual misconduct"
-date: 2017-10-30 09:27:25Z
+date: 2017-10-30 10:59:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Actor Anthony Rapp has accused Kevin Spacey of making a sexual advance at him wh
 
 Full story on F3News: [Kevin Spacey apologizes after accusation of sexual misconduct](http://www.f3nws.com/n/eUeEZB)
 
-> Posted on: Monday, October 30, 2017 9:27:25 AM
+> Posted on: Monday, October 30, 2017 10:59:54 AM

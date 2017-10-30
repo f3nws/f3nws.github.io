@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "With possible arrests imminent, special counsel Mueller could create a perilous new reality for the White House"
-date: 2017-10-30 10:24:13Z
+date: 2017-10-30 11:14:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mood of fateful anticipation is cloaking Washington, with possible arrests imm
 
 Full story on F3News: [With possible arrests imminent, special counsel Mueller could create a perilous new reality for the White House](http://www.f3nws.com/n/UAsFBG)
 
-> Posted on: Monday, October 30, 2017 10:24:13 AM
+> Posted on: Monday, October 30, 2017 11:14:06 AM
