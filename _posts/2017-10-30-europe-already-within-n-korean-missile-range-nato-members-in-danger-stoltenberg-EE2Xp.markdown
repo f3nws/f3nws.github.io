@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Europe already within N. Korean missile range, NATO members in danger’ – Stoltenberg"
-date: 2017-10-30 02:05:34Z
+date: 2017-10-30 02:05:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ North Korean missiles now have the range to strike Europe which puts NATO member
 
 Full story on F3News: [‘Europe already within N. Korean missile range, NATO members in danger’ – Stoltenberg](http://www.f3nws.com/n/EE2Xp)
 
-> Posted on: Monday, October 30, 2017 2:05:34 AM
+> Posted on: Monday, October 30, 2017 2:05:00 AM

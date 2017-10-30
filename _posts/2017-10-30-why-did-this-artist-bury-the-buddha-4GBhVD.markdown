@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why did this artist bury the Buddha?"
-date: 2017-10-30 01:15:56Z
+date: 2017-10-30 03:16:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Light bursts into the dark room through a horizontal slit and an intersecting ve
 
 Full story on F3News: [Why did this artist bury the Buddha?](http://www.f3nws.com/n/4GBhVD)
 
-> Posted on: Monday, October 30, 2017 1:15:56 AM
+> Posted on: Monday, October 30, 2017 3:16:54 AM
