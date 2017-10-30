@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manafort, Gates plead not guilty in grand jury indictment"
-date: 2017-10-30 19:38:00Z
+date: 2017-10-30 20:04:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Former Trump campaign chairman Paul Manafort and his associate Rick Gates plead 
 
 Full story on F3News: [Manafort, Gates plead not guilty in grand jury indictment](http://www.f3nws.com/n/xsQHgH)
 
-> Posted on: Monday, October 30, 2017 7:38:00 PM
+> Posted on: Monday, October 30, 2017 8:04:00 PM
