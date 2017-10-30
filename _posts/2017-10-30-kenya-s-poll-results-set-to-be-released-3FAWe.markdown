@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kenya's poll results set to be released"
-date: 2017-10-30 07:44:51Z
+date: 2017-10-30 09:20:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The results of Kenya's presidential election rerun are expected to be released S
 
 Full story on F3News: [Kenya's poll results set to be released](http://www.f3nws.com/n/3FAWe)
 
-> Posted on: Monday, October 30, 2017 7:44:51 AM
+> Posted on: Monday, October 30, 2017 9:20:02 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Xbox One deals in October 2017"
-date: 2017-10-30 08:27:00Z
+date: 2017-10-30 08:45:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We have all the best Xbox One deals, including the best value bundles and games.
 
 Full story on F3News: [The best Xbox One deals in October 2017](http://www.f3nws.com/n/ssuP3D)
 
-> Posted on: Monday, October 30, 2017 8:27:00 AM
+> Posted on: Monday, October 30, 2017 8:45:00 AM
