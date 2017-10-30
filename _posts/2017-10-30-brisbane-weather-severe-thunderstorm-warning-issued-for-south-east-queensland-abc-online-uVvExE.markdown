@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Brisbane weather: Severe thunderstorm warning issued for south-east Queensland - ABC Online](http://www.abc.net.au/news/image/9098284-1x1-700x700.jpg)
 
-ABC Online Brisbane weather: Severe thunderstorm warning issued for south-east Queensland ABC Online Hail has fallen in south-east Queensland as a large stormfront sweeps across the region, but the Brisbane CBD has been spared the brunt of the system. Golf-ball-sized hail was reported at Petrie, north of the city, as the storm passed through on Monday ... More storms lash southeast Qld The Australian Queensland weather: Dangerous storms forecast for Brisbane, southeast and central Queensland Courier Mail Australia: from 35 degree days to hail and snow 9news.com.au The Guardian - BBC News - The Sydney Morning Herald - Business Standard all 16 news articles »
+ABC Online Brisbane weather: Severe thunderstorm warning issued for south-east Queensland ABC Online Hail has fallen in south-east Queensland as a large stormfront sweeps across the region, but the Brisbane CBD has been spared the brunt of the system. Golf-ball-sized hail was reported at Petrie, north of the city, as the storm passed through on Monday ... Queensland weather: Dangerous storms forecast for Brisbane, southeast and central Queensland Courier Mail More storms lash southeast Qld The Australian Australia: from 35 degree days to hail and snow 9news.com.au The Sydney Morning Herald - The Guardian - BBC News - Business Standard all 16 news articles »
 
 
 Full story on F3News: [Brisbane weather: Severe thunderstorm warning issued for south-east Queensland - ABC Online](http://www.f3nws.com/n/uVvExE)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powder keg on Manus Island as refugees refuse to leave immigration center"
-date: 2017-10-30 08:18:07Z
+date: 2017-10-30 10:27:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A confrontation is looming in Papua New Guinea (PNG) between local authorities a
 
 Full story on F3News: [Powder keg on Manus Island as refugees refuse to leave immigration center](http://www.f3nws.com/n/h3aadB)
 
-> Posted on: Monday, October 30, 2017 8:18:07 AM
+> Posted on: Monday, October 30, 2017 10:27:53 AM
