@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Trump aides face 12-count indictment in Russia inquiry"
-date: 2017-10-30 13:07:13Z
+date: 2017-10-30 14:02:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Ex-Trump aides face 12-count indictment in Russia inquiry](http://www.f3nws.com/n/mMjcRE)
 
-> Posted on: Monday, October 30, 2017 1:07:13 PM
+> Posted on: Monday, October 30, 2017 2:02:14 PM

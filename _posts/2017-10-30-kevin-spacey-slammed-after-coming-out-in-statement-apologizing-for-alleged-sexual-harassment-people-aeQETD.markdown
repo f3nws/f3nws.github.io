@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kevin Spacey Slammed After Coming Out in Statement Apologizing for Alleged Sexual Harassment - PEOPLE.com](http://peopledotcom.files.wordpress.com/2017/10/kevin-spacey1.jpg?crop=0px%2C23px%2C1402px%2C737px&resize=1200%2C630)
 
-PEOPLE.com Kevin Spacey Slammed After Coming Out in Statement Apologizing for Alleged Sexual Harassment PEOPLE.com Kevin Spacey is being criticized for “hiding under the rainbow” after he came out in the same statement in which he apologized for alleged unwanted sexual advances towards actor Anthony Rapp when Rapp was just 14. In an interview with BuzzFeed ... Kevin Spacey Apologizes To Anthony Rapp Over Alleged Sexual Misconduct NPR Kevin Spacey comes out as gay amid apology to Anthony Rapp for alleged sexual advance New York Daily News Star Trek: Discovery Recap: Be Seeing You Vulture CNN - RollingStone.com - USA TODAY - Playbill.com all 456 news articles »
+PEOPLE.com Kevin Spacey Slammed After Coming Out in Statement Apologizing for Alleged Sexual Harassment PEOPLE.com Kevin Spacey is being criticized for “hiding under the rainbow” after he came out in the same statement in which he apologized for alleged unwanted sexual advances towards actor Anthony Rapp when Rapp was just 14. In an interview with BuzzFeed ... What Matters in Hollywood Today Hollywood Reporter Kevin Spacey Apologizes, Comes Out After Actor Alleges Underage Advances RollingStone.com Star Trek: Discovery Recap: Be Seeing You Vulture Chicago Tribune - New York Daily News - Variety - USA TODAY all 502 news articles »
 
 
 Full story on F3News: [Kevin Spacey Slammed After Coming Out in Statement Apologizing for Alleged Sexual Harassment - PEOPLE.com](http://www.f3nws.com/n/aeQETD)

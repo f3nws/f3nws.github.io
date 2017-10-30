@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Drugmaker set to profit from unsafe opioid"
-date: 2017-10-30 12:42:34Z
+date: 2017-10-30 14:11:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's not uncommon for drug companies to try to keep generic versions of their be
 
 Full story on F3News: [Drugmaker set to profit from unsafe opioid](http://www.f3nws.com/n/frF4vD)
 
-> Posted on: Monday, October 30, 2017 12:42:34 PM
+> Posted on: Monday, October 30, 2017 2:11:29 PM
