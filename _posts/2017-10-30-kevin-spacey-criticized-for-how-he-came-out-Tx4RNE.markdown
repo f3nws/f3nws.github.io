@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kevin Spacey criticized for how he came out"
-date: 2017-10-30 12:19:45Z
+date: 2017-10-30 12:52:43Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actors are usually hailed for coming but Kevin Spacey is being criticized.
 
 Full story on F3News: [Kevin Spacey criticized for how he came out](http://www.f3nws.com/n/Tx4RNE)
 
-> Posted on: Monday, October 30, 2017 12:19:45 PM
+> Posted on: Monday, October 30, 2017 12:52:43 PM
