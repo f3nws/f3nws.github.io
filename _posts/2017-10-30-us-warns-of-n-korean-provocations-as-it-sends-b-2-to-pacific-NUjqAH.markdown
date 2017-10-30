@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US warns of N Korean 'provocations' as it sends B-2 to Pacific"
-date: 2017-10-30 10:26:17Z
+date: 2017-10-30 17:56:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After months of rising tensions on the Korean Peninsula, Pyongyang seems to have
 
 Full story on F3News: [US warns of N Korean 'provocations' as it sends B-2 to Pacific](http://www.f3nws.com/n/NUjqAH)
 
-> Posted on: Monday, October 30, 2017 10:26:17 AM
+> Posted on: Monday, October 30, 2017 5:56:39 PM

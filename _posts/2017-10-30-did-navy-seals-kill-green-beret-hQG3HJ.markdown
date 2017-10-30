@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Navy SEALs kill Green Beret?"
-date: 2017-10-30 15:52:22Z
+date: 2017-10-30 18:16:46Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Navy is investigating whether two members of the Navy's elite SEAL Team Six 
 
 Full story on F3News: [Did Navy SEALs kill Green Beret?](http://www.f3nws.com/n/hQG3HJ)
 
-> Posted on: Monday, October 30, 2017 3:52:22 PM
+> Posted on: Monday, October 30, 2017 6:16:46 PM

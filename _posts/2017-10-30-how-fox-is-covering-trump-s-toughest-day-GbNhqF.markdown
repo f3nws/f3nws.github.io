@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Fox is covering Trump's toughest day"
-date: 2017-10-30 16:03:54Z
+date: 2017-10-30 18:14:00Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The news that Donald Trump's former campaign head had turned himself over to the
 
 Full story on F3News: [How Fox is covering Trump's toughest day](http://www.f3nws.com/n/GbNhqF)
 
-> Posted on: Monday, October 30, 2017 4:03:54 PM
+> Posted on: Monday, October 30, 2017 6:14:00 PM
