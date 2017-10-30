@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia to let women into 3 sports stadiums"
-date: 2017-10-30 02:27:19Z
+date: 2017-10-30 05:28:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia is starting to ease restrictions on women spectators in sports stad
 
 Full story on F3News: [Saudi Arabia to let women into 3 sports stadiums](http://www.f3nws.com/n/MGBAXE)
 
-> Posted on: Monday, October 30, 2017 2:27:19 AM
+> Posted on: Monday, October 30, 2017 5:28:52 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Couple that survived Las Vegas shooting die in car crash"
-date: 2017-10-30 04:45:01Z
+date: 2017-10-30 05:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A husband and wife from California who survived the mass shooting at a Las Vegas
 
 Full story on F3News: [Couple that survived Las Vegas shooting die in car crash](http://www.f3nws.com/n/AXuGEC)
 
-> Posted on: Monday, October 30, 2017 4:45:01 AM
+> Posted on: Monday, October 30, 2017 5:45:03 AM

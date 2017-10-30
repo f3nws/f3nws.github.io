@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalonia independence ruled out, but more autonomy possible – Spanish FM"
-date: 2017-10-30 02:11:58Z
+date: 2017-10-30 02:11:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The political standoff between Madrid and Barcelona will not result in an indepe
 
 Full story on F3News: [Catalonia independence ruled out, but more autonomy possible – Spanish FM](http://www.f3nws.com/n/3ckdxH)
 
-> Posted on: Monday, October 30, 2017 2:11:58 AM
+> Posted on: Monday, October 30, 2017 2:11:00 AM
