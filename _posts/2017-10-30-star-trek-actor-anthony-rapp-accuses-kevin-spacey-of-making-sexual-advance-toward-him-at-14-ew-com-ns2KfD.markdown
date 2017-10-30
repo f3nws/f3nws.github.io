@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Star Trek actor Anthony Rapp accuses Kevin Spacey of making sexual advance toward him at 14 - EW.com"
+date: 2017-10-30 04:12:30Z
+categories: google-news-top-stories
+---
+
+![Star Trek actor Anthony Rapp accuses Kevin Spacey of making sexual advance toward him at 14 - EW.com](http://ewedit.files.wordpress.com/2017/10/anthony-rapp-kevin-spacey.jpg?crop=0px%2C0px%2C2700px%2C1419px&resize=1200%2C630)
+
+EW.com Star Trek actor Anthony Rapp accuses Kevin Spacey of making sexual advance toward him at 14 EW.com Kevin Spacey has apologized to Anthony Rapp after Rapp alleged Spacey made an unwanted sexual advance toward the Star Trek: Discovery actor when he was 14 years old. Spacey, at the time, was 26. “I have a lot of respect and admiration for Anthony ... Kevin Spacey Comes Out as Gay and Apologizes to Anthony Rapp for Past Inappropriate Behavior E! Online Kevin Spacey Apologizes To Anthony Rapp For Alleged Sexual Advances; Chooses To “Live As A Gay Man” Deadline Kevin Spacey comes out as gay amid apology to Anthony Rapp for alleged sexual advance New York Daily News BuzzFeed News - Vanity Fair - New York Times - ABC News all 124 news articles »
+
+
+Full story on F3News: [Star Trek actor Anthony Rapp accuses Kevin Spacey of making sexual advance toward him at 14 - EW.com](http://www.f3nws.com/n/ns2KfD)
+
+> Posted on: Monday, October 30, 2017 4:12:30 AM
