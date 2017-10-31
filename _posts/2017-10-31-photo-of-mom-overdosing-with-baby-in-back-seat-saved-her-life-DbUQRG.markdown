@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Photo of mom overdosing with baby in back seat saved her life"
-date: 2017-10-31 00:42:48Z
+date: 2017-10-31 10:39:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The photo is shocking. A young mother passed out in the front seat of her car, a
 
 Full story on F3News: [Photo of mom overdosing with baby in back seat saved her life](http://www.f3nws.com/n/DbUQRG)
 
-> Posted on: Tuesday, October 31, 2017 12:42:48 AM
+> Posted on: Tuesday, October 31, 2017 10:39:54 AM
