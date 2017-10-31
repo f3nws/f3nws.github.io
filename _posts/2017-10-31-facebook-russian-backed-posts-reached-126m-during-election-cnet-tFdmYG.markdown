@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook: Russian-backed posts reached 126M during election     - CNET"
-date: 2017-10-31 00:11:40Z
+date: 2017-10-31 00:49:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ That means roughly one-third of the US population was exposed to content from Ru
 
 Full story on F3News: [Facebook: Russian-backed posts reached 126M during election     - CNET](http://www.f3nws.com/n/tFdmYG)
 
-> Posted on: Tuesday, October 31, 2017 12:11:40 AM
+> Posted on: Tuesday, October 31, 2017 12:49:39 AM
