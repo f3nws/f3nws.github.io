@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charges: Ex-adviser admits lying to FBI; former campaign chief, aide indicted on unrelated charges"
-date: 2017-10-31 06:37:24Z
+date: 2017-10-31 08:13:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Trump campaign chairman Paul Manafort is turning himself in Monday to Jus
 
 Full story on F3News: [Charges: Ex-adviser admits lying to FBI; former campaign chief, aide indicted on unrelated charges](http://www.f3nws.com/n/YUtet)
 
-> Posted on: Tuesday, October 31, 2017 6:37:24 AM
+> Posted on: Tuesday, October 31, 2017 8:13:10 AM
