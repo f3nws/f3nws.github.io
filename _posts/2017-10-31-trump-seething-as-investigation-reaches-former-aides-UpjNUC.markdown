@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump 'seething' as investigation reaches former aides"
-date: 2017-10-31 00:39:00Z
+date: 2017-10-31 02:27:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The dramatic intensification of the Russia investigation on Monday reignited Pre
 
 Full story on F3News: [Trump 'seething' as investigation reaches former aides](http://www.f3nws.com/n/UpjNUC)
 
-> Posted on: Tuesday, October 31, 2017 12:39:00 AM
+> Posted on: Tuesday, October 31, 2017 2:27:00 AM
