@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "University of Utah shooting leaves 1 dead, police hunt gunman"
-date: 2017-10-31 11:05:00Z
+date: 2017-10-31 13:41:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A gunman remained on the loose Tuesday morning after he shot and killed a person
 
 Full story on F3News: [University of Utah shooting leaves 1 dead, police hunt gunman](http://www.f3nws.com/n/XakxN)
 
-> Posted on: Tuesday, October 31, 2017 11:05:00 AM
+> Posted on: Tuesday, October 31, 2017 1:41:00 PM
