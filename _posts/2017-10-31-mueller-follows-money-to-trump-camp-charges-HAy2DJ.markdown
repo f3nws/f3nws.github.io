@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller follows money to Trump camp charges"
-date: 2017-10-31 03:34:36Z
+date: 2017-10-31 01:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Greg Farrell, investigative reporter for Bloomberg News, talks with Rachel Maddo
 
 Full story on F3News: [Mueller follows money to Trump camp charges](http://www.f3nws.com/n/HAy2DJ)
 
-> Posted on: Tuesday, October 31, 2017 3:34:36 AM
+> Posted on: Tuesday, October 31, 2017 1:20:00 AM

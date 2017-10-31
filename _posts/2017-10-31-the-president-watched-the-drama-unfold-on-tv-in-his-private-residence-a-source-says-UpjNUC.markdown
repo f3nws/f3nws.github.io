@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The President watched the drama unfold on TV in his private residence, a source says"
-date: 2017-10-31 02:27:00Z
+date: 2017-10-31 06:34:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The dramatic intensification of the Russia investigation on Monday reignited Pre
 
 Full story on F3News: [The President watched the drama unfold on TV in his private residence, a source says](http://www.f3nws.com/n/UpjNUC)
 
-> Posted on: Tuesday, October 31, 2017 2:27:00 AM
+> Posted on: Tuesday, October 31, 2017 6:34:18 AM

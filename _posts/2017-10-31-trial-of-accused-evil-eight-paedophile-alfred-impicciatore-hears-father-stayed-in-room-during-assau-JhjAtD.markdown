@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trial of accused 'evil eight' paedophile Alfred Impicciatore hears father stayed in room during assaults - ABC Online"
-date: 2017-10-31 05:19:00Z
+date: 2017-10-31 05:26:57Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Trial of accused 'evil eight' paedophile Alfred Impicciatore hears fa
 
 Full story on F3News: [Trial of accused 'evil eight' paedophile Alfred Impicciatore hears father stayed in room during assaults - ABC Online](http://www.f3nws.com/n/JhjAtD)
 
-> Posted on: Tuesday, October 31, 2017 5:19:00 AM
+> Posted on: Tuesday, October 31, 2017 5:26:57 AM
