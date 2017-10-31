@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple reportedly looking to ditch Qualcomm components     - CNET"
-date: 2017-10-31 01:50:58Z
+date: 2017-10-31 02:12:47Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Next year's iPhones and iPads could be sporting components from another source, 
 
 Full story on F3News: [Apple reportedly looking to ditch Qualcomm components     - CNET](http://www.f3nws.com/n/VcPMnD)
 
-> Posted on: Tuesday, October 31, 2017 1:50:58 AM
+> Posted on: Tuesday, October 31, 2017 2:12:47 AM

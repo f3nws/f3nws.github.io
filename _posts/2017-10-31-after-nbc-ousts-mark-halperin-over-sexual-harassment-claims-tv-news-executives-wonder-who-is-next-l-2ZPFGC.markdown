@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![After NBC ousts Mark Halperin over sexual harassment claims, TV news executives wonder who is next - Los Angeles Times](http://www.trbimg.com/img-59f7379e/turbine/la-fi-ct-halperin-nbc-news-20171030)
 
-Los Angeles Times After NBC ousts Mark Halperin over sexual harassment claims, TV news executives wonder who is next Los Angeles Times The swift downfall of political journalist Mark Halperin has the TV news business bracing for more revelations of sexual harassment. Halperin's contract with NBC News was terminated Monday, several days after allegations that he sexually harassed a ... NBC News and MSNBC Cut Ties With Mark Halperin New York Times NBC and MSNBC sack Mark Halperin over harassment allegations BBC News Companies Scramble to Deal With Growing Harassment Complaints NBCNews.com Salon - Business Insider - New York Post - Deadline all 94 news articles »
+Los Angeles Times After NBC ousts Mark Halperin over sexual harassment claims, TV news executives wonder who is next Los Angeles Times The swift downfall of political journalist Mark Halperin has the TV news business bracing for more revelations of sexual harassment. Halperin's contract with NBC News was terminated Monday, several days after allegations that he sexually harassed a ... NBC News and MSNBC Cut Ties With Mark Halperin New York Times NBC and MSNBC sack Mark Halperin over harassment allegations BBC News Companies Scramble to Deal With Growing Harassment Complaints NBCNews.com Salon - Business Insider - New York Post - cleveland.com all 97 news articles »
 
 
 Full story on F3News: [After NBC ousts Mark Halperin over sexual harassment claims, TV news executives wonder who is next - Los Angeles Times](http://www.f3nws.com/n/2ZPFGC)
