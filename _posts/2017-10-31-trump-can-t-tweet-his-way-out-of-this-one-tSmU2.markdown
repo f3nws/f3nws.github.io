@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump can't tweet his way out of this one"
-date: 2017-10-31 12:42:25Z
+date: 2017-10-31 13:05:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump can't tweet his way out of this one.
 
 Full story on F3News: [Trump can't tweet his way out of this one](http://www.f3nws.com/n/tSmU2)
 
-> Posted on: Tuesday, October 31, 2017 12:42:25 PM
+> Posted on: Tuesday, October 31, 2017 1:05:33 PM

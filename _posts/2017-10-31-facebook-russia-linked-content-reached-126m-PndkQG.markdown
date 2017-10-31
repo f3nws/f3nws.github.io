@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook: Russia-linked content reached 126M"
-date: 2017-10-31 00:26:50Z
+date: 2017-10-31 13:25:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Facebook will inform lawmakers this week that roughly 126 million Americans may 
 
 Full story on F3News: [Facebook: Russia-linked content reached 126M](http://www.f3nws.com/n/PndkQG)
 
-> Posted on: Tuesday, October 31, 2017 12:26:50 AM
+> Posted on: Tuesday, October 31, 2017 1:25:03 PM
