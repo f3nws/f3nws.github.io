@@ -7,7 +7,7 @@ categories: times-of-india-world
 
 ![China considers 3-year jail term for disrespecting anthem](https://static.toiimg.com/photo/msid-61352532/61352532.jpg?73533)
 
-China's largely rubber-stamp parliament is considering tougher penalties for those who disrespect the national anthem, including up to three years in jail, state news agency Xinhua said
+In September, China passed a new law mandating up to 15 days in police detention for those who mock the "March of the Volunteers". Parliament is now looking at whether to amend the country's Criminal Law to include criminal penalties for disrespect of the national anthem, Xinhua said.
 
 
 Full story on F3News: [China considers 3-year jail term for disrespecting anthem](http://www.f3nws.com/n/aGpsGB)
