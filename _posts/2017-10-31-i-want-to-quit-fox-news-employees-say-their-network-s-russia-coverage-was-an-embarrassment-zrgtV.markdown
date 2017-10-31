@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'I want to quit': Fox News employees say their network's Russia coverage was 'an embarrassment'"
-date: 2017-10-31 17:21:58Z
+date: 2017-10-31 18:24:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['I want to quit': Fox News employees say their network's Russia coverage was 'an embarrassment'](http://www.f3nws.com/n/zrgtV)
 
-> Posted on: Tuesday, October 31, 2017 5:21:58 PM
+> Posted on: Tuesday, October 31, 2017 6:24:58 PM
