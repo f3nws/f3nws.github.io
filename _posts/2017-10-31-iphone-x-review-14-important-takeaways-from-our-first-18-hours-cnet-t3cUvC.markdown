@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X review: 14 important takeaways from our first 18 hours     - CNET"
-date: 2017-10-31 11:07:07Z
+date: 2017-10-31 11:26:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Face ID, the big OLED screen and life with no home button. This week we’re col
 
 Full story on F3News: [iPhone X review: 14 important takeaways from our first 18 hours     - CNET](http://www.f3nws.com/n/t3cUvC)
 
-> Posted on: Tuesday, October 31, 2017 11:07:07 AM
+> Posted on: Tuesday, October 31, 2017 11:26:30 AM
