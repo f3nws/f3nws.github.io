@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC 'terror' attack leaves 8 dead, several injured"
-date: 2017-11-01 00:31:00Z
+date: 2017-11-01 00:47:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Police have identified the suspect who killed eight people and injured 11 more i
 
 Full story on F3News: [NYC 'terror' attack leaves 8 dead, several injured](http://www.f3nws.com/n/RU323C)
 
-> Posted on: Wednesday, November 1, 2017 12:31:00 AM
+> Posted on: Wednesday, November 1, 2017 12:47:00 AM
