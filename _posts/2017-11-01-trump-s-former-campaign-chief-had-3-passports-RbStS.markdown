@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's former campaign chief had 3 passports"
-date: 2017-11-01 10:52:55Z
+date: 2017-11-01 21:00:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ How rich are Paul Manafort and Rick Gates, and where did they travel?
 
 Full story on F3News: [Trump's former campaign chief had 3 passports](http://www.f3nws.com/n/RbStS)
 
-> Posted on: Wednesday, November 1, 2017 10:52:55 AM
+> Posted on: Wednesday, November 1, 2017 9:00:33 PM

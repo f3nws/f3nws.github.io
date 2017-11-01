@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Papa John's says NFL protests are hurting sales"
-date: 2017-11-01 15:59:28Z
+date: 2017-11-01 20:59:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Papa John's is blaming the NFL for hitting its bottom line.
 
 Full story on F3News: [Papa John's says NFL protests are hurting sales](http://www.f3nws.com/n/XBJdR)
 
-> Posted on: Wednesday, November 1, 2017 3:59:28 PM
+> Posted on: Wednesday, November 1, 2017 8:59:12 PM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Utah Nurse Arrested For Doing Her Job Reaches $500000 Settlement - NPR](https://media.npr.org/assets/img/2017/11/01/ap_17304836652578_wide-15ad0aec52ee9250311b44337564df79cd11041b.jpg?s=1400)
 
-NPR Utah Nurse Arrested For Doing Her Job Reaches $500000 Settlement NPR The nurse who was roughly arrested at a Salt Lake City hospital has settled with the city and the university that owns the hospital for $500,000. Police body camera footage from the July incident showed an officer roughly arresting Alex Wubbels after ... Utah Nurse Gets $500000 Settlement Over Arrest for Refusing Blood Sample U.S. News & World Report Alert librarian credited with spotting suspect in fatal shooting of University of Utah student Salt Lake Tribune 1 dead, U. on lockdown after shots fired near campus Deseret News all 353 news articles »
+NPR Utah Nurse Arrested For Doing Her Job Reaches $500000 Settlement NPR The nurse who was roughly arrested at a Salt Lake City hospital has settled with the city and the university that owns the hospital for $500,000. Police body camera footage from the July incident showed an officer roughly arresting Alex Wubbels after ... A Utah nurse arrested for protecting her patient gets a $500000 settlement CNN all 390 news articles »
 
 
 Full story on F3News: [Utah Nurse Arrested For Doing Her Job Reaches $500000 Settlement - NPR](http://www.f3nws.com/n/XrGWeG)
