@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC terror attack suspect, Sayfullo Saipov, entered US through Diversity Visa Program"
-date: 2017-11-01 11:26:00Z
+date: 2017-11-01 12:20:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The alleged ISIS fanatic authorities say was behind Tuesday’s deadly New York 
 
 Full story on F3News: [NYC terror attack suspect, Sayfullo Saipov, entered US through Diversity Visa Program](http://www.f3nws.com/n/RYpHeE)
 
-> Posted on: Wednesday, November 1, 2017 11:26:00 AM
+> Posted on: Wednesday, November 1, 2017 12:20:00 PM

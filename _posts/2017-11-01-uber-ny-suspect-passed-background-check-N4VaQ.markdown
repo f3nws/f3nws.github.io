@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber: NY suspect passed background check"
-date: 2017-11-01 08:39:33Z
+date: 2017-11-01 12:37:01Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [Uber: NY suspect passed background check](http://www.f3nws.com/n/N4VaQ)
 
-> Posted on: Wednesday, November 1, 2017 8:39:33 AM
+> Posted on: Wednesday, November 1, 2017 12:37:01 PM
