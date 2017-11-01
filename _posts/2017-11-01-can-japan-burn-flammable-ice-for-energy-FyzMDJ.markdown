@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Can Japan burn flammable ice for energy?"
-date: 2017-11-01 01:58:36Z
+date: 2017-11-01 03:42:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan's relationship with the energy sector is, at best, complicated.
 
 Full story on F3News: [Can Japan burn flammable ice for energy?](http://www.f3nws.com/n/FyzMDJ)
 
-> Posted on: Wednesday, November 1, 2017 1:58:36 AM
+> Posted on: Wednesday, November 1, 2017 3:42:42 AM

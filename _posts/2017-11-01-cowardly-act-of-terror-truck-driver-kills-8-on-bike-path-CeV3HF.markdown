@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Cowardly act of terror': Truck driver kills 8 on bike path"
-date: 2017-11-01 02:05:36Z
+date: 2017-11-01 04:26:27Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Police are responding to a report of gunfire a few blocks from the World Trade C
 
 Full story on F3News: ['Cowardly act of terror': Truck driver kills 8 on bike path](http://www.f3nws.com/n/CeV3HF)
 
-> Posted on: Wednesday, November 1, 2017 2:05:36 AM
+> Posted on: Wednesday, November 1, 2017 4:26:27 AM

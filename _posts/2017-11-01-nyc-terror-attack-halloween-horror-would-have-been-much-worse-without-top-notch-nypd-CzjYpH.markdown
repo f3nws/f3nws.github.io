@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC terror attack: Halloween horror would have been much worse without top notch NYPD"
-date: 2017-11-01 02:45:03Z
+date: 2017-11-01 04:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The NYC terror attack left 8 people dead on Tuesday. But the toll could have bee
 
 Full story on F3News: [NYC terror attack: Halloween horror would have been much worse without top notch NYPD](http://www.f3nws.com/n/CzjYpH)
 
-> Posted on: Wednesday, November 1, 2017 2:45:03 AM
+> Posted on: Wednesday, November 1, 2017 4:45:02 AM

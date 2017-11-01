@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Dakota man reportedly under fire for wearing blackface and holding 'will stand for money' sign"
-date: 2017-11-01 02:45:04Z
+date: 2017-11-01 03:50:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A man in South Dakota has been forced to apologize after sharing his Halloween c
 
 Full story on F3News: [South Dakota man reportedly under fire for wearing blackface and holding 'will stand for money' sign](http://www.f3nws.com/n/fYF3TE)
 
-> Posted on: Wednesday, November 1, 2017 2:45:04 AM
+> Posted on: Wednesday, November 1, 2017 3:50:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect names group in note found at scene of truck attack that killed 8, source says"
-date: 2017-11-01 03:04:09Z
+date: 2017-11-01 04:25:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The New York Police Department is responding to reports of shots fired in lower 
 
 Full story on F3News: [Suspect names group in note found at scene of truck attack that killed 8, source says](http://www.f3nws.com/n/3edQh)
 
-> Posted on: Wednesday, November 1, 2017 3:04:09 AM
+> Posted on: Wednesday, November 1, 2017 4:25:16 AM

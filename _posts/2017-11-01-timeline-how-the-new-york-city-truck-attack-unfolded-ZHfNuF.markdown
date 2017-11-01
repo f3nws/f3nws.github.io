@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Timeline: How the New York City truck attack unfolded"
-date: 2017-11-01 01:03:44Z
+date: 2017-11-01 04:44:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least eight people were killed Tuesday in what New York officials are calling
 
 Full story on F3News: [Timeline: How the New York City truck attack unfolded](http://www.f3nws.com/n/ZHfNuF)
 
-> Posted on: Wednesday, November 1, 2017 1:03:44 AM
+> Posted on: Wednesday, November 1, 2017 4:44:16 AM
