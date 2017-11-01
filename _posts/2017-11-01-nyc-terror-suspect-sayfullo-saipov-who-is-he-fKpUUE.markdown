@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC terror suspect Sayfullo Saipov: Who is he?"
-date: 2017-11-01 09:45:03Z
+date: 2017-11-01 10:45:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The man suspected of plowing a truck through a crowded bike lane in New York on 
 
 Full story on F3News: [NYC terror suspect Sayfullo Saipov: Who is he?](http://www.f3nws.com/n/fKpUUE)
 
-> Posted on: Wednesday, November 1, 2017 9:45:03 AM
+> Posted on: Wednesday, November 1, 2017 10:45:07 AM
