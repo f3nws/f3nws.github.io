@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Hocus Pocus' remake will be 'cheap' according to Bette Midler"
-date: 2017-11-01 08:45:05Z
+date: 2017-11-01 09:45:04Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Bette Midler is not impressed that the Disney Channel is remaking the Halloween 
 
 Full story on F3News: ['Hocus Pocus' remake will be 'cheap' according to Bette Midler](http://www.f3nws.com/n/yneMaF)
 
-> Posted on: Wednesday, November 1, 2017 8:45:05 AM
+> Posted on: Wednesday, November 1, 2017 9:45:04 AM
