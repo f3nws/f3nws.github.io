@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump aide's suspected middleman boasted about Moscow contacts"
-date: 2017-11-01 09:29:34Z
+date: 2017-11-01 14:13:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An academic suspected of being the link between a Trump campaign adviser and the
 
 Full story on F3News: [Trump aide's suspected middleman boasted about Moscow contacts](http://www.f3nws.com/n/2VZfHJ)
 
-> Posted on: Wednesday, November 1, 2017 9:29:34 AM
+> Posted on: Wednesday, November 1, 2017 2:13:58 PM
