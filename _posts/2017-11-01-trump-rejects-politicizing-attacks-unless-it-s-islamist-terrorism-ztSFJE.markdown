@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump rejects politicizing attacks -- unless it's Islamist terrorism"
-date: 2017-11-01 17:50:25Z
+date: 2017-11-01 20:24:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When 58 Americans were killed last month by a white gunman in Las Vegas with no 
 
 Full story on F3News: [Trump rejects politicizing attacks -- unless it's Islamist terrorism](http://www.f3nws.com/n/ztSFJE)
 
-> Posted on: Wednesday, November 1, 2017 5:50:25 PM
+> Posted on: Wednesday, November 1, 2017 8:24:24 PM

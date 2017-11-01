@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Laughing stock': Trump blasts US justice system"
-date: 2017-11-01 18:23:43Z
+date: 2017-11-01 20:21:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump called for "quick justice" and "strong justice" for terro
 
 Full story on F3News: ['Laughing stock': Trump blasts US justice system](http://www.f3nws.com/n/mZ4tAJ)
 
-> Posted on: Wednesday, November 1, 2017 6:23:43 PM
+> Posted on: Wednesday, November 1, 2017 8:21:13 PM
