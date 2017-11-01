@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Videos show Manhattan terrorist attack suspect, victims & aftermath (GRAPHIC)"
-date: 2017-11-01 00:17:13Z
+date: 2017-11-01 00:17:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Graphic images captured at the scene of the terrorist truck attack in Manhattan 
 
 Full story on F3News: [Videos show Manhattan terrorist attack suspect, victims & aftermath (GRAPHIC)](http://www.f3nws.com/n/YNPnMH)
 
-> Posted on: Wednesday, November 1, 2017 12:17:13 AM
+> Posted on: Wednesday, November 1, 2017 12:17:00 AM
