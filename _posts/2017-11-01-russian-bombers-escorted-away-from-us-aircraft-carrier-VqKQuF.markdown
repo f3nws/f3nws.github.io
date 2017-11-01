@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian bombers escorted away from US aircraft carrier"
-date: 2017-11-01 00:26:31Z
+date: 2017-11-01 14:02:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Navy F/A-18 fighter jets were dispatched from the aircraft carrier USS Ronald
 
 Full story on F3News: [Russian bombers escorted away from US aircraft carrier](http://www.f3nws.com/n/VqKQuF)
 
-> Posted on: Wednesday, November 1, 2017 12:26:31 AM
+> Posted on: Wednesday, November 1, 2017 2:02:53 PM
