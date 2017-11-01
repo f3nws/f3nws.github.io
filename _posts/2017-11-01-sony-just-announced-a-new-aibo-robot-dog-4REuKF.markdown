@@ -5,6 +5,8 @@ date: 2017-11-01 03:13:49Z
 categories: the-verge
 ---
 
+![Sony just announced a new Aibo robot dog](https://cdn.vox-cdn.com/thumbor/kjivGi61Iki0VHqxBkBtCAreGEQ=/0x65:900x536/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9581537/aibo.jpg)
+
 
 
 
