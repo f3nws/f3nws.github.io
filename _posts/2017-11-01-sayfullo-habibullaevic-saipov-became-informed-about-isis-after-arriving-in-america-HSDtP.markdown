@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sayfullo Habibullaevic Saipov 'became informed about ISIS after arriving in America'"
-date: 2017-11-01 18:35:52Z
+date: 2017-11-01 19:12:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a 29-year-old man drove a truck into a Manhattan crowd on Tuesday, killing
 
 Full story on F3News: [Sayfullo Habibullaevic Saipov 'became informed about ISIS after arriving in America'](http://www.f3nws.com/n/HSDtP)
 
-> Posted on: Wednesday, November 1, 2017 6:35:52 PM
+> Posted on: Wednesday, November 1, 2017 7:12:48 PM
