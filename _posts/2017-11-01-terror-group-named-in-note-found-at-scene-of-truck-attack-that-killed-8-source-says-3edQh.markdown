@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Terror group named in note found at scene of truck attack that killed 8, source says"
-date: 2017-11-01 01:37:52Z
+date: 2017-11-01 02:36:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The New York Police Department is responding to reports of shots fired in lower 
 
 Full story on F3News: [Terror group named in note found at scene of truck attack that killed 8, source says](http://www.f3nws.com/n/3edQh)
 
-> Posted on: Wednesday, November 1, 2017 1:37:52 AM
+> Posted on: Wednesday, November 1, 2017 2:36:34 AM
