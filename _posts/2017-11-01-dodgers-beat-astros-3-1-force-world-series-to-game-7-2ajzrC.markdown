@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dodgers beat Astros 3-1, force World Series to Game 7"
-date: 2017-11-01 04:39:53Z
+date: 2017-11-01 05:27:37Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — Joc Pederson sliced a drive over the left-field wall, pound
 
 Full story on F3News: [Dodgers beat Astros 3-1, force World Series to Game 7](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, November 1, 2017 4:39:53 AM
+> Posted on: Wednesday, November 1, 2017 5:27:37 AM

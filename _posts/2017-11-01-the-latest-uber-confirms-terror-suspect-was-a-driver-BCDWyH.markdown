@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Latest: Uber confirms terror suspect was a driver"
-date: 2017-11-01 04:29:22Z
+date: 2017-11-01 04:42:11Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Latest on a vehicle driving onto a bike path and gunfire near the World Trad
 
 Full story on F3News: [The Latest: Uber confirms terror suspect was a driver](http://www.f3nws.com/n/BCDWyH)
 
-> Posted on: Wednesday, November 1, 2017 4:29:22 AM
+> Posted on: Wednesday, November 1, 2017 4:42:11 AM
