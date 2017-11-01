@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC terror attack leaves 8 dead, several injured; suspect's notes pledged ISIS loyalty"
-date: 2017-11-01 02:30:00Z
+date: 2017-11-01 02:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A suspect accused of plowing a pickup truck onto a bike path and into a crowd in
 
 Full story on F3News: [NYC terror attack leaves 8 dead, several injured; suspect's notes pledged ISIS loyalty](http://www.f3nws.com/n/nCDWYF)
 
-> Posted on: Wednesday, November 1, 2017 2:30:00 AM
+> Posted on: Wednesday, November 1, 2017 2:45:00 AM

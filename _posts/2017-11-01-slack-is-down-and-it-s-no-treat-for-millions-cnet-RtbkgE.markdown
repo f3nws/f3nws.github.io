@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Slack is down, and it's no treat for millions     - CNET"
-date: 2017-11-01 00:51:54Z
+date: 2017-11-01 02:06:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The popular workplace messaging app is delivering the equivalent of the Charlie 
 
 Full story on F3News: [Slack is down, and it's no treat for millions     - CNET](http://www.f3nws.com/n/RtbkgE)
 
-> Posted on: Wednesday, November 1, 2017 12:51:54 AM
+> Posted on: Wednesday, November 1, 2017 2:06:16 AM
