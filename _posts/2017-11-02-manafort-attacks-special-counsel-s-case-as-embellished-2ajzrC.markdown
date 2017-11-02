@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manafort attacks special counsel's case as 'embellished'"
-date: 2017-11-02 21:34:18Z
+date: 2017-11-02 22:42:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump's former campaign chairman attacked a
 
 Full story on F3News: [Manafort attacks special counsel's case as 'embellished'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 2, 2017 9:34:18 PM
+> Posted on: Thursday, November 2, 2017 10:42:16 PM
