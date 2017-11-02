@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![At least 2 dead in shooting at Walmart in Colorado – police](https://cdni.rt.com/files/static.en/article/breaking.jpg)
 
-Police are urging people to stay away from a Walmart in Thornton, Colorado, where at least two people have died from a shooting. Read Full Article at RT.com
+Police are urging people to stay away from a Walmart in Thornton, Colorado, where at least two people have died from a shooting. There is no suspect in custody. Read Full Article at RT.com
 
 
 Full story on F3News: [At least 2 dead in shooting at Walmart in Colorado – police](http://www.f3nws.com/n/WqbVmF)

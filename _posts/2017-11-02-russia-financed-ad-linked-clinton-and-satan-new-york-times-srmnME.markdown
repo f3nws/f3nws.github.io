@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Russia-Financed Ad Linked Clinton and Satan - New York Times](https://static01.nyt.com/images/2017/11/02/business/02dc-social-4/02dc-social-4-facebookJumbo.jpg)
 
-New York Times Russia-Financed Ad Linked Clinton and Satan New York Times Sean Edgett, Twitter's acting general counsel, testified Wednesday in front of the Senate Intelligence Committee. Credit Eric Thayer for The New York Times. WASHINGTON — Lawmakers released scores of political ads on Wednesday purchased by Russian ... How Russian trolls got into your Facebook feed Washington Post Eight Revealing Moments From the Second Day of Russia Hearings WIRED Congress Ratchets Up Pressure on Facebook, Twitter, Google NBCNews.com VentureBeat - Business Insider - Recode - TechCrunch all 613 news articles »
+New York Times Russia-Financed Ad Linked Clinton and Satan New York Times Sean Edgett, Twitter's acting general counsel, testified Wednesday in front of the Senate Intelligence Committee. Credit Eric Thayer for The New York Times. WASHINGTON — Lawmakers released scores of political ads on Wednesday purchased by Russian ... House Intelligence Committee releases Russia-linked Facebook ads ABC News How Russian trolls got into your Facebook feed Washington Post Eight Revealing Moments From the Second Day of Russia Hearings WIRED NBCNews.com - Business Insider - VentureBeat - TechCrunch all 615 news articles »
 
 
 Full story on F3News: [Russia-Financed Ad Linked Clinton and Satan - New York Times](http://www.f3nws.com/n/srmnME)
