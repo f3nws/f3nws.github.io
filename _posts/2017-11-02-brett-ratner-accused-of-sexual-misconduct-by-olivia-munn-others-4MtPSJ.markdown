@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brett Ratner accused of sexual misconduct by Olivia Munn, others"
-date: 2017-11-02 00:17:04Z
+date: 2017-11-02 01:22:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Director and producer Brett Ratner is the latest Hollywood figure accused of sex
 
 Full story on F3News: [Brett Ratner accused of sexual misconduct by Olivia Munn, others](http://www.f3nws.com/n/4MtPSJ)
 
-> Posted on: Thursday, November 2, 2017 12:17:04 AM
+> Posted on: Thursday, November 2, 2017 1:22:24 AM
