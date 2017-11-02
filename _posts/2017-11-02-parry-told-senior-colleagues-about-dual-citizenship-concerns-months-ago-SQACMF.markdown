@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Parry told senior colleagues about dual citizenship concerns months ago](http://www.abc.net.au/news/image/9105122-1x1-700x700.jpg)
 
-Stephen Parry confided he might have a dual citizenship problem to senior colleagues including a Cabinet minister months ago but was advised not to raise the alarm, the ABC can reveal.
+Stephen Parry confided he might have a dual citizenship problem to senior colleagues including Cabinet minister Mitch Fifield months ago, but a colleague advised him not to raise the alarm.
 
 
 Full story on F3News: [Parry told senior colleagues about dual citizenship concerns months ago](http://www.f3nws.com/n/SQACMF)
