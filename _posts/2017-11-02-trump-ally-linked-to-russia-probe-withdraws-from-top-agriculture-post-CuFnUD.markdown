@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump ally linked to Russia probe withdraws from top agriculture post"
-date: 2017-11-02 15:48:24Z
+date: 2017-11-02 17:08:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's nominee to be the Department of Agriculture's chief sci
 
 Full story on F3News: [Trump ally linked to Russia probe withdraws from top agriculture post](http://www.f3nws.com/n/CuFnUD)
 
-> Posted on: Thursday, November 2, 2017 3:48:24 PM
+> Posted on: Thursday, November 2, 2017 5:08:11 PM
