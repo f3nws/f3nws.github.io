@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gender inequality: It's getting even harder to be a woman"
-date: 2017-11-02 08:24:26Z
+date: 2017-11-02 15:13:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Gender inequality: It's getting even harder to be a woman](http://www.f3nws.com/n/NKs4MF)
 
-> Posted on: Thursday, November 2, 2017 8:24:26 AM
+> Posted on: Thursday, November 2, 2017 3:13:29 PM
