@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 killed in Colorado Walmart shooting; police seek suspect"
-date: 2017-11-02 08:37:46Z
+date: 2017-11-02 10:39:40Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ THORNTON, Colo. (AP) — A man nonchalantly walked into a Walmart and immediatel
 
 Full story on F3News: [3 killed in Colorado Walmart shooting; police seek suspect](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 2, 2017 8:37:46 AM
+> Posted on: Thursday, November 2, 2017 10:39:40 AM

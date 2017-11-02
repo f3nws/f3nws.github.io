@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's message after his first major attack on US soil as President was of fury and desire for vengeance"
-date: 2017-11-02 09:28:34Z
+date: 2017-11-02 10:25:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump just changed the way Presidents talk about terror attacks.
 
 Full story on F3News: [Trump's message after his first major attack on US soil as President was of fury and desire for vengeance](http://www.f3nws.com/n/ENFqbF)
 
-> Posted on: Thursday, November 2, 2017 9:28:34 AM
+> Posted on: Thursday, November 2, 2017 10:25:36 AM
