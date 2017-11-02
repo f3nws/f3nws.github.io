@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP tax bill: No changes to 401(k), doubles deductions for middle class, limits state and local tax"
-date: 2017-11-02 14:29:00Z
+date: 2017-11-02 16:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ House Republicans on Thursday unveiled their long-awaited tax bill which preserv
 
 Full story on F3News: [GOP tax bill: No changes to 401(k), doubles deductions for middle class, limits state and local tax](http://www.f3nws.com/n/ZBnkZF)
 
-> Posted on: Thursday, November 2, 2017 2:29:00 PM
+> Posted on: Thursday, November 2, 2017 4:15:00 PM

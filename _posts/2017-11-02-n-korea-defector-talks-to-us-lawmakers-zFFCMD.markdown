@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea defector talks to US lawmakers"
-date: 2017-11-02 14:19:14Z
+date: 2017-11-02 16:00:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At the age of just four years old, children in North Korea bow before giant port
 
 Full story on F3News: [N. Korea defector talks to US lawmakers](http://www.f3nws.com/n/zFFCMD)
 
-> Posted on: Thursday, November 2, 2017 2:19:14 PM
+> Posted on: Thursday, November 2, 2017 4:00:22 PM
