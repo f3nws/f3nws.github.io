@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scientists discover hidden chamber in Egypt's Great Pyramid"
-date: 2017-11-02 12:32:48Z
+date: 2017-11-02 13:35:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CAIRO (AP) — Scientists have found a hidden chamber in Egypt's Great Pyramid o
 
 Full story on F3News: [Scientists discover hidden chamber in Egypt's Great Pyramid](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 2, 2017 12:32:48 PM
+> Posted on: Thursday, November 2, 2017 1:35:32 PM

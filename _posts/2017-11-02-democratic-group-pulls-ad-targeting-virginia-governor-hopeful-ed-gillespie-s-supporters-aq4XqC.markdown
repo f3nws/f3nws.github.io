@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Democratic group pulls ad targeting Virginia governor hopeful Ed Gillespie's supporters"
-date: 2017-11-02 08:45:01Z
+date: 2017-11-02 13:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A television ad depicting supporters of Virginia governor hopeful Ed Gillespie a
 
 Full story on F3News: [Democratic group pulls ad targeting Virginia governor hopeful Ed Gillespie's supporters](http://www.f3nws.com/n/aq4XqC)
 
-> Posted on: Thursday, November 2, 2017 8:45:01 AM
+> Posted on: Thursday, November 2, 2017 1:45:03 PM

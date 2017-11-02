@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Houston Astros win World Series for first time in franchise history"
-date: 2017-11-02 05:49:54Z
+date: 2017-11-02 13:03:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Astros are World Series champions for the first time in franchise history, d
 
 Full story on F3News: [Houston Astros win World Series for first time in franchise history](http://www.f3nws.com/n/pGGdYB)
 
-> Posted on: Thursday, November 2, 2017 5:49:54 AM
+> Posted on: Thursday, November 2, 2017 1:03:08 PM
