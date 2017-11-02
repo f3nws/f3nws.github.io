@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roar! Beyonce, Donald Glover to star in 'Lion King' remake     - CNET"
-date: 2017-11-02 01:14:26Z
+date: 2017-11-02 04:02:14Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Queen Bey will voice Nala in the live-action musical drama for 2019, alongside a
 
 Full story on F3News: [Roar! Beyonce, Donald Glover to star in 'Lion King' remake     - CNET](http://www.f3nws.com/n/egf2xH)
 
-> Posted on: Thursday, November 2, 2017 1:14:26 AM
+> Posted on: Thursday, November 2, 2017 4:02:14 AM

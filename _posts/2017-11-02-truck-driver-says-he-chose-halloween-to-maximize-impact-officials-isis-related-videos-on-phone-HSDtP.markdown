@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Truck driver says he chose Halloween to maximize impact | Officials: ISIS-related videos on phone"
-date: 2017-11-02 00:46:14Z
+date: 2017-11-02 04:40:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a 29-year-old man drove a truck into a Manhattan crowd on Tuesday, killing
 
 Full story on F3News: [Truck driver says he chose Halloween to maximize impact | Officials: ISIS-related videos on phone](http://www.f3nws.com/n/HSDtP)
 
-> Posted on: Thursday, November 2, 2017 12:46:14 AM
+> Posted on: Thursday, November 2, 2017 4:40:55 AM

@@ -7,7 +7,7 @@ categories: bgr
 
 ![JCPenney Black Friday 2017 ad just leaked: $200 PS4 and TV deals - BGR](https://boygeniusreport.files.wordpress.com/2017/11/jcpenney-stores.jpg?quality=98&strip=all)
 
-BGR JCPenney Black Friday 2017 ad just leaked: $200 PS4 and TV deals BGR The Black Friday 2017 season has officially started, with ads from various retailers leaking left and right. Some companies are offering early deals starting with November 1st, while others are simply getting ready for the busiest shopping period of ... Costco Offering Up Some Great System Bundles For Black Friday Comicbook.com JCPenney offers early glimpse of Black Friday deals WIBW Costco Black Friday Console Bundles Revealed Gaming Target The Jolt Journal (blog) - I4U News - Polygon - Chron.com all 11 news articles »
+BGR JCPenney Black Friday 2017 ad just leaked: $200 PS4 and TV deals BGR The Black Friday 2017 season has officially started, with ads from various retailers leaking left and right. Some companies are offering early deals starting with November 1st, while others are simply getting ready for the busiest shopping period of ... Costco Black Friday ad includes great deals on console bundles Polygon all 12 news articles »
 
 
 Full story on F3News: [JCPenney Black Friday 2017 ad just leaked: $200 PS4 and TV deals - BGR](http://www.f3nws.com/n/YJHYUF)
