@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What's in the Republicans' tax plan?"
-date: 2017-11-02 15:54:01Z
+date: 2017-11-02 18:07:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [What's in the Republicans' tax plan?](http://www.f3nws.com/n/WgzUnC)
 
-> Posted on: Thursday, November 2, 2017 3:54:01 PM
+> Posted on: Thursday, November 2, 2017 6:07:09 PM

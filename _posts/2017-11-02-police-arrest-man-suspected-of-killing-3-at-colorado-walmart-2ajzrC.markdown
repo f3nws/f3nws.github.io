@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police arrest man suspected of killing 3 at Colorado Walmart"
-date: 2017-11-02 17:41:52Z
+date: 2017-11-02 18:35:43Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ THORNTON, Colo. (AP) — A man suspected of fatally shooting two men and a woman
 
 Full story on F3News: [Police arrest man suspected of killing 3 at Colorado Walmart](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 2, 2017 5:41:52 PM
+> Posted on: Thursday, November 2, 2017 6:35:43 PM

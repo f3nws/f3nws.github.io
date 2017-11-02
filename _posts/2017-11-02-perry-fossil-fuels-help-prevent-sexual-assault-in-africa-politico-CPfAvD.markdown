@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Perry: Fossil fuels help prevent sexual assault in Africa - Politico](https://static.politico.com/44/31/d4ba41ff4187909c58b2395a6d83/rick-perry-ap.jpg)
 
-Politico Perry: Fossil fuels help prevent sexual assault in Africa Politico Energy Secretary Rick Perry suggested on Thursday that increasing fossil fuel use to spread electricity across Africa would help prevent sexual assaults there. Perry, who traveled to South Africa last week to tout the Energy Department's partnerships ... What will help prevent sexual assault? Expanding use of fossil fuels, Rick Perry says Sacramento Bee Energy Secretary Rick Perry Says Fossil Fuels Can Prevent Sexual Assault NBCNews.com Rick Perry tells protesters that fossil fuels are good because they prevent sexual assault ThinkProgress The Hill - CBS News - USA TODAY - Mother Jones all 42 news articles »
+Politico Perry: Fossil fuels help prevent sexual assault in Africa Politico Energy Secretary Rick Perry suggested on Thursday that increasing fossil fuel use to spread electricity across Africa would help prevent sexual assaults there. Perry, who traveled to South Africa last week to tout the Energy Department's partnerships ... Sierra Club calls for Perry to resign over sexual assault comments The Hill Rick Perry Says Fossil Fuels Will Prevent Sexual Assaults In Africa HuffPost What will help prevent sexual assault? Expanding use of fossil fuels, Rick Perry says Sacramento Bee ThinkProgress - NBCNews.com - Dallas News - VICE all 57 news articles »
 
 
 Full story on F3News: [Perry: Fossil fuels help prevent sexual assault in Africa - Politico](http://www.f3nws.com/n/CPfAvD)
