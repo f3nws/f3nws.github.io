@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy collisions 'sloppy beyond description'"
-date: 2017-11-02 03:33:36Z
+date: 2017-11-02 11:23:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US Navy has released a report concluding that two fatal collisions that resu
 
 Full story on F3News: [US Navy collisions 'sloppy beyond description'](http://www.f3nws.com/n/tz4AzC)
 
-> Posted on: Thursday, November 2, 2017 3:33:36 AM
+> Posted on: Thursday, November 2, 2017 11:23:20 AM

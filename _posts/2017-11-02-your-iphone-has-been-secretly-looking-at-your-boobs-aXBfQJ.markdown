@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Your iPhone has been secretly looking at your boobs"
-date: 2017-11-02 10:45:02Z
+date: 2017-11-02 11:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ It turns out Apple has been categorizing your pictures for around a year now —
 
 Full story on F3News: [Your iPhone has been secretly looking at your boobs](http://www.f3nws.com/n/aXBfQJ)
 
-> Posted on: Thursday, November 2, 2017 10:45:02 AM
+> Posted on: Thursday, November 2, 2017 11:00:00 AM
