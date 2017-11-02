@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Good man with a huge heart': Final two victims identified"
-date: 2017-11-02 00:26:34Z
+date: 2017-11-02 02:23:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five friends from Argentina celebrating the 30th anniversary of their high schoo
 
 Full story on F3News: ['Good man with a huge heart': Final two victims identified](http://www.f3nws.com/n/xGaHjE)
 
-> Posted on: Thursday, November 2, 2017 12:26:34 AM
+> Posted on: Thursday, November 2, 2017 2:23:08 AM

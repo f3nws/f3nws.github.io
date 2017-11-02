@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber, Lyft ban far-right commentator after anti-Muslim tweets     - CNET"
-date: 2017-11-02 00:56:38Z
+date: 2017-11-02 02:08:08Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The ride-hailing companies deactivate Laura Loomer's accounts after she posts a 
 
 Full story on F3News: [Uber, Lyft ban far-right commentator after anti-Muslim tweets     - CNET](http://www.f3nws.com/n/EPJbPB)
 
-> Posted on: Thursday, November 2, 2017 12:56:38 AM
+> Posted on: Thursday, November 2, 2017 2:08:08 AM
