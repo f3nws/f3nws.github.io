@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donna Brazile: I found 'proof' the DNC rigged the nomination for Hillary Clinton"
-date: 2017-11-02 15:22:00Z
+date: 2017-11-02 20:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Veteran Democratic operative Donna Brazile made the explosive claim Thursday she
 
 Full story on F3News: [Donna Brazile: I found 'proof' the DNC rigged the nomination for Hillary Clinton](http://www.f3nws.com/n/D3muNJ)
 
-> Posted on: Thursday, November 2, 2017 3:22:00 PM
+> Posted on: Thursday, November 2, 2017 8:00:00 PM

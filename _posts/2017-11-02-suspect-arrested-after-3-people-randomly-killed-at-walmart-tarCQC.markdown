@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect arrested after 3 people 'randomly' killed at Walmart"
-date: 2017-11-02 17:22:53Z
+date: 2017-11-02 20:37:53Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man suspected of killing three people at random inside a Colorado Walmart ha
 
 Full story on F3News: [Suspect arrested after 3 people 'randomly' killed at Walmart](http://www.f3nws.com/n/tarCQC)
 
-> Posted on: Thursday, November 2, 2017 5:22:53 PM
+> Posted on: Thursday, November 2, 2017 8:37:53 PM
