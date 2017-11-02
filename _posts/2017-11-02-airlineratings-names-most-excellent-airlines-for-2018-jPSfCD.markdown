@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AirlineRatings names 'most excellent' airlines for 2018"
-date: 2017-11-02 05:24:49Z
+date: 2017-11-02 07:26:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Air New Zealand gets regular kudos for innovating everything from in-flight serv
 
 Full story on F3News: [AirlineRatings names 'most excellent' airlines for 2018](http://www.f3nws.com/n/jPSfCD)
 
-> Posted on: Thursday, November 2, 2017 5:24:49 AM
+> Posted on: Thursday, November 2, 2017 7:26:12 AM

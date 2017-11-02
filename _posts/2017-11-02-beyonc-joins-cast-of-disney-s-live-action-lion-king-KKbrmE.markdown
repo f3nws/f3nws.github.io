@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beyoncé joins cast of Disney's live-action 'Lion King'"
-date: 2017-11-02 01:15:58Z
+date: 2017-11-02 07:07:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Queen Bey has joined "The Lion King."
 
 Full story on F3News: [Beyoncé joins cast of Disney's live-action 'Lion King'](http://www.f3nws.com/n/KKbrmE)
 
-> Posted on: Thursday, November 2, 2017 1:15:58 AM
+> Posted on: Thursday, November 2, 2017 7:07:35 AM

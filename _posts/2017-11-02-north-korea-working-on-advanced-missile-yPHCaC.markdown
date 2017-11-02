@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea working on advanced missile"
-date: 2017-11-02 03:21:57Z
+date: 2017-11-02 07:03:34Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ CNN has learned that North Korea is working on an advanced version of its existi
 
 Full story on F3News: [North Korea working on advanced missile](http://www.f3nws.com/n/yPHCaC)
 
-> Posted on: Thursday, November 2, 2017 3:21:57 AM
+> Posted on: Thursday, November 2, 2017 7:03:34 AM
