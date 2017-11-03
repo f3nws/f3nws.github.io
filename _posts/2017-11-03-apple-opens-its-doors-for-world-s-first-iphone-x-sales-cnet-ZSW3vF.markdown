@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple opens its doors for world's first iPhone X sales     - CNET"
-date: 2017-11-03 00:53:24Z
+date: 2017-11-03 02:50:21Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ As iPhone X launch day dawns around the world and queues reach their peak, visit
 
 Full story on F3News: [Apple opens its doors for world's first iPhone X sales     - CNET](http://www.f3nws.com/n/ZSW3vF)
 
-> Posted on: Friday, November 3, 2017 12:53:24 AM
+> Posted on: Friday, November 3, 2017 2:50:21 AM
