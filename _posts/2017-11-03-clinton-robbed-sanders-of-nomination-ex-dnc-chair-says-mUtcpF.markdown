@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clinton robbed Sanders of nomination, ex-DNC chair says"
-date: 2017-11-03 02:16:04Z
+date: 2017-11-03 03:15:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Democratic National Committee interim chair Donna Brazile, in newly relea
 
 Full story on F3News: [Clinton robbed Sanders of nomination, ex-DNC chair says](http://www.f3nws.com/n/mUtcpF)
 
-> Posted on: Friday, November 3, 2017 2:16:04 AM
+> Posted on: Friday, November 3, 2017 3:15:38 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sessions under renewed scrutiny over candor on Russia"
-date: 2017-11-03 02:16:55Z
+date: 2017-11-03 03:16:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Attorney General Jeff Sessions is once again under scrutiny on Capitol Hill rega
 
 Full story on F3News: [Sessions under renewed scrutiny over candor on Russia](http://www.f3nws.com/n/gQakNG)
 
-> Posted on: Friday, November 3, 2017 2:16:55 AM
+> Posted on: Friday, November 3, 2017 3:16:51 AM
