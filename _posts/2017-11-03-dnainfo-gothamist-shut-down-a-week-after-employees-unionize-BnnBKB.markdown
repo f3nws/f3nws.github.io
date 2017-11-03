@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DNAinfo, Gothamist shut down a week after employees unionize"
-date: 2017-11-03 00:40:53Z
+date: 2017-11-03 06:31:27Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [DNAinfo, Gothamist shut down a week after employees unionize](http://www.f3nws.com/n/BnnBKB)
 
-> Posted on: Friday, November 3, 2017 12:40:53 AM
+> Posted on: Friday, November 3, 2017 6:31:27 AM

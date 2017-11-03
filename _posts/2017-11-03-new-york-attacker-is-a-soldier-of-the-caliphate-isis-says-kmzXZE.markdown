@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New York attacker is a 'soldier of the caliphate,' ISIS says"
-date: 2017-11-03 04:44:58Z
+date: 2017-11-03 06:32:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The man accused of using a truck to plow down pedestrians and cyclists on a New 
 
 Full story on F3News: [New York attacker is a 'soldier of the caliphate,' ISIS says](http://www.f3nws.com/n/kmzXZE)
 
-> Posted on: Friday, November 3, 2017 4:44:58 AM
+> Posted on: Friday, November 3, 2017 6:32:00 AM
