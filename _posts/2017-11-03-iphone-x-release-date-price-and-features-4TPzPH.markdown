@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X release date, price and features"
-date: 2017-11-03 07:16:16Z
+date: 2017-11-03 14:25:09Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ It's almost 10 years in the making, as we're getting an all-screen iPhone X from
 
 Full story on F3News: [iPhone X release date, price and features](http://www.f3nws.com/n/4TPzPH)
 
-> Posted on: Friday, November 3, 2017 7:16:16 AM
+> Posted on: Friday, November 3, 2017 2:25:09 PM

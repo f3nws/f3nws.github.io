@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "15 women who founded $1 billion startups"
-date: 2017-11-03 10:45:43Z
+date: 2017-11-03 14:08:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [15 women who founded $1 billion startups](http://www.f3nws.com/n/UJVqZD)
 
-> Posted on: Friday, November 3, 2017 10:45:43 AM
+> Posted on: Friday, November 3, 2017 2:08:52 PM

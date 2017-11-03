@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'House of Cards' employees allege sexual harassment, assault by Kevin Spacey"
-date: 2017-11-03 02:59:24Z
+date: 2017-11-03 14:34:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['House of Cards' employees allege sexual harassment, assault by Kevin Spacey](http://www.f3nws.com/n/mVTyFC)
 
-> Posted on: Friday, November 3, 2017 2:59:24 AM
+> Posted on: Friday, November 3, 2017 2:34:32 PM
