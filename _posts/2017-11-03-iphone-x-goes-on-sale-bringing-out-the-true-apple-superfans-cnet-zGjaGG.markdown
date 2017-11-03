@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X goes on sale, bringing out the true Apple superfans     - CNET"
-date: 2017-11-03 02:48:43Z
+date: 2017-11-03 04:57:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Apple fans around the world queued to be among those few, those happy few, to ge
 
 Full story on F3News: [iPhone X goes on sale, bringing out the true Apple superfans     - CNET](http://www.f3nws.com/n/zGjaGG)
 
-> Posted on: Friday, November 3, 2017 2:48:43 AM
+> Posted on: Friday, November 3, 2017 4:57:23 AM
