@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYC terror suspect 'was my Uber driver'"
-date: 2017-11-03 15:21:10Z
+date: 2017-11-03 16:50:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A British couple who visited New Jersey last week for a friend's wedding was sho
 
 Full story on F3News: [NYC terror suspect 'was my Uber driver'](http://www.f3nws.com/n/GmBPv)
 
-> Posted on: Friday, November 3, 2017 3:21:10 PM
+> Posted on: Friday, November 3, 2017 4:50:09 PM

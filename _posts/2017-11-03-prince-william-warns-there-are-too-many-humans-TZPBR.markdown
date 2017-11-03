@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince William warns there are too many humans"
-date: 2017-11-03 12:34:12Z
+date: 2017-11-03 12:34:00Z
 categories: rt-uk
 ---
 
@@ -12,4 +12,4 @@ Prince William, whose wife is expecting their third child, has sent out a bleak 
 
 Full story on F3News: [Prince William warns there are too many humans](http://www.f3nws.com/n/TZPBR)
 
-> Posted on: Friday, November 3, 2017 12:34:12 PM
+> Posted on: Friday, November 3, 2017 12:34:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cillizza: Wait, I thought Trump had 'one of the greatest memories of all time'?"
-date: 2017-11-03 14:14:51Z
+date: 2017-11-03 17:30:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Just before jetting off on a 12-day trip to Asia Friday, reporters asked Preside
 
 Full story on F3News: [Cillizza: Wait, I thought Trump had 'one of the greatest memories of all time'?](http://www.f3nws.com/n/PUEQ2F)
 
-> Posted on: Friday, November 3, 2017 2:14:51 PM
+> Posted on: Friday, November 3, 2017 5:30:29 PM
