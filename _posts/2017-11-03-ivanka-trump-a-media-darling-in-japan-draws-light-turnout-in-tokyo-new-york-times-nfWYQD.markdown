@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Ivanka Trump, a Media Darling in Japan, Draws Light Turnout in Tokyo - New York Times](https://static01.nyt.com/images/2017/11/04/world/04ivanka-1/04ivanka-1-facebookJumbo.jpg)
 
-New York Times Ivanka Trump, a Media Darling in Japan, Draws Light Turnout in Tokyo New York Times Ivanka Trump spoke to a sparsely filled room at the World Assembly for Women in Tokyo on Friday. Credit Pool photo by Eugene Hoshiko. TOKYO — As the president might say, the room was half full. Ivanka Trump, the president's daughter and adviser, was ... First on CNN: Ivanka Trump nods to 'womenomics' in Japan CNN Ivanka Trump Spoke About Women's Empowerment In Japan And Hardly Anyone Showed Up Newsweek In Tokyo, Ivanka Trump says sexual harassment 'can never be tolerated' Fox News Washington Post - WJLA - The Guardian - Bloomberg all 83 news articles »
+New York Times Ivanka Trump, a Media Darling in Japan, Draws Light Turnout in Tokyo New York Times Ivanka Trump spoke to a sparsely filled room at the World Assembly for Women in Tokyo on Friday. Credit Pool photo by Eugene Hoshiko. TOKYO — As the president might say, the room was half full. Ivanka Trump, the president's daughter and adviser, was ... First on CNN: Ivanka Trump nods to 'womenomics' in Japan CNN Ivanka Trump: Harassment of women at work can't be tolerated USA TODAY Ivanka Trump Spoke About Women's Empowerment In Japan And Hardly Anyone Showed Up Newsweek Fox News - Washington Post - The Guardian - The Japan Times all 93 news articles »
 
 
 Full story on F3News: [Ivanka Trump, a Media Darling in Japan, Draws Light Turnout in Tokyo - New York Times](http://www.f3nws.com/n/nfWYQD)

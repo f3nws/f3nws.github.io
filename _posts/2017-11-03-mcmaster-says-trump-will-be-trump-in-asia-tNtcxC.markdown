@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "McMaster says Trump will be Trump in Asia"
-date: 2017-11-03 06:32:30Z
+date: 2017-11-03 09:55:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ahead of President Donald Trump's five-country, 12-day trip to Asia, his top nat
 
 Full story on F3News: [McMaster says Trump will be Trump in Asia](http://www.f3nws.com/n/tNtcxC)
 
-> Posted on: Friday, November 3, 2017 6:32:30 AM
+> Posted on: Friday, November 3, 2017 9:55:32 AM
