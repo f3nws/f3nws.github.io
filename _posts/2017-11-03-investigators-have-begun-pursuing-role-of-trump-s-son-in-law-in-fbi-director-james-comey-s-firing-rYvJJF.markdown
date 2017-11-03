@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Investigators have begun pursuing role of Trump's son-in-law in FBI Director James Comey's firing"
-date: 2017-11-03 05:53:09Z
+date: 2017-11-03 06:51:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jared Kushner has turned over documents in recent weeks to special counsel Rober
 
 Full story on F3News: [Investigators have begun pursuing role of Trump's son-in-law in FBI Director James Comey's firing](http://www.f3nws.com/n/rYvJJF)
 
-> Posted on: Friday, November 3, 2017 5:53:09 AM
+> Posted on: Friday, November 3, 2017 6:51:06 AM

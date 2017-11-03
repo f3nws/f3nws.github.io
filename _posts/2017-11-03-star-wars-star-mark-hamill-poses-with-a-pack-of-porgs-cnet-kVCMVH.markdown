@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Star Wars star Mark Hamill poses with a pack of porgs     - CNET"
-date: 2017-11-03 03:17:17Z
+date: 2017-11-03 05:17:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The actor who plays Luke Skywalker posts a photo to Instagram with the caption, 
 
 Full story on F3News: [Star Wars star Mark Hamill poses with a pack of porgs     - CNET](http://www.f3nws.com/n/kVCMVH)
 
-> Posted on: Friday, November 3, 2017 3:17:17 AM
+> Posted on: Friday, November 3, 2017 5:17:05 AM
