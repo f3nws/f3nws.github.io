@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Venezuela: We can't pay our debts anymore"
-date: 2017-11-03 12:31:44Z
+date: 2017-11-03 13:39:39Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Venezuelan President Nicolas Maduro finally admitted his government can't afford
 
 Full story on F3News: [Venezuela: We can't pay our debts anymore](http://www.f3nws.com/n/jPjGsB)
 
-> Posted on: Friday, November 3, 2017 12:31:44 PM
+> Posted on: Friday, November 3, 2017 1:39:39 PM
