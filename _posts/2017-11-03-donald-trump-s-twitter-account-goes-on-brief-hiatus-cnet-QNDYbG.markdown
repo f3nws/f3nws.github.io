@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Donald Trump's Twitter account goes on brief hiatus     - CNET"
-date: 2017-11-03 00:25:44Z
+date: 2017-11-03 01:59:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The president's personal Twitter account disappears from the social network, pro
 
 Full story on F3News: [Donald Trump's Twitter account goes on brief hiatus     - CNET](http://www.f3nws.com/n/QNDYbG)
 
-> Posted on: Friday, November 3, 2017 12:25:44 AM
+> Posted on: Friday, November 3, 2017 1:59:57 AM

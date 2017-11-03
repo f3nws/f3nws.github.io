@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Democrats express outrage over allegations of early party control for Clinton in 2016 - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/11/02/Interactivity/Images/Post_Live_first_100_days01.JPG?t=20170517)
 
-Washington Post Democrats express outrage over allegations of early party control for Clinton in 2016 Washington Post Many Democrats expressed outrage Thursday at allegations from a former party chairwoman that an agreement with the Democratic National Committee gave the presidential campaign of Hillary Clinton some day-to-day control over the party early in the ... Hillary Clinton Gets an Award and Tears are Shed New York Times Trump, Warren agree with assertion Democratic primary was 'rigged' Politico Former Democratic chief: Clinton 'took control' of party BBC News The Hill - USA TODAY - CBS News - Washington Examiner all 207 news articles »
+Washington Post Democrats express outrage over allegations of early party control for Clinton in 2016 Washington Post Many Democrats expressed outrage Thursday at allegations from a former party chairwoman that an agreement with the Democratic National Committee gave the presidential campaign of Hillary Clinton some day-to-day control over the party early in the ... Opposites agree: Trump, Warren say Democratic primary was 'rigged' Politico Former Democratic chief: Clinton 'took control' of party BBC News Hillary Clinton Gets an Award and Tears are Shed New York Times The Hill - CBS News - USA TODAY - Fox News all 221 news articles »
 
 
 Full story on F3News: [Democrats express outrage over allegations of early party control for Clinton in 2016 - Washington Post](http://www.f3nws.com/n/WR2aNB)
