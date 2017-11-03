@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X goes on sale around the world"
-date: 2017-11-03 01:02:46Z
+date: 2017-11-03 06:52:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [iPhone X goes on sale around the world](http://www.f3nws.com/n/uyMQPC)
 
-> Posted on: Friday, November 3, 2017 1:02:46 AM
+> Posted on: Friday, November 3, 2017 6:52:16 AM
