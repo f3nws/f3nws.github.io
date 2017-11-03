@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DoubleDutch CEO Bryan Parker is out after a couple of months"
-date: 2017-11-03 00:51:21Z
+date: 2017-11-03 03:43:21Z
 categories: techcrunch
 ---
 
@@ -12,4 +12,4 @@ Live engagement marketing platform DoubleDutch has replaced CEO Bryan Parker, wh
 
 Full story on F3News: [DoubleDutch CEO Bryan Parker is out after a couple of months](http://www.f3nws.com/n/dEfKu)
 
-> Posted on: Friday, November 3, 2017 12:51:21 AM
+> Posted on: Friday, November 3, 2017 3:43:21 AM

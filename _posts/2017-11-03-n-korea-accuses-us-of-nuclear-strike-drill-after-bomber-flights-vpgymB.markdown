@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea accuses US of 'nuclear strike drill' after bomber flights"
-date: 2017-11-03 02:40:49Z
+date: 2017-11-03 04:34:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Air Force B-1 bombers, accompanied by fighter jets from South Korea and Japan
 
 Full story on F3News: [N. Korea accuses US of 'nuclear strike drill' after bomber flights](http://www.f3nws.com/n/vpgymB)
 
-> Posted on: Friday, November 3, 2017 2:40:49 AM
+> Posted on: Friday, November 3, 2017 4:34:46 AM

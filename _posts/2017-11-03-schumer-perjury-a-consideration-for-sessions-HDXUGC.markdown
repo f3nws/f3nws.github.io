@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Schumer: Perjury a consideration for Sessions"
-date: 2017-11-03 02:36:26Z
+date: 2017-11-03 01:28:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Senator Chuck Schumer talks with Rachel Maddow about Jeff Sessions' ever-evolvin
 
 Full story on F3News: [Schumer: Perjury a consideration for Sessions](http://www.f3nws.com/n/HDXUGC)
 
-> Posted on: Friday, November 3, 2017 2:36:26 AM
+> Posted on: Friday, November 3, 2017 1:28:00 AM

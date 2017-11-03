@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Schumer: GOP tax bill stinks like a dead fish"
-date: 2017-11-03 02:39:34Z
+date: 2017-11-03 01:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Senator Chuck Schumer talks with Rachel Maddow about the problems he sees in the
 
 Full story on F3News: [Schumer: GOP tax bill stinks like a dead fish](http://www.f3nws.com/n/xGbBcD)
 
-> Posted on: Friday, November 3, 2017 2:39:34 AM
+> Posted on: Friday, November 3, 2017 1:40:00 AM
