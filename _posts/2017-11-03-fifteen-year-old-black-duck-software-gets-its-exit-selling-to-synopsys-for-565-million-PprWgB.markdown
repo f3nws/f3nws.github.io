@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Fifteen-year-old Black Duck Software gets its exit, selling to Synopsys for $565 million](https://tctechcrunch2011.files.wordpress.com/2016/08/gettyimages-473045750.jpg)
 
-Black Duck Software, a 15-year-old company whose products automate the process of securing and managing open source software — including detecting license compliance issues — is being acquired by Synopsys, the publicly traded maker of semiconductor-design software. Under the terms of the definitive agreement, 31-year-old Synopsys will pay approximately $565 million, or $548… Read More
+Black Duck Software, a 15-year-old company whose products automate the process of securing and managing open-source software — including detecting license compliance issues — is being acquired by Synopsys, the publicly traded maker of semiconductor-design software. Read More
 
 
 Full story on F3News: [Fifteen-year-old Black Duck Software gets its exit, selling to Synopsys for $565 million](http://www.f3nws.com/n/PprWgB)
