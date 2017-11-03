@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mysterious 'void' discovered in Great Pyramid"
-date: 2017-11-03 09:28:59Z
+date: 2017-11-03 19:04:31Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Mystery is no stranger to the Great Pyramid of Giza. For centuries, scientists a
 
 Full story on F3News: [Mysterious 'void' discovered in Great Pyramid](http://www.f3nws.com/n/uUqpTH)
 
-> Posted on: Friday, November 3, 2017 9:28:59 AM
+> Posted on: Friday, November 3, 2017 7:04:31 PM

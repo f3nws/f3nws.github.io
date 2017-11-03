@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump to tout 'womenomics'"
-date: 2017-11-03 02:39:00Z
+date: 2017-11-03 18:57:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump has arrived in Tokyo for a very brief trip to speak about women's p
 
 Full story on F3News: [Ivanka Trump to tout 'womenomics'](http://www.f3nws.com/n/ynjBsD)
 
-> Posted on: Friday, November 3, 2017 2:39:00 AM
+> Posted on: Friday, November 3, 2017 6:57:41 PM
