@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X: Absolutely everything you need to know     - CNET"
-date: 2017-11-03 00:19:51Z
+date: 2017-11-03 10:29:07Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We've got an iPhone X and we're reviewing it in real time!
 
 Full story on F3News: [iPhone X: Absolutely everything you need to know     - CNET](http://www.f3nws.com/n/sN4zjB)
 
-> Posted on: Friday, November 3, 2017 12:19:51 AM
+> Posted on: Friday, November 3, 2017 10:29:07 AM

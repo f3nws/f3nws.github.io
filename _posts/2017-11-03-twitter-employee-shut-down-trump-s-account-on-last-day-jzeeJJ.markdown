@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter employee shut down Trump's account on last day"
-date: 2017-11-03 05:06:18Z
+date: 2017-11-03 11:00:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Twitter employee shut down Trump's account on last day](http://www.f3nws.com/n/jzeeJJ)
 
-> Posted on: Friday, November 3, 2017 5:06:18 AM
+> Posted on: Friday, November 3, 2017 11:00:29 AM
