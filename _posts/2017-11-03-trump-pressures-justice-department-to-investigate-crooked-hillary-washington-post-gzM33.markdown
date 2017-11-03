@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump pressures Justice Department to investigate 'Crooked Hillary' - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/11/01/National-Politics/Images/Botsford171101Trump21760.JPG?t=20170517)
 
-Washington Post Trump pressures Justice Department to investigate 'Crooked Hillary' Washington Post President Trump on Friday pressured the Department of Justice — and specifically the FBI — to investigate Hillary Clinton, ticking through a slew of issues involving the 2016 Democratic presidential nominee and her party, and urging law enforcement ... Elizabeth Warren agrees Democratic race 'rigged' for Clinton BBC News One year later, Democrats try to use painful lessons of 2016 to guide future campaigns Los Angeles Times Trump ratchets up call for DOJ to investigate Hillary Clinton Politico Fox News - The Atlantic - The Hill - ABC News all 446 news articles »
+Washington Post Trump pressures Justice Department to investigate 'Crooked Hillary' Washington Post President Trump on Friday pressured the Department of Justice — and specifically the FBI — to investigate Hillary Clinton, ticking through a slew of issues involving the 2016 Democratic presidential nominee and her party, and urging law enforcement ... Elizabeth Warren agrees Democratic race 'rigged' for Clinton BBC News Trump ratchets up call for DOJ to investigate Hillary Clinton Politico Trump Demands the Prosecution of His Defeated Rival The Atlantic The Hill (blog) - ABC News - NBCNews.com - U.S. News & World Report all 467 news articles »
 
 
 Full story on F3News: [Trump pressures Justice Department to investigate 'Crooked Hillary' - Washington Post](http://www.f3nws.com/n/gzM33)
