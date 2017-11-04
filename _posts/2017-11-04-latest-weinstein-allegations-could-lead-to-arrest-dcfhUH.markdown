@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest Weinstein allegations could lead to arrest"
-date: 2017-11-04 00:11:42Z
+date: 2017-11-04 14:47:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The latest sexual assault allegations against Harvey Weinstein could result in t
 
 Full story on F3News: [Latest Weinstein allegations could lead to arrest](http://www.f3nws.com/n/dcfhUH)
 
-> Posted on: Saturday, November 4, 2017 12:11:42 AM
+> Posted on: Saturday, November 4, 2017 2:47:41 PM
