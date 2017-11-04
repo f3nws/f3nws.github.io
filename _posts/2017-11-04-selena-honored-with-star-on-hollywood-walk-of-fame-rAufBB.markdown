@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Selena honored with star on Hollywood Walk of Fame"
-date: 2017-11-04 10:40:00Z
+date: 2017-11-04 19:42:24Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The legacy of singer Selena Quintanilla has lived on for more than two decades. 
 
 Full story on F3News: [Selena honored with star on Hollywood Walk of Fame](http://www.f3nws.com/n/rAufBB)
 
-> Posted on: Saturday, November 4, 2017 10:40:00 AM
+> Posted on: Saturday, November 4, 2017 7:42:24 PM
