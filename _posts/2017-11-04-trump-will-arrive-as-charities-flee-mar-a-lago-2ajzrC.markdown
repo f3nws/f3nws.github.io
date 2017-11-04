@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump will arrive as charities flee Mar-a-Lago"
-date: 2017-11-04 18:34:01Z
+date: 2017-11-04 19:30:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PALM BEACH, Fla. (AP) — It's November, which means President Donald Trump's Ma
 
 Full story on F3News: [Trump will arrive as charities flee Mar-a-Lago](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, November 4, 2017 6:34:01 PM
+> Posted on: Saturday, November 4, 2017 7:30:30 PM

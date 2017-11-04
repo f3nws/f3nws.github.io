@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lebanese PM resigns claiming his 'life is in danger'"
-date: 2017-11-04 16:37:14Z
+date: 2017-11-04 18:59:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lebanese Prime Minister Saad Hariri resigned in a televised address while in Sau
 
 Full story on F3News: [Lebanese PM resigns claiming his 'life is in danger'](http://www.f3nws.com/n/QuzMT)
 
-> Posted on: Saturday, November 4, 2017 4:37:14 PM
+> Posted on: Saturday, November 4, 2017 6:59:30 PM
