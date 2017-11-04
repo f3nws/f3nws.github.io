@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Mother-of-two killed in 'tragic' train crash at Victorian level crossing - 9news.com.au](http://prod.static9.net.au/_/media/2017/11/04/21/00/171104_gtv_train2.jpg)
 
-9news.com.au Mother-of-two killed in 'tragic' train crash at Victorian level crossing 9news.com.au A small town is mourning a mother-of-two who died after her car was struck by a passenger train at a level crossing in Victoria's west. Rosalie Mitchell, 46, was only a few hundred metres from her home when the Melbourne-bound Overland train from ... Woman who died after Overland interstate passenger train hit car identified The Age Overland train and car collide in south-west Victoria, killing woman ABC Local Woman killed in horror crash between car and train in Victoria myGC.com.au Daily Mail all 6 news articles »
+9news.com.au Mother-of-two killed in 'tragic' train crash at Victorian level crossing 9news.com.au A small town is mourning a mother-of-two who died after her car was struck by a passenger train at a level crossing in Victoria's west. Rosalie Mitchell, 46, was only a few hundred metres from her home when the Melbourne-bound Overland train from ... Woman who died after Overland interstate passenger train hit car identified The Age Overland train and car collide in south-west Victoria, killing woman ABC Local Mum-of-two, 46, was just minutes from home when she died after the Overland train smashed into her car at a level ... Daily Mail all 6 news articles »
 
 
 Full story on F3News: [Mother-of-two killed in 'tragic' train crash at Victorian level crossing - 9news.com.au](http://www.f3nws.com/n/YaUTKE)
