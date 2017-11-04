@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Arrest warrant issued for ex-Catalan president"
-date: 2017-11-04 11:42:17Z
+date: 2017-11-04 16:19:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Spanish judge has issued an international and national arrest warrant for form
 
 Full story on F3News: [Arrest warrant issued for ex-Catalan president](http://www.f3nws.com/n/RE4TzE)
 
-> Posted on: Saturday, November 4, 2017 11:42:17 AM
+> Posted on: Saturday, November 4, 2017 4:19:58 PM

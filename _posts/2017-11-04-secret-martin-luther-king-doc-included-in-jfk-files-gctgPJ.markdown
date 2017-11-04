@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Secret Martin Luther King doc included in JFK files"
-date: 2017-11-04 01:52:11Z
+date: 2017-11-04 16:12:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Secret Martin Luther King document included in JFK file release CNN (CNN) Pr
 
 Full story on F3News: [Secret Martin Luther King doc included in JFK files](http://www.f3nws.com/n/gctgPJ)
 
-> Posted on: Saturday, November 4, 2017 1:52:11 AM
+> Posted on: Saturday, November 4, 2017 4:12:20 PM
