@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nineteen years of courage"
-date: 2017-11-04 06:59:02Z
+date: 2017-11-04 08:26:14Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Nineteen years of courage](http://www.f3nws.com/n/bePbeE)
 
-> Posted on: Saturday, November 4, 2017 6:59:02 AM
+> Posted on: Saturday, November 4, 2017 8:26:14 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US soldier avoids jail time for deserting"
-date: 2017-11-04 02:51:06Z
+date: 2017-11-04 08:18:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US soldier avoids jail time for deserting](http://www.f3nws.com/n/SpmSgC)
 
-> Posted on: Saturday, November 4, 2017 2:51:06 AM
+> Posted on: Saturday, November 4, 2017 8:18:19 AM
