@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia intercepts ballistic missile over capital"
-date: 2017-11-04 20:14:08Z
+date: 2017-11-04 21:02:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A ballistic missile has been intercepted over north-east Riyadh, Saudi Arabia's 
 
 Full story on F3News: [Saudi Arabia intercepts ballistic missile over capital](http://www.f3nws.com/n/JbVy2H)
 
-> Posted on: Saturday, November 4, 2017 8:14:08 PM
+> Posted on: Saturday, November 4, 2017 9:02:32 PM

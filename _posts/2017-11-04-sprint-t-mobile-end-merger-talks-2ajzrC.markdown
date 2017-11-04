@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sprint, T-Mobile end merger talks"
-date: 2017-11-04 20:36:38Z
+date: 2017-11-04 21:30:51Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Wireless carriers Sprint and T-Mobile called off a potential m
 
 Full story on F3News: [Sprint, T-Mobile end merger talks](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, November 4, 2017 8:36:38 PM
+> Posted on: Saturday, November 4, 2017 9:30:51 PM
