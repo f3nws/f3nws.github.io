@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside story: How Russians hacked the Democrats' emails"
-date: 2017-11-04 04:29:05Z
+date: 2017-11-04 05:37:04Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — It was just before noon in Moscow on March 10, 2016, when th
 
 Full story on F3News: [Inside story: How Russians hacked the Democrats' emails](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, November 4, 2017 4:29:05 AM
+> Posted on: Saturday, November 4, 2017 5:37:04 AM
