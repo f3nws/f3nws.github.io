@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Netflix Severs Ties With Kevin Spacey, Drops 'Gore' Movie - Hollywood Reporter](http://cdn2.thr.com/sites/default/files/2017/11/gettyimages-507658068_-_h_2017.jpg)
 
-Hollywood Reporter Netflix Severs Ties With Kevin Spacey, Drops 'Gore' Movie Hollywood Reporter The streamer is "evaluating" the future of political drama 'House of Cards' and is no longer moving forward with a planned Gore Vidal biopic that the two-time Oscar winner was set to star in. Netflix is officially severing ties with Kevin Spacey amid ... Netflix Axes Spacey From 'House Of Cards'; MRC Says He's “Suspended” – Update Deadline Netflix severing ties with Kevin Spacey amid sexual assault allegations Fox News Netflix Officially Cuts All Ties to Kevin Spacey E! Online Baltimore Sun - The Verge - RollingStone.com - BuzzFeed News all 227 news articles »
+Hollywood Reporter Netflix Severs Ties With Kevin Spacey, Drops 'Gore' Movie Hollywood Reporter The streamer is "evaluating" the future of political drama 'House of Cards' and is no longer moving forward with a planned Gore Vidal biopic that the two-time Oscar winner was starring in. Netflix is officially severing ties with Kevin Spacey amid ... Kevin Spacey Allegedly Showed Teen Porn & Groped a Journalist in New Claims Against Him PEOPLE.com Netflix dumps Kevin Spacey from House of Cards EW.com Netflix Axes Spacey From 'House Of Cards'; MRC Says He's “Suspended” – Update Deadline New York Daily News - Fox News - E! Online - Washington Post all 251 news articles »
 
 
 Full story on F3News: [Netflix Severs Ties With Kevin Spacey, Drops 'Gore' Movie - Hollywood Reporter](http://www.f3nws.com/n/CzaQDC)
