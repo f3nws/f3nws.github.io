@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fresh questions about Trump administration's review of AT&T-Time Warner deal"
-date: 2017-11-04 00:41:54Z
+date: 2017-11-04 15:54:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Fresh questions about Trump administration's review of AT&T-Time Warner deal](http://www.f3nws.com/n/dV2sYH)
 
-> Posted on: Saturday, November 4, 2017 12:41:54 AM
+> Posted on: Saturday, November 4, 2017 3:54:38 PM
