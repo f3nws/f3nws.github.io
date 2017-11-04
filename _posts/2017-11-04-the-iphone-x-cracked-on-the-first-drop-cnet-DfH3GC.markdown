@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The iPhone X cracked on the first drop     - CNET"
-date: 2017-11-04 14:43:16Z
+date: 2017-11-04 16:41:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ We subjected our brand new iPhone X to a scratch and drop test to determine how 
 
 Full story on F3News: [The iPhone X cracked on the first drop     - CNET](http://www.f3nws.com/n/DfH3GC)
 
-> Posted on: Saturday, November 4, 2017 2:43:16 PM
+> Posted on: Saturday, November 4, 2017 4:41:15 PM
