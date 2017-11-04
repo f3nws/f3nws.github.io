@@ -7,7 +7,7 @@ categories: fox-news
 
 ![George HW Bush calls Trump a 'blowhard' in new book: 'I don't like him' - Fox News](http://a57.foxnews.com/images.foxnews.com/content/dam/fox-news/images/2017/10/24/yj.jpg.img.png/0/0/1508907581732.png?ve=1)
 
-Fox News George HW Bush calls Trump a 'blowhard' in new book: 'I don't like him' Fox News Former President George H.W. Bush says he is not too excited about "blowhard" President Trump and confirmed in a new book that he voted for Hillary Clinton. “I don't like him,” Bush, 93, says in the book, according to a review by The New York Times. “I ... George HW Bush on Trump: He's a 'blowhard' The Hill (blog) Trump Is a 'Blowhard,' 'I Don't Like Him' and I Voted for Hillary, George Bush Says in New Book Newsweek 5 things to know this weekend USA TODAY Washington Examiner - CNN - New York Times - The Week Magazine all 27 news articles »
+Fox News George HW Bush calls Trump a 'blowhard' in new book: 'I don't like him' Fox News Former President George H.W. Bush says he is not too excited about "blowhard" President Trump and confirmed in a new book that he voted for Hillary Clinton. “I don't like him,” Bush, 93, says in the book, according to a review by The New York Times. “I ... Trump Is a 'Blowhard,' 'I Don't Like Him' and I Voted for Hillary, George Bush Says in New Book Newsweek George W. Bush: 'I'm worried that I will be the last Republican president' The Hill (blog) George HW Bush calls Trump a 'blowhard', George W. Bush worries he will be 'last Republican president' Washington Examiner The Week Magazine - The Independent - Hot Air - BizPac Review all 35 news articles »
 
 
 Full story on F3News: [George HW Bush calls Trump a 'blowhard' in new book: 'I don't like him' - Fox News](http://www.f3nws.com/n/vKRFRE)
