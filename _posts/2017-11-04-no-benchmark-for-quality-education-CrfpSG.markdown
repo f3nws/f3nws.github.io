@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘No benchmark for quality education’"
-date: 2017-11-04 02:31:28Z
+date: 2017-11-04 02:51:22Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [‘No benchmark for quality education’](http://www.f3nws.com/n/CrfpSG)
 
-> Posted on: Saturday, November 4, 2017 2:31:28 AM
+> Posted on: Saturday, November 4, 2017 2:51:22 AM

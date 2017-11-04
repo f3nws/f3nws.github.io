@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tailor’s Dhaka dreams unravel at the seams"
-date: 2017-11-04 02:36:49Z
+date: 2017-11-04 03:22:18Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Tailor’s Dhaka dreams unravel at the seams](http://www.f3nws.com/n/UeAhFD)
 
-> Posted on: Saturday, November 4, 2017 2:36:49 AM
+> Posted on: Saturday, November 4, 2017 3:22:18 AM
