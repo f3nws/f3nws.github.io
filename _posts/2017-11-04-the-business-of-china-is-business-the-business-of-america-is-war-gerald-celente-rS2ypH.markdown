@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘The business of China is business. The business of America is war’ – Gerald Celente"
-date: 2017-11-04 05:53:23Z
+date: 2017-11-04 05:53:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ While the United States is concentrated on wars, China wants economic prosperity
 
 Full story on F3News: [‘The business of China is business. The business of America is war’ – Gerald Celente](http://www.f3nws.com/n/rS2ypH)
 
-> Posted on: Saturday, November 4, 2017 5:53:23 AM
+> Posted on: Saturday, November 4, 2017 5:53:00 AM
