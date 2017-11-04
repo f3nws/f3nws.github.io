@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "It's time for daylight saving time to fall back...forever"
-date: 2017-11-04 08:45:05Z
+date: 2017-11-04 09:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ At 2 a.m. Sunday, daylight saving (not savings) time comes to an end for most Am
 
 Full story on F3News: [It's time for daylight saving time to fall back...forever](http://www.f3nws.com/n/Ntg4hC)
 
-> Posted on: Saturday, November 4, 2017 8:45:05 AM
+> Posted on: Saturday, November 4, 2017 9:00:00 AM
