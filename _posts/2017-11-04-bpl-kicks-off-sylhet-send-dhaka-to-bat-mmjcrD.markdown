@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "BPL kicks off, Sylhet send Dhaka to bat"
-date: 2017-11-04 09:01:07Z
+date: 2017-11-04 11:10:02Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [BPL kicks off, Sylhet send Dhaka to bat](http://www.f3nws.com/n/mmjcrD)
 
-> Posted on: Saturday, November 4, 2017 9:01:07 AM
+> Posted on: Saturday, November 4, 2017 11:10:02 AM
