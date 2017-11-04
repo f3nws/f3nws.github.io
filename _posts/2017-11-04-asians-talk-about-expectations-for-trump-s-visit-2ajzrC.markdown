@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asians talk about expectations for Trump's visit"
-date: 2017-11-04 00:35:54Z
+date: 2017-11-04 01:31:25Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump embarks on his first official visit to Asia, which begins
 
 Full story on F3News: [Asians talk about expectations for Trump's visit](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Saturday, November 4, 2017 12:35:54 AM
+> Posted on: Saturday, November 4, 2017 1:31:25 AM
