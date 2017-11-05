@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Newspapers should be newspapers, nothing else"
-date: 2017-11-05 07:58:48Z
+date: 2017-11-05 12:12:51Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [Newspapers should be newspapers, nothing else](http://www.f3nws.com/n/4qAWkH)
 
-> Posted on: Sunday, November 5, 2017 7:58:48 AM
+> Posted on: Sunday, November 5, 2017 12:12:51 PM

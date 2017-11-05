@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Son of Japan abductee to N. Korea hopes Trump raises issue"
-date: 2017-11-05 11:34:56Z
+date: 2017-11-05 12:29:38Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TOKYO (AP) — Koichiro Iizuka only knows her as Yaeko-san, a pretty woman smili
 
 Full story on F3News: [Son of Japan abductee to N. Korea hopes Trump raises issue](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, November 5, 2017 11:34:56 AM
+> Posted on: Sunday, November 5, 2017 12:29:38 PM
