@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "iPhone X vs iPhone 8 Plus: Is the camera worth the money?     - CNET"
-date: 2017-11-05 15:52:02Z
+date: 2017-11-05 18:19:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ See if you can tell the difference between the cameras on the iPhone X and iPhon
 
 Full story on F3News: [iPhone X vs iPhone 8 Plus: Is the camera worth the money?     - CNET](http://www.f3nws.com/n/sqPftD)
 
-> Posted on: Sunday, November 5, 2017 3:52:02 PM
+> Posted on: Sunday, November 5, 2017 6:19:06 PM
