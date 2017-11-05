@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Japan, Trump to try to put human face on NKorean menace"
-date: 2017-11-05 20:29:10Z
+date: 2017-11-05 22:32:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TOKYO (AP) — After easing into his Asian debut with golf and a taste of home, 
 
 Full story on F3News: [In Japan, Trump to try to put human face on NKorean menace](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, November 5, 2017 8:29:10 PM
+> Posted on: Sunday, November 5, 2017 10:32:30 PM
