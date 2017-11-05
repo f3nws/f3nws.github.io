@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Battle For Azeroth Might Be The Best Intro To WoW Yet - GameSpot](https://static.gamespot.com/uploads/screen_kubrick/1534/15343359/3311998-wow_battle_for_azeroth_anduin_tif_jpgcopy.jpg)
 
-CNET Battle For Azeroth Might Be The Best Intro To WoW Yet GameSpot We talk with John Hight about what Battle for Azeroth will bring to World of Warcraft. by Justin Haywald on November 4, 2017. Want the latest gaming news as it breaks? All the highlights in the world of games, lovingly delivered 2-3 times/week. You're ... How 'World of Warcraft Classic' will bring danger back to Blizzard's MMO Digital Trends (Update) BlizzCon's World of Warcraft diorama featuring real player characters is an incredible feat Destructoid Five things we learned from World of Warcraft: Battle for Azeroth's BlizzCon panel Polygon Kotaku - IGN - Engadget - VentureBeat all 171 news articles »
+Gears Of Biz Battle For Azeroth Might Be The Best Intro To WoW Yet GameSpot We talk with John Hight about what Battle for Azeroth will bring to World of Warcraft. by Justin Haywald on November 4, 2017. Want the latest gaming news as it breaks? All the highlights in the world of games, lovingly delivered 2-3 times/week. You're ... Blizzard on 'reintroducing' Blackthorne and The Lost Vikings: 'We talk about it quite a bit' PC Gamer How 'World of Warcraft Classic' will bring danger back to Blizzard's MMO Digital Trends (Update) BlizzCon's World of Warcraft diorama featuring real player characters is an incredible feat Destructoid Polygon - Kotaku - IGN - VentureBeat all 175 news articles »
 
 
 Full story on F3News: [Battle For Azeroth Might Be The Best Intro To WoW Yet - GameSpot](http://www.f3nws.com/n/HqCqxG)
