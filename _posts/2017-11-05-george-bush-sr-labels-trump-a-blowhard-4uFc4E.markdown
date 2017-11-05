@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "George Bush Sr. labels Trump a 'blowhard'"
-date: 2017-11-05 03:51:28Z
+date: 2017-11-05 17:33:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former President George H.W. Bush has a blunt assessment of Donald Trump: "He's 
 
 Full story on F3News: [George Bush Sr. labels Trump a 'blowhard'](http://www.f3nws.com/n/4uFc4E)
 
-> Posted on: Sunday, November 5, 2017 3:51:28 AM
+> Posted on: Sunday, November 5, 2017 5:33:10 PM

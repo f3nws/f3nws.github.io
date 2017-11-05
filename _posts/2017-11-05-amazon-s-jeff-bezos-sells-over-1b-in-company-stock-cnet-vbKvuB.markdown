@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon's Jeff Bezos sells over $1B in company stock     - CNET"
-date: 2017-11-05 00:10:57Z
+date: 2017-11-05 16:26:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The world's richest man unloads a few shares. Is the money bound for space?
 
 Full story on F3News: [Amazon's Jeff Bezos sells over $1B in company stock     - CNET](http://www.f3nws.com/n/vbKvuB)
 
-> Posted on: Sunday, November 5, 2017 12:10:57 AM
+> Posted on: Sunday, November 5, 2017 4:26:01 PM
