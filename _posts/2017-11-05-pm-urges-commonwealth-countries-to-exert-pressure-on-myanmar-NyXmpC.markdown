@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PM urges Commonwealth countries to exert pressure on Myanmar"
-date: 2017-11-05 08:12:22Z
+date: 2017-11-05 14:09:38Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [PM urges Commonwealth countries to exert pressure on Myanmar](http://www.f3nws.com/n/NyXmpC)
 
-> Posted on: Sunday, November 5, 2017 8:12:22 AM
+> Posted on: Sunday, November 5, 2017 2:09:38 PM
