@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stamkos scores in shootout, Lightning beat Blue Jackets"
-date: 2017-11-05 05:45:01Z
+date: 2017-11-05 06:21:06Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Steven Stamkos made the most of his second chance after taking a penalty in over
 
 Full story on F3News: [Stamkos scores in shootout, Lightning beat Blue Jackets](http://www.f3nws.com/n/WgKnSJ)
 
-> Posted on: Sunday, November 5, 2017 5:45:01 AM
+> Posted on: Sunday, November 5, 2017 6:21:06 AM

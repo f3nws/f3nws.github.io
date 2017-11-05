@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Coyotes finally break through at home with shootout win"
-date: 2017-11-05 05:45:02Z
+date: 2017-11-05 06:07:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Keller, Stepan score in shootout to give Coyotes first home-ice victory of seaso
 
 Full story on F3News: [Coyotes finally break through at home with shootout win](http://www.f3nws.com/n/EKGfcE)
 
-> Posted on: Sunday, November 5, 2017 5:45:02 AM
+> Posted on: Sunday, November 5, 2017 6:07:07 AM
