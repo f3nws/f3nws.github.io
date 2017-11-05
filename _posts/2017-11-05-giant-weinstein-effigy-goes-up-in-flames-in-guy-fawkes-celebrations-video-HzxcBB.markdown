@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Giant Weinstein effigy goes up in flames in Guy Fawkes celebrations (VIDEO)"
-date: 2017-11-05 02:43:31Z
+date: 2017-11-05 02:43:00Z
 categories: rt-uk
 ---
 
@@ -12,4 +12,4 @@ Thousands of revellers have flocked to the burning of an effigy of Harvey Weinst
 
 Full story on F3News: [Giant Weinstein effigy goes up in flames in Guy Fawkes celebrations (VIDEO)](http://www.f3nws.com/n/HzxcBB)
 
-> Posted on: Sunday, November 5, 2017 2:43:31 AM
+> Posted on: Sunday, November 5, 2017 2:43:00 AM

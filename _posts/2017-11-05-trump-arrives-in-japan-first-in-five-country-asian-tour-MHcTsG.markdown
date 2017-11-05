@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump arrives in Japan, first in five-country Asian tour"
-date: 2017-11-05 02:38:51Z
+date: 2017-11-05 03:31:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump touched down in Japan late Saturday ahead of a 13-day tre
 
 Full story on F3News: [Trump arrives in Japan, first in five-country Asian tour](http://www.f3nws.com/n/MHcTsG)
 
-> Posted on: Sunday, November 5, 2017 2:38:51 AM
+> Posted on: Sunday, November 5, 2017 3:31:43 AM
