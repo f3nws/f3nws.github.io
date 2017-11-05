@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi anti-corruption sweep leads to 17 high-profile arrests"
-date: 2017-11-05 15:04:05Z
+date: 2017-11-05 16:19:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia's newly formed anti-corruption committee have arrested at least 17 
 
 Full story on F3News: [Saudi anti-corruption sweep leads to 17 high-profile arrests](http://www.f3nws.com/n/bbHbkE)
 
-> Posted on: Sunday, November 5, 2017 3:04:05 PM
+> Posted on: Sunday, November 5, 2017 4:19:53 PM
