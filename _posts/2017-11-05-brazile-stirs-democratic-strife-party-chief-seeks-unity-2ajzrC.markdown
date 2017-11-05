@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazile stirs Democratic strife; party chief seeks unity"
-date: 2017-11-05 13:37:17Z
+date: 2017-11-05 14:32:10Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The former head of the Democratic National Committee says sh
 
 Full story on F3News: [Brazile stirs Democratic strife; party chief seeks unity](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, November 5, 2017 1:37:17 PM
+> Posted on: Sunday, November 5, 2017 2:32:10 PM
