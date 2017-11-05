@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump and Putin to meet and discuss North Korea"
-date: 2017-11-05 11:35:26Z
+date: 2017-11-05 19:38:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will seek to enlist his Russian counterpart Vladimir Puti
 
 Full story on F3News: [Trump and Putin to meet and discuss North Korea](http://www.f3nws.com/n/mUMqhD)
 
-> Posted on: Sunday, November 5, 2017 11:35:26 AM
+> Posted on: Sunday, November 5, 2017 7:38:26 PM
