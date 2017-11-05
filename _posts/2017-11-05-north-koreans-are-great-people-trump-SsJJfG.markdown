@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘North Koreans are great people’ – Trump"
-date: 2017-11-05 06:13:47Z
+date: 2017-11-05 06:13:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump praised the “industrious” North Korean people befo
 
 Full story on F3News: [‘North Koreans are great people’ – Trump](http://www.f3nws.com/n/SsJJfG)
 
-> Posted on: Sunday, November 5, 2017 6:13:47 AM
+> Posted on: Sunday, November 5, 2017 6:13:00 AM
