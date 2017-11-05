@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump begins Asia tour with praise for 'brave warriors'"
-date: 2017-11-05 09:35:12Z
+date: 2017-11-05 09:52:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump touched down in Japan late Saturday ahead of a 13-day tre
 
 Full story on F3News: [Trump begins Asia tour with praise for 'brave warriors'](http://www.f3nws.com/n/MHcTsG)
 
-> Posted on: Sunday, November 5, 2017 9:35:12 AM
+> Posted on: Sunday, November 5, 2017 9:52:02 AM
