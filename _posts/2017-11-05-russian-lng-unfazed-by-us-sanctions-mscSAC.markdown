@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian LNG unfazed by US sanctions"
-date: 2017-11-05 05:15:22Z
+date: 2017-11-05 05:15:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Russia’s energy industry faces a new round of US sanctions—including on oil 
 
 Full story on F3News: [Russian LNG unfazed by US sanctions](http://www.f3nws.com/n/mscSAC)
 
-> Posted on: Sunday, November 5, 2017 5:15:22 AM
+> Posted on: Sunday, November 5, 2017 5:15:00 AM
