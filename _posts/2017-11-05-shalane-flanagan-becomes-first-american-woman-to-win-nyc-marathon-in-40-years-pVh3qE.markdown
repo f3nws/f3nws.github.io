@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shalane Flanagan becomes first American woman to win NYC Marathon in 40 years"
-date: 2017-11-05 17:15:00Z
+date: 2017-11-05 18:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Shalane Flanagan became the first American woman to win the New York City Marath
 
 Full story on F3News: [Shalane Flanagan becomes first American woman to win NYC Marathon in 40 years](http://www.f3nws.com/n/pVh3qE)
 
-> Posted on: Sunday, November 5, 2017 5:15:00 PM
+> Posted on: Sunday, November 5, 2017 6:15:00 PM

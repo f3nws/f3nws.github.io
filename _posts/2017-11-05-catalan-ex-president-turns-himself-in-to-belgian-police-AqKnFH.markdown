@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan ex-President turns himself in to Belgian police"
-date: 2017-11-05 14:17:05Z
+date: 2017-11-05 17:24:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Catalan ex-President Carles Puigdemont and four other Catalan officials sought b
 
 Full story on F3News: [Catalan ex-President turns himself in to Belgian police](http://www.f3nws.com/n/AqKnFH)
 
-> Posted on: Sunday, November 5, 2017 2:17:05 PM
+> Posted on: Sunday, November 5, 2017 5:24:33 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harassment reports rock UK Parliament as scandal spreads"
-date: 2017-11-05 17:29:56Z
+date: 2017-11-05 18:41:22Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — The scandal surrounding Britain's political class deepened Sunda
 
 Full story on F3News: [Harassment reports rock UK Parliament as scandal spreads](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Sunday, November 5, 2017 5:29:56 PM
+> Posted on: Sunday, November 5, 2017 6:41:22 PM
