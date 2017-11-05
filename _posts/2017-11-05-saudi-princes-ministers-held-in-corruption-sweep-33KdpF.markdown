@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi princes, ministers held in corruption sweep"
-date: 2017-11-05 06:40:53Z
+date: 2017-11-05 07:19:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Eleven princes were arrested in Saudi Arabia on Saturday following the formation
 
 Full story on F3News: [Saudi princes, ministers held in corruption sweep](http://www.f3nws.com/n/33KdpF)
 
-> Posted on: Sunday, November 5, 2017 6:40:53 AM
+> Posted on: Sunday, November 5, 2017 7:19:00 AM
