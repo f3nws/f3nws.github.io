@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: Shooting result of 'mental health problem' not gun laws"
-date: 2017-11-06 08:05:22Z
+date: 2017-11-06 10:19:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Monday that he believes the Texas church shooting wa
 
 Full story on F3News: [Trump: Shooting result of 'mental health problem' not gun laws](http://www.f3nws.com/n/JMQ2hH)
 
-> Posted on: Monday, November 6, 2017 8:05:22 AM
+> Posted on: Monday, November 6, 2017 10:19:25 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brazile strains Dem unity ahead of key gov race in Virginia"
-date: 2017-11-06 09:41:37Z
+date: 2017-11-06 10:36:01Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Democrats are having trouble surmounting differences over th
 
 Full story on F3News: [Brazile strains Dem unity ahead of key gov race in Virginia](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, November 6, 2017 9:41:37 AM
+> Posted on: Monday, November 6, 2017 10:36:01 AM
