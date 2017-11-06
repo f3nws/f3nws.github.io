@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![She flipped off President Trump — and got fired from her government contracting job - Washington Post](https://img.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/11/06/Local-Enterprise/Images/bikeflippingoff.jpg?t=20170517)
 
-Washington Post She flipped off President Trump — and got fired from her government contracting job Washington Post It was the middle-finger salute seen around the world. Juli Briskman's protest aimed at the presidential motorcade that roared past her while she was on her usual cycling path in Northern Virginia last month became an instantly viral photo. Turns out ... Woman fired from her job after flipping off Trump's motorcade The Hill Woman fired after giving Trump's motorcade the finger New York Post Woman Fired for Flipping Off Trump's Motorcade Newsweek Fortune - Salon - AOL - Mediaite all 41 news articles »
+Washington Post She flipped off President Trump — and got fired from her government contracting job Washington Post It was the middle-finger salute seen around the world. Juli Briskman's protest aimed at the presidential motorcade that roared past her while she was on her usual cycling path in Northern Virginia last month became an instantly viral photo. Turns out ... Woman fired after giving Trump's motorcade the finger New York Post Woman fired from her job after flipping off Trump's motorcade The Hill Woman fired for showing Trump motorcade the middle finger BBC News Newsweek - Fortune - Salon - Mediaite all 56 news articles »
 
 
 Full story on F3News: [She flipped off President Trump — and got fired from her government contracting job - Washington Post](http://www.f3nws.com/n/QvTcmC)

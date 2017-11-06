@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ranking the Marvel Cinematic Universe movies     - CNET"
-date: 2017-11-06 12:00:15Z
+date: 2017-11-06 16:25:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CNET's Eric Franklin ranks all 17 movies in the Marvel Cinematic Universe and as
 
 Full story on F3News: [Ranking the Marvel Cinematic Universe movies     - CNET](http://www.f3nws.com/n/PUrmcE)
 
-> Posted on: Monday, November 6, 2017 12:00:15 PM
+> Posted on: Monday, November 6, 2017 4:25:02 PM
