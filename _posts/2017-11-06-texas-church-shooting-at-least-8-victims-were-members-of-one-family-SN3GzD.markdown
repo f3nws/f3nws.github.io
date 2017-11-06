@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas church shooting: At least 8 victims were members of one family"
-date: 2017-11-06 09:18:43Z
+date: 2017-11-06 11:52:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A shooter killed 26 people at a Texas church and at least eight of those victims
 
 Full story on F3News: [Texas church shooting: At least 8 victims were members of one family](http://www.f3nws.com/n/SN3GzD)
 
-> Posted on: Monday, November 6, 2017 9:18:43 AM
+> Posted on: Monday, November 6, 2017 11:52:24 AM

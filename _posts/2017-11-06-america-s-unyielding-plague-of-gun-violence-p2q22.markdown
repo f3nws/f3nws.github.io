@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "America's unyielding plague of gun violence"
-date: 2017-11-06 01:43:13Z
+date: 2017-11-06 12:37:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Americans often think of themselves as belonging to an exceptional nation, and i
 
 Full story on F3News: [America's unyielding plague of gun violence](http://www.f3nws.com/n/p2q22)
 
-> Posted on: Monday, November 6, 2017 1:43:13 AM
+> Posted on: Monday, November 6, 2017 12:37:39 PM

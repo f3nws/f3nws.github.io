@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "24 hours that shook the Middle East"
-date: 2017-11-06 08:45:13Z
+date: 2017-11-06 12:16:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When 32-year-old Saudi Prince Mohammed bin Salman rose to power two years ago, m
 
 Full story on F3News: [24 hours that shook the Middle East](http://www.f3nws.com/n/xkUBDD)
 
-> Posted on: Monday, November 6, 2017 8:45:13 AM
+> Posted on: Monday, November 6, 2017 12:16:22 PM
