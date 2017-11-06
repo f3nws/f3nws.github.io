@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian lawyer: Trump Jr. suggested review of sanctions law in meeting"
-date: 2017-11-06 17:37:26Z
+date: 2017-11-06 21:16:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Russian lawyer who met last year with senior members of the Trump campaign s
 
 Full story on F3News: [Russian lawyer: Trump Jr. suggested review of sanctions law in meeting](http://www.f3nws.com/n/C2XvYF)
 
-> Posted on: Monday, November 6, 2017 5:37:26 PM
+> Posted on: Monday, November 6, 2017 9:16:48 PM
