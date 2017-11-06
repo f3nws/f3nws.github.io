@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims range in age from 5 to 72"
-date: 2017-11-06 01:48:46Z
+date: 2017-11-06 03:22:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The FBI is responding to the scene of a reported shooting in Sutherland Springs,
 
 Full story on F3News: [Victims range in age from 5 to 72](http://www.f3nws.com/n/ZCcuHD)
 
-> Posted on: Monday, November 6, 2017 1:48:46 AM
+> Posted on: Monday, November 6, 2017 3:22:05 AM

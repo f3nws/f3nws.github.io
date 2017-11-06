@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US-Japan trade unfair, Trump says"
-date: 2017-11-06 00:16:51Z
+date: 2017-11-06 02:55:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US-Japan trade unfair, Trump says](http://www.f3nws.com/n/FBZ3AH)
 
-> Posted on: Monday, November 6, 2017 12:16:51 AM
+> Posted on: Monday, November 6, 2017 2:55:24 AM
