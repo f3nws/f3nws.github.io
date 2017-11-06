@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman killed wife's grandmother in church massacre"
-date: 2017-11-06 20:35:22Z
+date: 2017-11-06 21:42:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A shooter killed 26 people at a Texas church and at least eight of those victims
 
 Full story on F3News: [Gunman killed wife's grandmother in church massacre](http://www.f3nws.com/n/SN3GzD)
 
-> Posted on: Monday, November 6, 2017 8:35:22 PM
+> Posted on: Monday, November 6, 2017 9:42:30 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas church shooting victims include pastor's daughter, young children"
-date: 2017-11-06 20:00:00Z
+date: 2017-11-06 22:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ More than two dozen people were killed when a gunman opened fire in a Texas chur
 
 Full story on F3News: [Texas church shooting victims include pastor's daughter, young children](http://www.f3nws.com/n/aFhN4D)
 
-> Posted on: Monday, November 6, 2017 8:00:00 PM
+> Posted on: Monday, November 6, 2017 10:30:00 PM
