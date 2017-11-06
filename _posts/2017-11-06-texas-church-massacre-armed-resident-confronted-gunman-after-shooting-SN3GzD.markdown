@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas church massacre: Armed resident confronted gunman after shooting"
-date: 2017-11-06 14:11:24Z
+date: 2017-11-06 14:55:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A shooter killed 26 people at a Texas church and at least eight of those victims
 
 Full story on F3News: [Texas church massacre: Armed resident confronted gunman after shooting](http://www.f3nws.com/n/SN3GzD)
 
-> Posted on: Monday, November 6, 2017 2:11:24 PM
+> Posted on: Monday, November 6, 2017 2:55:37 PM

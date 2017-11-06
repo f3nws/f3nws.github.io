@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bewitching Hampi: Ancient city of gods, kings and ruins"
-date: 2017-11-06 03:31:35Z
+date: 2017-11-06 14:51:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a view that renders speech impossible.
 
 Full story on F3News: [Bewitching Hampi: Ancient city of gods, kings and ruins](http://www.f3nws.com/n/D2DEnH)
 
-> Posted on: Monday, November 6, 2017 3:31:35 AM
+> Posted on: Monday, November 6, 2017 2:51:59 PM
