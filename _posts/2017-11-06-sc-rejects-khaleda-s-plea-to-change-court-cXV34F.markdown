@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SC rejects Khaleda's plea to change court"
-date: 2017-11-06 05:51:29Z
+date: 2017-11-06 06:54:40Z
 categories: prothom-alo
 ---
 
@@ -12,4 +12,4 @@ categories: prothom-alo
 
 Full story on F3News: [SC rejects Khaleda's plea to change court](http://www.f3nws.com/n/cXV34F)
 
-> Posted on: Monday, November 6, 2017 5:51:29 AM
+> Posted on: Monday, November 6, 2017 6:54:40 AM

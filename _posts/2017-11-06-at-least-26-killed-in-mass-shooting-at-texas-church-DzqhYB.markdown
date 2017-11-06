@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 26 killed in mass shooting at Texas church"
-date: 2017-11-06 01:32:00Z
+date: 2017-11-06 02:58:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least 26 people were killed in Texas, with many more wounded, after a gunman 
 
 Full story on F3News: [At least 26 killed in mass shooting at Texas church](http://www.f3nws.com/n/DzqhYB)
 
-> Posted on: Monday, November 6, 2017 1:32:00 AM
+> Posted on: Monday, November 6, 2017 2:58:00 AM
