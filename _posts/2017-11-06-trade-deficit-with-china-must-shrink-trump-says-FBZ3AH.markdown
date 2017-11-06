@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trade deficit with China must shrink, Trump says"
-date: 2017-11-06 02:55:24Z
+date: 2017-11-06 10:24:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trade deficit with China must shrink, Trump says](http://www.f3nws.com/n/FBZ3AH)
 
-> Posted on: Monday, November 6, 2017 2:55:24 AM
+> Posted on: Monday, November 6, 2017 10:24:32 AM

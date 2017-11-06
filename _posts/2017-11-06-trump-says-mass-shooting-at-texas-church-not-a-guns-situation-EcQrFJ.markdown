@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Trump says mass shooting at Texas church not a 'guns situation'](http://www.abc.net.au/news/image/9123984-1x1-700x700.jpg)
 
-US President Donald Trump says the mass shooting in Texas that left at least 26 people dead was the result of a "mental health problem", not the country's gun laws, and labels the gunman "a very deranged individual".
+US President Donald Trump says the mass shooting in Texas that left at least 26 people dead was the result of a "mental health problem", not the country's gun laws, and labels gunman Devin Kelley (pictured) "a very deranged individual".
 
 
 Full story on F3News: [Trump says mass shooting at Texas church not a 'guns situation'](http://www.f3nws.com/n/EcQrFJ)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Abe, Trump agree now not time for talks with N Korea"
-date: 2017-11-06 10:54:26Z
+date: 2017-11-06 18:29:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump declared Monday the "era of strategic patience is over" w
 
 Full story on F3News: [Abe, Trump agree now not time for talks with N Korea](http://www.f3nws.com/n/TJQQC)
 
-> Posted on: Monday, November 6, 2017 10:54:26 AM
+> Posted on: Monday, November 6, 2017 6:29:55 PM
