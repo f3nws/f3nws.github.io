@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump asks Japan to build cars in the US. It already does"
-date: 2017-11-06 14:31:22Z
+date: 2017-11-06 20:12:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump asks Japan to build cars in the US. It already does](http://www.f3nws.com/n/FNpfTG)
 
-> Posted on: Monday, November 6, 2017 2:31:22 PM
+> Posted on: Monday, November 6, 2017 8:12:01 PM

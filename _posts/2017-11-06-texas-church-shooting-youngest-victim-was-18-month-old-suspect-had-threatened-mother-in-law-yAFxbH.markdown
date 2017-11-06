@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas church shooting youngest victim was 18-month-old, suspect had threatened mother-in-law"
-date: 2017-11-06 17:15:00Z
+date: 2017-11-06 18:14:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Texas gunman who stormed into First Baptist Church on Sunday -- killing 26 p
 
 Full story on F3News: [Texas church shooting youngest victim was 18-month-old, suspect had threatened mother-in-law](http://www.f3nws.com/n/yAFxbH)
 
-> Posted on: Monday, November 6, 2017 5:15:00 PM
+> Posted on: Monday, November 6, 2017 6:14:00 PM
