@@ -5,6 +5,8 @@ date: 2017-11-06 00:05:54Z
 categories: breakingnews-ie-world
 ---
 
+![Paradise Papers turn spotlight on tax affairs of the super-rich](http://www.breakingnews.ie/remote/media.central.ie/media/images/t/TaxGeneric_large.jpg?width=600&s=bn-812836)
+
 When the Panama Papers were released in 2016, they thrust a spotlight on the tax affairs of the rich and powerful.
 
 
