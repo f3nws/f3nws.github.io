@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung mercilessly mocks Apple's last 10 years     - CNET"
-date: 2017-11-06 00:15:57Z
+date: 2017-11-06 12:59:06Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Commentary: In a new ad, Samsung returns to the attack on Apple, as it laughs at
 
 Full story on F3News: [Samsung mercilessly mocks Apple's last 10 years     - CNET](http://www.f3nws.com/n/sW4HEE)
 
-> Posted on: Monday, November 6, 2017 12:15:57 AM
+> Posted on: Monday, November 6, 2017 12:59:06 PM

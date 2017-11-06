@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![Texas church shooting: What we know about alleged gunman Devin Kelley](https://cdni.rt.com/files/2017.11/article/59ffc406fc7e938c7b8b4567.JPG)
 
-A man identified by local media as Devin Patrick Kelley has gunned down 26 people and injured at least 20 more in an attack on Sutherland Springs Baptist Church, before he was found dead in his car. Here is what we know about the suspected attacker. Read Full Article at RT.com
+A man identified as Devin Patrick Kelley gunned down 26 people and injured at least 20 more in an attack at Sutherland Springs Baptist Church, before he was found dead in his car. Here is what we know about the suspected attacker. Read Full Article at RT.com
 
 
 Full story on F3News: [Texas church shooting: What we know about alleged gunman Devin Kelley](http://www.f3nws.com/n/afqKEJ)

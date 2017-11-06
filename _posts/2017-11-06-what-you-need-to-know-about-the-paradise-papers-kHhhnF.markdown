@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What you need to know about the Paradise Papers"
-date: 2017-11-06 02:13:02Z
+date: 2017-11-06 13:26:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A trove of leaked documents made public Sunday purport to show financial ties be
 
 Full story on F3News: [What you need to know about the Paradise Papers](http://www.f3nws.com/n/kHhhnF)
 
-> Posted on: Monday, November 6, 2017 2:13:02 AM
+> Posted on: Monday, November 6, 2017 1:26:58 PM
