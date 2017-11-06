@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "26-year-old suspect served jail time for assault on spouse, child"
-date: 2017-11-06 04:06:20Z
+date: 2017-11-06 04:44:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The FBI is responding to the scene of a reported shooting in Sutherland Springs,
 
 Full story on F3News: [26-year-old suspect served jail time for assault on spouse, child](http://www.f3nws.com/n/ZCcuHD)
 
-> Posted on: Monday, November 6, 2017 4:06:20 AM
+> Posted on: Monday, November 6, 2017 4:44:47 AM
