@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Broadcom offers $103 billion for Qualcomm in chip megadeal"
-date: 2017-11-06 15:31:39Z
+date: 2017-11-06 16:31:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Broadcom made an unsolicited, $103 billion offer for rival chi
 
 Full story on F3News: [Broadcom offers $103 billion for Qualcomm in chip megadeal](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, November 6, 2017 3:31:39 PM
+> Posted on: Monday, November 6, 2017 4:31:21 PM
