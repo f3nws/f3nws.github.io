@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi-led coalition warns Iran over Yemen missile launch"
-date: 2017-11-06 05:36:15Z
+date: 2017-11-06 06:30:27Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SANAA, Yemen (AP) — The Saudi-led coalition fighting in Yemen closed off the l
 
 Full story on F3News: [Saudi-led coalition warns Iran over Yemen missile launch](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Monday, November 6, 2017 5:36:15 AM
+> Posted on: Monday, November 6, 2017 6:30:27 AM
