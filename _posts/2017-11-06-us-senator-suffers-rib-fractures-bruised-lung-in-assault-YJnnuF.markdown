@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US senator suffers rib fractures, bruised lung in assault"
-date: 2017-11-06 02:56:50Z
+date: 2017-11-06 09:14:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republican Sen. Rand Paul has five rib fractures, including three displaced frac
 
 Full story on F3News: [US senator suffers rib fractures, bruised lung in assault](http://www.f3nws.com/n/YJnnuF)
 
-> Posted on: Monday, November 6, 2017 2:56:50 AM
+> Posted on: Monday, November 6, 2017 9:14:29 AM
