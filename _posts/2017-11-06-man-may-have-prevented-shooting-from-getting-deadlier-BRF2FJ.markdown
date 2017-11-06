@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man may have prevented shooting from getting deadlier"
-date: 2017-11-06 06:20:24Z
+date: 2017-11-06 07:55:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Were it not for a local resident who confronted the gunman, the deadliest shooti
 
 Full story on F3News: [Man may have prevented shooting from getting deadlier](http://www.f3nws.com/n/BRF2FJ)
 
-> Posted on: Monday, November 6, 2017 6:20:24 AM
+> Posted on: Monday, November 6, 2017 7:55:23 AM

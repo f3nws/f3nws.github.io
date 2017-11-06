@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Global watchdog FATF puts Pakistan on notice"
-date: 2017-11-06 04:27:50Z
+date: 2017-11-06 07:09:06Z
 categories: times-of-india-world
 ---
 
@@ -12,4 +12,4 @@ FATF has sought from Pakistan, notwithstanding opposition from China, a complian
 
 Full story on F3News: [Global watchdog FATF puts Pakistan on notice](http://www.f3nws.com/n/mypJKJ)
 
-> Posted on: Monday, November 6, 2017 4:27:50 AM
+> Posted on: Monday, November 6, 2017 7:09:06 AM
