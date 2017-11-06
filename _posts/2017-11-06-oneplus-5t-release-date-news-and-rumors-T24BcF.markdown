@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "OnePlus 5T release date, news and rumors"
-date: 2017-11-06 09:35:17Z
+date: 2017-11-06 18:39:17Z
 categories: techradar
 ---
 
 ![OnePlus 5T release date, news and rumors](http://cdn.mos.cms.futurecdn.net/6cyZTtGWkzPqPfaEvVfZNF-1200-80.jpg)
 
-Rumors for the OnePlus 5T are gradually growing and we may see the phone before the end of the year.
+OnePlus' next smartphone will debut soon and is set to arrive in a matter of weeks.
 
 
 Full story on F3News: [OnePlus 5T release date, news and rumors](http://www.f3nws.com/n/T24BcF)
 
-> Posted on: Monday, November 6, 2017 9:35:17 AM
+> Posted on: Monday, November 6, 2017 6:39:17 PM
