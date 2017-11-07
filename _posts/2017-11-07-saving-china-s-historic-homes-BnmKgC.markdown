@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saving China's historic homes"
-date: 2017-11-07 01:26:27Z
+date: 2017-11-07 01:44:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A visit to Pingyao feels like walking through a time capsule.
 
 Full story on F3News: [Saving China's historic homes](http://www.f3nws.com/n/BnmKgC)
 
-> Posted on: Tuesday, November 7, 2017 1:26:27 AM
+> Posted on: Tuesday, November 7, 2017 1:44:02 AM

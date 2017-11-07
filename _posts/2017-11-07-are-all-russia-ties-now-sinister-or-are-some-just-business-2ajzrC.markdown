@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Are all Russia ties now sinister, or are some just business?"
-date: 2017-11-07 01:36:07Z
+date: 2017-11-07 02:31:24Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MOSCOW (AP) — A shipping company partly owned by President Donald Trump's comm
 
 Full story on F3News: [Are all Russia ties now sinister, or are some just business?](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, November 7, 2017 1:36:07 AM
+> Posted on: Tuesday, November 7, 2017 2:31:24 AM
