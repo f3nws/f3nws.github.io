@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Court rejects calls to reinstate food, water to Manus Island refugees"
-date: 2017-11-07 04:47:01Z
+date: 2017-11-07 08:24:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Papua New Guinea's Supreme Court has rejected an application that would have see
 
 Full story on F3News: [Court rejects calls to reinstate food, water to Manus Island refugees](http://www.f3nws.com/n/SnUsKD)
 
-> Posted on: Tuesday, November 7, 2017 4:47:01 AM
+> Posted on: Tuesday, November 7, 2017 8:24:36 AM

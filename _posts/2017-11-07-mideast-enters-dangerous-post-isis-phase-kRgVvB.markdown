@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mideast enters dangerous, post-ISIS phase"
-date: 2017-11-07 04:16:07Z
+date: 2017-11-07 08:25:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Out of the blue, from an undisclosed location in the Saudi capital of Riyadh, 47
 
 Full story on F3News: [Mideast enters dangerous, post-ISIS phase](http://www.f3nws.com/n/kRgVvB)
 
-> Posted on: Tuesday, November 7, 2017 4:16:07 AM
+> Posted on: Tuesday, November 7, 2017 8:25:16 AM
