@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian lawyer says Trump Jr offered deal"
-date: 2017-11-07 04:36:36Z
+date: 2017-11-07 02:33:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Henry Meyer, senior government reporter based on Moscow for Bloomberg News, talk
 
 Full story on F3News: [Russian lawyer says Trump Jr offered deal](http://www.f3nws.com/n/WVyXMF)
 
-> Posted on: Tuesday, November 7, 2017 4:36:36 AM
+> Posted on: Tuesday, November 7, 2017 2:33:00 AM
