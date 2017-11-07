@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "26 teenage girls found dead at sea"
-date: 2017-11-07 13:46:57Z
+date: 2017-11-07 16:12:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Italian authorities have launched an investigation into the cause of death of 26
 
 Full story on F3News: [26 teenage girls found dead at sea](http://www.f3nws.com/n/A2kVa)
 
-> Posted on: Tuesday, November 7, 2017 1:46:57 PM
+> Posted on: Tuesday, November 7, 2017 4:12:38 PM
