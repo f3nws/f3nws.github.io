@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Wild card' Trump heads into North Korea's line of sight"
-date: 2017-11-07 00:25:51Z
+date: 2017-11-07 04:01:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For the first time as US President, Donald Trump will be in Kim Jong Un's immedi
 
 Full story on F3News: ['Wild card' Trump heads into North Korea's line of sight](http://www.f3nws.com/n/jvQVKC)
 
-> Posted on: Tuesday, November 7, 2017 12:25:51 AM
+> Posted on: Tuesday, November 7, 2017 4:01:02 AM

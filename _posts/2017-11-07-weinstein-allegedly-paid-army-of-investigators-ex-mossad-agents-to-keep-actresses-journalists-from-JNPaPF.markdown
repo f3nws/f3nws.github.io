@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Weinstein allegedly paid 'army' of investigators, ex-Mossad agents to keep actresses, journalists from revealing predatory behavior"
-date: 2017-11-07 03:00:00Z
+date: 2017-11-07 03:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Reporter Ronan Farrow, who wrote the initial expose on now disgraced Hollywood m
 
 Full story on F3News: [Weinstein allegedly paid 'army' of investigators, ex-Mossad agents to keep actresses, journalists from revealing predatory behavior](http://www.f3nws.com/n/JNPaPF)
 
-> Posted on: Tuesday, November 7, 2017 3:00:00 AM
+> Posted on: Tuesday, November 7, 2017 3:30:00 AM

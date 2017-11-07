@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The bewitching ancient city of gods, kings and ruins"
-date: 2017-11-07 03:31:19Z
+date: 2017-11-07 04:20:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a view that renders speech impossible.
 
 Full story on F3News: [The bewitching ancient city of gods, kings and ruins](http://www.f3nws.com/n/D2DEnH)
 
-> Posted on: Tuesday, November 7, 2017 3:31:19 AM
+> Posted on: Tuesday, November 7, 2017 4:20:45 AM
