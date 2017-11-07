@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia calls missile launch 'act of war' by Iran, vows retaliation"
-date: 2017-11-07 10:45:20Z
+date: 2017-11-07 11:00:06Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Saudi Arabia on Monday called the attempted missile attack on Riyadh’s main a
 
 Full story on F3News: [Saudi Arabia calls missile launch 'act of war' by Iran, vows retaliation](http://www.f3nws.com/n/ZFWkcC)
 
-> Posted on: Tuesday, November 7, 2017 10:45:20 AM
+> Posted on: Tuesday, November 7, 2017 11:00:06 AM

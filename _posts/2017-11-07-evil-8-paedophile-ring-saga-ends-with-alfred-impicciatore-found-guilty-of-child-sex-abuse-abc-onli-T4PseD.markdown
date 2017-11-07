@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['Evil 8' paedophile ring saga ends with Alfred Impicciatore found guilty of child sex abuse - ABC Online](http://www.abc.net.au/news/image/8554748-1x1-700x700.jpg)
 
-ABC Online 'Evil 8' paedophile ring saga ends with Alfred Impicciatore found guilty of child sex abuse ABC Online The last of the so called "Evil 8" child abuse ring has been found guilty of raping a young Perth girl who was offered up to strangers for sex while her father watched on. Key points: The victim's father facilitated the sexual abuse and also took part ... 'Evil 8' member Alfred John Impicciatore found guilty Perth Now Final 'Evil 8' member found guilty Sky News Australia Last member of 'Evil 8' pedophile ring Alfred Impicciatore found guilty 9news.com.au Yahoo7 News - WAtoday all 8 news articles »
+ABC Online 'Evil 8' paedophile ring saga ends with Alfred Impicciatore found guilty of child sex abuse ABC Online The last of the so called "Evil 8" child abuse ring has been found guilty of raping a young Perth girl who was offered up to strangers for sex while her father watched on. Key points: The victim's father facilitated the sexual abuse and also took part ... Final 'Evil 8' member found guilty Sky News Australia 'Evil 8' member Alfred John Impicciatore found guilty Perth Now Last member of 'Evil 8' pedophile ring Alfred Impicciatore found guilty 9news.com.au Yahoo7 News - WAtoday all 9 news articles »
 
 
 Full story on F3News: ['Evil 8' paedophile ring saga ends with Alfred Impicciatore found guilty of child sex abuse - ABC Online](http://www.f3nws.com/n/T4PseD)
