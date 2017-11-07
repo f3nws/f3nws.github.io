@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Harvey Weinstein banned for life from TV Academy](http://i2.cdn.turner.com/money/dam/assets/171014162657-harvey-weinstein-780x439.jpg)
 
-
+Harvey Weinstein has been banned for life from yet another Hollywood organization.
 
 
 Full story on F3News: [Harvey Weinstein banned for life from TV Academy](http://www.f3nws.com/n/fHFv4E)

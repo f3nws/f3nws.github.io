@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Mugabe fires VP, paves way for wife to succeed him"
-date: 2017-11-07 06:28:36Z
+date: 2017-11-07 10:09:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe's President Robert Mugabe has fired his longtime ally and vice presiden
 
 Full story on F3News: [Robert Mugabe fires VP, paves way for wife to succeed him](http://www.f3nws.com/n/p3PVgF)
 
-> Posted on: Tuesday, November 7, 2017 6:28:36 AM
+> Posted on: Tuesday, November 7, 2017 10:09:55 AM

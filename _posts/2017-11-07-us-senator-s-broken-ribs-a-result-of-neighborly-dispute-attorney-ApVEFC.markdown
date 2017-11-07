@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US senator's broken ribs a result of neighborly dispute: attorney"
-date: 2017-11-07 04:51:34Z
+date: 2017-11-07 10:12:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The attorney representing the man who was charged with assaulting Sen. Rand Paul
 
 Full story on F3News: [US senator's broken ribs a result of neighborly dispute: attorney](http://www.f3nws.com/n/ApVEFC)
 
-> Posted on: Tuesday, November 7, 2017 4:51:34 AM
+> Posted on: Tuesday, November 7, 2017 10:12:07 AM
