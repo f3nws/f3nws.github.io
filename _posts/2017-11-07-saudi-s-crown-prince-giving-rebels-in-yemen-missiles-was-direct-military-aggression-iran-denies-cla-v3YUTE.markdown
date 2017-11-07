@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi's Crown Prince: Giving rebels in Yemen missiles was 'direct military aggression'; Iran denies claim"
-date: 2017-11-07 11:48:59Z
+date: 2017-11-07 13:18:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Supplying rebels in Yemen with missiles was a "direct military aggression by the
 
 Full story on F3News: [Saudi's Crown Prince: Giving rebels in Yemen missiles was 'direct military aggression'; Iran denies claim](http://www.f3nws.com/n/v3YUTE)
 
-> Posted on: Tuesday, November 7, 2017 11:48:59 AM
+> Posted on: Tuesday, November 7, 2017 1:18:39 PM
