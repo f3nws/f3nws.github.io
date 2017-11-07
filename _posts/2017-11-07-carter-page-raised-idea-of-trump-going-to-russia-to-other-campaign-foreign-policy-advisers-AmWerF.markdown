@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Carter Page raised idea of Trump going to Russia to other campaign foreign policy advisers"
-date: 2017-11-07 04:34:21Z
+date: 2017-11-07 06:10:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Carter Page's six-plus hours of testimony before the House intelligence committe
 
 Full story on F3News: [Carter Page raised idea of Trump going to Russia to other campaign foreign policy advisers](http://www.f3nws.com/n/AmWerF)
 
-> Posted on: Tuesday, November 7, 2017 4:34:21 AM
+> Posted on: Tuesday, November 7, 2017 6:10:28 AM

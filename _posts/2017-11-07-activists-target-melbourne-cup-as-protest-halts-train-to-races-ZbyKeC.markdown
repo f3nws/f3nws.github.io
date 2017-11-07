@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Activists target Melbourne Cup as protest halts train to races](http://www.abc.net.au/news/image/9126582-1x1-700x700.jpg)
 
-A woman is arrested and police beef up their presence at the Melbourne Cup, after a car is parked across the train line to Flemington Racecourse as part of a protest.
+A woman has been arrested after she was found "bolted" to the steering wheel of a car parked on the train line to Flemington Racecourse as part of a protest, police say.
 
 
 Full story on F3News: [Activists target Melbourne Cup as protest halts train to races](http://www.f3nws.com/n/ZbyKeC)
