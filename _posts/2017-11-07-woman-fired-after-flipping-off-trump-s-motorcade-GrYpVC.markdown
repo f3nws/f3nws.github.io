@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman fired after flipping off  Trump's motorcade"
-date: 2017-11-07 18:45:06Z
+date: 2017-11-07 19:45:07Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A woman has gotten the boot after flipping the bird at President Donald Trump's 
 
 Full story on F3News: [Woman fired after flipping off  Trump's motorcade](http://www.f3nws.com/n/GrYpVC)
 
-> Posted on: Tuesday, November 7, 2017 6:45:06 PM
+> Posted on: Tuesday, November 7, 2017 7:45:07 PM

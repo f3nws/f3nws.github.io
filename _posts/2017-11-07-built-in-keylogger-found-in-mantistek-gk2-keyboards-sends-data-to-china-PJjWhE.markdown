@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Built-in Keylogger Found in MantisTek GK2 Keyboards—Sends Data to China"
-date: 2017-11-07 14:16:19Z
+date: 2017-11-07 18:42:15Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ categories: the-hacker-news
 
 Full story on F3News: [Built-in Keylogger Found in MantisTek GK2 Keyboards—Sends Data to China](http://www.f3nws.com/n/PJjWhE)
 
-> Posted on: Tuesday, November 7, 2017 2:16:19 PM
+> Posted on: Tuesday, November 7, 2017 6:42:15 PM
