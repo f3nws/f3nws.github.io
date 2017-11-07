@@ -5,6 +5,8 @@ date: 2017-11-07 21:18:00Z
 categories: fox-news
 ---
 
+![Former MLB star Roy Halladay killed in plane crash](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 Former Major League Baseball pitcher Roy Halladay was killed Tuesday when his personal aircraft crashed in the Gulf of Mexico off the west coast of Florida.
 
 
