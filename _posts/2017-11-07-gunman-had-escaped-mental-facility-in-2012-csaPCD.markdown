@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman had escaped mental facility in 2012"
-date: 2017-11-07 20:33:20Z
+date: 2017-11-07 22:01:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Los Angeles Times After Texas church shooting, 'most of our church family is gon
 
 Full story on F3News: [Gunman had escaped mental facility in 2012](http://www.f3nws.com/n/csaPCD)
 
-> Posted on: Tuesday, November 7, 2017 8:33:20 PM
+> Posted on: Tuesday, November 7, 2017 10:01:05 PM
