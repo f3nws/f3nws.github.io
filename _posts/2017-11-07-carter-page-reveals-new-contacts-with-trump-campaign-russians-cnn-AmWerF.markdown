@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Carter Page reveals new contacts with Trump campaign, Russians - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171103191253-carter-page-2-super-tease.jpg)
 
-CNN Carter Page reveals new contacts with Trump campaign, Russians CNN (CNN) Carter Page's six-plus hours of testimony before the House intelligence committee makes clear senior members of the Trump campaign were aware of the former Trump foreign policy adviser's July 2016 trip to Russia -- and Page may have had ... Russian officials and allies repeatedly signaled support for Trump to his campaign team Washington Post House Democrats prepare to pepper Sessions with questions about Papadopoulos Politico Sessions to testify before House Judiciary Committee next week The Hill NBCNews.com - Salon - Vox - TPM all 207 news articles »
+CNN Carter Page reveals new contacts with Trump campaign, Russians CNN (CNN) Carter Page's six-plus hours of testimony before the House intelligence committee makes clear senior members of the Trump campaign were aware of the former Trump foreign policy adviser's July 2016 trip to Russia -- and Page may have had ... The paranoid Carter Page transcript: What in God's name did I just read? Washington Post The 243 Pages of Carter's Testimony The Atlantic Carter Page testimony highlights: Trump aide dismisses Russian interference Politico Slate Magazine - The Hill - HuffPost - Business Insider all 103 news articles »
 
 
 Full story on F3News: [Carter Page reveals new contacts with Trump campaign, Russians - CNN](http://www.f3nws.com/n/AmWerF)

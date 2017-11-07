@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman fired nearly 450 shots in church"
-date: 2017-11-07 18:23:17Z
+date: 2017-11-07 20:33:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Los Angeles Times After Texas church shooting, 'most of our church family is gon
 
 Full story on F3News: [Gunman fired nearly 450 shots in church](http://www.f3nws.com/n/csaPCD)
 
-> Posted on: Tuesday, November 7, 2017 6:23:17 PM
+> Posted on: Tuesday, November 7, 2017 8:33:20 PM

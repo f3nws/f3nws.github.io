@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump literally just made the 'good guy with a gun' argument"
-date: 2017-11-07 14:29:40Z
+date: 2017-11-07 19:49:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the wake of the Sandy Hook school shooting in late 2012, a new saying became 
 
 Full story on F3News: [Trump literally just made the 'good guy with a gun' argument](http://www.f3nws.com/n/ERKScG)
 
-> Posted on: Tuesday, November 7, 2017 2:29:40 PM
+> Posted on: Tuesday, November 7, 2017 7:49:51 PM
