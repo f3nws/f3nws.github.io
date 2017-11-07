@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman who flipped off Trump says she was fired for it"
-date: 2017-11-07 14:04:47Z
+date: 2017-11-07 15:15:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The woman who gave President Donald Trump's motorcade the finger in late October
 
 Full story on F3News: [Woman who flipped off Trump says she was fired for it](http://www.f3nws.com/n/h3nrWB)
 
-> Posted on: Tuesday, November 7, 2017 2:04:47 PM
+> Posted on: Tuesday, November 7, 2017 3:15:50 PM

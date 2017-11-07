@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Air Force failed to relay info that could have stopped firearm sale to gunman"
-date: 2017-11-07 02:52:57Z
+date: 2017-11-07 15:29:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ How a man who was discharged from the US Air Force for assaulting his spouse and
 
 Full story on F3News: [Air Force failed to relay info that could have stopped firearm sale to gunman](http://www.f3nws.com/n/cfcE3B)
 
-> Posted on: Tuesday, November 7, 2017 2:52:57 AM
+> Posted on: Tuesday, November 7, 2017 3:29:05 PM
