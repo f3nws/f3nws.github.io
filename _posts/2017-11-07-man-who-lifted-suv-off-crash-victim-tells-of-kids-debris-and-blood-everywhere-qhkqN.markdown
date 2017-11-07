@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man who lifted SUV off crash victim tells of 'kids, debris and blood everywhere'](http://www.abc.net.au/news/image/9126506-1x1-700x700.jpg)
 
-A neighbour who was among the first responders when a car careered into a Sydney primary school this morning describes the moment he helped lift the two-tonne SUV to free a young boy who later died from his injuries.
+A neighbour who was among the first responders when a car careered into a Sydney primary school describes the moment he helped lift the two-tonne SUV to free a young boy who later died from his injuries.
 
 
 Full story on F3News: [Man who lifted SUV off crash victim tells of 'kids, debris and blood everywhere'](http://www.f3nws.com/n/qhkqN)
