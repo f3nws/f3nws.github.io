@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 men in a truck chase down Texas church shooter: 'Let's go'"
-date: 2017-11-07 05:29:40Z
+date: 2017-11-07 06:36:58Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SUTHERLAND SPRINGS, Texas (AP) — A former National Rifle Association instructo
 
 Full story on F3News: [2 men in a truck chase down Texas church shooter: 'Let's go'](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Tuesday, November 7, 2017 5:29:40 AM
+> Posted on: Tuesday, November 7, 2017 6:36:58 AM
