@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Crashing Chinese space station could rain fire on Europe"
-date: 2017-11-08 10:45:27Z
+date: 2017-11-08 10:45:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The European Space Agency (ESA) has already narrowed down the possible crash sit
 
 Full story on F3News: [Crashing Chinese space station could rain fire on Europe](http://www.f3nws.com/n/AqvjbB)
 
-> Posted on: Wednesday, November 8, 2017 10:45:27 AM
+> Posted on: Wednesday, November 8, 2017 10:45:00 AM

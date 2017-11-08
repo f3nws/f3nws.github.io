@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boy with rare disease gets brand new skin with gene therapy"
-date: 2017-11-08 20:36:15Z
+date: 2017-11-08 21:30:54Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — Doctors treating a critically ill boy with a devastating skin di
 
 Full story on F3News: [Boy with rare disease gets brand new skin with gene therapy](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, November 8, 2017 8:36:15 PM
+> Posted on: Wednesday, November 8, 2017 9:30:54 PM
