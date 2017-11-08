@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Twitter Is Ditching 140 Characters - Slate Magazine](http://www.slate.com/content/dam/slate/articles/technology/technology/2017/11/171107_TECH_280-Characters-A.gif.CROP.promo-large.gif)
 
-The Express Tribune Twitter Is Ditching 140 Characters Slate Magazine Before today, only a small fraction of Twitter users could send tweets longer than this sentence, which checks in at exactly 140 characters. Will Oremus. Will Oremus is Slate's senior technology writer. Email him at will.oremus@slate.com or follow him ... Twitter Users Want Nazis Removed, Get 280 Characters Instead Newsweek Twitter Expands to 280 Character Limits For Most of the World Fortune Twitter makes 280-character tweets official, begins global rollout AppleInsider (press release) (blog) Android Police - Los Angeles Times - Austin American-Statesman - Ars Technica all 257 news articles »
+Slate Magazine Twitter Is Ditching 140 Characters Slate Magazine Before today, only a small fraction of Twitter users could send tweets longer than this sentence, which checks in at exactly 140 characters. Will Oremus. Will Oremus is Slate's senior technology writer. Email him at will.oremus@slate.com or follow him ... Twitter Users Want Nazis Removed, Get 280 Characters Instead Newsweek What 280 characters means for Twitter's future Mashable Twitter kills its 140-character limit. Now tweets can be twice as long Los Angeles Times Austin American-Statesman - Lifehacker - Digital Trends - Deadline all 268 news articles »
 
 
 Full story on F3News: [Twitter Is Ditching 140 Characters - Slate Magazine](http://www.f3nws.com/n/yDNDHH)
