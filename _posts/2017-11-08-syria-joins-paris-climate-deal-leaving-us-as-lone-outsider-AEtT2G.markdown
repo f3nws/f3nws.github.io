@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria joins Paris climate deal, leaving US as lone outsider"
-date: 2017-11-08 09:26:29Z
+date: 2017-11-08 11:13:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States is now a party of one in its stance on climate change.
 
 Full story on F3News: [Syria joins Paris climate deal, leaving US as lone outsider](http://www.f3nws.com/n/AEtT2G)
 
-> Posted on: Wednesday, November 8, 2017 9:26:29 AM
+> Posted on: Wednesday, November 8, 2017 11:13:31 AM
