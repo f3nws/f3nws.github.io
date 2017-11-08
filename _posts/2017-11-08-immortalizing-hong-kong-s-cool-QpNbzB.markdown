@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Immortalizing Hong Kong's cool"
-date: 2017-11-08 01:34:18Z
+date: 2017-11-08 02:07:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Wing Shya is one of Asia's best-known artists, with work spanning photography, g
 
 Full story on F3News: [Immortalizing Hong Kong's cool](http://www.f3nws.com/n/QpNbzB)
 
-> Posted on: Wednesday, November 8, 2017 1:34:18 AM
+> Posted on: Wednesday, November 8, 2017 2:07:57 AM

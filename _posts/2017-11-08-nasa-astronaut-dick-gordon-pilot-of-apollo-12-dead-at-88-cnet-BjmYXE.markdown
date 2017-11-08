@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NASA astronaut Dick Gordon, pilot of Apollo 12, dead at 88     - CNET"
-date: 2017-11-08 00:52:33Z
+date: 2017-11-08 01:04:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Gordon became one of only two dozen men to fly to the moon when he crewed the se
 
 Full story on F3News: [NASA astronaut Dick Gordon, pilot of Apollo 12, dead at 88     - CNET](http://www.f3nws.com/n/BjmYXE)
 
-> Posted on: Wednesday, November 8, 2017 12:52:33 AM
+> Posted on: Wednesday, November 8, 2017 1:04:05 AM

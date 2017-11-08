@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Before Texas church shooter, Pentagon knew for 20yrs about crime reporting failures"
-date: 2017-11-08 00:24:55Z
+date: 2017-11-08 00:24:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Blunders in its crime reporting process, such as the type the US Air Force made 
 
 Full story on F3News: [Before Texas church shooter, Pentagon knew for 20yrs about crime reporting failures](http://www.f3nws.com/n/HuMrRE)
 
-> Posted on: Wednesday, November 8, 2017 12:24:55 AM
+> Posted on: Wednesday, November 8, 2017 12:24:00 AM

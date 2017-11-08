@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lyft opens NYC office, brings self-driving car engineers     - CNET"
-date: 2017-11-08 00:47:13Z
+date: 2017-11-08 01:22:13Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The ride-hailing company opens an office in the Big Apple saying the city's dive
 
 Full story on F3News: [Lyft opens NYC office, brings self-driving car engineers     - CNET](http://www.f3nws.com/n/hEgSEF)
 
-> Posted on: Wednesday, November 8, 2017 12:47:13 AM
+> Posted on: Wednesday, November 8, 2017 1:22:13 AM
