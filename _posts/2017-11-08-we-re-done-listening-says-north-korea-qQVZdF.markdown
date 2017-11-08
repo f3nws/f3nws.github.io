@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "We're done listening, says North Korea"
-date: 2017-11-08 09:01:15Z
+date: 2017-11-08 12:32:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korean officials were closely watching US President Donald Trump when he a
 
 Full story on F3News: [We're done listening, says North Korea](http://www.f3nws.com/n/qQVZdF)
 
-> Posted on: Wednesday, November 8, 2017 9:01:15 AM
+> Posted on: Wednesday, November 8, 2017 12:32:50 PM
