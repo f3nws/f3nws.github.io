@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 key moments from Trump's speech"
-date: 2017-11-08 07:18:22Z
+date: 2017-11-08 09:23:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump addressed the South Korean parliament in Seoul Wednesd
 
 Full story on F3News: [5 key moments from Trump's speech](http://www.f3nws.com/n/dr3hU)
 
-> Posted on: Wednesday, November 8, 2017 7:18:22 AM
+> Posted on: Wednesday, November 8, 2017 9:23:13 AM
