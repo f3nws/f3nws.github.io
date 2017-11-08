@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The top tourist destinations in 2017"
-date: 2017-11-08 01:31:29Z
+date: 2017-11-08 14:19:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There must be something in the dim sum.
 
 Full story on F3News: [The top tourist destinations in 2017](http://www.f3nws.com/n/EuFNCB)
 
-> Posted on: Wednesday, November 8, 2017 1:31:29 AM
+> Posted on: Wednesday, November 8, 2017 2:19:44 PM

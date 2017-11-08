@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Born before 22 weeks, 'most premature' baby is now thriving"
-date: 2017-11-08 11:15:05Z
+date: 2017-11-08 14:16:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Courtney Stensrud and her husband call their fun-loving, spunky daughter a mirac
 
 Full story on F3News: [Born before 22 weeks, 'most premature' baby is now thriving](http://www.f3nws.com/n/FDPcX)
 
-> Posted on: Wednesday, November 8, 2017 11:15:05 AM
+> Posted on: Wednesday, November 8, 2017 2:16:10 PM
