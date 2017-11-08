@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 takeaways from the Democrats' big election night"
-date: 2017-11-08 05:22:54Z
+date: 2017-11-08 05:58:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After a year of doubts, recriminations and special election misfires, Democrats 
 
 Full story on F3News: [5 takeaways from the Democrats' big election night](http://www.f3nws.com/n/cbysbB)
 
-> Posted on: Wednesday, November 8, 2017 5:22:54 AM
+> Posted on: Wednesday, November 8, 2017 5:58:41 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunman had escaped mental facility in 2012"
-date: 2017-11-08 02:19:27Z
+date: 2017-11-08 06:30:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Texas church gunman escaped mental health facility in 2012 CNN (CNN) The man
 
 Full story on F3News: [Gunman had escaped mental facility in 2012](http://www.f3nws.com/n/csaPCD)
 
-> Posted on: Wednesday, November 8, 2017 2:19:27 AM
+> Posted on: Wednesday, November 8, 2017 6:30:12 AM

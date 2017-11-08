@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump attempted to go to DMZ but had to turn back because of weather"
-date: 2017-11-08 02:21:28Z
+date: 2017-11-08 06:31:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump attempted to make an unannounced visit to the demilitariz
 
 Full story on F3News: [Trump attempted to go to DMZ but had to turn back because of weather](http://www.f3nws.com/n/tAKbr)
 
-> Posted on: Wednesday, November 8, 2017 2:21:28 AM
+> Posted on: Wednesday, November 8, 2017 6:31:30 AM
