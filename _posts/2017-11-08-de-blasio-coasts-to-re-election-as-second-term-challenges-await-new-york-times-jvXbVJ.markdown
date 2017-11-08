@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "De Blasio Coasts to Re-election, as Second-Term Challenges Await - New York Times"
-date: 2017-11-08 03:18:00Z
+date: 2017-11-08 02:33:27Z
 categories: google-news-top-stories
 ---
 
 ![De Blasio Coasts to Re-election, as Second-Term Challenges Await - New York Times](https://static01.nyt.com/images/2017/11/08/nyregion/08NYCMAYOR1/08NYCMAYOR1-facebookJumbo.jpg)
 
-New York Times De Blasio Coasts to Re-election, as Second-Term Challenges Await New York Times Mayor Bill de Blasio greeting voters in Harlem on Election Day. Credit Hilary Swift for The New York Times. Now comes the hard part. Gliding to his second landslide victory, Bill de Blasio was re-elected on Tuesday as the mayor of New York City, ... De Blasio re-elected in victory for New York City progressives CNN Bill De Blasio wins second term as New York mayor Washington Post Bill de Blasio re-elected to second term as NYC mayor New York Post Bloomberg - U.S. News & World Report - Los Angeles Times - The Hill all 144 news articles »
+New York Times De Blasio Coasts to Re-election, as Second-Term Challenges Await New York Times Mayor Bill de Blasio greeting the crowd at the Brooklyn Museum after winning reelection. Credit Hilary Swift for The New York Times. Now comes the hard part. Gliding to his second landslide victory, Bill de Blasio was re-elected on Tuesday as the mayor ... Bill De Blasio wins second term as New York mayor Washington Post Mayor de Blasio elected to second term in Election Day victory New York Daily News De Blasio easily wins reelection Politico New York Post - CBS News - Sacramento Bee - U.S. News & World Report all 153 news articles »
 
 
 Full story on F3News: [De Blasio Coasts to Re-election, as Second-Term Challenges Await - New York Times](http://www.f3nws.com/n/jvXbVJ)
 
-> Posted on: Wednesday, November 8, 2017 3:18:00 AM
+> Posted on: Wednesday, November 8, 2017 2:33:27 AM
