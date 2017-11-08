@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former baseball star dies in private plane crash"
-date: 2017-11-08 00:07:07Z
+date: 2017-11-08 01:03:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pitcher Roy Halladay, who won two Cy Young awards and more than 200 major league
 
 Full story on F3News: [Former baseball star dies in private plane crash](http://www.f3nws.com/n/Sr4GJG)
 
-> Posted on: Wednesday, November 8, 2017 12:07:07 AM
+> Posted on: Wednesday, November 8, 2017 1:03:40 AM
