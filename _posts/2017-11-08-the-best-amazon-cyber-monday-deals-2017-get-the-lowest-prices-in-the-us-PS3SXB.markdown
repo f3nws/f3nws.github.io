@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon Cyber Monday deals 2017: Get the lowest prices in the US"
-date: 2017-11-08 02:21:38Z
+date: 2017-11-08 02:23:38Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Cyber Monday will be an intense day on Amazon, with so many deals floating aroun
 
 Full story on F3News: [The best Amazon Cyber Monday deals 2017: Get the lowest prices in the US](http://www.f3nws.com/n/PS3SXB)
 
-> Posted on: Wednesday, November 8, 2017 2:21:38 AM
+> Posted on: Wednesday, November 8, 2017 2:23:38 AM
