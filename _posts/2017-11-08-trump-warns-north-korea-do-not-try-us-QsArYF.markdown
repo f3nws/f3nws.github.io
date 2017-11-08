@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump warns North Korea: 'Do not try us'"
-date: 2017-11-08 05:25:44Z
+date: 2017-11-08 13:15:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Standing near the front line of the world's tensest standoff, President Donald T
 
 Full story on F3News: [Trump warns North Korea: 'Do not try us'](http://www.f3nws.com/n/QsArYF)
 
-> Posted on: Wednesday, November 8, 2017 5:25:44 AM
+> Posted on: Wednesday, November 8, 2017 1:15:00 PM

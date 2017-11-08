@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Best Laptop 2017: Our pick of the 15 best laptops you can buy this year"
-date: 2017-11-08 11:32:00Z
+date: 2017-11-08 11:33:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've reviewed the best laptops available today, from the Dell XPS 13 to the Mac
 
 Full story on F3News: [The Best Laptop 2017: Our pick of the 15 best laptops you can buy this year](http://www.f3nws.com/n/srWbGJ)
 
-> Posted on: Wednesday, November 8, 2017 11:32:00 AM
+> Posted on: Wednesday, November 8, 2017 11:33:00 AM
