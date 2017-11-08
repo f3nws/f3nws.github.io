@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman charged with murder warned against forced marriage"
-date: 2017-11-08 16:44:17Z
+date: 2017-11-08 16:57:47Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BASTI LASHARI, Pakistan (AP) — Aasia Bibi had warned her parents time and agai
 
 Full story on F3News: [Woman charged with murder warned against forced marriage](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Wednesday, November 8, 2017 4:44:17 PM
+> Posted on: Wednesday, November 8, 2017 4:57:47 PM
