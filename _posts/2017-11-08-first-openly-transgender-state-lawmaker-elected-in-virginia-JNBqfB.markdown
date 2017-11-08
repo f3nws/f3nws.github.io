@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First openly transgender state lawmaker elected in Virginia"
-date: 2017-11-08 05:57:12Z
+date: 2017-11-08 07:50:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Virginia voters elected the nation's first openly transgender candidate to the V
 
 Full story on F3News: [First openly transgender state lawmaker elected in Virginia](http://www.f3nws.com/n/JNBqfB)
 
-> Posted on: Wednesday, November 8, 2017 5:57:12 AM
+> Posted on: Wednesday, November 8, 2017 7:50:53 AM
