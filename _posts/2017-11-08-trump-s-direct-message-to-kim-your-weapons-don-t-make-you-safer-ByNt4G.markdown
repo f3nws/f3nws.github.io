@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's direct message to Kim: Your weapons don't make you safer"
-date: 2017-11-08 03:07:45Z
+date: 2017-11-08 05:22:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Trump offered a direct message to North Korean leader Kim Jong Un duri
 
 Full story on F3News: [Trump's direct message to Kim: Your weapons don't make you safer](http://www.f3nws.com/n/ByNt4G)
 
-> Posted on: Wednesday, November 8, 2017 3:07:45 AM
+> Posted on: Wednesday, November 8, 2017 5:22:30 AM
