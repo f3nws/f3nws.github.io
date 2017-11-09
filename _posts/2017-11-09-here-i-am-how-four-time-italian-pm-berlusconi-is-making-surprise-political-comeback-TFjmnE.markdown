@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Here I am!’ How four-time Italian PM Berlusconi is making surprise political comeback"
-date: 2017-11-09 00:01:39Z
+date: 2017-11-09 00:01:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The sweeping victory of a center-right bloc backed by Silvio Berlusconi in Sicil
 
 Full story on F3News: [‘Here I am!’ How four-time Italian PM Berlusconi is making surprise political comeback](http://www.f3nws.com/n/TFjmnE)
 
-> Posted on: Thursday, November 9, 2017 12:01:39 AM
+> Posted on: Thursday, November 9, 2017 12:01:00 AM

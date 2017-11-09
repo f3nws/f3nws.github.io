@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Rare opportunity’: Pentagon confirms joint drill of 3 aircraft carriers in Pacific"
-date: 2017-11-09 01:31:05Z
+date: 2017-11-09 01:31:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Three US aircraft carrier strike groups will hold joint drills in the Western Pa
 
 Full story on F3News: [‘Rare opportunity’: Pentagon confirms joint drill of 3 aircraft carriers in Pacific](http://www.f3nws.com/n/XK3NGH)
 
-> Posted on: Thursday, November 9, 2017 1:31:05 AM
+> Posted on: Thursday, November 9, 2017 1:31:00 AM
