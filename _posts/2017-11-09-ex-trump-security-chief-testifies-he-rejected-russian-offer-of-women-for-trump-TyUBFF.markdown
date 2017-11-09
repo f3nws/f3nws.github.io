@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Trump security chief testifies he rejected Russian offer of women for Trump"
-date: 2017-11-09 20:35:01Z
+date: 2017-11-09 20:48:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's long-time confidante Keith Schiller privately testified
 
 Full story on F3News: [Ex-Trump security chief testifies he rejected Russian offer of women for Trump](http://www.f3nws.com/n/TyUBFF)
 
-> Posted on: Thursday, November 9, 2017 8:35:01 PM
+> Posted on: Thursday, November 9, 2017 8:48:50 PM
