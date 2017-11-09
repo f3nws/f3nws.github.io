@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans to candidate: bow out if sexual allegations are true"
-date: 2017-11-09 21:08:43Z
+date: 2017-11-09 22:14:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senate Majority Leader Mitch McConnell and other Republicans say Roy Moore, the 
 
 Full story on F3News: [Republicans to candidate: bow out if sexual allegations are true](http://www.f3nws.com/n/cVQksH)
 
-> Posted on: Thursday, November 9, 2017 9:08:43 PM
+> Posted on: Thursday, November 9, 2017 10:14:58 PM
