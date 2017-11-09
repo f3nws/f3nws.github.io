@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple to open new campus' visitor center next week, says report     - CNET"
-date: 2017-11-09 01:26:20Z
+date: 2017-11-09 04:51:22Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The visitor center at the Apple Park campus will open to the public Nov. 17, acc
 
 Full story on F3News: [Apple to open new campus' visitor center next week, says report     - CNET](http://www.f3nws.com/n/uQskg)
 
-> Posted on: Thursday, November 9, 2017 1:26:20 AM
+> Posted on: Thursday, November 9, 2017 4:51:22 AM

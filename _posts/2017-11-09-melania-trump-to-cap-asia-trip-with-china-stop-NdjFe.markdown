@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump to cap Asia trip with China stop"
-date: 2017-11-09 01:47:13Z
+date: 2017-11-09 05:08:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ First lady Melania Trump has arrived in Beijing, the third and final leg of her 
 
 Full story on F3News: [Melania Trump to cap Asia trip with China stop](http://www.f3nws.com/n/NdjFe)
 
-> Posted on: Thursday, November 9, 2017 1:47:13 AM
+> Posted on: Thursday, November 9, 2017 5:08:03 AM
