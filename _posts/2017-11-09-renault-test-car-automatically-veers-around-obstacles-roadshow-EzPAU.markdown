@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Renault test car automatically veers around obstacles     - Roadshow"
-date: 2017-11-09 02:35:47Z
+date: 2017-11-09 03:42:41Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In a blog post and video, Renault demonstrated its self-driving car research, sh
 
 Full story on F3News: [Renault test car automatically veers around obstacles     - Roadshow](http://www.f3nws.com/n/EzPAU)
 
-> Posted on: Thursday, November 9, 2017 2:35:47 AM
+> Posted on: Thursday, November 9, 2017 3:42:41 AM

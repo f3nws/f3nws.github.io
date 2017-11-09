@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber partners with NASA on flying taxi project (VIDEO)"
-date: 2017-11-09 02:14:50Z
+date: 2017-11-09 02:14:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Uber has announced a partnership with NASA in their efforts to take the ride-sha
 
 Full story on F3News: [Uber partners with NASA on flying taxi project (VIDEO)](http://www.f3nws.com/n/2mpVy)
 
-> Posted on: Thursday, November 9, 2017 2:14:50 AM
+> Posted on: Thursday, November 9, 2017 2:14:00 AM
