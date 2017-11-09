@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple says it offered to help FBI with Texas shooter's phone     - CNET"
-date: 2017-11-09 00:30:41Z
+date: 2017-11-09 00:37:14Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The iPhone maker says it reached out to the bureau after learning of its difficu
 
 Full story on F3News: [Apple says it offered to help FBI with Texas shooter's phone     - CNET](http://www.f3nws.com/n/ERVBXF)
 
-> Posted on: Thursday, November 9, 2017 12:30:41 AM
+> Posted on: Thursday, November 9, 2017 12:37:14 AM

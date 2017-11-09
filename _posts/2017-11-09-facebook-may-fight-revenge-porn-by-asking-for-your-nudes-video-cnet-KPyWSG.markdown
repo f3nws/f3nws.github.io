@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook may fight revenge porn by asking for your nudes video     - CNET"
-date: 2017-11-09 00:15:17Z
+date: 2017-11-09 00:47:51Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Facebook wants to turn your naked pics into digital fingerprints to block them f
 
 Full story on F3News: [Facebook may fight revenge porn by asking for your nudes video     - CNET](http://www.f3nws.com/n/KPyWSG)
 
-> Posted on: Thursday, November 9, 2017 12:15:17 AM
+> Posted on: Thursday, November 9, 2017 12:47:51 AM
