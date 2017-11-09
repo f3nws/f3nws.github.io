@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USA Today gets trolled over ‘chainsaw bayonet’ assault rifle video"
-date: 2017-11-09 00:43:02Z
+date: 2017-11-09 00:43:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ USA Today got the opposite reaction it was looking for when it posted a video cl
 
 Full story on F3News: [USA Today gets trolled over ‘chainsaw bayonet’ assault rifle video](http://www.f3nws.com/n/mbDdvD)
 
-> Posted on: Thursday, November 9, 2017 12:43:02 AM
+> Posted on: Thursday, November 9, 2017 12:43:00 AM

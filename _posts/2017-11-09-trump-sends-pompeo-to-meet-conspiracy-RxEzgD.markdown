@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump sends Pompeo to meet conspiracy..."
-date: 2017-11-09 04:42:38Z
+date: 2017-11-09 02:35:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow relays reports that Donald Trump sent CIA Director Mike Pompeo to 
 
 Full story on F3News: [Trump sends Pompeo to meet conspiracy...](http://www.f3nws.com/n/RxEzgD)
 
-> Posted on: Thursday, November 9, 2017 4:42:38 AM
+> Posted on: Thursday, November 9, 2017 2:35:00 AM
