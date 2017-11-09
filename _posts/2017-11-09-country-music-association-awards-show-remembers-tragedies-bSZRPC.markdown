@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Country Music Association Awards show remembers tragedies"
-date: 2017-11-09 03:13:56Z
+date: 2017-11-09 06:38:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Country music's biggest night kicked off Wednesday with a remembrance of what ha
 
 Full story on F3News: [Country Music Association Awards show remembers tragedies](http://www.f3nws.com/n/bSZRPC)
 
-> Posted on: Thursday, November 9, 2017 3:13:56 AM
+> Posted on: Thursday, November 9, 2017 6:38:04 AM

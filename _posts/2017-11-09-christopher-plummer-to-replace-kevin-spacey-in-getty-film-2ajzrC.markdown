@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Christopher Plummer to replace Kevin Spacey in Getty film"
-date: 2017-11-09 05:43:37Z
+date: 2017-11-09 06:38:08Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — In a wholly unprecedented move, Kevin Spacey is being cut f
 
 Full story on F3News: [Christopher Plummer to replace Kevin Spacey in Getty film](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 9, 2017 5:43:37 AM
+> Posted on: Thursday, November 9, 2017 6:38:08 AM
