@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump trades barbs for flattery to win over China"
-date: 2017-11-09 17:20:56Z
+date: 2017-11-09 20:37:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Outside the Great Hall of the People here on Thursday, President Donald Trump wa
 
 Full story on F3News: [Trump trades barbs for flattery to win over China](http://www.f3nws.com/n/ae3jsG)
 
-> Posted on: Thursday, November 9, 2017 5:20:56 PM
+> Posted on: Thursday, November 9, 2017 8:37:00 PM
