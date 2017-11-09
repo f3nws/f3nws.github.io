@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hurricane survivors moved to US mainland"
-date: 2017-11-09 13:25:21Z
+date: 2017-11-09 15:24:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Federal Emergency Management Agency will help transport hurricane survivors 
 
 Full story on F3News: [Hurricane survivors moved to US mainland](http://www.f3nws.com/n/nZxEpF)
 
-> Posted on: Thursday, November 9, 2017 1:25:21 PM
+> Posted on: Thursday, November 9, 2017 3:24:48 PM

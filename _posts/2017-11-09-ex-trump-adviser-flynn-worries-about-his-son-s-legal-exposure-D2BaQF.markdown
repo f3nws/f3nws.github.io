@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Trump adviser Flynn worries about his son's legal exposure"
-date: 2017-11-09 01:07:41Z
+date: 2017-11-09 15:32:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House national security adviser Michael Flynn has expressed concern
 
 Full story on F3News: [Ex-Trump adviser Flynn worries about his son's legal exposure](http://www.f3nws.com/n/D2BaQF)
 
-> Posted on: Thursday, November 9, 2017 1:07:41 AM
+> Posted on: Thursday, November 9, 2017 3:32:13 PM
