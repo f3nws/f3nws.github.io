@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Intel to Develop Discrete GPUs, Hires Raja Koduri as Chief Architect & Senior VP - AnandTech](https://images.anandtech.com/doci/12017/raja_intel_678x452.png)
 
-AnandTech Intel to Develop Discrete GPUs, Hires Raja Koduri as Chief Architect & Senior VP AnandTech On Monday, Intel announced that it had penned a deal with AMD to have the latter provide a discrete GPU to be integrated onto a future Intel SoC. On Tuesday, AMD announced that their chief GPU architect, Raja Koduri, was leaving the company. Now today ... Intel To Develop Its Own Graphics Chips Led By Former AMD Exec Fortune Radeon Exec Raja Koduri Has Left AMD ExtremeTech Intel Grabs AMD's Raja Koduri, Outlines Broad GPU Vision Tom's Hardware PCWorld - ZDNet - Digital Trends - PC Gamer all 96 news articles »
+AnandTech Intel to Develop Discrete GPUs, Hires Raja Koduri as Chief Architect & Senior VP AnandTech On Monday, Intel announced that it had penned a deal with AMD to have the latter provide a discrete GPU to be integrated onto a future Intel SoC. On Tuesday, AMD announced that their chief GPU architect, Raja Koduri, was leaving the company. Now today ... Intel To Develop Its Own Graphics Chips Led By Former AMD Exec Fortune Radeon Exec Raja Koduri Has Left AMD ExtremeTech Intel Grabs AMD's Raja Koduri, Outlines Broad GPU Vision Tom's Hardware PCWorld - ZDNet - Digital Trends - PC Gamer all 104 news articles »
 
 
 Full story on F3News: [Intel to Develop Discrete GPUs, Hires Raja Koduri as Chief Architect & Senior VP - AnandTech](http://www.f3nws.com/n/XzYcQD)

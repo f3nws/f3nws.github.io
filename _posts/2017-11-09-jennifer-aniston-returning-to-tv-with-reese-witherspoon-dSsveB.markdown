@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jennifer Aniston returning to TV with Reese Witherspoon"
-date: 2017-11-09 09:00:51Z
+date: 2017-11-09 11:33:03Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Jennifer Aniston is coming back to television, nearly 14 years after the actress
 
 Full story on F3News: [Jennifer Aniston returning to TV with Reese Witherspoon](http://www.f3nws.com/n/dSsveB)
 
-> Posted on: Thursday, November 9, 2017 9:00:51 AM
+> Posted on: Thursday, November 9, 2017 11:33:03 AM
