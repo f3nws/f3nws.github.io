@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justice Department Says Not So Fast to AT&T's Time Warner Bid - New York Times"
-date: 2017-11-09 01:43:53Z
+date: 2017-11-09 02:01:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ New York Times Justice Department Says Not So Fast to AT&T's Time Warner Bid New
 
 Full story on F3News: [Justice Department Says Not So Fast to AT&T's Time Warner Bid - New York Times](http://www.f3nws.com/n/BJcynE)
 
-> Posted on: Thursday, November 9, 2017 1:43:53 AM
+> Posted on: Thursday, November 9, 2017 2:01:38 AM

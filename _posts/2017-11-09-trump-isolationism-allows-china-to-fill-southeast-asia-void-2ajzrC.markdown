@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump isolationism allows China to fill Southeast Asia void"
-date: 2017-11-09 04:35:20Z
+date: 2017-11-09 07:33:16Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BEIJING (AP) — When Chinese leader Xi Jinping said last month that "no country
 
 Full story on F3News: [Trump isolationism allows China to fill Southeast Asia void](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Thursday, November 9, 2017 4:35:20 AM
+> Posted on: Thursday, November 9, 2017 7:33:16 AM
