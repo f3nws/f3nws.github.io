@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['Shame on you': Former TV anchor says Spacey sexually assaulted her teen son](http://www.abc.net.au/news/image/9133724-1x1-700x700.jpg)
 
-Heather Unruh claims Kevin Spacey bought her son "drink after drink" in a Nantucket restaurant before putting his hand down the 18-year-old's pants and grabbing his genitals.
+Heather Unruh claims Kevin Spacey bought her son "drink after drink" in a restaurant before putting his hand down the 18-year-old's pants and grabbing his genitals, amid reports the House of Cards actor is being cut from Ridley Scott's new film.
 
 
 Full story on F3News: ['Shame on you': Former TV anchor says Spacey sexually assaulted her teen son](http://www.f3nws.com/n/pkxdQF)

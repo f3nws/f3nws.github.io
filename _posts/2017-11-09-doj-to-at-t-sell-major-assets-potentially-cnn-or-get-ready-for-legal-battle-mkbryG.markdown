@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "DOJ to AT&T: Sell major assets, potentially CNN, or get ready for legal battle"
-date: 2017-11-09 00:07:19Z
+date: 2017-11-09 03:20:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [DOJ to AT&T: Sell major assets, potentially CNN, or get ready for legal battle](http://www.f3nws.com/n/mkbryG)
 
-> Posted on: Thursday, November 9, 2017 12:07:19 AM
+> Posted on: Thursday, November 9, 2017 3:20:16 AM
