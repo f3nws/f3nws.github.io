@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Louis C.K.'s full statement"
-date: 2017-11-10 19:30:14Z
+date: 2017-11-10 19:42:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Warning: This article contains language some may consider offensive.
 
 Full story on F3News: [Louis C.K.'s full statement](http://www.f3nws.com/n/GctrfE)
 
-> Posted on: Friday, November 10, 2017 7:30:14 PM
+> Posted on: Friday, November 10, 2017 7:42:12 PM

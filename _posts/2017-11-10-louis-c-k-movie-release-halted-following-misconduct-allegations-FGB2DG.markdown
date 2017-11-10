@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Louis C.K. movie release halted following misconduct allegations"
-date: 2017-11-10 18:58:44Z
+date: 2017-11-10 19:42:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Louis C.K. movie release halted following misconduct allegations](http://www.f3nws.com/n/FGB2DG)
 
-> Posted on: Friday, November 10, 2017 6:58:44 PM
+> Posted on: Friday, November 10, 2017 7:42:33 PM
