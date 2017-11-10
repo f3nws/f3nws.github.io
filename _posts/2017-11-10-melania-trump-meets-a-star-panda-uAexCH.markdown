@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melania Trump meets a star panda"
-date: 2017-11-10 09:22:14Z
+date: 2017-11-10 09:46:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ First lady Melania Trump had a great panda adventure at the Beijing Zoo, her fin
 
 Full story on F3News: [Melania Trump meets a star panda](http://www.f3nws.com/n/uAexCH)
 
-> Posted on: Friday, November 10, 2017 9:22:14 AM
+> Posted on: Friday, November 10, 2017 9:46:59 AM
