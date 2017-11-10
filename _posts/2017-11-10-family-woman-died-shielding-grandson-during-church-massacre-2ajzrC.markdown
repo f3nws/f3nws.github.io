@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Family: Woman died shielding grandson during church massacre"
-date: 2017-11-10 10:34:04Z
+date: 2017-11-10 11:41:52Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DALLAS (AP) — Sunday school teacher Peggy Warden threw herself in front of her
 
 Full story on F3News: [Family: Woman died shielding grandson during church massacre](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, November 10, 2017 10:34:04 AM
+> Posted on: Friday, November 10, 2017 11:41:52 AM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Father charged with murder of baby girl in Brookdale, south of Perth - ABC Online](http://www.abc.net.au/news/image/9136816-1x1-700x700.jpg)
 
-ABC Online Father charged with murder of baby girl in Brookdale, south of Perth ABC Online A father charged with murdering his baby girl last night has made a brief appearance in the Perth Magistrates Court. Aaron Colin Martin, 35, was arrested after emergency services crews were called to a house in Chiltern Avenue in Brookdale, south of ... Baby death leaves community struggle with 'loss of innocence' 9news.com.au Perth father accused of murdering his six-month-old baby daughter SBS Perth father charged with the murder of his six-month-old baby girl WAtoday The Australian - Perth Now - Ten Eyewitness News - Yahoo7 News all 16 news articles »
+ABC Online Father charged with murder of baby girl in Brookdale, south of Perth ABC Online A father charged with murdering his baby girl last night has made a brief appearance in the Perth Magistrates Court. Aaron Colin Martin, 35, was arrested after emergency services crews were called to a house in Chiltern Avenue in Brookdale, south of ... Baby death leaves community struggle with 'loss of innocence' 9news.com.au Perth father accused of murdering his six-month-old baby daughter SBS Perth father charged with the murder of his six-month-old baby girl WAtoday The Australian - Perth Now - The West Australian - Ten Eyewitness News all 17 news articles »
 
 
 Full story on F3News: [Father charged with murder of baby girl in Brookdale, south of Perth - ABC Online](http://www.f3nws.com/n/tamKrG)
