@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Louis C.K.: 'These stories are true'"
-date: 2017-11-10 19:58:33Z
+date: 2017-11-10 22:33:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Comedian Louis C.K. has issued a statement in response to sexual misconduct alle
 
 Full story on F3News: [Louis C.K.: 'These stories are true'](http://www.f3nws.com/n/FSxPED)
 
-> Posted on: Friday, November 10, 2017 7:58:33 PM
+> Posted on: Friday, November 10, 2017 10:33:51 PM
