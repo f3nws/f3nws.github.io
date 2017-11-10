@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon: Moore accusations are like coverage of Trump's 'Access Hollywood' tape"
-date: 2017-11-10 12:09:39Z
+date: 2017-11-10 13:16:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon compared the allegations of sex
 
 Full story on F3News: [Bannon: Moore accusations are like coverage of Trump's 'Access Hollywood' tape](http://www.f3nws.com/n/jYqyVJ)
 
-> Posted on: Friday, November 10, 2017 12:09:39 PM
+> Posted on: Friday, November 10, 2017 1:16:42 PM
