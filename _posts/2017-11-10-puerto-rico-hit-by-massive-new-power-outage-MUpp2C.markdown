@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Puerto Rico hit by massive new power outage"
-date: 2017-11-10 00:01:06Z
+date: 2017-11-10 01:43:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A massive outage has wiped out power to Puerto Rico's capital San Juan.
 
 Full story on F3News: [Puerto Rico hit by massive new power outage](http://www.f3nws.com/n/MUpp2C)
 
-> Posted on: Friday, November 10, 2017 12:01:06 AM
+> Posted on: Friday, November 10, 2017 1:43:00 AM
