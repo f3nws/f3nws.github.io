@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kingdom orders its citizens to leave Lebanon"
-date: 2017-11-10 03:05:46Z
+date: 2017-11-10 09:36:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabia has ordered its citizens to leave Lebanon and avoid travel there as
 
 Full story on F3News: [Kingdom orders its citizens to leave Lebanon](http://www.f3nws.com/n/PhpWuE)
 
-> Posted on: Friday, November 10, 2017 3:05:46 AM
+> Posted on: Friday, November 10, 2017 9:36:28 AM

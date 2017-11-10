@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate mandates anti-sexual harassment training for its members, aides - Washington Post](https://www.washingtonpost.com/pbox.php?url=https://www.washingtonpost.com/pb/resources/img/twp-social-share.png&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Senate mandates anti-sexual harassment training for its members, aides Washington Post For the first time in its history, the Senate will require members and their aides to undergo training to prevent sexual harassment, a victory for advocates and people affected by decades of persistent misbehavior in Capitol Hill offices. The Senate ... Senate passes mandatory sexual harassment training ABC News all 48 news articles »
+Daily Beast Senate mandates anti-sexual harassment training for its members, aides Washington Post For the first time in its history, the Senate will require members and their aides to undergo training to prevent sexual harassment, a victory for advocates and people affected by decades of persistent misbehavior in Capitol Hill offices. The Senate ... Senate passes mandatory sexual harassment training ABC News Senate passes resolution requiring mandatory harassment training CBS News all 53 news articles »
 
 
 Full story on F3News: [Senate mandates anti-sexual harassment training for its members, aides - Washington Post](http://www.f3nws.com/n/JGnGAE)

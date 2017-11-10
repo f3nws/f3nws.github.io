@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Breathing in Delhi air equivalent to smoking 44 cigarettes a day"
-date: 2017-11-10 07:23:52Z
+date: 2017-11-10 08:41:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It was early on Tuesday morning when residents in the Indian capital of Delhi fi
 
 Full story on F3News: [Breathing in Delhi air equivalent to smoking 44 cigarettes a day](http://www.f3nws.com/n/cbDkRE)
 
-> Posted on: Friday, November 10, 2017 7:23:52 AM
+> Posted on: Friday, November 10, 2017 8:41:27 AM
