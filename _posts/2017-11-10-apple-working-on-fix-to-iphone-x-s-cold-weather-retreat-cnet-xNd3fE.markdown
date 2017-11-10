@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple working on fix to iPhone X's cold weather retreat     - CNET"
-date: 2017-11-10 01:29:05Z
+date: 2017-11-10 01:33:30Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Some users have complained that the handset's screen becomes unresponsive in coo
 
 Full story on F3News: [Apple working on fix to iPhone X's cold weather retreat     - CNET](http://www.f3nws.com/n/xNd3fE)
 
-> Posted on: Friday, November 10, 2017 1:29:05 AM
+> Posted on: Friday, November 10, 2017 1:33:30 AM
