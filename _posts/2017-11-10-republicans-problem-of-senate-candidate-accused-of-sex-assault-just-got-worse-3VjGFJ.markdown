@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans' problem of Senate candidate accused of sex assault just got worse"
-date: 2017-11-10 00:17:03Z
+date: 2017-11-10 12:20:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Talk privately to any Washington Republican about Roy Moore's Senate candidacy b
 
 Full story on F3News: [Republicans' problem of Senate candidate accused of sex assault just got worse](http://www.f3nws.com/n/3VjGFJ)
 
-> Posted on: Friday, November 10, 2017 12:17:03 AM
+> Posted on: Friday, November 10, 2017 12:20:57 PM
