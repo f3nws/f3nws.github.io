@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia says retaliation against US media could begin next week"
-date: 2017-11-10 01:36:52Z
+date: 2017-11-10 08:26:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Russia says retaliation against US media could begin next week](http://www.f3nws.com/n/3XtVMD)
 
-> Posted on: Friday, November 10, 2017 1:36:52 AM
+> Posted on: Friday, November 10, 2017 8:26:35 AM

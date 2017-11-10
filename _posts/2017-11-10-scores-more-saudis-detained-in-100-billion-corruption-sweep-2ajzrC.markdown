@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scores more Saudis detained in $100 billion corruption sweep"
-date: 2017-11-10 07:36:31Z
+date: 2017-11-10 08:30:42Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ RIYADH, Saudi Arabia (AP) — Dozens more people have been taken into custody by
 
 Full story on F3News: [Scores more Saudis detained in $100 billion corruption sweep](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, November 10, 2017 7:36:31 AM
+> Posted on: Friday, November 10, 2017 8:30:42 AM
