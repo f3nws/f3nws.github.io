@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone X deals pre-Black Friday 2017"
-date: 2017-11-10 14:00:49Z
+date: 2017-11-10 09:00:49Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The 10th anniversary iPhone X is extremely expensive. We tell you the handset pr
 
 Full story on F3News: [The best iPhone X deals pre-Black Friday 2017](http://www.f3nws.com/n/hCqNQ)
 
-> Posted on: Friday, November 10, 2017 2:00:49 PM
+> Posted on: Friday, November 10, 2017 9:00:49 AM
