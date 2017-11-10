@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Faith Hill And Tim McGraw Take Aim At The NRA And Demand Gun Control - HuffPost](https://img.huffingtonpost.com/asset/5a05bbcd1f000028004a5280.jpeg?cache=7l163hteoy&ops=1910_1000)
 
-HuffPost Faith Hill And Tim McGraw Take Aim At The NRA And Demand Gun Control HuffPost In a new interview with Billboard, conducted less than two weeks after the shooting in Las Vegas at the Route 91 Harvest Festival that left almost 60 people killed and hundreds injured in what became the deadliest mass shooting in modern U.S. history ... Tim McGraw Calls for "Commonsense" Gun Control, Breaking With Country Music Code Newsweek Tim McGraw and Faith Hill voice support for gun control: 'We all want a safe country' ABC News Faith Hill and Tim McGraw Call for More Gun Control in America US 99.5 USA TODAY - The Hill (blog) - WTAE Pittsburgh - Newsmax all 57 news articles »
+HuffPost Faith Hill And Tim McGraw Take Aim At The NRA And Demand Gun Control HuffPost In a new interview with Billboard, conducted less than two weeks after the shooting in Las Vegas at the Route 91 Harvest Festival that left almost 60 people killed and hundreds injured in what became the deadliest mass shooting in modern U.S. history ... Tim McGraw Calls for "Commonsense" Gun Control, Breaking With Country Music Code Newsweek Tim McGraw and Faith Hill voice support for gun control: 'We all want a safe country' ABC News Tim McGraw, Faith Hill call out the NRA, demand 'common sense' gun control USA TODAY The Hill (blog) - The Daily Caller - Newsmax - KATC Lafayette News all 60 news articles »
 
 
 Full story on F3News: [Faith Hill And Tim McGraw Take Aim At The NRA And Demand Gun Control - HuffPost](http://www.f3nws.com/n/ZjuNTG)
