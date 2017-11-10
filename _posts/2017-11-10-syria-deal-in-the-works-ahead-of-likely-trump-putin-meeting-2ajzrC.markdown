@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syria deal in the works ahead of likely Trump-Putin meeting"
-date: 2017-11-10 02:37:17Z
+date: 2017-11-10 03:44:40Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The United States and Russia are nearing an agreement on Syr
 
 Full story on F3News: [Syria deal in the works ahead of likely Trump-Putin meeting](http://www.f3nws.com/n/2ajzrC)
 
-> Posted on: Friday, November 10, 2017 2:37:17 AM
+> Posted on: Friday, November 10, 2017 3:44:40 AM

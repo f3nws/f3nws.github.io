@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Church shooting victims face many obstacles in court"
-date: 2017-11-10 00:10:54Z
+date: 2017-11-10 01:56:24Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Texas church shooting victims and their families could have a hard time successf
 
 Full story on F3News: [Church shooting victims face many obstacles in court](http://www.f3nws.com/n/MhEHbG)
 
-> Posted on: Friday, November 10, 2017 12:10:54 AM
+> Posted on: Friday, November 10, 2017 1:56:24 AM
