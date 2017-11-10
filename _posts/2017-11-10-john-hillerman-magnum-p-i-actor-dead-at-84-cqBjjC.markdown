@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Hillerman, 'Magnum, P.I.' actor, dead at 84"
-date: 2017-11-10 15:29:28Z
+date: 2017-11-10 17:18:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Actor John Hillerman died of natural causes Thursday at his home in Houston, Tex
 
 Full story on F3News: [John Hillerman, 'Magnum, P.I.' actor, dead at 84](http://www.f3nws.com/n/cqBjjC)
 
-> Posted on: Friday, November 10, 2017 3:29:28 PM
+> Posted on: Friday, November 10, 2017 5:18:00 PM
