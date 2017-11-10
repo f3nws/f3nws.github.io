@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's 'America first' speech at Asia-Pacific summit"
-date: 2017-11-10 09:06:51Z
+date: 2017-11-10 14:13:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump brought his hard-line economic nationalism to a summit of
 
 Full story on F3News: [Trump's 'America first' speech at Asia-Pacific summit](http://www.f3nws.com/n/cszra)
 
-> Posted on: Friday, November 10, 2017 9:06:51 AM
+> Posted on: Friday, November 10, 2017 2:13:38 PM
