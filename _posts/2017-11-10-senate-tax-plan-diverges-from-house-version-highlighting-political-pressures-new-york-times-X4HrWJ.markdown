@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Tax Plan Diverges From House Version, Highlighting Political Pressures - New York Times](https://static01.nyt.com/images/2017/11/10/us/politics/10dc-tax/10dc-tax-facebookJumbo-v2.jpg)
 
-New York Times Senate Tax Plan Diverges From House Version, Highlighting Political Pressures New York Times From left, Senator Orrin Hatch, the chairman of the Finance Committee, with Treasury Secretary Steven Mnuchin and Gary D. Cohn, the national economic adviser, gathered for a meeting on tax overhaul legislation at the Capitol on Thursday. Credit Tom ... Senate GOP plan would delay corporate tax cut, protect mortgage interest deduction Washington Post Senate Republicans unveil their own tax plan CNN Senate GOP's tax bill points to nasty fight ahead Politico The Hill - U.S. News & World Report - Los Angeles Times - Fortune all 2,230 news articles »
+New York Times Senate Tax Plan Diverges From House Version, Highlighting Political Pressures New York Times From left, Senator Orrin Hatch, the chairman of the Finance Committee, with Treasury Secretary Steven Mnuchin and Gary D. Cohn, the national economic adviser, gathered for a meeting on tax overhaul legislation at the Capitol on Thursday. Credit Tom ... Senate GOP's tax bill points to nasty fight ahead Politico Key differences between the Senate and House tax plans The Hill The GOP tax plan won't grow the economy. Here's what will. Washington Post U.S. News & World Report - TIME - CNNMoney - USA TODAY all 2,241 news articles »
 
 
 Full story on F3News: [Senate Tax Plan Diverges From House Version, Highlighting Political Pressures - New York Times](http://www.f3nws.com/n/X4HrWJ)
