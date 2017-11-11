@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soccer star says ex-FIFA chief grabbed her inappropriately"
-date: 2017-11-11 01:45:23Z
+date: 2017-11-11 07:19:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US soccer star Hope Solo says former FIFA president Sepp Blatter grabbed her but
 
 Full story on F3News: [Soccer star says ex-FIFA chief grabbed her inappropriately](http://www.f3nws.com/n/RnQYrF)
 
-> Posted on: Saturday, November 11, 2017 1:45:23 AM
+> Posted on: Saturday, November 11, 2017 7:19:30 AM

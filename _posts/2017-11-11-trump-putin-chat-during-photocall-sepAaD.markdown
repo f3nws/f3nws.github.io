@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, Putin chat during photocall"
-date: 2017-11-11 06:16:26Z
+date: 2017-11-11 07:00:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and Russian President Vladimir Putin will not hold a form
 
 Full story on F3News: [Trump, Putin chat during photocall](http://www.f3nws.com/n/sepAaD)
 
-> Posted on: Saturday, November 11, 2017 6:16:26 AM
+> Posted on: Saturday, November 11, 2017 7:00:46 AM
