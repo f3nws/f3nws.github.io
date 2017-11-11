@@ -5,6 +5,8 @@ date: 2017-11-11 00:44:00Z
 categories: codeproject
 ---
 
+![Creating Web API in ASP.NET Core](https://codeproject.global.ssl.fastly.net/script/Forums/Images/smiley_wink.gif)
+
 Creating Web API in ASP.NET Core
 
 
