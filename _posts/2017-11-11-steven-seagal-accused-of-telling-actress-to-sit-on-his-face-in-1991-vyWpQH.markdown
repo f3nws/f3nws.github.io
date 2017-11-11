@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steven Seagal accused of telling actress to sit on his face in 1991"
-date: 2017-11-11 12:45:01Z
+date: 2017-11-11 13:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Former action star Steven Seagal is being accused by an unnamed Hollywood execut
 
 Full story on F3News: [Steven Seagal accused of telling actress to sit on his face in 1991](http://www.f3nws.com/n/vyWpQH)
 
-> Posted on: Saturday, November 11, 2017 12:45:01 PM
+> Posted on: Saturday, November 11, 2017 1:45:03 PM

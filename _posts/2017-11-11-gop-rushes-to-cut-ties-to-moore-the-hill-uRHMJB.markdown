@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP rushes to cut ties to Moore - The Hill](http://thehill.com/sites/default/files/moore.1.jpg)
 
-The Hill GOP rushes to cut ties to Moore The Hill Republicans are rushing to cut ties with Senate candidate Roy Moore (R-Ala.) as fears mount that the disturbing allegations against him will tarnish the party's brand and imperil other GOP candidates running for office. Moore has denied the bombshell ... For Alabama Women, Disgust, Fatigue and a Sense Moore Could Win Anyway New York Times Some GOP Political Operatives Fear Roy Moore Could Lose Race U.S. News & World Report Roy Moore: 'I have never engaged in sexual misconduct' USA TODAY The New Yorker - Newsweek - Seattle Times - HuffPost all 1,080 news articles »
+CBS News GOP rushes to cut ties to Moore The Hill Republicans are rushing to cut ties with Senate candidate Roy Moore (R-Ala.) as fears mount that the disturbing allegations against him will tarnish the party's brand and imperil other GOP candidates running for office. Moore has denied the bombshell ... Some GOP Political Operatives Fear Roy Moore Could Lose Race U.S. News & World Report Sex, Senators and — Oh Gosh, Mitt New York Times President Trump says he needs to get back to US 'to see what's happening' with Roy Moore ABC News The New Yorker - Newsweek - Fox News - Boston Herald all 1,100 news articles »
 
 
 Full story on F3News: [GOP rushes to cut ties to Moore - The Hill](http://www.f3nws.com/n/uRHMJB)
