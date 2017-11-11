@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "America, I apologize for the South's hypocrisy"
-date: 2017-11-11 02:51:57Z
+date: 2017-11-11 18:48:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As a native Southerner, I'd like to apologize to the rest of the country. My reg
 
 Full story on F3News: [America, I apologize for the South's hypocrisy](http://www.f3nws.com/n/czETTF)
 
-> Posted on: Saturday, November 11, 2017 2:51:57 AM
+> Posted on: Saturday, November 11, 2017 6:48:13 PM
