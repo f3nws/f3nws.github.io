@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![North Korea lashes out at Trump, says he 'begged for nuclear war' during Asia trip - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170831090611-kim-jong-un-and-trump-tease-super-tease.jpg)
 
-CNN North Korea lashes out at Trump, says he 'begged for nuclear war' during Asia trip CNN (CNN) North Korea lashed out at US President Donald Trump again Saturday, describing him as a "destroyer" who "begged for nuclear war" during his tour of Asia. "His current trip to our surrounding region is a warmonger's visit for confrontation to rid ... Trump to Asia: Unite on North Korea, but Go It Alone on Trade New York Times North Korea's internet is as weird as you think it is Fox News North Korea: Trump is 'warmonger' begging for nuclear war The Hill New York Post - Los Angeles Times - NBCNews.com - New York Daily News all 975 news articles »
+CNN North Korea lashes out at Trump, says he 'begged for nuclear war' during Asia trip CNN (CNN) North Korea lashed out at US President Donald Trump again Saturday, describing him as a "destroyer" who "begged for nuclear war" during his tour of Asia. "His current trip to our surrounding region is a warmonger's visit for confrontation to rid ... Trump to Asia: Unite on North Korea, but Go It Alone on Trade New York Times North Korea's digital divide: Online elites, isolated masses Chicago Tribune Here's Team Trump's hope for a peaceful North Korean solution New York Post Los Angeles Times - NBCNews.com - New York Daily News - Washington Post all 394 news articles »
 
 
 Full story on F3News: [North Korea lashes out at Trump, says he 'begged for nuclear war' during Asia trip - CNN](http://www.f3nws.com/n/sBz3J)

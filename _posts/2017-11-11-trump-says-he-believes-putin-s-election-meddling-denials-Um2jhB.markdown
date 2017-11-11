@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says he believes Putin's election meddling denials"
-date: 2017-11-11 12:58:57Z
+date: 2017-11-11 17:40:46Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump suggested on Saturday he's done confronting Russian Presi
 
 Full story on F3News: [Trump says he believes Putin's election meddling denials](http://www.f3nws.com/n/Um2jhB)
 
-> Posted on: Saturday, November 11, 2017 12:58:57 PM
+> Posted on: Saturday, November 11, 2017 5:40:46 PM
