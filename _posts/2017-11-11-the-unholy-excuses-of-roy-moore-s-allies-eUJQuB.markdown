@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The unholy excuses of Roy Moore's allies"
-date: 2017-11-11 15:44:33Z
+date: 2017-11-11 18:07:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Almost every religion asks a version of the question, "What would Jesus do?" Bud
 
 Full story on F3News: [The unholy excuses of Roy Moore's allies](http://www.f3nws.com/n/eUJQuB)
 
-> Posted on: Saturday, November 11, 2017 3:44:33 PM
+> Posted on: Saturday, November 11, 2017 6:07:21 PM
