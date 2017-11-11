@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What to play this weekend: Doom, Need for Speed, Horizon     - CNET"
-date: 2017-11-11 00:42:44Z
+date: 2017-11-11 07:53:48Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ This week's theme: Old games, but better.
 
 Full story on F3News: [What to play this weekend: Doom, Need for Speed, Horizon     - CNET](http://www.f3nws.com/n/qAvvCF)
 
-> Posted on: Saturday, November 11, 2017 12:42:44 AM
+> Posted on: Saturday, November 11, 2017 7:53:48 AM

@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Louis CK Admits to Sexual Misconduct as Media Companies Cut Ties - New York Times](https://static01.nyt.com/images/2017/11/11/arts/11louis-Friday-Reax1/11louis-Friday-Reax1-facebookJumbo.jpg)
 
-New York Times Louis CK Admits to Sexual Misconduct as Media Companies Cut Ties New York Times The Paris Theater, with a marquee for “I Love You, Daddy.” The Louis C.K. movie's premiere was canceled after The New York Times detailed sexual misconduct accusations by several women. Credit Dia Dipasupil/Getty Images North America. The comedian ... Louis CK's admission of sexual misconduct is the final straw for several networks Los Angeles Times Watching Louis CK's New Movie and Saying Goodbye Slate Magazine Truth in Comedy After Louis CK Vulture HuffPost - USA TODAY - Deadline - SFGate all 2,247 news articles »
+New York Times Louis CK Admits to Sexual Misconduct as Media Companies Cut Ties New York Times The Paris Theater, with a marquee for “I Love You, Daddy.” The Louis C.K. movie's premiere was canceled after The New York Times detailed sexual misconduct accusations by several women. Credit Dia Dipasupil/Getty Images North America. The comedian ... 'The Stories Are True,' Louis CK Says, After Women Described His Sexual Misconduct NPR Watching Louis CK's New Movie and Saying Goodbye Slate Magazine Indie film distributor the Orchard was on a roll. Then the Louis CK sex scandal blew up Los Angeles Times HuffPost - SFGate - The Atlantic - The New Yorker all 2,054 news articles »
 
 
 Full story on F3News: [Louis CK Admits to Sexual Misconduct as Media Companies Cut Ties - New York Times](http://www.f3nws.com/n/ZHuNmG)
