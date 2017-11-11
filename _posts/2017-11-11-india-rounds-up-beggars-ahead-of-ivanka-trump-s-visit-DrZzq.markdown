@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "India rounds up beggars ahead of Ivanka Trump's visit"
-date: 2017-11-11 06:27:30Z
+date: 2017-11-11 11:52:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police in the southern Indian city of Hyderabad are doing a last-minute sweep to
 
 Full story on F3News: [India rounds up beggars ahead of Ivanka Trump's visit](http://www.f3nws.com/n/DrZzq)
 
-> Posted on: Saturday, November 11, 2017 6:27:30 AM
+> Posted on: Saturday, November 11, 2017 11:52:29 AM
