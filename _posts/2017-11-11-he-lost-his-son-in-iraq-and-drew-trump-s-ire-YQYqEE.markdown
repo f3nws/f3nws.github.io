@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "He lost his son in Iraq and drew Trump's ire"
-date: 2017-11-11 06:19:28Z
+date: 2017-11-11 09:09:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At Pullen Memorial Baptist Church, the pews are packed with people who mostly do
 
 Full story on F3News: [He lost his son in Iraq and drew Trump's ire](http://www.f3nws.com/n/YQYqEE)
 
-> Posted on: Saturday, November 11, 2017 6:19:28 AM
+> Posted on: Saturday, November 11, 2017 9:09:23 AM
