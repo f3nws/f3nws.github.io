@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Tainted by association’: CIA whistleblower says progressives kicked him off EU panel (VIDEO)"
-date: 2017-11-11 01:29:02Z
+date: 2017-11-11 01:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ John Kiriakou, a former CIA counterterrorism officer, has told RT America that h
 
 Full story on F3News: [‘Tainted by association’: CIA whistleblower says progressives kicked him off EU panel (VIDEO)](http://www.f3nws.com/n/eaPkpB)
 
-> Posted on: Saturday, November 11, 2017 1:29:02 AM
+> Posted on: Saturday, November 11, 2017 1:29:00 AM
