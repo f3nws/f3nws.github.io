@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan rejects ‘moderate Islam’ as a Western tool to weaken Muslims"
-date: 2017-11-11 02:19:57Z
+date: 2017-11-11 02:19:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The idea of ‘moderate Islam’ was invented by the West and is being used to w
 
 Full story on F3News: [Erdogan rejects ‘moderate Islam’ as a Western tool to weaken Muslims](http://www.f3nws.com/n/hdxm4)
 
-> Posted on: Saturday, November 11, 2017 2:19:57 AM
+> Posted on: Saturday, November 11, 2017 2:19:00 AM
