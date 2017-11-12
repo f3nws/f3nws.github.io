@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opinion: Trump's trip has not been a success"
-date: 2017-11-12 18:29:09Z
+date: 2017-11-12 19:11:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Until Saturday, President Donald Trump had earned some praise for his trip to As
 
 Full story on F3News: [Opinion: Trump's trip has not been a success](http://www.f3nws.com/n/NtxDNE)
 
-> Posted on: Sunday, November 12, 2017 6:29:09 PM
+> Posted on: Sunday, November 12, 2017 7:11:33 PM
