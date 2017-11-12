@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Friends? Trump tweets he would never call Kim Jong-un 'short and fat'](http://www.abc.net.au/news/image/9105416-1x1-700x700.jpg)
 
-After a week of ramping up pressure on North Korea during his first visit to Asia, it appears US President Donald Trump is extending the hand of friendship to the rogue nation.
+After a week of ramping up pressure on North Korea during his first visit to Asia, it appears US President Donald Trump is extending the hand of friendship to the rogue nation lamenting "I try so hard to be his friend".
 
 
 Full story on F3News: [Friends? Trump tweets he would never call Kim Jong-un 'short and fat'](http://www.f3nws.com/n/dSy4qC)
