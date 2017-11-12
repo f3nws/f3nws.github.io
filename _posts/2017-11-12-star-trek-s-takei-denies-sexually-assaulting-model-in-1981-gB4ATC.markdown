@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Trek's' Takei denies sexually assaulting model in 1981"
-date: 2017-11-12 03:05:43Z
+date: 2017-11-12 08:07:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['Star Trek's' Takei denies sexually assaulting model in 1981](http://www.f3nws.com/n/gB4ATC)
 
-> Posted on: Sunday, November 12, 2017 3:05:43 AM
+> Posted on: Sunday, November 12, 2017 8:07:02 AM

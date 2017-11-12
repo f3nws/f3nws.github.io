@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines' Duterte a test for Trump"
-date: 2017-11-12 06:56:48Z
+date: 2017-11-12 07:54:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump's knack for diplomatic flattery will be tested in the 
 
 Full story on F3News: [Philippines' Duterte a test for Trump](http://www.f3nws.com/n/3yKKFE)
 
-> Posted on: Sunday, November 12, 2017 6:56:48 AM
+> Posted on: Sunday, November 12, 2017 7:54:35 AM
