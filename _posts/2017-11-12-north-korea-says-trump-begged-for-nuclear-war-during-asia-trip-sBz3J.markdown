@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea says Trump 'begged for nuclear war' during Asia trip"
-date: 2017-11-12 02:06:06Z
+date: 2017-11-12 04:25:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea lashed out at US President Donald Trump again Saturday, describing h
 
 Full story on F3News: [North Korea says Trump 'begged for nuclear war' during Asia trip](http://www.f3nws.com/n/sBz3J)
 
-> Posted on: Sunday, November 12, 2017 2:06:06 AM
+> Posted on: Sunday, November 12, 2017 4:25:08 AM
