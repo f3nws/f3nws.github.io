@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Texas church holds first service since mass shooting - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171105163228-08-sutherland-springs-church-shooting-super-tease.jpg)
 
-NBCNews.com Texas church holds first service since mass shooting CNN Sutherland Springs, Texas (CNN) The congregation of First Baptist Church of Sutherland Springs held a service on Sunday, one week after a gunman opened fire in the church, killing 25 people and an unborn child in the deadliest mass shooting in Texas ... Record attendance at 1st service since Texas church shooting CBS News Hundreds Gather For First Sunday Service Since Texas Church Shooting NPR Texas Congregants Hold Memorial on First Sunday Since Mass Church Shooting NBCNews.com New York Daily News - U.S. News & World Report - HuffPost - USA TODAY all 10,052 news articles »
+CBS News Texas church holds first service since mass shooting CNN Sutherland Springs, Texas (CNN) First Baptist Church of Sutherland Springs held its first Sunday service since a gunman killed 25 people and an unborn child in its sanctuary one week ago, in the deadliest mass shooting in Texas history. Sunday's ... Texas church survivors and supporters hold services one week after mass shooting ABC News Record attendance at 1st service since Texas church shooting CBS News Texas Congregants Hold Memorial on First Sunday Since Mass Church Shooting NBCNews.com New York Daily News - HuffPost - U.S. News & World Report - USA TODAY all 9,887 news articles »
 
 
 Full story on F3News: [Texas church holds first service since mass shooting - CNN](http://www.f3nws.com/n/drRzGE)
