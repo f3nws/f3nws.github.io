@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why sex is rarely heart-stopping"
-date: 2017-11-12 16:30:34Z
+date: 2017-11-12 21:06:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a familiar scene in TV melodramas: Mid-intercourse, an older man collapses,
 
 Full story on F3News: [Why sex is rarely heart-stopping](http://www.f3nws.com/n/TtZX4E)
 
-> Posted on: Sunday, November 12, 2017 4:30:34 PM
+> Posted on: Sunday, November 12, 2017 9:06:03 PM

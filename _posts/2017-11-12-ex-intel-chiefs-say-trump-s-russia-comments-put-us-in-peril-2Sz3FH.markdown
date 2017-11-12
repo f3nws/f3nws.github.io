@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-intel chiefs say Trump's Russia comments 'put US in peril'"
-date: 2017-11-12 20:09:40Z
+date: 2017-11-12 21:13:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Responding to an attack by President Donald Trump, two former top intelligence o
 
 Full story on F3News: [Ex-intel chiefs say Trump's Russia comments 'put US in peril'](http://www.f3nws.com/n/2Sz3FH)
 
-> Posted on: Sunday, November 12, 2017 8:09:40 PM
+> Posted on: Sunday, November 12, 2017 9:13:40 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bose's new Noise-Masking Sleepbuds may change your life     - CNET"
-date: 2017-11-12 16:44:54Z
+date: 2017-11-12 20:02:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In an unusual move for Bose, the company launches an Indiegogo campaign looking 
 
 Full story on F3News: [Bose's new Noise-Masking Sleepbuds may change your life     - CNET](http://www.f3nws.com/n/BWmUvG)
 
-> Posted on: Sunday, November 12, 2017 4:44:54 PM
+> Posted on: Sunday, November 12, 2017 8:02:33 PM
