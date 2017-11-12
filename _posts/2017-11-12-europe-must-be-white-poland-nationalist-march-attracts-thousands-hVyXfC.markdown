@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Europe must be white:' Poland nationalist march attracts thousands"
-date: 2017-11-12 11:13:07Z
+date: 2017-11-12 18:28:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of people joined nationalist marchers waving flags and burning
 
 Full story on F3News: ['Europe must be white:' Poland nationalist march attracts thousands](http://www.f3nws.com/n/hVyXfC)
 
-> Posted on: Sunday, November 12, 2017 11:13:07 AM
+> Posted on: Sunday, November 12, 2017 6:28:16 PM

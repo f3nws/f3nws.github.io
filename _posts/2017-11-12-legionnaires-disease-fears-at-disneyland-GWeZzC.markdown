@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Legionnaires' disease fears at Disneyland"
-date: 2017-11-12 07:53:31Z
+date: 2017-11-12 18:33:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Disneyland Park has shut down two cooling towers at its park in Southern Califor
 
 Full story on F3News: [Legionnaires' disease fears at Disneyland](http://www.f3nws.com/n/GWeZzC)
 
-> Posted on: Sunday, November 12, 2017 7:53:31 AM
+> Posted on: Sunday, November 12, 2017 6:33:52 PM
