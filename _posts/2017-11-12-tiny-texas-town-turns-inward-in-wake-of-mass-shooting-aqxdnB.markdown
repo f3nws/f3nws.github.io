@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tiny Texas town turns inward in wake of mass shooting"
-date: 2017-11-12 03:14:21Z
+date: 2017-11-12 04:53:56Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The people of Sutherland Springs haven't held a news conference or appeared on n
 
 Full story on F3News: [Tiny Texas town turns inward in wake of mass shooting](http://www.f3nws.com/n/aqxdnB)
 
-> Posted on: Sunday, November 12, 2017 3:14:21 AM
+> Posted on: Sunday, November 12, 2017 4:53:56 AM

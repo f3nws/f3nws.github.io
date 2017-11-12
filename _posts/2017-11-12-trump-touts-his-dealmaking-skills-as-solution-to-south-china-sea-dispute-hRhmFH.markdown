@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump touts his dealmaking skills as solution to South China Sea dispute"
-date: 2017-11-12 04:09:00Z
+date: 2017-11-12 04:58:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has offered his services as a "mediator and arbitrator
 
 Full story on F3News: [Trump touts his dealmaking skills as solution to South China Sea dispute](http://www.f3nws.com/n/hRhmFH)
 
-> Posted on: Sunday, November 12, 2017 4:09:00 AM
+> Posted on: Sunday, November 12, 2017 4:58:41 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea accuses Trump of ‘begging’ for nuclear war as rare US 3-carrier drills gets underway"
-date: 2017-11-12 01:03:28Z
+date: 2017-11-12 01:03:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Pyongyang has accused “dotard” Donald Trump of “begging” for a nuclear w
 
 Full story on F3News: [North Korea accuses Trump of ‘begging’ for nuclear war as rare US 3-carrier drills gets underway](http://www.f3nws.com/n/kpSrrE)
 
-> Posted on: Sunday, November 12, 2017 1:03:28 AM
+> Posted on: Sunday, November 12, 2017 1:03:00 AM
