@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soneva Jani: Inside one of the Maldives' most expensive resorts"
-date: 2017-11-13 03:16:11Z
+date: 2017-11-13 04:42:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When it comes to Maldives travel, you have to try pretty hard to have a bad vaca
 
 Full story on F3News: [Soneva Jani: Inside one of the Maldives' most expensive resorts](http://www.f3nws.com/n/DK2EdF)
 
-> Posted on: Monday, November 13, 2017 3:16:11 AM
+> Posted on: Monday, November 13, 2017 4:42:37 AM

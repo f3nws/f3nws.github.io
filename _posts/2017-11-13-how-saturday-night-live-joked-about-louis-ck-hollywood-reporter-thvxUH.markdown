@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![How 'Saturday Night Live' Joked About Louis CK - Hollywood Reporter](http://cdn4.thr.com/sites/default/files/2017/11/weekendupdate.jpg)
 
-Hollywood Reporter How 'Saturday Night Live' Joked About Louis CK Hollywood Reporter On Saturday's show, hosted by Tiffany Haddish, "Weekend Update" took aim at the comedian, as well as Kevin Spacey, Harvey Weinstein and Roy Moore. NBC's Saturday Night Live had another Hollywood figure to tackle during its show this week, and this ... Saturday Night Live Recap: Tiffany Haddish Is the 'Last Black Unicorn' Vulture 'SNL' tackles sexual harassment and Tiffany Haddish makes history as the first black female comedian to host Los Angeles Times Trending: Viewers love Tiffany Haddish on 'SNL'; women share #MeAt14 Washington Post Slate Magazine (blog) - Chicago Tribune - Paste Magazine - USA TODAY all 140 news articles »
+Hollywood Reporter How 'Saturday Night Live' Joked About Louis CK Hollywood Reporter On Saturday's show, hosted by Tiffany Haddish, "Weekend Update" took aim at the comedian, as well as Kevin Spacey, Harvey Weinstein and Roy Moore. NBC's Saturday Night Live had another Hollywood figure to tackle during its show this week, and this ... Saturday Night Live Recap: Tiffany Haddish Is the 'Last Black Unicorn' Vulture 'SNL' tackles sexual harassment and Tiffany Haddish makes history as the first black female comedian to host Los Angeles Times How SNL and Tiffany Haddish went after sexual misconduct Washington Post RollingStone.com - Us Weekly - Chicago Tribune - Deadline all 122 news articles »
 
 
 Full story on F3News: [How 'Saturday Night Live' Joked About Louis CK - Hollywood Reporter](http://www.f3nws.com/n/thvxUH)
