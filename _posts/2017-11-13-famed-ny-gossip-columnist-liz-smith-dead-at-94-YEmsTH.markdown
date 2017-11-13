@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Famed NY gossip columnist Liz Smith dead at 94"
-date: 2017-11-13 02:28:38Z
+date: 2017-11-13 12:14:43Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Longtime gossip columnist Liz Smith, who started her column at the New York Dail
 
 Full story on F3News: [Famed NY gossip columnist Liz Smith dead at 94](http://www.f3nws.com/n/YEmsTH)
 
-> Posted on: Monday, November 13, 2017 2:28:38 AM
+> Posted on: Monday, November 13, 2017 12:14:43 PM
