@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Europe must be white:' Poland nationalist march draws 60,000"
-date: 2017-11-13 12:12:53Z
+date: 2017-11-13 14:45:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tens of thousands of people joined nationalist marchers waving flags and burning
 
 Full story on F3News: ['Europe must be white:' Poland nationalist march draws 60,000](http://www.f3nws.com/n/hVyXfC)
 
-> Posted on: Monday, November 13, 2017 12:12:53 PM
+> Posted on: Monday, November 13, 2017 2:45:24 PM
