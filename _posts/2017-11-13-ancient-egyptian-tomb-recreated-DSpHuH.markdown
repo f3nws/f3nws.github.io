@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ancient Egyptian tomb recreated"
-date: 2017-11-13 13:39:50Z
+date: 2017-11-13 19:32:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's one of the great wonders of the ancient world: the magnificent tomb of Phar
 
 Full story on F3News: [Ancient Egyptian tomb recreated](http://www.f3nws.com/n/DSpHuH)
 
-> Posted on: Monday, November 13, 2017 1:39:50 PM
+> Posted on: Monday, November 13, 2017 7:32:07 PM
