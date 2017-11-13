@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top Tech Conferences: The Ultimate B2B tech events and show guide 2017"
-date: 2017-11-13 08:59:14Z
+date: 2017-11-13 15:59:14Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We're compiling the ultimate list of technology events so you don't have to.
 
 Full story on F3News: [Top Tech Conferences: The Ultimate B2B tech events and show guide 2017](http://www.f3nws.com/n/CnGGHB)
 
-> Posted on: Monday, November 13, 2017 8:59:14 AM
+> Posted on: Monday, November 13, 2017 3:59:14 PM
