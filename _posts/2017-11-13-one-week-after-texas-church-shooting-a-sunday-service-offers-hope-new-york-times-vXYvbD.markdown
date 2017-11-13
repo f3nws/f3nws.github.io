@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![One Week After Texas Church Shooting, a Sunday Service Offers Hope - New York Times](https://static01.nyt.com/images/2017/11/13/us/13xp-church3/13xp-church3-facebookJumbo.jpg)
 
-New York Times One Week After Texas Church Shooting, a Sunday Service Offers Hope New York Times The First Baptist Church in Sutherland Springs, Tex., was reopened to the public on Sunday evening as a memorial to the victims of a shooting there. Credit Drew Anthony Smith for The New York Times. SUTHERLAND SPRINGS, Tex. — Under heavy clouds ... Record attendance at 1st service since Texas church shooting CBS News Texas church holds first service since mass shooting CNN After Texas church massacre, tiny town turns to prayer to begin healing process Washington Post U.S. News & World Report - SFGate - ABC News - NPR all 282 news articles »
+New York Times One Week After Texas Church Shooting, a Sunday Service Offers Hope New York Times The First Baptist Church in Sutherland Springs, Tex., was reopened to the public on Sunday evening as a memorial to the victims of a shooting there. Credit Drew Anthony Smith for The New York Times. SUTHERLAND SPRINGS, Tex. — Under heavy clouds ... Record attendance at 1st service since Texas church shooting CBS News Texas church holds first service since mass shooting CNN After Texas church massacre, tiny town turns to prayer to begin healing process Washington Post ABC News - U.S. News & World Report - New York Daily News - SFGate all 10,752 news articles »
 
 
 Full story on F3News: [One Week After Texas Church Shooting, a Sunday Service Offers Hope - New York Times](http://www.f3nws.com/n/vXYvbD)
