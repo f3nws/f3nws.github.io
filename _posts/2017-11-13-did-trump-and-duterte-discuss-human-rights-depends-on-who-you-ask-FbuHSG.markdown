@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Trump and Duterte discuss human rights? Depends on who you ask"
-date: 2017-11-13 12:05:05Z
+date: 2017-11-13 12:57:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump and Philippine President Rodrigo Duterte, who lavished pl
 
 Full story on F3News: [Did Trump and Duterte discuss human rights? Depends on who you ask](http://www.f3nws.com/n/FbuHSG)
 
-> Posted on: Monday, November 13, 2017 12:05:05 PM
+> Posted on: Monday, November 13, 2017 12:57:55 PM
