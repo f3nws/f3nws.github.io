@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Green Beret killed by SEALs after he uncovered alleged theft"
-date: 2017-11-13 11:18:55Z
+date: 2017-11-13 17:10:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two Navy SEALs being investigated over the death of an Army Green Beret in Mali 
 
 Full story on F3News: [Report: Green Beret killed by SEALs after he uncovered alleged theft](http://www.f3nws.com/n/svgGyE)
 
-> Posted on: Monday, November 13, 2017 11:18:55 AM
+> Posted on: Monday, November 13, 2017 5:10:33 PM

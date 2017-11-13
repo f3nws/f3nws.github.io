@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The Flash,' 'Supergirl' showrunner suspended amid sexual harassment claims"
-date: 2017-11-13 16:22:50Z
+date: 2017-11-13 17:13:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Warner Bros. Television Group has sidelined a prominent television producer and 
 
 Full story on F3News: ['The Flash,' 'Supergirl' showrunner suspended amid sexual harassment claims](http://www.f3nws.com/n/QPfthD)
 
-> Posted on: Monday, November 13, 2017 4:22:50 PM
+> Posted on: Monday, November 13, 2017 5:13:42 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran-Iraq earthquake is the deadliest of 2017"
-date: 2017-11-13 14:19:02Z
+date: 2017-11-13 17:22:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 400 have died after an earthquake struck the region between Iraq and I
 
 Full story on F3News: [Iran-Iraq earthquake is the deadliest of 2017](http://www.f3nws.com/n/umBtMF)
 
-> Posted on: Monday, November 13, 2017 2:19:02 PM
+> Posted on: Monday, November 13, 2017 5:22:36 PM

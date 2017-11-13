@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soldier shot by North Korean guards while defecting to the South"
-date: 2017-11-13 13:40:16Z
+date: 2017-11-13 16:50:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A North Korean soldier was shot by his former comrades while defecting to South 
 
 Full story on F3News: [Soldier shot by North Korean guards while defecting to the South](http://www.f3nws.com/n/UgDaFF)
 
-> Posted on: Monday, November 13, 2017 1:40:16 PM
+> Posted on: Monday, November 13, 2017 4:50:20 PM
