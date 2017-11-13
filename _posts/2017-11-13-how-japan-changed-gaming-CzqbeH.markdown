@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Japan changed gaming"
-date: 2017-11-13 00:41:04Z
+date: 2017-11-13 10:45:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan didn't invent the first computer game. That accolade goes to "Space War!",
 
 Full story on F3News: [How Japan changed gaming](http://www.f3nws.com/n/CzqbeH)
 
-> Posted on: Monday, November 13, 2017 12:41:04 AM
+> Posted on: Monday, November 13, 2017 10:45:53 AM
