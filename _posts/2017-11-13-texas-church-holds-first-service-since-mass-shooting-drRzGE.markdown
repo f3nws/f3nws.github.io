@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas church holds first service since mass shooting"
-date: 2017-11-13 00:15:54Z
+date: 2017-11-13 06:53:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The congregation of First Baptist Church of Sutherland Springs held a service on
 
 Full story on F3News: [Texas church holds first service since mass shooting](http://www.f3nws.com/n/drRzGE)
 
-> Posted on: Monday, November 13, 2017 12:15:54 AM
+> Posted on: Monday, November 13, 2017 6:53:37 AM
