@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Penn State fraternity gave pledge 18 drinks in nearly 90 minutes, charges upgraded, prosecutor says"
-date: 2017-11-13 19:10:00Z
+date: 2017-11-13 19:40:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A recovered surveillance video from a Penn State fraternity house where a pledge
 
 Full story on F3News: [Penn State fraternity gave pledge 18 drinks in nearly 90 minutes, charges upgraded, prosecutor says](http://www.f3nws.com/n/mUyzn)
 
-> Posted on: Monday, November 13, 2017 7:10:00 PM
+> Posted on: Monday, November 13, 2017 7:40:00 PM
