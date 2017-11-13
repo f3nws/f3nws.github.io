@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Fraser Anning 'abandons' One Nation on first day in the Senate](http://www.abc.net.au/news/image/9144052-1x1-700x700.jpg)
 
-Just a couple of hours into the sitting week, One Nation's newest senator chooses two crossbenchers to swear him in instead of Pauline Hanson, while Cory Bernardi suggests there may be another dual citizen still sitting in the chamber. Follow live.
+Just a couple of hours into the sitting week, One Nation's newest senator chooses two crossbenchers to swear him in instead of Pauline Hanson, while others suggest there may be other dual citizens still sitting in the chamber. Follow live.
 
 
 Full story on F3News: [Live: Fraser Anning 'abandons' One Nation on first day in the Senate](http://www.f3nws.com/n/XQhrsE)
