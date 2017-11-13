@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber's board reaches deal allowing $10B SoftBank investment     - CNET"
-date: 2017-11-13 00:17:32Z
+date: 2017-11-13 01:18:59Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The deal will allow the Japanese internet giant to acquire as much as 20 percent
 
 Full story on F3News: [Uber's board reaches deal allowing $10B SoftBank investment     - CNET](http://www.f3nws.com/n/VYtsDH)
 
-> Posted on: Monday, November 13, 2017 12:17:32 AM
+> Posted on: Monday, November 13, 2017 1:18:59 AM

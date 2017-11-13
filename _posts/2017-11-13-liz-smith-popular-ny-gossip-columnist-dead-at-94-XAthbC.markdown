@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liz Smith, popular NY gossip columnist, dead at 94"
-date: 2017-11-13 00:15:00Z
+date: 2017-11-13 00:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Gossip columnist Liz Smith, whose mixture of banter, barbs, and bon mots about t
 
 Full story on F3News: [Liz Smith, popular NY gossip columnist, dead at 94](http://www.f3nws.com/n/XAthbC)
 
-> Posted on: Monday, November 13, 2017 12:15:00 AM
+> Posted on: Monday, November 13, 2017 12:45:00 AM
