@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Zero-gravity seats & moisturizing sleepsuits’: Emirates unveils luxury 1st class cabins"
-date: 2017-11-13 04:31:32Z
+date: 2017-11-13 04:31:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Emirates Airlines has kicked off the biennial Dubai Air Show by unveiling its ne
 
 Full story on F3News: [‘Zero-gravity seats & moisturizing sleepsuits’: Emirates unveils luxury 1st class cabins](http://www.f3nws.com/n/gYcJTE)
 
-> Posted on: Monday, November 13, 2017 4:31:32 AM
+> Posted on: Monday, November 13, 2017 4:31:00 AM
