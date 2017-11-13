@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This may be the most awkward presidential handshake ever"
-date: 2017-11-13 16:31:59Z
+date: 2017-11-13 21:33:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There should be a rule in international diplomacy: No strange handshake rituals.
 
 Full story on F3News: [This may be the most awkward presidential handshake ever](http://www.f3nws.com/n/RPTQCE)
 
-> Posted on: Monday, November 13, 2017 4:31:59 PM
+> Posted on: Monday, November 13, 2017 9:33:11 PM

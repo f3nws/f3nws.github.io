@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best tech deals that you don't want to miss out on"
-date: 2017-11-13 20:13:00Z
+date: 2017-11-13 20:49:45Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ Our friends at Thrifter post some great deals every day, and here are the best o
 
 Full story on F3News: [The best tech deals that you don't want to miss out on](http://www.f3nws.com/n/eRUbG)
 
-> Posted on: Monday, November 13, 2017 8:13:00 PM
+> Posted on: Monday, November 13, 2017 8:49:45 PM
