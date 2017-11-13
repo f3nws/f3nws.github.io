@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-intel chiefs say Trump's comments 'give Putin a pass'"
-date: 2017-11-13 10:13:32Z
+date: 2017-11-13 14:04:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A pair of former US intelligence chiefs blasted President Donald Trump Sunday af
 
 Full story on F3News: [Ex-intel chiefs say Trump's comments 'give Putin a pass'](http://www.f3nws.com/n/2Sz3FH)
 
-> Posted on: Monday, November 13, 2017 10:13:32 AM
+> Posted on: Monday, November 13, 2017 2:04:01 PM

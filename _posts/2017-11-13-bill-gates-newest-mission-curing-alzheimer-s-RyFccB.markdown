@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Gates' newest mission: Curing Alzheimer's"
-date: 2017-11-13 08:08:27Z
+date: 2017-11-13 14:35:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's one of the holy grails of science: a cure for Alzheimer's. Currently, there
 
 Full story on F3News: [Bill Gates' newest mission: Curing Alzheimer's](http://www.f3nws.com/n/RyFccB)
 
-> Posted on: Monday, November 13, 2017 8:08:27 AM
+> Posted on: Monday, November 13, 2017 2:35:58 PM
