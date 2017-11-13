@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "T-Mobile's gigabit network push reaches 430 markets in US     - CNET"
-date: 2017-11-13 04:27:01Z
+date: 2017-11-13 05:16:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The carrier boasts of "eclipsing" Verizon and AT&T with next-gen LTE technology.
 
 Full story on F3News: [T-Mobile's gigabit network push reaches 430 markets in US     - CNET](http://www.f3nws.com/n/qfKmzD)
 
-> Posted on: Monday, November 13, 2017 4:27:01 AM
+> Posted on: Monday, November 13, 2017 5:16:02 AM

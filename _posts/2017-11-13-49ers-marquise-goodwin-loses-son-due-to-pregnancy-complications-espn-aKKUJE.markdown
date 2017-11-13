@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![49ers' Marquise Goodwin loses son due to pregnancy complications - ESPN](http://a1.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1112%2Fr288088_1296x729_16%2D9.jpg)
 
-ESPN 49ers' Marquise Goodwin loses son due to pregnancy complications ESPN SANTA CLARA, Calif. -- With a heavy heart, San Francisco 49ers receiver Marquise Goodwin played and produced the team's biggest play of the year Sunday against the New York Giants. After San Francisco's 31-21 win, Goodwin posted to his Instagram ... Giants' Landon Collins says Ben McAdoo 'needs to be the coach next year' Washington Post Loss to winless 49ers increases heat on Giants coach McAdoo USA TODAY Giants need to fire Ben McAdoo right now after embarrassing 31-21 loss to 49ers New York Daily News The Mercury News - NFL.com - New York Times - NBCSports.com all 297 news articles »
+ESPN 49ers' Marquise Goodwin loses son due to pregnancy complications ESPN SANTA CLARA, Calif. -- With a heavy heart, San Francisco 49ers receiver Marquise Goodwin played and produced the team's biggest play of the year Sunday against the New York Giants. After San Francisco's 31-21 win, Goodwin posted to his Instagram ... Giants' Landon Collins says Ben McAdoo 'needs to be the coach next year' Washington Post Giants need to fire Ben McAdoo right now after embarrassing 31-21 loss to 49ers New York Daily News Giants defense — except one — takes blame for pitiful showing New York Post New York Times - USA TODAY - The Mercury News - NFL.com all 318 news articles »
 
 
 Full story on F3News: [49ers' Marquise Goodwin loses son due to pregnancy complications - ESPN](http://www.f3nws.com/n/aKKUJE)

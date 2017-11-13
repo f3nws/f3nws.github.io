@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Damascus denounces US-led coalition for adding ‘new bloody massacres’ to their ‘war crimes record’"
-date: 2017-11-13 01:33:53Z
+date: 2017-11-13 01:33:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ President Bashar Assad’s government has once again condemned the indiscriminat
 
 Full story on F3News: [Damascus denounces US-led coalition for adding ‘new bloody massacres’ to their ‘war crimes record’](http://www.f3nws.com/n/PZxdZC)
 
-> Posted on: Monday, November 13, 2017 1:33:53 AM
+> Posted on: Monday, November 13, 2017 1:33:00 AM
