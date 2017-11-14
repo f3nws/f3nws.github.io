@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rare 'fossil fish' shark caught off Portugal"
-date: 2017-11-14 10:00:34Z
+date: 2017-11-14 11:41:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ According to SIC Notícias TV, a rare frilled shark was caught off the coast of 
 
 Full story on F3News: [Rare 'fossil fish' shark caught off Portugal](http://www.f3nws.com/n/2ZRPTE)
 
-> Posted on: Tuesday, November 14, 2017 10:00:34 AM
+> Posted on: Tuesday, November 14, 2017 11:41:16 AM
