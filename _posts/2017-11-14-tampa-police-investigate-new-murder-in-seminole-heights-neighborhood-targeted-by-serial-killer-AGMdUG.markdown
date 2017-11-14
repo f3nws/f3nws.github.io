@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tampa police investigate new murder in Seminole Heights neighborhood targeted by serial killer"
-date: 2017-11-14 14:20:00Z
+date: 2017-11-14 17:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Residents of a Tampa neighborhood were asked to shelter in place early Tuesday a
 
 Full story on F3News: [Tampa police investigate new murder in Seminole Heights neighborhood targeted by serial killer](http://www.f3nws.com/n/AGMdUG)
 
-> Posted on: Tuesday, November 14, 2017 2:20:00 PM
+> Posted on: Tuesday, November 14, 2017 5:30:00 PM
