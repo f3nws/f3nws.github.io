@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Myanmar's military clears itself over reported Rohingya atrocities"
-date: 2017-11-14 04:57:28Z
+date: 2017-11-14 06:40:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Myanmar's military has acquitted itself of any wrongdoing against Rohingya Musli
 
 Full story on F3News: [Myanmar's military clears itself over reported Rohingya atrocities](http://www.f3nws.com/n/aNkAhF)
 
-> Posted on: Tuesday, November 14, 2017 4:57:28 AM
+> Posted on: Tuesday, November 14, 2017 6:40:47 AM
