@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senate Republicans repudiate Roy Moore's candidacy and urge him to leave the race - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/11/13/National-Politics/Images/2017-11-13T164854Z_1527363935_RC1824CAEFE0_RTRMADP_3_USA-CONGRESS-MOORE.jpg?t=20170517)
 
-Washington Post Senate Republicans repudiate Roy Moore's candidacy and urge him to leave the race Washington Post Senate Republican leaders on Monday waged an urgent campaign to pressure GOP nominee Roy Moore to withdraw from the Alabama Senate race amid allegations of sexual misconduct, declaring him “unfit to serve” and threatening to expel him from ... Fifth Woman Accuses Senate Candidate Roy Moore of Sexual Misconduct New York Times GOP mobilizes against Moore The Hill The View From Alabama Slate Magazine Fox News - Los Angeles Times - ABC News - BBC News all 1,573 news articles »
+Washington Post Senate Republicans repudiate Roy Moore's candidacy and urge him to leave the race Washington Post Senate Republican leaders on Monday waged an urgent campaign to pressure GOP nominee Roy Moore to withdraw from the Alabama Senate race amid allegations of sexual misconduct, declaring him “unfit to serve” and threatening to expel him from ... Fifth Woman Accuses Senate Candidate Roy Moore of Sexual Misconduct New York Times Breitbart editor: Moore scandal 'represents so much beyond one race.' Politico GOP mobilizes against Moore The Hill Slate Magazine - Fox News - U.S. News & World Report - Los Angeles Times all 1,635 news articles »
 
 
 Full story on F3News: [Senate Republicans repudiate Roy Moore's candidacy and urge him to leave the race - Washington Post](http://www.f3nws.com/n/GsrHnG)

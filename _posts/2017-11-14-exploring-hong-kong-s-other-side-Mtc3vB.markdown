@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Exploring Hong Kong's 'other side'"
-date: 2017-11-14 00:35:05Z
+date: 2017-11-14 04:36:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hong Kong is often compared to cities such as London and New York, but the resem
 
 Full story on F3News: [Exploring Hong Kong's 'other side'](http://www.f3nws.com/n/Mtc3vB)
 
-> Posted on: Tuesday, November 14, 2017 12:35:05 AM
+> Posted on: Tuesday, November 14, 2017 4:36:50 AM
