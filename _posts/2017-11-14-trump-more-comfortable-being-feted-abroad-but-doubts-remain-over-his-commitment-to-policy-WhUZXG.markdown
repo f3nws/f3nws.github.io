@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump more comfortable being feted abroad, but doubts remain over his commitment to policy"
-date: 2017-11-14 01:07:28Z
+date: 2017-11-14 02:38:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump flies home Tuesday after an Asia trip that went off wi
 
 Full story on F3News: [Trump more comfortable being feted abroad, but doubts remain over his commitment to policy](http://www.f3nws.com/n/WhUZXG)
 
-> Posted on: Tuesday, November 14, 2017 1:07:28 AM
+> Posted on: Tuesday, November 14, 2017 2:38:23 AM

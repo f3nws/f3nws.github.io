@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla accused of racial discrimination in lawsuit     - Roadshow"
-date: 2017-11-14 00:31:22Z
+date: 2017-11-14 01:08:49Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A lawsuit calls the automaker's factory in Fremont, California, a "hotbed for ra
 
 Full story on F3News: [Tesla accused of racial discrimination in lawsuit     - Roadshow](http://www.f3nws.com/n/PRfGbB)
 
-> Posted on: Tuesday, November 14, 2017 12:31:22 AM
+> Posted on: Tuesday, November 14, 2017 1:08:49 AM
