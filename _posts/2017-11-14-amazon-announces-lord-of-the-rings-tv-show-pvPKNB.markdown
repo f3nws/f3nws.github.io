@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon announces 'Lord of the Rings' TV show"
-date: 2017-11-14 13:32:30Z
+date: 2017-11-14 17:36:22Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Amazon is going to Middle Earth.
 
 Full story on F3News: [Amazon announces 'Lord of the Rings' TV show](http://www.f3nws.com/n/pvPKNB)
 
-> Posted on: Tuesday, November 14, 2017 1:32:30 PM
+> Posted on: Tuesday, November 14, 2017 5:36:22 PM
