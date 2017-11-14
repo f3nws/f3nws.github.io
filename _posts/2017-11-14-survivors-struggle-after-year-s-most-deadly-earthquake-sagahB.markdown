@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Survivors struggle after year's most deadly earthquake"
-date: 2017-11-14 10:10:52Z
+date: 2017-11-14 11:00:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iranian President Hassan Rouhani traveled Tuesday to the areas worst hit by Sund
 
 Full story on F3News: [Survivors struggle after year's most deadly earthquake](http://www.f3nws.com/n/sagahB)
 
-> Posted on: Tuesday, November 14, 2017 10:10:52 AM
+> Posted on: Tuesday, November 14, 2017 11:00:18 AM

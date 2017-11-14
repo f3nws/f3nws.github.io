@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New accuser says Roy Moore sexually assaulted her as a minor"
-date: 2017-11-14 00:13:17Z
+date: 2017-11-14 11:30:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Alabama woman alleges Alabama Republican Senate candidate Roy Moore sexually 
 
 Full story on F3News: [New accuser says Roy Moore sexually assaulted her as a minor](http://www.f3nws.com/n/4aUykB)
 
-> Posted on: Tuesday, November 14, 2017 12:13:17 AM
+> Posted on: Tuesday, November 14, 2017 11:30:00 AM
