@@ -5,6 +5,8 @@ date: 2017-11-14 00:35:00Z
 categories: codeproject
 ---
 
+![Subnetting with IPv6 - Part 2/2](https://www.codeproject.com/script/Forums/Images/thumbs_up.gif)
+
 IPv6 subnetting tool/calculator explained
 
 
