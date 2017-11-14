@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "3 US carriers creating 'worst ever' situation, Pyongyang says"
-date: 2017-11-14 04:38:05Z
+date: 2017-11-14 06:33:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three US Navy aircraft carriers put on show of strength in the Western Pacific O
 
 Full story on F3News: [3 US carriers creating 'worst ever' situation, Pyongyang says](http://www.f3nws.com/n/YFeRJD)
 
-> Posted on: Tuesday, November 14, 2017 4:38:05 AM
+> Posted on: Tuesday, November 14, 2017 6:33:09 AM

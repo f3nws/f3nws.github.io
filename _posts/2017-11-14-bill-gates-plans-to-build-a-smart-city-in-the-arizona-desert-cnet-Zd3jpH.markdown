@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Gates plans to build a smart city in the Arizona desert     - CNET"
-date: 2017-11-14 01:11:05Z
+date: 2017-11-14 05:48:49Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ An investment firm controlled by the Microsoft co-founder buys land for a city t
 
 Full story on F3News: [Bill Gates plans to build a smart city in the Arizona desert     - CNET](http://www.f3nws.com/n/Zd3jpH)
 
-> Posted on: Tuesday, November 14, 2017 1:11:05 AM
+> Posted on: Tuesday, November 14, 2017 5:48:49 AM
