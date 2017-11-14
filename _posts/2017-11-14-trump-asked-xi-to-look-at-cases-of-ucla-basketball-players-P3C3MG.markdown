@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump asked Xi to look at cases of UCLA basketball players"
-date: 2017-11-14 04:37:04Z
+date: 2017-11-14 07:56:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump personally asked Chinese President Xi Jinping to help 
 
 Full story on F3News: [Trump asked Xi to look at cases of UCLA basketball players](http://www.f3nws.com/n/P3C3MG)
 
-> Posted on: Tuesday, November 14, 2017 4:37:04 AM
+> Posted on: Tuesday, November 14, 2017 7:56:02 AM
