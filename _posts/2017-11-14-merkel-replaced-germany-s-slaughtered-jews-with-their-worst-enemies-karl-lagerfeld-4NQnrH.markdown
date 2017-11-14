@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Merkel replaced Germany’s slaughtered Jews with their 'worst enemies' – Karl Lagerfeld"
-date: 2017-11-14 16:10:40Z
+date: 2017-11-14 16:10:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ German fashion designer Karl Lagerfeld has accused Angela Merkel of replacing th
 
 Full story on F3News: [Merkel replaced Germany’s slaughtered Jews with their 'worst enemies' – Karl Lagerfeld](http://www.f3nws.com/n/4NQnrH)
 
-> Posted on: Tuesday, November 14, 2017 4:10:40 PM
+> Posted on: Tuesday, November 14, 2017 4:10:00 PM
