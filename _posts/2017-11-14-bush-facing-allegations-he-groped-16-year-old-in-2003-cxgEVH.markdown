@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bush facing allegations he groped 16-year-old in 2003"
-date: 2017-11-14 14:32:57Z
+date: 2017-11-14 15:57:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former President George H.W. Bush is facing allegations that he squeezed a teena
 
 Full story on F3News: [Bush facing allegations he groped 16-year-old in 2003](http://www.f3nws.com/n/cxgEVH)
 
-> Posted on: Tuesday, November 14, 2017 2:32:57 PM
+> Posted on: Tuesday, November 14, 2017 3:57:14 PM
