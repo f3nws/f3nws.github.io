@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Justice Dept. to Weigh Inquiry Into Clinton Foundation - New York Times](https://static01.nyt.com/images/2017/11/14/insider/14dc-uranium1/14dc-uranium1-facebookJumbo.jpg)
 
-New York Times Justice Dept. to Weigh Inquiry Into Clinton Foundation New York Times The Shootaring Canyon uranium mill in the desert outside Ticaboo, Utah, last month. Credit George Frey/Getty Images. WASHINGTON — The Justice Department said Monday that prosecutors were looking into whether a special counsel should be appointed ... DOJ will consider new special counsel on Clinton Foundation CNN Sessions raises specter of special counsel on Clinton and uranium Politico Sessions open to naming special counsel to probe Clinton Foundation CBS News HuffPost - Los Angeles Times - Business Insider - Newsweek all 90 news articles »
+New York Times Justice Dept. to Weigh Inquiry Into Clinton Foundation New York Times The Shootaring Canyon uranium mill in the desert outside Ticaboo, Utah, last month. Credit George Frey/Getty Images. WASHINGTON — The Justice Department said Monday that prosecutors were looking into whether a special counsel should be appointed ... DOJ will consider new special counsel on Clinton Foundation CNN Sessions raises specter of special counsel on Clinton and uranium Politico Sessions open to naming special counsel to probe Clinton Foundation CBS News HuffPost - Newsweek - Business Insider - Los Angeles Times all 101 news articles »
 
 
 Full story on F3News: [Justice Dept. to Weigh Inquiry Into Clinton Foundation - New York Times](http://www.f3nws.com/n/NuPYpD)

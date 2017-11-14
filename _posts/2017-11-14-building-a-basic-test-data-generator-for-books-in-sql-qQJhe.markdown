@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Building a Basic Test Data Generator for Books in SQL"
-date: 2017-11-14 01:36:00Z
+date: 2017-11-14 09:30:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ This article helps beginners to generate over million records of random test dat
 
 Full story on F3News: [Building a Basic Test Data Generator for Books in SQL](http://www.f3nws.com/n/qQJhe)
 
-> Posted on: Tuesday, November 14, 2017 1:36:00 AM
+> Posted on: Tuesday, November 14, 2017 9:30:00 AM
