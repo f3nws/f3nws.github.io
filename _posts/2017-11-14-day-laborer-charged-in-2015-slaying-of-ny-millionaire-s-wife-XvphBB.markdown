@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Day laborer charged in 2015 slaying of NY millionaire's wife"
-date: 2017-11-14 00:33:13Z
+date: 2017-11-14 03:08:29Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A former day laborer has been arrested in the bludgeoning death of the wife of a
 
 Full story on F3News: [Day laborer charged in 2015 slaying of NY millionaire's wife](http://www.f3nws.com/n/XvphBB)
 
-> Posted on: Tuesday, November 14, 2017 12:33:13 AM
+> Posted on: Tuesday, November 14, 2017 3:08:29 AM

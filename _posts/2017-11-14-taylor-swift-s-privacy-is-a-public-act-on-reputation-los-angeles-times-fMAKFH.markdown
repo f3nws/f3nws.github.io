@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Taylor Swift's privacy is a public act on 'Reputation' - Los Angeles Times](http://www.trbimg.com/img-5a0a4ab1/turbine/la-et-ms-taylor-swift-reputation-review-20171113)
 
-Los Angeles Times Taylor Swift's privacy is a public act on 'Reputation' Los Angeles Times For Taylor Swift, love — or the idea of it — has always represented a refuge, an escape, a shelter in a storm. When she emerged, just over a decade ago, romance was a means of lifting herself out of the too-smallness of high school; later, its ... The 5 Highest Compliments Spencer Pratt Gave Taylor Swift's 'Reputation' Billboard Here's how to get tickets for Taylor Swift's reputation tour EW.com Spencer Pratt's Track-by-Track Review of Taylor Swift's Reputation Cosmopolitan.com E! Online - Vanity Fair - Slate Magazine - CBS News all 303 news articles »
+Los Angeles Times Taylor Swift's privacy is a public act on 'Reputation' Los Angeles Times For Taylor Swift, love — or the idea of it — has always represented a refuge, an escape, a shelter in a storm. When she emerged, just over a decade ago, romance was a means of lifting herself out of the too-smallness of high school; later, its ... The 5 Highest Compliments Spencer Pratt Gave Taylor Swift's 'Reputation' Billboard Here's how to get tickets for Taylor Swift's reputation tour EW.com Spencer Pratt's Track-by-Track Review of Taylor Swift's Reputation Cosmopolitan.com E! Online - Vanity Fair - CBS News - Bustle all 312 news articles »
 
 
 Full story on F3News: [Taylor Swift's privacy is a public act on 'Reputation' - Los Angeles Times](http://www.f3nws.com/n/fMAKFH)

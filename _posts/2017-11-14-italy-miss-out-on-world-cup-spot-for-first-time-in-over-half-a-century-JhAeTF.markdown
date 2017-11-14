@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Italy miss out on World Cup spot for first time in over half a century"
-date: 2017-11-14 02:10:01Z
+date: 2017-11-14 02:49:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One of world football's most storied -- and successful -- teams will not be head
 
 Full story on F3News: [Italy miss out on World Cup spot for first time in over half a century](http://www.f3nws.com/n/JhAeTF)
 
-> Posted on: Tuesday, November 14, 2017 2:10:01 AM
+> Posted on: Tuesday, November 14, 2017 2:49:34 AM
