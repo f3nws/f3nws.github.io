@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rescuers save six beached sperm whales in Indonesia"
-date: 2017-11-14 06:43:34Z
+date: 2017-11-14 16:06:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A desperate rescue attempt managed to save half of a pod of sperm whales which b
 
 Full story on F3News: [Rescuers save six beached sperm whales in Indonesia](http://www.f3nws.com/n/mNfpBC)
 
-> Posted on: Tuesday, November 14, 2017 6:43:34 AM
+> Posted on: Tuesday, November 14, 2017 4:06:06 PM
