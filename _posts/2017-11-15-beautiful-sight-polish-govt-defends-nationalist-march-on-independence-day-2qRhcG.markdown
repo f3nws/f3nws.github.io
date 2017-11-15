@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Beautiful sight’: Polish govt defends nationalist march on Independence Day"
-date: 2017-11-15 01:02:36Z
+date: 2017-11-15 01:02:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Polish authorities stopped far short of condemning a massive nationalist rally i
 
 Full story on F3News: [‘Beautiful sight’: Polish govt defends nationalist march on Independence Day](http://www.f3nws.com/n/2qRhcG)
 
-> Posted on: Wednesday, November 15, 2017 1:02:36 AM
+> Posted on: Wednesday, November 15, 2017 1:02:00 AM
