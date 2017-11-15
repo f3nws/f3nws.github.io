@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What Trump's UCLA tweet reveals"
-date: 2017-11-15 18:30:23Z
+date: 2017-11-15 19:42:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Think about this: You've just spent nearly two weeks halfway around the world. Y
 
 Full story on F3News: [What Trump's UCLA tweet reveals](http://www.f3nws.com/n/DDBXeC)
 
-> Posted on: Wednesday, November 15, 2017 6:30:23 PM
+> Posted on: Wednesday, November 15, 2017 7:42:34 PM
