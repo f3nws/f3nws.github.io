@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "16,000 scientists' dire warning to humanity"
-date: 2017-11-15 11:58:57Z
+date: 2017-11-15 13:39:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 16,000 scientists from 184 countries have published a second warning t
 
 Full story on F3News: [16,000 scientists' dire warning to humanity](http://www.f3nws.com/n/4uGRQF)
 
-> Posted on: Wednesday, November 15, 2017 11:58:57 AM
+> Posted on: Wednesday, November 15, 2017 1:39:46 PM
