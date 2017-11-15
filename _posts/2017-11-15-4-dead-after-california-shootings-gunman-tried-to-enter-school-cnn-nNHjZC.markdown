@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![4 dead after California shootings; gunman tried to enter school - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171114134641-tehama-county-school-super-tease.jpg)
 
-CNN 4 dead after California shootings; gunman tried to enter school CNN (CNN) A gunman killed four people in a remote Northern California community on Tuesday morning, but a much bigger death toll was averted when the killer was unable to break into an elementary school. The staff at tiny Rancho Tehama Elementary School ... 4 dead after gunman 'randomly picking targets' goes on rampage in Calif., tries to enter school Washington Post California gunman had been feuding with neighbors, mother says Fox News Maniac dead in gunfight with police after terrorizing California town, killing 4 and trying to invade school New York Daily News Los Angeles Times - USA TODAY - Sacramento Bee - KOMO News all 514 news articles »
+CNN 4 dead after California shootings; gunman tried to enter school CNN (CNN) A gunman killed four people in a remote Northern California community on Tuesday morning, but a much bigger death toll was averted when the killer was unable to break into an elementary school. The staff at tiny Rancho Tehama Elementary School ... Gunman wildly sprays school with bullets, and quick action prevents mass bloodshed Los Angeles Times California shooting: Schoolteachers 'saved' children from gunman BBC News 4 dead after gunman 'randomly picking targets' goes on rampage in Calif., tries to enter school Washington Post Fox News - New York Daily News - USA TODAY - Sacramento Bee all 516 news articles »
 
 
 Full story on F3News: [4 dead after California shootings; gunman tried to enter school - CNN](http://www.f3nws.com/n/nNHjZC)

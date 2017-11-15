@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Patch Tuesday: Microsoft Releases Update to Fix 53 Vulnerabilities"
-date: 2017-11-15 07:46:36Z
+date: 2017-11-15 10:15:50Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ It's Patch Tuesday—time to update your Windows devices. Microsoft has released
 
 Full story on F3News: [Patch Tuesday: Microsoft Releases Update to Fix 53 Vulnerabilities](http://www.f3nws.com/n/YgCfVH)
 
-> Posted on: Wednesday, November 15, 2017 7:46:36 AM
+> Posted on: Wednesday, November 15, 2017 10:15:50 AM
