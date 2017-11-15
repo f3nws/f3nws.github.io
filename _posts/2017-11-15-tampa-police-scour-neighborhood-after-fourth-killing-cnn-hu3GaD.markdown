@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tampa police scour neighborhood after fourth killing - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171023083401-tampa-homicide-victims-surveillance-00002203-super-tease.jpg)
 
-CNN Tampa police scour neighborhood after fourth killing CNN (CNN) A 60-year-old man was shot and killed Tuesday morning in Tampa's Seminole Heights area, the fourth such death in what police say is a string of unsolved killings in that neighborhood within the past month. Ronald Felton was shot in the back just ... 4th person slain in Tampa neighborhood amid search for apparent serial killer: 'This has got to stop' ABC News Florida Police Believe A Serial Killer Has Struck Again HuffPost Florida police fear serial killer claimed fourth victim BBC News Daily Beast - VICE - Tampabay.com - WFLA all 179 news articles »
+CNN Tampa police scour neighborhood after fourth killing CNN (CNN) A 60-year-old man was shot and killed Tuesday morning in Tampa's Seminole Heights area, the fourth such death in what police say is a string of unsolved killings in that neighborhood within the past month. Ronald Felton was shot in the back just ... Fourth slaying stokes fear of a Tampa serial killer — and police say suspect may be an area resident Washington Post 4th person slain in Tampa neighborhood amid search for apparent serial killer: 'This has got to stop' ABC News Potential Fourth Murder Victim of Tampa Serial Killer Found NBCNews.com HuffPost - BBC News - Daily Beast - Tampabay.com all 183 news articles »
 
 
 Full story on F3News: [Tampa police scour neighborhood after fourth killing - CNN](http://www.f3nws.com/n/hu3GaD)

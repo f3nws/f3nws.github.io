@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rehearsed condemnations mean little to persecuted Rohingya"
-date: 2017-11-15 02:06:22Z
+date: 2017-11-15 04:28:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At first they are just specks in the distance, blobs of color bobbing on the wat
 
 Full story on F3News: [Rehearsed condemnations mean little to persecuted Rohingya](http://www.f3nws.com/n/kRpdnG)
 
-> Posted on: Wednesday, November 15, 2017 2:06:22 AM
+> Posted on: Wednesday, November 15, 2017 4:28:38 AM
