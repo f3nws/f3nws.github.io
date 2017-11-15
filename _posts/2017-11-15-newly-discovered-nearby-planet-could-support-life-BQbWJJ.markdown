@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Newly discovered nearby planet could support life"
-date: 2017-11-15 11:25:24Z
+date: 2017-11-15 14:42:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ You may want to get used to the name Ross 128 b. The newly discovered exoplanet 
 
 Full story on F3News: [Newly discovered nearby planet could support life](http://www.f3nws.com/n/BQbWJJ)
 
-> Posted on: Wednesday, November 15, 2017 11:25:24 AM
+> Posted on: Wednesday, November 15, 2017 2:42:13 PM
