@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australia votes 'yes' to same-sex marriage"
-date: 2017-11-15 06:40:59Z
+date: 2017-11-15 07:43:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Australia has said "yes" to legalizing same-sex marriage after a controversial t
 
 Full story on F3News: [Australia votes 'yes' to same-sex marriage](http://www.f3nws.com/n/CN3BjD)
 
-> Posted on: Wednesday, November 15, 2017 6:40:59 AM
+> Posted on: Wednesday, November 15, 2017 7:43:43 AM
