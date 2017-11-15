@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Airbus just inked its biggest airplane order ever"
-date: 2017-11-15 07:19:21Z
+date: 2017-11-15 08:13:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Airbus just inked its biggest airplane order ever](http://www.f3nws.com/n/M43JuF)
 
-> Posted on: Wednesday, November 15, 2017 7:19:21 AM
+> Posted on: Wednesday, November 15, 2017 8:13:49 AM
