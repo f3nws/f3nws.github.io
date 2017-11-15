@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Packwood's fate a cautionary tale for Moore"
-date: 2017-11-15 03:36:43Z
+date: 2017-11-15 02:41:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reminds viewers of the sexual harassment case against Senator Bob 
 
 Full story on F3News: [Packwood's fate a cautionary tale for Moore](http://www.f3nws.com/n/KXh4fB)
 
-> Posted on: Wednesday, November 15, 2017 3:36:43 AM
+> Posted on: Wednesday, November 15, 2017 2:41:00 AM
