@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe army has Mugabe, wife in custody, controls capital"
-date: 2017-11-15 01:30:00Z
+date: 2017-11-15 04:20:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — Zimbabwe's army said Wednesday it has President Robert
 
 Full story on F3News: [Zimbabwe army has Mugabe, wife in custody, controls capital](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, November 15, 2017 1:30:00 AM
+> Posted on: Wednesday, November 15, 2017 4:20:00 AM

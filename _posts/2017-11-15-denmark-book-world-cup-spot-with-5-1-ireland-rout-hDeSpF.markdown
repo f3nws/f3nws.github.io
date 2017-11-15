@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Denmark book World Cup spot with 5-1 Ireland rout"
-date: 2017-11-15 05:23:37Z
+date: 2017-11-15 09:19:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Danes are on their way to the World Cup after midfielder Christian Eriksen l
 
 Full story on F3News: [Denmark book World Cup spot with 5-1 Ireland rout](http://www.f3nws.com/n/hDeSpF)
 
-> Posted on: Wednesday, November 15, 2017 5:23:37 AM
+> Posted on: Wednesday, November 15, 2017 9:19:31 AM
