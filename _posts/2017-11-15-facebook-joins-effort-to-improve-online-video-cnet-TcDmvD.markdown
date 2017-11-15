@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook joins effort to improve online video     - CNET"
-date: 2017-11-15 00:14:16Z
+date: 2017-11-15 00:21:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social networking giant allies with Microsoft, Google, Netflix and Amazon to
 
 Full story on F3News: [Facebook joins effort to improve online video     - CNET](http://www.f3nws.com/n/TcDmvD)
 
-> Posted on: Wednesday, November 15, 2017 12:14:16 AM
+> Posted on: Wednesday, November 15, 2017 12:21:33 AM

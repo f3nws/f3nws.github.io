@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Basketball players leave China after Trump asked Xi for help"
-date: 2017-11-15 00:00:15Z
+date: 2017-11-15 02:17:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Three UCLA basketball players accused of shoplifting in China last week were fly
 
 Full story on F3News: [Basketball players leave China after Trump asked Xi for help](http://www.f3nws.com/n/XdHFHH)
 
-> Posted on: Wednesday, November 15, 2017 12:00:15 AM
+> Posted on: Wednesday, November 15, 2017 2:17:43 AM
