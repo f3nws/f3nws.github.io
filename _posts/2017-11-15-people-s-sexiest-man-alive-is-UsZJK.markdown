@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "People's 'Sexiest Man Alive' is..."
-date: 2017-11-15 14:34:12Z
+date: 2017-11-15 15:13:41Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ He's a "Voice" coach, a superstar and, now, an official heartthrob. Blake Shelto
 
 Full story on F3News: [People's 'Sexiest Man Alive' is...](http://www.f3nws.com/n/UsZJK)
 
-> Posted on: Wednesday, November 15, 2017 2:34:12 PM
+> Posted on: Wednesday, November 15, 2017 3:13:41 PM

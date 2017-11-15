@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tanks on streets in Zimbabwe capital | Mugabe 'confined to his home' | Military denies coup | Foreigners urged to shelter"
-date: 2017-11-15 14:38:43Z
+date: 2017-11-15 15:37:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwean President Robert Mugabe's party accused the head of the country's arm
 
 Full story on F3News: [Tanks on streets in Zimbabwe capital | Mugabe 'confined to his home' | Military denies coup | Foreigners urged to shelter](http://www.f3nws.com/n/XqxA4D)
 
-> Posted on: Wednesday, November 15, 2017 2:38:43 PM
+> Posted on: Wednesday, November 15, 2017 3:37:15 PM
