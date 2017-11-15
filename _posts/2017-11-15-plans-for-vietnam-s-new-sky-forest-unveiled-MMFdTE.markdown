@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Plans for Vietnam's new 'sky forest' unveiled"
-date: 2017-11-15 02:56:35Z
+date: 2017-11-15 11:51:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The architect behind some of Asia's most recognizable buildings has unveiled pla
 
 Full story on F3News: [Plans for Vietnam's new 'sky forest' unveiled](http://www.f3nws.com/n/MMFdTE)
 
-> Posted on: Wednesday, November 15, 2017 2:56:35 AM
+> Posted on: Wednesday, November 15, 2017 11:51:27 AM
