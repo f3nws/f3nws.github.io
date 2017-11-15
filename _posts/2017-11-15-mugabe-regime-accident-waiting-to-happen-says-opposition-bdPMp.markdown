@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mugabe regime 'accident waiting to happen,' says opposition"
-date: 2017-11-15 15:15:13Z
+date: 2017-11-15 15:53:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Mugabe regime 'accident waiting to happen,' says opposition](http://www.f3nws.com/n/bdPMp)
 
-> Posted on: Wednesday, November 15, 2017 3:15:13 PM
+> Posted on: Wednesday, November 15, 2017 3:53:05 PM

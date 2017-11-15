@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Cards Against Humanity buys land on Mexican border to stump Trump's wall plan - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171115080627-cards-against-humanity-saves-america-super-tease.jpg)
 
-CNN Cards Against Humanity buys land on Mexican border to stump Trump's wall plan CNN (CNN) Cards Against Humanity, an irreverent card game company known for its attention-seeking pranks, says it bought land on the U.S.-Mexico border to block President Trump from building his wall. The Chicago company said on its website that this was ... Cards Against Humanity buying plot of land on border to try to stop Trump's wall The Hill Cards Against Humanity Has a 6-Step Plan to 'Save America' TIME Cards Against Humanity buys a piece of the US border CBS News Business Insider - USA TODAY - Sacramento Bee - HuffPost all 124 news articles »
+CNN Cards Against Humanity buys land on Mexican border to stump Trump's wall plan CNN (CNN) Cards Against Humanity, an irreverent card game company known for its attention-seeking pranks, says it bought land on the U.S.-Mexico border to block President Trump from building his wall. The Chicago company said on its website that this was ... Cards Against Humanity buying plot of land on border to try to stop Trump's wall The Hill Cards Against Humanity Has a 6-Step Plan to 'Save America' TIME Cards Against Humanity bought land to block Trump's border wall and released a statement insulting the president Business Insider USA TODAY - CBS News - HuffPost - The Guardian all 136 news articles »
 
 
 Full story on F3News: [Cards Against Humanity buys land on Mexican border to stump Trump's wall plan - CNN](http://www.f3nws.com/n/QNMWkB)
