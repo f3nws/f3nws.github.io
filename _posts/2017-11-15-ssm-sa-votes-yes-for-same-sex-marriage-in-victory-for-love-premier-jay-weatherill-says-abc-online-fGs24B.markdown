@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![SSM: SA votes Yes for same-sex marriage in 'victory for love', Premier Jay Weatherill says - ABC Online](http://www.abc.net.au/news/image/9153190-1x1-700x700.jpg)
 
-ABC Online SSM: SA votes Yes for same-sex marriage in 'victory for love', Premier Jay Weatherill says ABC Online South Australians have overwhelmingly voted in support of same-sex marriage, with all the state's federal electorates returning a Yes vote of more than 50 per cent. Almost 950,000 people, or 79.7 per cent of eligible South Australians, voted in the ... South Australian government abandons bank tax The Australian Premier Jay Weatherill, Treasurer Tom Koutsantonis abandon $370 million South Australia bank tax NEWS.com.au "It's dead": Labor dumps bank tax InDaily all 6 news articles »
+ABC Online SSM: SA votes Yes for same-sex marriage in 'victory for love', Premier Jay Weatherill says ABC Online South Australians have overwhelmingly voted in support of same-sex marriage, with all the state's federal electorates returning a Yes vote of more than 50 per cent. Almost 950,000 people, or 79.7 per cent of eligible South Australians, voted in the ... SA dumps bank tax The Australian Premier Jay Weatherill, Treasurer Tom Koutsantonis abandon $370 million South Australia bank tax The Advertiser SA dumps controversial bank tax NEWS.com.au SBS - InDaily all 8 news articles »
 
 
 Full story on F3News: [SSM: SA votes Yes for same-sex marriage in 'victory for love', Premier Jay Weatherill says - ABC Online](http://www.f3nws.com/n/fGs24B)

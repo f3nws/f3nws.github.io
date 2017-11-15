@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ole Scheeren unveils plans for a spectacular 'sky forest' in Vietnam"
-date: 2017-11-15 02:05:07Z
+date: 2017-11-15 02:56:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The architect behind some of Asia's most recognizable buildings has unveiled pla
 
 Full story on F3News: [Ole Scheeren unveils plans for a spectacular 'sky forest' in Vietnam](http://www.f3nws.com/n/MMFdTE)
 
-> Posted on: Wednesday, November 15, 2017 2:05:07 AM
+> Posted on: Wednesday, November 15, 2017 2:56:35 AM
