@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shep Smith fact-checks Fox News on Clinton, Uranium One deal"
-date: 2017-11-15 20:21:21Z
+date: 2017-11-15 21:31:20Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Fox News anchor Shepard Smith has earned a reputation over the years for ideolog
 
 Full story on F3News: [Shep Smith fact-checks Fox News on Clinton, Uranium One deal](http://www.f3nws.com/n/bgQtJH)
 
-> Posted on: Wednesday, November 15, 2017 8:21:21 PM
+> Posted on: Wednesday, November 15, 2017 9:31:20 PM
