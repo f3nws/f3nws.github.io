@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Old Vic theater: 20 allegations uncovered against Kevin Spacey"
-date: 2017-11-16 15:07:58Z
+date: 2017-11-16 16:20:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Old Vic theater in London says it has uncovered 20 allegations of inappropri
 
 Full story on F3News: [Old Vic theater: 20 allegations uncovered against Kevin Spacey](http://www.f3nws.com/n/stxBDF)
 
-> Posted on: Thursday, November 16, 2017 3:07:58 PM
+> Posted on: Thursday, November 16, 2017 4:20:08 PM
