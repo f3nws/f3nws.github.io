@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rapper Lil Peep dies at 21"
-date: 2017-11-16 17:10:16Z
+date: 2017-11-16 20:40:19Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Rapper Lil Peep, an emerging voice on the hip hop scene and a YouTube star, has 
 
 Full story on F3News: [Rapper Lil Peep dies at 21](http://www.f3nws.com/n/XV4G3G)
 
-> Posted on: Thursday, November 16, 2017 5:10:16 PM
+> Posted on: Thursday, November 16, 2017 8:40:19 PM

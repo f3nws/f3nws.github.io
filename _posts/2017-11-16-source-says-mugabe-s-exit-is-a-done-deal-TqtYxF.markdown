@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Source says Mugabe's exit is 'a done deal'"
-date: 2017-11-16 15:02:35Z
+date: 2017-11-16 18:29:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The decades-long grip on power of Zimbabwe's President Robert Mugabe appeared to
 
 Full story on F3News: [Source says Mugabe's exit is 'a done deal'](http://www.f3nws.com/n/TqtYxF)
 
-> Posted on: Thursday, November 16, 2017 3:02:35 PM
+> Posted on: Thursday, November 16, 2017 6:29:35 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Sen. apologizes after woman says he groped, kissed her without consent"
-date: 2017-11-16 19:22:36Z
+date: 2017-11-16 20:09:42Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ A woman accused Minnesota Democratic Sen. Al Franken on Thursday of groping her 
 
 Full story on F3News: [US Sen. apologizes after woman says he groped, kissed her without consent](http://www.f3nws.com/n/gTGDkG)
 
-> Posted on: Thursday, November 16, 2017 7:22:36 PM
+> Posted on: Thursday, November 16, 2017 8:09:42 PM
