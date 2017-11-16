@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Google aims to make apps for Google Assistant more functional and discoverable - Search Engine Land](https://searchengineland.com/figz/wp-content/seloads/2017/03/google-assistant4-1920.png)
 
-Moneycontrol.com Google aims to make apps for Google Assistant more functional and discoverable Search Engine Land It also enables users to start a task on Google Home and complete it on a smartphone. Greg Sterling on November 15, 2017 at 7:33 pm. More. Today Google announced a number of updates and improvements to help make third party apps for Google ... Google gives developers new features, languages for Assistant ZDNet Google updates Assistant with new features and languages The Verge Google, It's Time for a Pixel TV or Google Home TV Box Droid Life Engadget - Android Headlines - TechCrunch - VentureBeat all 176 news articles »
+ZDNet Google aims to make apps for Google Assistant more functional and discoverable Search Engine Land It also enables users to start a task on Google Home and complete it on a smartphone. Greg Sterling on November 15, 2017 at 7:33 pm. More. Today Google announced a number of updates and improvements to help make third party apps for Google ... Google gives developers new features, languages for Assistant ZDNet UC Browser has been taken down from Google Play Store : Android - Reddit Reddit all 171 news articles »
 
 
 Full story on F3News: [Google aims to make apps for Google Assistant more functional and discoverable - Search Engine Land](http://www.f3nws.com/n/AZ42UD)

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![BHP boss tells politicians, lobby groups to butt out of power debate](http://www.abc.net.au/news/image/5485470-1x1-700x700.jpg)
 
-BHP boss Andrew Mackenzie says the the company is still worried about energy security in Australia and politicians and lobby groups are not helping.
+BHP boss Andrew Mackenzie says the company is still worried about energy security in Australia and politicians and lobby groups are not helping.
 
 
 Full story on F3News: [BHP boss tells politicians, lobby groups to butt out of power debate](http://www.f3nws.com/n/REhMJG)
