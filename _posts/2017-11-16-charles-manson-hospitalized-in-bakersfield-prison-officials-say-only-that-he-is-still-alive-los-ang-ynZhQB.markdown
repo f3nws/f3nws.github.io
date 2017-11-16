@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Charles Manson hospitalized in Bakersfield; prison officials say only that he is still alive - Los Angeles Times](http://www.trbimg.com/img-5a0d011a/turbine/la-me-charles-manson-hospitalized-20171115)
 
-Los Angeles Times Charles Manson hospitalized in Bakersfield; prison officials say only that he is still alive Los Angeles Times Authorities confirmed Wednesday that mass murderer Charles Manson is back in a Bakersfield hospital, though the severity of his condition is unclear. Kern County Sheriff's Lt. Bill Smallwood confirmed that Manson is at a local hospital but could not ... Charles Manson Reportedly Hospitalized, In Deteriorating Condition HuffPost Mass killer Charles Manson gravely ill at California hospital, reports say USA TODAY Charles Manson Has Reportedly Been Hospitalized TIME New York Daily News - New York Post - WPXI Pittsburgh - CNN all 138 news articles »
+Los Angeles Times Charles Manson hospitalized in Bakersfield; prison officials say only that he is still alive Los Angeles Times Authorities confirmed Wednesday that mass murderer Charles Manson is back in a Bakersfield hospital, though the severity of his condition is unclear. Kern County Sheriff's Lt. Bill Smallwood confirmed that Manson is at a local hospital but could not ... Al Franken, Resign VICE Charles Manson Reportedly Hospitalized, In Deteriorating Condition HuffPost Mass killer Charles Manson gravely ill at California hospital, reports say USA TODAY TIME - New York Daily News - New York Post - U.S. News & World Report all 146 news articles »
 
 
 Full story on F3News: [Charles Manson hospitalized in Bakersfield; prison officials say only that he is still alive - Los Angeles Times](http://www.f3nws.com/n/ynZhQB)

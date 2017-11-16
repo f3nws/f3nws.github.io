@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Al Franken accused of kissing, groping LA TV host without consent"
-date: 2017-11-16 16:30:00Z
+date: 2017-11-16 17:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A California TV host and sports radio broadcaster on Thursday accused Democratic
 
 Full story on F3News: [Al Franken accused of kissing, groping LA TV host without consent](http://www.f3nws.com/n/R4WMnC)
 
-> Posted on: Thursday, November 16, 2017 4:30:00 PM
+> Posted on: Thursday, November 16, 2017 5:45:00 PM
