@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe calm but tense as Mugabe is urged to go peacefully"
-date: 2017-11-16 03:32:00Z
+date: 2017-11-16 04:20:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — People across Zimbabwe are starting another day of unc
 
 Full story on F3News: [Zimbabwe calm but tense as Mugabe is urged to go peacefully](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, November 16, 2017 3:32:00 AM
+> Posted on: Thursday, November 16, 2017 4:20:00 AM
