@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump claims 'America is back' after Asia trip"
-date: 2017-11-16 03:33:47Z
+date: 2017-11-16 07:43:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, fresh off a five-country swing through Asia, sought Wedn
 
 Full story on F3News: [Trump claims 'America is back' after Asia trip](http://www.f3nws.com/n/sThmyB)
 
-> Posted on: Thursday, November 16, 2017 3:33:47 AM
+> Posted on: Thursday, November 16, 2017 7:43:43 AM
