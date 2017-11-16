@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brain disease confirmed in living NFL player for first time"
-date: 2017-11-16 11:52:31Z
+date: 2017-11-16 14:11:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Researchers published, what they say is the first case of a living person diagno
 
 Full story on F3News: [Brain disease confirmed in living NFL player for first time](http://www.f3nws.com/n/3dWGQH)
 
-> Posted on: Thursday, November 16, 2017 11:52:31 AM
+> Posted on: Thursday, November 16, 2017 2:11:49 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gene editing, in a patient's body, attempted for 1st time"
-date: 2017-11-16 00:34:42Z
+date: 2017-11-16 13:57:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man may soon be forever free of the previously incurable disease he was born w
 
 Full story on F3News: [Gene editing, in a patient's body, attempted for 1st time](http://www.f3nws.com/n/ha3ZBD)
 
-> Posted on: Thursday, November 16, 2017 12:34:42 AM
+> Posted on: Thursday, November 16, 2017 1:57:30 PM
