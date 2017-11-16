@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Black Friday 2017: The best Xbox, PS4 and Nintendo gaming deals - CNET](https://cnet3.cbsistatic.com/img/fINjKobxjLuGqjk26HRJFrn53a4=/670x503/2017/06/11/19547e14-1858-4fc2-a369-6fa6ba46056f/xbox-one-x-sean-hollister-cnet.jpg)
 
-CNET Black Friday 2017: The best Xbox, PS4 and Nintendo gaming deals CNET Black Friday. It's nearly here, and that means big deals on Xbox One, PlayStation 4 and Nintendo at all the usual suspects: GameStop, Best Buy, Target, Walmart and more. But you don't want to dig through giant lists of deals at every single retailer ... Target Black Friday 2017 Ad Deals: All PS4, Switch, Xbox One, 3DS Games On Sale GameSpot Microsoft Xbox One X Review: Everything You Need to Know Fortune LA Noire makes smart use of the Switch's hardware features Polygon Engadget - The Verge - SlashGear - NEWS.com.au all 328 news articles »
+CNET Black Friday 2017: The best Xbox, PS4 and Nintendo gaming deals CNET Black Friday. It's nearly here, and that means big deals on Xbox One, PlayStation 4 and Nintendo at all the usual suspects: GameStop, Best Buy, Target, Walmart and more. But you don't want to dig through giant lists of deals at every single retailer ... Target Black Friday 2017 Ad Deals: All PS4, Switch, Xbox One, 3DS Games On Sale GameSpot Microsoft Xbox One X Review: Everything You Need to Know Fortune LA Noire makes smart use of the Switch's hardware features Polygon Engadget - SlashGear - The Verge - The Mercury News all 325 news articles »
 
 
 Full story on F3News: [Black Friday 2017: The best Xbox, PS4 and Nintendo gaming deals - CNET](http://www.f3nws.com/n/4ubkNB)
