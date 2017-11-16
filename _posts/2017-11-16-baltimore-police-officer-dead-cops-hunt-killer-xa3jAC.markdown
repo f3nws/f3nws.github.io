@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baltimore police officer dead, cops hunt killer"
-date: 2017-11-16 19:58:00Z
+date: 2017-11-16 22:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Baltimore homicide detective is dead after he was shot in the head on Wednesda
 
 Full story on F3News: [Baltimore police officer dead, cops hunt killer](http://www.f3nws.com/n/xa3jAC)
 
-> Posted on: Thursday, November 16, 2017 7:58:00 PM
+> Posted on: Thursday, November 16, 2017 10:00:00 PM
