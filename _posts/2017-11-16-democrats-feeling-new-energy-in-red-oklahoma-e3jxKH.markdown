@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Democrats feeling new energy in red Oklahoma"
-date: 2017-11-16 03:49:12Z
+date: 2017-11-16 02:48:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Anna Langthorn, new chair of the Oklahoma Democratic Party, talks with Rachel Ma
 
 Full story on F3News: [Democrats feeling new energy in red Oklahoma](http://www.f3nws.com/n/e3jxKH)
 
-> Posted on: Thursday, November 16, 2017 3:49:12 AM
+> Posted on: Thursday, November 16, 2017 2:48:00 AM

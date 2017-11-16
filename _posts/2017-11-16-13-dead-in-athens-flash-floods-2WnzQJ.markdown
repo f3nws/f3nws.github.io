@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "13 dead in Athens flash floods"
-date: 2017-11-16 04:25:15Z
+date: 2017-11-16 06:25:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The death toll from flash floods that have devastated areas around the Greek cap
 
 Full story on F3News: [13 dead in Athens flash floods](http://www.f3nws.com/n/2WnzQJ)
 
-> Posted on: Thursday, November 16, 2017 4:25:15 AM
+> Posted on: Thursday, November 16, 2017 6:25:47 AM

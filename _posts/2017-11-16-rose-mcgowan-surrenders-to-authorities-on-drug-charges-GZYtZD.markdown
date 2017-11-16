@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rose McGowan surrenders to authorities on drug charges"
-date: 2017-11-16 04:28:22Z
+date: 2017-11-16 06:00:40Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Actress Rose McGowan turned herself in to authorities in Loudoun County, Virgini
 
 Full story on F3News: [Rose McGowan surrenders to authorities on drug charges](http://www.f3nws.com/n/GZYtZD)
 
-> Posted on: Thursday, November 16, 2017 4:28:22 AM
+> Posted on: Thursday, November 16, 2017 6:00:40 AM
