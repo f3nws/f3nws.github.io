@@ -7,7 +7,7 @@ categories: fortune
 
 ![With Star Wars Battlefront II, Disney and EA May Have a Gambling Problem - Fortune](https://fortunedotcom.files.wordpress.com/2017/11/starwars.jpg)
 
-Fortune With Star Wars Battlefront II, Disney and EA May Have a Gambling Problem Fortune After months of anticipation, Star Wars Battlefront II made its U.S. debut on Tuesday, immediately making its dent in the video game galaxy. And while last minute changes designed to address gamers' complaints about the game's difficulty were made, ... Review in Progress: Star Wars Battlefront II Destructoid Star Wars Battlefront 2 Controversy: "We Hated It," DICE Says About The Negative Feedback GameSpot Everything of Note We Learned From the Star Wars Battlefront II Reddit AMA Twinfinite Reddit - SWTOR Strategies all 248 news articles »
+Fortune With Star Wars Battlefront II, Disney and EA May Have a Gambling Problem Fortune After months of anticipation, Star Wars Battlefront II made its U.S. debut on Tuesday, immediately making its dent in the video game galaxy. And while last minute changes designed to address gamers' complaints about the game's difficulty were made, ... Rage Over a Star Wars Video Game Leads to the Most Downvoted Comment in Reddit History Slate Magazine (blog) Review in Progress: Star Wars Battlefront II Destructoid Star Wars Battlefront 2 Devs Dispute Estimates For How Long It Takes To Unlock Things GameSpot HuffPost - Twinfinite - The Mercury News - CNET all 246 news articles »
 
 
 Full story on F3News: [With Star Wars Battlefront II, Disney and EA May Have a Gambling Problem - Fortune](http://www.f3nws.com/n/JCKQeH)

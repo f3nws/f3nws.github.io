@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![How a robot discovered the porn 'like' on Pyne's Twitter](http://www.abc.net.au/news/image/9157250-1x1-700x700.jpg)
 
-Christopher Pyne's Twitter account 'liked' a pornographic tweet last night, but Australia only found out because of the work of one robot.
+Christopher Pyne's Twitter account 'liked' a pornographic tweet last night, but Australia only found out because of the work of one bot with a mission to track politicians' Twitter use.
 
 
 Full story on F3News: [How a robot discovered the porn 'like' on Pyne's Twitter](http://www.f3nws.com/n/uCAFGF)
