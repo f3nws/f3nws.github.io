@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senators introduce bipartisan gun background check bill - The Hill](http://thehill.com/sites/default/files/cornynjohn_080317kc2_lead.jpg)
 
-The Hill Senators introduce bipartisan gun background check bill The Hill A bipartisan group of senators is trying to strengthen reporting to the national background check system in the wake of a mass shooting in Texas earlier this month. Sens. John Cornyn · John CornynAfter Texas shooting, lawmakers question whether ... Bipartisan deal on gun control unveiled NBCNews.com GOP, Democratic senators back bill to bolster FBI gun checks Los Angeles Times Senators make bipartisan breakthrough on background check bill USA TODAY CNN - NPR - CBS News - New York Magazine all 56 news articles »
+The Hill Senators introduce bipartisan gun background check bill The Hill A bipartisan group of senators is trying to strengthen reporting to the national background check system in the wake of a mass shooting in Texas earlier this month. Sens. John Cornyn · John CornynAfter Texas shooting, lawmakers question whether ... Senators introduce bipartisan deal on gun background checks CBS News Bipartisan deal on gun control unveiled NBCNews.com Senators Unveil Proposal to Bolster Gun Background Checks Bloomberg USA TODAY - NPR - CNN - Los Angeles Times all 62 news articles »
 
 
 Full story on F3News: [Senators introduce bipartisan gun background check bill - The Hill](http://www.f3nws.com/n/fuZHkD)
