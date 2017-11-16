@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe army seizes power from President"
-date: 2017-11-16 02:20:31Z
+date: 2017-11-16 04:07:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man wearing full Zimbabwean military uniform interrupted taped programming on 
 
 Full story on F3News: [Zimbabwe army seizes power from President](http://www.f3nws.com/n/XqxA4D)
 
-> Posted on: Thursday, November 16, 2017 2:20:31 AM
+> Posted on: Thursday, November 16, 2017 4:07:58 AM
