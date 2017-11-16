@@ -7,7 +7,7 @@ categories: fox-news
 
 ![Al Franken accused of kissing, groping LA TV host without consent](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
 
-DEVELOPING: A California TV host and sports radio broadcaster on Thursday accused Democratic Sen. Al Franken of kissing and groping her without her consent in 2006.
+A California TV host and sports radio broadcaster on Thursday accused Democratic Sen. Al Franken of kissing and groping her without her consent in 2006.
 
 
 Full story on F3News: [Al Franken accused of kissing, groping LA TV host without consent](http://www.f3nws.com/n/R4WMnC)

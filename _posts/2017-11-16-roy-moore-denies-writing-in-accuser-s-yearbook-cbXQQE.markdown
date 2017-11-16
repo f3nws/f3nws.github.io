@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roy Moore denies writing in accuser's yearbook"
-date: 2017-11-16 13:55:53Z
+date: 2017-11-16 17:14:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Judge Roy Moore continues to deny allegations of sexual abuse against him
 
 Full story on F3News: [Roy Moore denies writing in accuser's yearbook](http://www.f3nws.com/n/cbXQQE)
 
-> Posted on: Thursday, November 16, 2017 1:55:53 PM
+> Posted on: Thursday, November 16, 2017 5:14:20 PM
