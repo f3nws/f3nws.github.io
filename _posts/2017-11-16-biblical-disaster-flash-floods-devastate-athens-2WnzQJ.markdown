@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Biblical' disaster: Flash floods devastate Athens"
-date: 2017-11-16 06:46:54Z
+date: 2017-11-16 12:40:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The death toll from flash floods that have devastated areas around the Greek cap
 
 Full story on F3News: ['Biblical' disaster: Flash floods devastate Athens](http://www.f3nws.com/n/2WnzQJ)
 
-> Posted on: Thursday, November 16, 2017 6:46:54 AM
+> Posted on: Thursday, November 16, 2017 12:40:06 PM
