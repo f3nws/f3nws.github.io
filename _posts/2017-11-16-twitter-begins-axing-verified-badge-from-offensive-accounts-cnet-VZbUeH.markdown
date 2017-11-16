@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter begins axing 'verified' badge from offensive accounts     - CNET"
-date: 2017-11-16 01:24:57Z
+date: 2017-11-16 01:42:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social network removes the blue check mark for white nationalists Richard Sp
 
 Full story on F3News: [Twitter begins axing 'verified' badge from offensive accounts     - CNET](http://www.f3nws.com/n/VZbUeH)
 
-> Posted on: Thursday, November 16, 2017 1:24:57 AM
+> Posted on: Thursday, November 16, 2017 1:42:55 AM

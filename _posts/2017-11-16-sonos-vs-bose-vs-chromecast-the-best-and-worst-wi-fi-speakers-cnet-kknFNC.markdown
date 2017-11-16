@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sonos vs. Bose vs. Chromecast: The best (and worst) Wi-Fi speakers     - CNET"
-date: 2017-11-16 01:28:38Z
+date: 2017-11-16 01:35:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ If you're buying a multiroom music system, there are a number of competing produ
 
 Full story on F3News: [Sonos vs. Bose vs. Chromecast: The best (and worst) Wi-Fi speakers     - CNET](http://www.f3nws.com/n/kknFNC)
 
-> Posted on: Thursday, November 16, 2017 1:28:38 AM
+> Posted on: Thursday, November 16, 2017 1:35:27 AM

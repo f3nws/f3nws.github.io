@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rubio criticizes Trump's mid-speech water-sipping form"
-date: 2017-11-16 00:04:31Z
+date: 2017-11-16 01:57:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Marco Rubio had a chance at payback Wednesday, when President Donald Trump 
 
 Full story on F3News: [Rubio criticizes Trump's mid-speech water-sipping form](http://www.f3nws.com/n/EdxmXC)
 
-> Posted on: Thursday, November 16, 2017 12:04:31 AM
+> Posted on: Thursday, November 16, 2017 1:57:39 AM

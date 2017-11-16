@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe political crisis: What's happening?"
-date: 2017-11-16 01:36:04Z
+date: 2017-11-16 02:00:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It has all the markings of a coup: a solemn soldier addressing the nation on sta
 
 Full story on F3News: [Zimbabwe political crisis: What's happening?](http://www.f3nws.com/n/RetWrB)
 
-> Posted on: Thursday, November 16, 2017 1:36:04 AM
+> Posted on: Thursday, November 16, 2017 2:00:16 AM
