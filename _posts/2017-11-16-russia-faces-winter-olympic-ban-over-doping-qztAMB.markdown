@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia faces Winter Olympic ban over doping"
-date: 2017-11-16 10:06:55Z
+date: 2017-11-16 10:44:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia is a step closer to facing a possible ban of its athletes from the Winter
 
 Full story on F3News: [Russia faces Winter Olympic ban over doping](http://www.f3nws.com/n/qztAMB)
 
-> Posted on: Thursday, November 16, 2017 10:06:55 AM
+> Posted on: Thursday, November 16, 2017 10:44:07 AM

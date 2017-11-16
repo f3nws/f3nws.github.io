@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Da Vinci painting smashes world records with $450M sale"
-date: 2017-11-16 02:10:36Z
+date: 2017-11-16 11:24:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Leonardo da Vinci's "Salvator Mundi" has become the most expensive painting to e
 
 Full story on F3News: [Da Vinci painting smashes world records with $450M sale](http://www.f3nws.com/n/npznEF)
 
-> Posted on: Thursday, November 16, 2017 2:10:36 AM
+> Posted on: Thursday, November 16, 2017 11:24:43 AM

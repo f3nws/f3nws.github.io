@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US to allow imports of elephant trophies from Zimbabwe, Zambia"
-date: 2017-11-16 05:56:44Z
+date: 2017-11-16 11:19:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US authorities will remove restrictions on importing African elephant trophies f
 
 Full story on F3News: [US to allow imports of elephant trophies from Zimbabwe, Zambia](http://www.f3nws.com/n/hEZSgG)
 
-> Posted on: Thursday, November 16, 2017 5:56:44 AM
+> Posted on: Thursday, November 16, 2017 11:19:44 AM
