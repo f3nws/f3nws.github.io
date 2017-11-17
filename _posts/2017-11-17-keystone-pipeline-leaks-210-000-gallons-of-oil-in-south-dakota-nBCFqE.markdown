@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Keystone Pipeline leaks 210,000 gallons of oil in South Dakota"
-date: 2017-11-17 00:00:00Z
+date: 2017-11-17 01:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ TransCanada Corp.'s Keystone pipeline leaked an estimated 210,000 gallons of oil
 
 Full story on F3News: [Keystone Pipeline leaks 210,000 gallons of oil in South Dakota](http://www.f3nws.com/n/nBCFqE)
 
-> Posted on: Friday, November 17, 2017 12:00:00 AM
+> Posted on: Friday, November 17, 2017 1:45:00 AM
