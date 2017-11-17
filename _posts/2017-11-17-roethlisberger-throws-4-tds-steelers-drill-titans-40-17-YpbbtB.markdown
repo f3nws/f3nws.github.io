@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roethlisberger throws 4 TDs, Steelers drill Titans 40-17"
-date: 2017-11-17 01:17:00Z
+date: 2017-11-17 07:32:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ PITTSBURGH (AP) — Another uninspiring half in the books in a season littered w
 
 Full story on F3News: [Roethlisberger throws 4 TDs, Steelers drill Titans 40-17](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, November 17, 2017 1:17:00 AM
+> Posted on: Friday, November 17, 2017 7:32:00 AM
