@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Franken apologizes after woman says he kissed, groped her"
-date: 2017-11-17 03:54:00Z
+date: 2017-11-17 07:31:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Minnesota Sen. Al Franken faced a storm of criticism and a l
 
 Full story on F3News: [Franken apologizes after woman says he kissed, groped her](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, November 17, 2017 3:54:00 AM
+> Posted on: Friday, November 17, 2017 7:31:00 AM
