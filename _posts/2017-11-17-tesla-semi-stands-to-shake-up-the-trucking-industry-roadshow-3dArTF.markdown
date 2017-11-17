@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla Semi stands to shake up the trucking industry     - Roadshow"
-date: 2017-11-17 09:47:39Z
+date: 2017-11-17 12:19:39Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The "Beast" is real. Elon Musk has unveiled the Tesla Semi and immediately pushe
 
 Full story on F3News: [Tesla Semi stands to shake up the trucking industry     - Roadshow](http://www.f3nws.com/n/3dArTF)
 
-> Posted on: Friday, November 17, 2017 9:47:39 AM
+> Posted on: Friday, November 17, 2017 12:19:39 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rapper's death ignites conversation about opioid epidemic"
-date: 2017-11-17 09:06:24Z
+date: 2017-11-17 13:32:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ News of Lil Peep's death shocked fans and ignited a new conversation about menta
 
 Full story on F3News: [Rapper's death ignites conversation about opioid epidemic](http://www.f3nws.com/n/hxbVsD)
 
-> Posted on: Friday, November 17, 2017 9:06:24 AM
+> Posted on: Friday, November 17, 2017 1:32:20 PM

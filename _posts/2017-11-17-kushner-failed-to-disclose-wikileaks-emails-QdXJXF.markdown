@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kushner 'failed to disclose Wikileaks emails'"
-date: 2017-11-17 12:46:04Z
+date: 2017-11-17 13:07:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Senate Judiciary Chairman Chuck Grassley and ranking member Dianne Feinstein sen
 
 Full story on F3News: [Kushner 'failed to disclose Wikileaks emails'](http://www.f3nws.com/n/QdXJXF)
 
-> Posted on: Friday, November 17, 2017 12:46:04 PM
+> Posted on: Friday, November 17, 2017 1:07:33 PM
