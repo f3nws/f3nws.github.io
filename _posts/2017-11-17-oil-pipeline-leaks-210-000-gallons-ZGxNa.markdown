@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oil pipeline leaks 210,000 gallons"
-date: 2017-11-17 16:50:04Z
+date: 2017-11-17 18:39:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A total of 210,000 gallons of oil leaked Thursday from the Keystone Pipeline in 
 
 Full story on F3News: [Oil pipeline leaks 210,000 gallons](http://www.f3nws.com/n/ZGxNa)
 
-> Posted on: Friday, November 17, 2017 4:50:04 PM
+> Posted on: Friday, November 17, 2017 6:39:38 PM
