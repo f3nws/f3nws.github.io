@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Controversial oil pipeline leaks 210,000 gallons in South Dakota"
-date: 2017-11-17 00:29:41Z
+date: 2017-11-17 01:49:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A total of 210,000 gallons of oil leaked Thursday from the Keystone Pipeline in 
 
 Full story on F3News: [Controversial oil pipeline leaks 210,000 gallons in South Dakota](http://www.f3nws.com/n/ZGxNa)
 
-> Posted on: Friday, November 17, 2017 12:29:41 AM
+> Posted on: Friday, November 17, 2017 1:49:20 AM

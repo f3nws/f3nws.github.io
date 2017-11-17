@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber sued by rider alleging rape, driver said to have violent past     - CNET"
-date: 2017-11-17 00:37:32Z
+date: 2017-11-17 01:16:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Another lawsuit over sexual assault is filed against the ride-hailing company. L
 
 Full story on F3News: [Uber sued by rider alleging rape, driver said to have violent past     - CNET](http://www.f3nws.com/n/PTXD3H)
 
-> Posted on: Friday, November 17, 2017 12:37:32 AM
+> Posted on: Friday, November 17, 2017 1:16:02 AM

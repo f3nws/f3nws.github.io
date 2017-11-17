@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![NT's Don Dale youth detention centre should be closed, inquiry recommends](http://www.abc.net.au/news/image/7668622-1x1-700x700.jpg)
 
-Darwin's Don Dale youth detention centre and high security unit should be shut immediately, the Royal Commission into the Protection and Detention of Children in the Northern Territory recommends.
+The high security unit of Darwin's Don Dale youth detention centre should be shut immediately and the entire centre closed within three months, the royal commission says, after finding "shocking and systemic failures occurred over many years".
 
 
 Full story on F3News: [NT's Don Dale youth detention centre should be closed, inquiry recommends](http://www.f3nws.com/n/C3dfGD)
