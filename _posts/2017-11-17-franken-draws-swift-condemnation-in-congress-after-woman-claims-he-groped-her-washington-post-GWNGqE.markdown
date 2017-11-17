@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Franken draws swift condemnation in Congress after woman claims he groped her - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/11/17/National-Politics/Images/Sexual_Harassment_Franken_49050-640e5-4398.jpg?t=20170517)
 
-Washington Post Franken draws swift condemnation in Congress after woman claims he groped her Washington Post Sen. Al Franken (D-Minn.) faced swift condemnation and bipartisan calls for an ethics investigation Thursday after he was accused of forcibly kissing and groping a broadcaster and model while traveling overseas in 2006. The allegations against Franken ... Liberals, don't waste your time trying to defend Franken CNN Franken Should Go New York Times Donald Trump tweets: Al Franken photo 'really bad' EW.com Minneapolis Star Tribune - Slate Magazine (blog) - New York Post - BuzzFeed News all 1,195 news articles »
+Washington Post Franken draws swift condemnation in Congress after woman claims he groped her Washington Post Sen. Al Franken (D-Minn.) faced swift condemnation and bipartisan calls for an ethics investigation Thursday after he was accused of forcibly kissing and groping a broadcaster and model while traveling overseas in 2006. The allegations against Franken ... Al Franken Issues Apology After Accusation of Forcible Kissing and Groping New York Times Washington tells time in political bombshells CNN Capitol Hill consumed by sexual harassment issue Politico The Hill (blog) - U.S. News & World Report - CBS News - NBCNews.com all 1,594 news articles »
 
 
 Full story on F3News: [Franken draws swift condemnation in Congress after woman claims he groped her - Washington Post](http://www.f3nws.com/n/GWNGqE)
