@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mugabe resisting change in Zimbabwe as neighbors urge peaceful transition"
-date: 2017-11-17 05:20:18Z
+date: 2017-11-17 06:12:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two days after a remarkable military takeover of Zimbabwe's government, its long
 
 Full story on F3News: [Mugabe resisting change in Zimbabwe as neighbors urge peaceful transition](http://www.f3nws.com/n/DNrmvC)
 
-> Posted on: Friday, November 17, 2017 5:20:18 AM
+> Posted on: Friday, November 17, 2017 6:12:47 AM
