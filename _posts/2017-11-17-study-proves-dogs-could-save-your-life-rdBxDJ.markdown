@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Study proves dogs could save your life"
-date: 2017-11-17 17:56:23Z
+date: 2017-11-17 21:51:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dog owners may be at a reduced risk for cardiovascular disease and death, accord
 
 Full story on F3News: [Study proves dogs could save your life](http://www.f3nws.com/n/rdBxDJ)
 
-> Posted on: Friday, November 17, 2017 5:56:23 PM
+> Posted on: Friday, November 17, 2017 9:51:19 PM
