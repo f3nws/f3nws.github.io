@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mugabe makes first public appearance since military takeover"
-date: 2017-11-17 18:43:22Z
+date: 2017-11-17 21:13:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe's President Robert Mugabe has turned up to a university graduation cere
 
 Full story on F3News: [Mugabe makes first public appearance since military takeover](http://www.f3nws.com/n/DNrmvC)
 
-> Posted on: Friday, November 17, 2017 6:43:22 PM
+> Posted on: Friday, November 17, 2017 9:13:04 PM

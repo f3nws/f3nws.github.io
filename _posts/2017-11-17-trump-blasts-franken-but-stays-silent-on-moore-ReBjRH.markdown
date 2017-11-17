@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump blasts Franken, but stays silent on Moore"
-date: 2017-11-17 16:29:24Z
+date: 2017-11-17 21:39:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, who has largely stayed mum on the allegations of sexual 
 
 Full story on F3News: [Trump blasts Franken, but stays silent on Moore](http://www.f3nws.com/n/ReBjRH)
 
-> Posted on: Friday, November 17, 2017 4:29:24 PM
+> Posted on: Friday, November 17, 2017 9:39:03 PM
