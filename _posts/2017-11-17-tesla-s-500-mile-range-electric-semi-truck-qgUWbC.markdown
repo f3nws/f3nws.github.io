@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla's 500-mile range electric semi-truck"
-date: 2017-11-17 06:01:39Z
+date: 2017-11-17 08:33:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tesla's 500-mile range electric semi-truck](http://www.f3nws.com/n/qgUWbC)
 
-> Posted on: Friday, November 17, 2017 6:01:39 AM
+> Posted on: Friday, November 17, 2017 8:33:47 AM

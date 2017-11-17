@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![House and Senate Panel Pass Tax Bill in Major Step Toward Overhaul - New York Times](https://static01.nyt.com/images/2017/11/17/us/17dctaxbriefing-alpha/17dctaxbriefing-alpha-facebookJumbo-v3.jpg)
 
-New York Times House and Senate Panel Pass Tax Bill in Major Step Toward Overhaul New York Times WASHINGTON — With 227 Republican votes, the House passed the most sweeping tax overhaul in three decades on Thursday, taking a significant leap forward as lawmakers seek to enact $1.5 trillion in tax cuts for businesses and individuals and deliver the ... House passes GOP tax bill, upping pressure on struggling Senate effort Washington Post The 13 House Republicans who voted against the GOP tax plan The Hill Ryan gets big — and much-needed — win on tax cuts Politico Chicago Tribune - USA TODAY - TIME - Los Angeles Times all 3,114 news articles »
+New York Times House and Senate Panel Pass Tax Bill in Major Step Toward Overhaul New York Times WASHINGTON — With 227 Republican votes, the House passed the most sweeping tax overhaul in three decades on Thursday, taking a significant leap forward as lawmakers seek to enact $1.5 trillion in tax cuts for businesses and individuals and deliver the ... House passes GOP tax bill, upping pressure on struggling Senate effort Washington Post The 13 House Republicans who voted against the GOP tax plan The Hill Ryan gets big — and much-needed — win on tax cuts Politico TIME - Los Angeles Times - SFGate - Chicago Tribune all 3,201 news articles »
 
 
 Full story on F3News: [House and Senate Panel Pass Tax Bill in Major Step Toward Overhaul - New York Times](http://www.f3nws.com/n/vHgHWJ)
