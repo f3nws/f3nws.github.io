@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia vetoes UN resolution on Syria chemical weapons probe"
-date: 2017-11-17 04:32:08Z
+date: 2017-11-17 04:56:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia vetoed a United Nations Security Council resolution on Thursday that woul
 
 Full story on F3News: [Russia vetoes UN resolution on Syria chemical weapons probe](http://www.f3nws.com/n/QX3ABG)
 
-> Posted on: Friday, November 17, 2017 4:32:08 AM
+> Posted on: Friday, November 17, 2017 4:56:48 AM
