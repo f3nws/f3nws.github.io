@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Franken Case Sets Off Debate Over Line Between Abuse and a Mistake - New York Times](https://static01.nyt.com/images/2017/11/18/us/politics/18dc-franken/18dc-franken-facebookJumbo.jpg)
 
-New York Times Franken Case Sets Off Debate Over Line Between Abuse and a Mistake New York Times WASHINGTON — A day after the latest in a dizzying series of sexual assault revelations enveloped Senator Al Franken and rattled the Capitol, politicians and comedians were left trying to assess the line between predatory behavior and an inexcusable ... Franken tells woman in letter he's 'ashamed' of himself Washington Post Don't resign, Sen. Franken — at least not yet Chicago Tribune Trump Addresses Some Sexual Harassment Issues, But Not All NPR The Hill - Salon - U.S. News & World Report - WJLA all 1,838 news articles »
+New York Times Franken Case Sets Off Debate Over Line Between Abuse and a Mistake New York Times WASHINGTON — A day after the latest in a dizzying series of sexual assault revelations enveloped Senator Al Franken and rattled the Capitol, politicians and comedians were left trying to assess the line between predatory behavior and an inexcusable ... Franken tells woman in letter he's 'ashamed' of himself Washington Post Don't resign, Sen. Franken — at least not yet Chicago Tribune Trump Addresses Some Sexual Harassment Issues, But Not All NPR Pittsburgh Post-Gazette - The Hill - Salon - WJLA all 1,859 news articles »
 
 
 Full story on F3News: [Franken Case Sets Off Debate Over Line Between Abuse and a Mistake - New York Times](http://www.f3nws.com/n/fZDpP)
