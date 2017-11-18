@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Giddy Zimbabweans gather in capital to march against Mugabe"
-date: 2017-11-18 07:37:00Z
+date: 2017-11-18 09:43:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — In a euphoric gathering that just days ago would have 
 
 Full story on F3News: [Giddy Zimbabweans gather in capital to march against Mugabe](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, November 18, 2017 7:37:00 AM
+> Posted on: Saturday, November 18, 2017 9:43:00 AM
