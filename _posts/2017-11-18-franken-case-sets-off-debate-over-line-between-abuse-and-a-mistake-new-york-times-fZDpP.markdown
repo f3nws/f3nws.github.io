@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Franken Case Sets Off Debate Over Line Between Abuse and a Mistake - New York Times](https://static01.nyt.com/images/2017/11/18/us/politics/18dc-franken/18dc-franken-facebookJumbo.jpg)
 
-New York Times Franken Case Sets Off Debate Over Line Between Abuse and a Mistake New York Times WASHINGTON — A day after the latest in a dizzying series of sexual assault revelations enveloped Senator Al Franken and rattled the Capitol, politicians and comedians were left trying to assess the line between predatory behavior and an inexcusable ... Former Franken female staffers speak out: 'He treated us with the utmost respect' Washington Post Franken sent a letter to woman who accused him of groping The Hill Trump Addresses Some Sexual Harassment Issues, But Not All NPR ABC News - Chicago Tribune - The Atlantic - Bloomberg all 1,791 news articles »
+New York Times Franken Case Sets Off Debate Over Line Between Abuse and a Mistake New York Times WASHINGTON — A day after the latest in a dizzying series of sexual assault revelations enveloped Senator Al Franken and rattled the Capitol, politicians and comedians were left trying to assess the line between predatory behavior and an inexcusable ... Franken sent a letter to woman who accused him of groping The Hill 'Where do his hands go?': Trump takes aim at 'Al Frankenstien' over groping claims Washington Post Al Franken gets a free pass from the media while Roy Moore gets the third degree Washington Examiner NPR - ABC News - The Atlantic - Chicago Tribune all 1,946 news articles »
 
 
 Full story on F3News: [Franken Case Sets Off Debate Over Line Between Abuse and a Mistake - New York Times](http://www.f3nws.com/n/fZDpP)
