@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinians vow to suspend talks if US closes PLO mission"
-date: 2017-11-18 15:45:00Z
+date: 2017-11-18 17:26:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The Palestinians threatened on Saturday to suspend all commu
 
 Full story on F3News: [Palestinians vow to suspend talks if US closes PLO mission](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, November 18, 2017 3:45:00 PM
+> Posted on: Saturday, November 18, 2017 5:26:00 PM
