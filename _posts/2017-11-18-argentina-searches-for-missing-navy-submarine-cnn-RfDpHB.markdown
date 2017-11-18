@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Argentina searches for missing navy submarine - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171117111648-argentina-missing-submarine-super-tease.jpg)
 
-CNN Argentina searches for missing navy submarine CNN (CNN) An Argentine navy submarine with 44 crew members has been missing for three days after the navy lost contact with it off the country's Atlantic coast, the military service says. The ARA San Juan submarine was last spotted Wednesday in the San ... Argentine Navy loses communication with submarine carrying crew of 44 ABC News Argentina missing navy submarine: Search stepped up BBC News US Navy's new maritime aircraft to aid in search for Argentine sub and crew Fox News AOL - Houston Chronicle - Sky News - Pittsburgh Post-Gazette all 91 news articles »
+CNN Argentina searches for missing navy submarine CNN (CNN) An Argentine navy submarine with 44 crew members has been missing for three days after the navy lost contact with it off the country's Atlantic coast, the military service says. The ARA San Juan submarine was last spotted Wednesday in the San ... Argentine Navy loses communication with submarine carrying crew of 44 ABC News Argentina missing navy submarine: Search stepped up BBC News US Navy's new maritime aircraft to aid in search for Argentine sub and crew Fox News AOL - Pittsburgh Post-Gazette - Tampabay.com - Voice of America all 94 news articles »
 
 
 Full story on F3News: [Argentina searches for missing navy submarine - CNN](http://www.f3nws.com/n/RfDpHB)
