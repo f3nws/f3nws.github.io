@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Equestrian legend, two-time Olympic gold medallist Gillian Rolton dies](http://www.abc.net.au/news/image/9013448-1x1-700x700.jpg)
 
-Equestrian great and dual Olympic gold medallist Gillian Rolton dies after a long battle with cancer.
+Equestrian great and dual Olympic gold medallist Gillian Rolton, who famously rode to Atlanta Games glory despite breaking her collarbone, dies after a long battle with cancer.
 
 
 Full story on F3News: [Equestrian legend, two-time Olympic gold medallist Gillian Rolton dies](http://www.f3nws.com/n/CdmcPJ)
