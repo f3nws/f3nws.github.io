@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "A submarine has vanished, launching a frantic search for 44 people on board - Washington Post"
+date: 2017-11-18 16:56:29Z
+categories: google-news-top-stories
+---
+
+![A submarine has vanished, launching a frantic search for 44 people on board - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-11-17/Bloomberg/Rex_Argentine_Navy_searches_for_subm_9227858E.jpg?t=20170517)
+
+Washington Post A submarine has vanished, launching a frantic search for 44 people on board Washington Post Argentine authorities are scrambling to find a three-decade-old submarine that suddenly stopped communicating during a routine mission on Wednesday — an emergency authorities say could range from a fried electrical system to something much worse. Argentina searches for missing navy submarine CNN Argentina intensifies search for missing submarine carrying 44 crew members NBCNews.com Argentina missing navy submarine: Search stepped up BBC News U.S. News & World Report - USA TODAY - Fox News - Voice of America all 117 news articles »
+
+
+Full story on F3News: [A submarine has vanished, launching a frantic search for 44 people on board - Washington Post](http://www.f3nws.com/n/Hfzt3C)
+
+> Posted on: Saturday, November 18, 2017 4:56:29 PM

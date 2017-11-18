@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Robert Mugabe refuses to quit as Zimbabweans march for his ouster - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171118082909-zimbabwe-harare-protests-super-tease.jpg)
 
-CNN Robert Mugabe refuses to quit as Zimbabweans march for his ouster CNN Harare, Zimbabwe (CNN) Thousands of Zimbabweans took to the streets of Harare on Saturday to demand the resignation of President Robert Mugabe, in what could spell the political end for the 93-year-old leader who has ruled the country for nearly four ... Zimbabwe crowds rejoice as they demand end to Mugabe rule BBC News 'Mugabe Must Go': Thousands in Zimbabwe Rally Against Leader New York Times Party set to sack Mugabe, sources say, as Zimbabweans march on residence Reuters Bloomberg - USA TODAY - Business Insider - Voice of America all 6,074 news articles »
+CNN Robert Mugabe refuses to quit as Zimbabweans march for his ouster CNN Harare, Zimbabwe (CNN) Thousands of Zimbabweans took to the streets of Harare on Saturday to demand the resignation of President Robert Mugabe, in what could spell the political end for the 93-year-old leader who has ruled the country for nearly four ... Party set to sack Mugabe, Zimbabweans celebrate expected downfall Reuters Zimbabwe crowds rejoice as they demand end to Mugabe rule BBC News 'Mugabe Must Go': Thousands in Zimbabwe Rally Against Leader New York Times Bloomberg - ABC News - USA TODAY - Business Insider all 6,084 news articles »
 
 
 Full story on F3News: [Robert Mugabe refuses to quit as Zimbabweans march for his ouster - CNN](http://www.f3nws.com/n/UFzRqE)
