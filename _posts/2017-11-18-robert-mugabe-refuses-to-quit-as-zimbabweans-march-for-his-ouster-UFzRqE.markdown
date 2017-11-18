@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Robert Mugabe refuses to quit as Zimbabweans march for his ouster"
-date: 2017-11-18 21:24:12Z
+date: 2017-11-18 21:56:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thousands of Zimbabweans took to the streets of Harare on Saturday to demand the
 
 Full story on F3News: [Robert Mugabe refuses to quit as Zimbabweans march for his ouster](http://www.f3nws.com/n/UFzRqE)
 
-> Posted on: Saturday, November 18, 2017 9:24:12 PM
+> Posted on: Saturday, November 18, 2017 9:56:54 PM
