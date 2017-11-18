@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Schoolie undergoes lifesaving surgery after being stabbed in neck - 9news.com.au"
+date: 2017-11-18 10:40:15Z
+categories: google-news-australia
+---
+
+![Schoolie undergoes lifesaving surgery after being stabbed in neck - 9news.com.au](https://cf-images.ap-southeast-2.prod.boltdns.net/v1/static/664969388001/b931ea48-064c-4afb-8eaa-5ee3041a5988/20223908-54db-4779-bcc1-8daf53307d13/640x360/match/image.jpg)
+
+9news.com.au Schoolie undergoes lifesaving surgery after being stabbed in neck 9news.com.au A school leaver on his way to attend schoolies has been stabbed in the neck during a fight with a man outside a Brisbane store. The 17-year-old from an elite Brisbane boy's school had stopped off at his local Dan Murphy's on Mains Road in Sunnybank ... Teen on his way to Schoolies stabbed in neck in allegedly random, unprovoked attack Yahoo7 News Man charged after teen stabbed in the neck in Brisbane's south The Sydney Morning Herald Brisbane stabbing: Teen stabbed in neck outside bar at Sunnybank Courier Mail myGC.com.au all 7 news articles »
+
+
+Full story on F3News: [Schoolie undergoes lifesaving surgery after being stabbed in neck - 9news.com.au](http://www.f3nws.com/n/hYEAFB)
+
+> Posted on: Saturday, November 18, 2017 10:40:15 AM
