@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kushner denies any campaign WikiLeaks contact"
-date: 2017-11-18 01:29:24Z
+date: 2017-11-18 17:36:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ White House senior adviser Jared Kushner told congressional Russia investigators
 
 Full story on F3News: [Kushner denies any campaign WikiLeaks contact](http://www.f3nws.com/n/rVnDEC)
 
-> Posted on: Saturday, November 18, 2017 1:29:24 AM
+> Posted on: Saturday, November 18, 2017 5:36:02 PM
