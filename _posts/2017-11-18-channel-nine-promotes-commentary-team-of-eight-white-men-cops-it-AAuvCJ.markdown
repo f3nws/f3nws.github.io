@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Channel Nine promotes commentary team of eight white men, cops it](http://www.abc.net.au/news/image/9164592-1x1-700x700.jpg)
 
-Cricket is changing and a former ABC Grandstand manager says its time Channel Nine "stepped up" and changed too after the network's commentary team gets slammed for its lack of diversity.
+Cricket is changing and a former ABC Grandstand manager says it's time Channel Nine "stepped up" and changed too after the network's commentary team gets slammed for its lack of diversity.
 
 
 Full story on F3News: [Channel Nine promotes commentary team of eight white men, cops it](http://www.f3nws.com/n/AAuvCJ)

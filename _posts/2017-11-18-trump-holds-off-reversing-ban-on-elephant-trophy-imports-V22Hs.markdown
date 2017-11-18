@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump holds off reversing ban on elephant trophy imports"
-date: 2017-11-18 01:04:00Z
+date: 2017-11-18 02:49:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ It looks like President Trump is having a change of heart when it comes his rece
 
 Full story on F3News: [Trump holds off reversing ban on elephant trophy imports](http://www.f3nws.com/n/V22Hs)
 
-> Posted on: Saturday, November 18, 2017 1:04:00 AM
+> Posted on: Saturday, November 18, 2017 2:49:00 AM
