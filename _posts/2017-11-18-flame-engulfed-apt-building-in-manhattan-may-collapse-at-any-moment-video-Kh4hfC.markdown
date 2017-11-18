@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flame-engulfed apt building in Manhattan may collapse at any moment (VIDEO)"
-date: 2017-11-18 00:30:21Z
+date: 2017-11-18 00:30:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Hundreds of firefighters responded to a 5-alarm fire at an apartment building in
 
 Full story on F3News: [Flame-engulfed apt building in Manhattan may collapse at any moment (VIDEO)](http://www.f3nws.com/n/Kh4hfC)
 
-> Posted on: Saturday, November 18, 2017 12:30:21 AM
+> Posted on: Saturday, November 18, 2017 12:30:00 AM
