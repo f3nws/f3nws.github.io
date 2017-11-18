@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia blocks Syria chemical weapons probe"
-date: 2017-11-18 01:54:01Z
+date: 2017-11-18 09:13:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia vetoed Friday night a last-gasp UN resolution to extend the mandate of th
 
 Full story on F3News: [Russia blocks Syria chemical weapons probe](http://www.f3nws.com/n/QX3ABG)
 
-> Posted on: Saturday, November 18, 2017 1:54:01 AM
+> Posted on: Saturday, November 18, 2017 9:13:03 AM
