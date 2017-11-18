@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AC/DC co-founder Malcolm Young dead at 64"
-date: 2017-11-18 13:47:00Z
+date: 2017-11-18 14:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Malcolm Young, the rhythm guitar player and founding member of heavy metal legen
 
 Full story on F3News: [AC/DC co-founder Malcolm Young dead at 64](http://www.f3nws.com/n/pdaHTH)
 
-> Posted on: Saturday, November 18, 2017 1:47:00 PM
+> Posted on: Saturday, November 18, 2017 2:30:00 PM
