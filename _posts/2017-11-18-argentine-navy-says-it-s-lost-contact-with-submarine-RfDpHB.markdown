@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Argentine navy says it's lost contact with submarine"
-date: 2017-11-18 05:55:46Z
+date: 2017-11-18 08:33:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Argentine navy has lost contact with one of its submarines that was travelin
 
 Full story on F3News: [Argentine navy says it's lost contact with submarine](http://www.f3nws.com/n/RfDpHB)
 
-> Posted on: Saturday, November 18, 2017 5:55:46 AM
+> Posted on: Saturday, November 18, 2017 8:33:07 AM
