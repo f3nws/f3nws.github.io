@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabweans say Mugabe must quit now, but more talks planned"
-date: 2017-11-18 14:24:00Z
+date: 2017-11-18 15:29:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — Giddy with joy and finally free to speak out, vast thr
 
 Full story on F3News: [Zimbabweans say Mugabe must quit now, but more talks planned](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, November 18, 2017 2:24:00 PM
+> Posted on: Saturday, November 18, 2017 3:29:00 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AC/DC co-founder and guitarist Malcolm Young dies at 64"
-date: 2017-11-18 17:18:16Z
+date: 2017-11-18 20:01:34Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ AC/DC co-founder and guitarist Malcolm Young has died after battling dementia fo
 
 Full story on F3News: [AC/DC co-founder and guitarist Malcolm Young dies at 64](http://www.f3nws.com/n/fm2Yv)
 
-> Posted on: Saturday, November 18, 2017 5:18:16 PM
+> Posted on: Saturday, November 18, 2017 8:01:34 PM
