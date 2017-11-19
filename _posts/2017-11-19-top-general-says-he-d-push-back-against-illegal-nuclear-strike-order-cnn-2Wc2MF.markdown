@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Top general says he'd push back against 'illegal' nuclear strike order - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170404161630-general-hyten-testimony-super-tease.jpg)
 
-CNN Top general says he'd push back against 'illegal' nuclear strike order CNN Washington (CNN) The top US nuclear commander said Saturday he would push back against an order from President Donald Trump for a nuclear strike if it were "illegal." Speaking at the Halifax International Security Forum in Nova Scotia, Canada, Gen. Top General Says He Would Reject An 'Illegal' Nuclear Strike Order From Trump HuffPost The top US nuclear commander said he would resist an 'illegal' strike order from Trump Business Insider Top nuclear commander: I wouldn't carry out an 'illegal' nuclear strike order from Trump The Hill CBS News - BBC News - Slate Magazine (blog) - New York Daily News all 85 news articles »
+CNN Top general says he'd push back against 'illegal' nuclear strike order CNN Washington (CNN) The top US nuclear commander said Saturday he would push back against an order from President Donald Trump for a nuclear strike if it were "illegal." Speaking at the Halifax International Security Forum in Nova Scotia, Canada, Gen. US nuclear chief would resist 'illegal' presidential strike order BBC News Top General Says He Would Reject An 'Illegal' Nuclear Strike Order From Trump HuffPost The top US nuclear commander said he would resist an 'illegal' strike order from Trump Business Insider The Hill - Washington Post - CBS News - Slate Magazine (blog) all 83 news articles »
 
 
 Full story on F3News: [Top general says he'd push back against 'illegal' nuclear strike order - CNN](http://www.f3nws.com/n/2Wc2MF)
