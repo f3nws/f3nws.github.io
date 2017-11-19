@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2nd round of Mugabe exit talks as party poised to oust him"
-date: 2017-11-19 04:05:00Z
+date: 2017-11-19 05:13:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — Clinging to his now virtually powerless post, longtime
 
 Full story on F3News: [2nd round of Mugabe exit talks as party poised to oust him](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, November 19, 2017 4:05:00 AM
+> Posted on: Sunday, November 19, 2017 5:13:00 AM

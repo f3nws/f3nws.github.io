@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Argentina: Missing navy sub tried contacting bases - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171117111648-argentina-missing-submarine-super-tease.jpg)
 
-CNN Argentina: Missing navy sub tried contacting bases CNN (CNN) The crew of a missing Argentine military submarine tried contacting naval bases seven times, Argentina's Defense Ministry said. The calls were made on Saturday to different bases between 10:52 a.m. and 3:42 p.m. and ranged from four to 36 seconds ... Signals from missing Argentine sub give hope for rescue effort ABC News Missing Argentine submarine apparently sent 7 satellite messages, but none got through Los Angeles Times Signals Detected From Missing Argentine Submarine as Foreign Navies Join Search New York Times USA TODAY - Fox News - BBC News - Reuters all 236 news articles »
+CNN Argentina: Missing navy sub tried contacting bases CNN (CNN) The crew of a missing Argentine military submarine tried contacting naval bases seven times, Argentina's Defense Ministry said. The calls were made on Saturday to different bases between 10:52 a.m. and 3:42 p.m. and ranged from four to 36 seconds ... Signals from missing Argentine sub give hope for rescue effort ABC News Missing Argentine submarine apparently sent 7 satellite messages, but none got through Los Angeles Times Signals Detected From Missing Argentine Submarine as Foreign Navies Join Search New York Times Fox News - USA TODAY - Military.com - BBC News all 242 news articles »
 
 
 Full story on F3News: [Argentina: Missing navy sub tried contacting bases - CNN](http://www.f3nws.com/n/jNfJZF)
