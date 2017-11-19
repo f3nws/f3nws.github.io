@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Saturday Night Live' Takes Aim at Al Franken, an 'SNL' Alumnus - New York Times](https://static01.nyt.com/images/2017/11/20/arts/20snl03-inyt/20snl03-inyt-facebookJumbo.jpg)
 
-New York Times 'Saturday Night Live' Takes Aim at Al Franken, an 'SNL' Alumnus New York Times It's a question that has hovered over nearly every new episode of “Saturday Night Live” this season: How will this sketch show, which sits at the intersection of pop culture and politics, handle the latest accusation of sexual misconduct by a prominent ... 'Saturday Night Live' blasts alum Sen. Al Franken for sexual misconduct accusations New York Daily News 'SNL' chastises alum Al Franken over sexual misconduct during 'Weekend Update' USA TODAY 'Saturday Night Live' tackles sexual misconduct allegations against Franken The Hill (blog) HuffPost - EW.com (blog) - Vanity Fair - Variety all 24 news articles »
+New York Times 'Saturday Night Live' Takes Aim at Al Franken, an 'SNL' Alumnus New York Times It's a question that has hovered over nearly every new episode of “Saturday Night Live” this season: How will this sketch show, which sits at the intersection of pop culture and politics, handle the latest accusation of sexual misconduct by a prominent ... SNL goes after former cast member Al Franken, briefly Washington Post 'SNL' Targets Alum Al Franken Amid Sexual Misconduct Allegations TIME 'SNL' Relies on "Weekend Update" to Go After Al Franken Hollywood Reporter Deadline - HuffPost - EW.com (blog) - USA TODAY all 38 news articles »
 
 
 Full story on F3News: ['Saturday Night Live' Takes Aim at Al Franken, an 'SNL' Alumnus - New York Times](http://www.f3nws.com/n/dEBRFJ)
