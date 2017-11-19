@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Blasts LaVar Ball: 'I Should Have Left Them in Jail!' - New York Times](https://static01.nyt.com/images/2017/11/20/sports/20lavar-web/20lavar-web-facebookJumbo.jpg)
 
-New York Times Trump Blasts LaVar Ball: 'I Should Have Left Them in Jail!' New York Times A day after LaVar Ball, the outspoken father of the basketball players LiAngelo and Lonzo Ball, played down President Trump's involvement in getting LiAngelo safely out of China without any criminal charges, the president fired back on Twitter. Now ... Donald Trump responds to LaVar Ball by tweeting he should have left UCLA players in jail ESPN Trump to LaVar Ball: 'I should have left them in jail!' CNN Donald Trump takes the bait, and LaVar Ball's Big Baller Brand wins again USA TODAY NBCSports.com - Politico - Los Angeles Times - The Hill all 147 news articles »
+New York Times Trump Blasts LaVar Ball: 'I Should Have Left Them in Jail!' New York Times A day after LaVar Ball, the outspoken father of the basketball players LiAngelo and Lonzo Ball, played down President Trump's involvement in getting LiAngelo safely out of China without any criminal charges, the president fired back on Twitter. Now ... Donald Trump responds to LaVar Ball by tweeting he should have left UCLA players in jail ESPN Trump to LaVar Ball: 'I should have left them in jail!' CNN Trump changes mind on 3 UCLA students arrested in China: 'Should have left them in jail!' Los Angeles Times USA TODAY - NBCSports.com - Politico - Fox News all 162 news articles »
 
 
 Full story on F3News: [Trump Blasts LaVar Ball: 'I Should Have Left Them in Jail!' - New York Times](http://www.f3nws.com/n/xYGRdD)
