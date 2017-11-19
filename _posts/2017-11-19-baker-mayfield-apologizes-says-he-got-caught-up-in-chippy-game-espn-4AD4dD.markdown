@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Baker Mayfield apologizes, says he 'got caught up' in chippy game - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1118%2Fr291016_1296x729_16%2D9.jpg)
 
-ESPN Baker Mayfield apologizes, says he 'got caught up' in chippy game ESPN LAWRENCE, Kan. -- Heisman Trophy front-runner and Oklahoma quarterback Baker Mayfield apologized for his "unacceptable" and "disrespectful" actions toward Kansas players during the Sooners' 41-3 victory Saturday. During a chippy game that was ... Report: Virginia's Bronco Mendenhall a person of interest in Oregon State coach search NBCSports.com BAM! Tai Tuivasa finishes Rashad Coulter with a huge flying knee at UFC Fight Night FOXSports.com Baker Mayfield deserves the Heisman Trophy, he just doesn't deserve our respect CBSSports.com USA TODAY - Sporting News - Bleacher Report - Dallas News all 283 news articles »
+ESPN Baker Mayfield apologizes, says he 'got caught up' in chippy game ESPN LAWRENCE, Kan. -- Heisman Trophy front-runner and Oklahoma quarterback Baker Mayfield apologized for his "unacceptable" and "disrespectful" actions toward Kansas players during the Sooners' 41-3 victory Saturday. During a chippy game that was ... Report: Virginia's Bronco Mendenhall a person of interest in Oregon State coach search NBCSports.com BAM! Tai Tuivasa finishes Rashad Coulter with a huge flying knee at UFC Fight Night FOXSports.com Baker Mayfield deserves the Heisman Trophy, he just doesn't deserve our respect CBSSports.com New York Times - USA TODAY - Sporting News - Dallas News all 289 news articles »
 
 
 Full story on F3News: [Baker Mayfield apologizes, says he 'got caught up' in chippy game - ESPN](http://www.f3nws.com/n/4AD4dD)
