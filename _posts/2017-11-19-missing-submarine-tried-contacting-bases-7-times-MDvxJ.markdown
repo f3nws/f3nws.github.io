@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missing submarine tried contacting bases 7 times"
-date: 2017-11-19 10:18:03Z
+date: 2017-11-19 14:19:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A missing Argentine submarine attempted to contact naval bases via satellite sev
 
 Full story on F3News: [Missing submarine tried contacting bases 7 times](http://www.f3nws.com/n/MDvxJ)
 
-> Posted on: Sunday, November 19, 2017 10:18:03 AM
+> Posted on: Sunday, November 19, 2017 2:19:45 PM

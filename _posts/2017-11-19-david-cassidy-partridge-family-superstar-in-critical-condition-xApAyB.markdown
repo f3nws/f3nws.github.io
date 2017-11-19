@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "David Cassidy, 'Partridge Family' superstar, in critical condition"
-date: 2017-11-19 01:47:28Z
+date: 2017-11-19 14:18:44Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ David Cassidy, the wildly popular '70s heartthrob who shot to fame when he starr
 
 Full story on F3News: [David Cassidy, 'Partridge Family' superstar, in critical condition](http://www.f3nws.com/n/xApAyB)
 
-> Posted on: Sunday, November 19, 2017 1:47:28 AM
+> Posted on: Sunday, November 19, 2017 2:18:44 PM
