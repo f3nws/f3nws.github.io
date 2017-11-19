@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A war hero who was a stranger in his own land"
-date: 2017-11-19 09:16:17Z
+date: 2017-11-19 12:20:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jesse Leroy Brown was hurtling over the North Korean countryside in his Corsair 
 
 Full story on F3News: [A war hero who was a stranger in his own land](http://www.f3nws.com/n/daXRaC)
 
-> Posted on: Sunday, November 19, 2017 9:16:17 AM
+> Posted on: Sunday, November 19, 2017 12:20:44 PM
