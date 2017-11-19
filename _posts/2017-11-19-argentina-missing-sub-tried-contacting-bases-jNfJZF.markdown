@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Argentina: Missing sub tried contacting bases"
-date: 2017-11-19 03:00:05Z
+date: 2017-11-19 05:34:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The crew of a missing Argentine military submarine tried contacting naval bases 
 
 Full story on F3News: [Argentina: Missing sub tried contacting bases](http://www.f3nws.com/n/jNfJZF)
 
-> Posted on: Sunday, November 19, 2017 3:00:05 AM
+> Posted on: Sunday, November 19, 2017 5:34:15 AM
