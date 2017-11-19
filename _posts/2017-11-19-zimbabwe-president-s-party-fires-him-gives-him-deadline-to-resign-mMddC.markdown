@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe President's party fires him, gives him deadline to resign"
-date: 2017-11-19 13:52:25Z
+date: 2017-11-19 20:36:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe's ruling party has expelled Robert Mugabe as its chief and set a Monday
 
 Full story on F3News: [Zimbabwe President's party fires him, gives him deadline to resign](http://www.f3nws.com/n/mMddC)
 
-> Posted on: Sunday, November 19, 2017 1:52:25 PM
+> Posted on: Sunday, November 19, 2017 8:36:48 PM

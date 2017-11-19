@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to UCLA player's father: 'I should have left them in jail!'"
-date: 2017-11-19 18:45:18Z
+date: 2017-11-19 19:38:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Sunday shot back at Lavar Ball, the father of one of t
 
 Full story on F3News: [Trump to UCLA player's father: 'I should have left them in jail!'](http://www.f3nws.com/n/nYkZMG)
 
-> Posted on: Sunday, November 19, 2017 6:45:18 PM
+> Posted on: Sunday, November 19, 2017 7:38:52 PM

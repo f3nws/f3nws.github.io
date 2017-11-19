@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'SNL' viewers want Chance the Rapper's Obama song on iTunes     - CNET"
-date: 2017-11-19 18:48:39Z
+date: 2017-11-19 19:25:42Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Fans of former President Obama are clamoring for the opportunity to buy Chance t
 
 Full story on F3News: ['SNL' viewers want Chance the Rapper's Obama song on iTunes     - CNET](http://www.f3nws.com/n/3KFDeB)
 
-> Posted on: Sunday, November 19, 2017 6:48:39 PM
+> Posted on: Sunday, November 19, 2017 7:25:42 PM
