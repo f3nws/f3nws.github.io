@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hillary Clinton: Trump 'is obsessed' with me - Politico](https://static.politico.com/56/c0/996a921c4d2e92031d3e2aa387c4/170926-hillary-clinton.jpg)
 
-Politico Hillary Clinton: Trump 'is obsessed' with me Politico Former secretary of state and 2016 Democratic presidential nominee Hillary Clinton on Saturday described President Donald Trump as “obsessed” with her continued public presence. “Apparently, you know, my former opponent is obsessed with my speaking ... The Hillary Effect New York Times Clinton Foundation Donations Plummeted Following Hillary's Election Loss Breitbart News Donald Trump Literally Cannot Stop Thinking About Hillary Clinton PerezHilton.com Fox News - The Atlantic - Washington Post - Mother Jones all 180 news articles »
+Politico Hillary Clinton: Trump 'is obsessed' with me Politico Former secretary of state and 2016 Democratic presidential nominee Hillary Clinton on Saturday described President Donald Trump as “obsessed” with her continued public presence. “Apparently, you know, my former opponent is obsessed with my speaking ... The Hillary Effect New York Times Panetta on Lewinsky affair: Bill Clinton 'more than paid the price' CNN Sexual harassment and worse will plague politics until we get past tribalism USA TODAY RealClearPolitics - The Hill - Fox News - PEOPLE.com all 524 news articles »
 
 
 Full story on F3News: [Hillary Clinton: Trump 'is obsessed' with me - Politico](http://www.f3nws.com/n/4eGhFC)

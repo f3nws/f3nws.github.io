@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Country music legend Mel Tillis dead at 85"
-date: 2017-11-19 16:33:00Z
+date: 2017-11-19 16:54:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Country music singer Mel Tillis, whose six-decade career included hits such as â
 
 Full story on F3News: [Country music legend Mel Tillis dead at 85](http://www.f3nws.com/n/gBsJZF)
 
-> Posted on: Sunday, November 19, 2017 4:33:00 PM
+> Posted on: Sunday, November 19, 2017 4:54:00 PM
