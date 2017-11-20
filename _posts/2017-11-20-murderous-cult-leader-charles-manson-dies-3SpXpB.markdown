@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Murderous cult leader Charles Manson dies"
-date: 2017-11-20 15:09:04Z
+date: 2017-11-20 18:39:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Charles Manson, the wild-eyed 1960s cult leader whose followers committed heinou
 
 Full story on F3News: [Murderous cult leader Charles Manson dies](http://www.f3nws.com/n/3SpXpB)
 
-> Posted on: Monday, November 20, 2017 3:09:04 PM
+> Posted on: Monday, November 20, 2017 6:39:19 PM
