@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump reignites NFL protest criticism, calls for player's suspension"
-date: 2017-11-20 16:25:04Z
+date: 2017-11-20 19:23:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump took to Twitter to criticize Oakland Raiders running back
 
 Full story on F3News: [Trump reignites NFL protest criticism, calls for player's suspension](http://www.f3nws.com/n/vvn2gH)
 
-> Posted on: Monday, November 20, 2017 4:25:04 PM
+> Posted on: Monday, November 20, 2017 7:23:33 PM
