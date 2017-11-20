@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Della Reese, 'Touched by an Angel' star and singer, dies at 86"
-date: 2017-11-20 19:27:47Z
+date: 2017-11-20 20:43:26Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Della Reese, who rose to fame as a jazz singer and later found television stardo
 
 Full story on F3News: [Della Reese, 'Touched by an Angel' star and singer, dies at 86](http://www.f3nws.com/n/vUYqaC)
 
-> Posted on: Monday, November 20, 2017 7:27:47 PM
+> Posted on: Monday, November 20, 2017 8:43:26 PM

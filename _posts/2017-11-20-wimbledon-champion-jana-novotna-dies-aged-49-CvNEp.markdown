@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Wimbledon champion Jana Novotna dies aged 49](http://www.abc.net.au/news/image/9172058-1x1-700x700.jpg)
 
-Czech tennis player and winner of 17 Grand Slam titles, Jana Novotna, dies peacefully surrounded by family after losing a long battle with cancer.
+Czech tennis player Jana Novotona, a winner of 17 major titles, dies peacefully surrounded by family after losing a long battle with cancer.
 
 
 Full story on F3News: [Wimbledon champion Jana Novotna dies aged 49](http://www.f3nws.com/n/CvNEp)
