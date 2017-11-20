@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Source: Mugabe agrees to terms of resignation"
-date: 2017-11-20 11:37:11Z
+date: 2017-11-20 12:20:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An official source with direct knowledge of negotiations says that Zimbabwe's lo
 
 Full story on F3News: [Source: Mugabe agrees to terms of resignation](http://www.f3nws.com/n/ppKvW)
 
-> Posted on: Monday, November 20, 2017 11:37:11 AM
+> Posted on: Monday, November 20, 2017 12:20:36 PM

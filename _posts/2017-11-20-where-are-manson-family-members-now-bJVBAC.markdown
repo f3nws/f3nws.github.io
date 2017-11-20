@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Where are 'Manson Family' members now?"
-date: 2017-11-20 10:28:55Z
+date: 2017-11-20 12:01:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Charles Manson's followers were young and zealously committed.
 
 Full story on F3News: [Where are 'Manson Family' members now?](http://www.f3nws.com/n/bJVBAC)
 
-> Posted on: Monday, November 20, 2017 10:28:55 AM
+> Posted on: Monday, November 20, 2017 12:01:39 PM

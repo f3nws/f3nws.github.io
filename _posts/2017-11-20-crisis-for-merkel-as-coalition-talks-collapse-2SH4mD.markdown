@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Crisis for Merkel as coalition talks collapse"
-date: 2017-11-20 11:08:03Z
+date: 2017-11-20 13:12:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Germany is facing a likely period of political deadlock after talks to form a co
 
 Full story on F3News: [Crisis for Merkel as coalition talks collapse](http://www.f3nws.com/n/2SH4mD)
 
-> Posted on: Monday, November 20, 2017 11:08:03 AM
+> Posted on: Monday, November 20, 2017 1:12:16 PM
