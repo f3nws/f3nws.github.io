@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jeffrey Tambor Leaves 'Transparent' After Sexual Misconduct Allegations - New York Times](https://static01.nyt.com/images/2017/11/20/arts/television/20xp-tambor1/20xp-tambor1-facebookJumbo.jpg)
 
-New York Times Jeffrey Tambor Leaves 'Transparent' After Sexual Misconduct Allegations New York Times Jeffrey Tambor, the star of the Amazon series “Transparent,” will not return for the show's fifth season after two women accused him of sexual misconduct. Mr. Tambor has strenuously denied the allegations, made this month by one of his co-stars and by ... Jeffrey Tambor May Be Leaving 'Transparent' Amid Sexual Harassment Allegations NPR Jeffrey Tambor Quits 'Transparent' In Wake Of Harassment Allegations HuffPost Jeffrey Tambor can't see a return to 'Transparent' amid sexual harassment claims ABC News Washington Post - Vanity Fair - USA TODAY - Los Angeles Times all 219 news articles »
+New York Times Jeffrey Tambor Leaves 'Transparent' After Sexual Misconduct Allegations New York Times Jeffrey Tambor, the star of the Amazon series “Transparent,” will not return for the show's fifth season after two women accused him of sexual misconduct. Mr. Tambor has strenuously denied the allegations, made this month by one of his co-stars and by ... Jeffrey Tambor May Be Leaving 'Transparent' Amid Sexual Harassment Allegations NPR Jeffrey Tambor Quits 'Transparent' In Wake Of Harassment Allegations HuffPost Jeffrey Tambor can't see a return to 'Transparent' amid sexual harassment claims ABC News Washington Post - Vanity Fair - Us Weekly - Reuters all 221 news articles »
 
 
 Full story on F3News: [Jeffrey Tambor Leaves 'Transparent' After Sexual Misconduct Allegations - New York Times](http://www.f3nws.com/n/BnsqsF)
