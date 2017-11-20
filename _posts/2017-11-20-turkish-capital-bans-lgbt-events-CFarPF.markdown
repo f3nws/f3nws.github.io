@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish capital bans LGBT events"
-date: 2017-11-20 05:19:13Z
+date: 2017-11-20 10:45:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The governor of Turkey's capital, Ankara, has banned all public events relating 
 
 Full story on F3News: [Turkish capital bans LGBT events](http://www.f3nws.com/n/CFarPF)
 
-> Posted on: Monday, November 20, 2017 5:19:13 AM
+> Posted on: Monday, November 20, 2017 10:45:23 AM
