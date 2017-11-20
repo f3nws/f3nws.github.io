@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US troops in Japan face alcohol ban after deadly collision"
-date: 2017-11-20 05:59:16Z
+date: 2017-11-20 11:18:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US service member was involved in a collision that led to the death of an Okin
 
 Full story on F3News: [US troops in Japan face alcohol ban after deadly collision](http://www.f3nws.com/n/USpfCH)
 
-> Posted on: Monday, November 20, 2017 5:59:16 AM
+> Posted on: Monday, November 20, 2017 11:18:11 AM
