@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charles Manson, whose cult slayings horrified world, dies"
-date: 2017-11-20 06:54:50Z
+date: 2017-11-20 07:52:34Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Charles Manson, the hippie cult leader who became the hypnotic-eyed face of evil
 
 Full story on F3News: [Charles Manson, whose cult slayings horrified world, dies](http://www.f3nws.com/n/J3xvxG)
 
-> Posted on: Monday, November 20, 2017 6:54:50 AM
+> Posted on: Monday, November 20, 2017 7:52:34 AM
