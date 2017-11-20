@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Border Patrol agent appeared to be ambushed by illegal immigrants, bashed with rocks before death"
-date: 2017-11-20 17:09:00Z
+date: 2017-11-20 21:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Illegal immigrants appeared to have “ambushed” two U.S. Border Patrol agents
 
 Full story on F3News: [Border Patrol agent appeared to be ambushed by illegal immigrants, bashed with rocks before death](http://www.f3nws.com/n/2aCYz)
 
-> Posted on: Monday, November 20, 2017 5:09:00 PM
+> Posted on: Monday, November 20, 2017 9:15:00 PM

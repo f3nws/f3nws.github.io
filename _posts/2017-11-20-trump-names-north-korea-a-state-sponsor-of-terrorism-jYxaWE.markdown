@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump names North Korea a state sponsor of terrorism"
-date: 2017-11-20 19:45:13Z
+date: 2017-11-20 21:17:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, in the latest demonstration of increased tensions on the
 
 Full story on F3News: [Trump names North Korea a state sponsor of terrorism](http://www.f3nws.com/n/jYxaWE)
 
-> Posted on: Monday, November 20, 2017 7:45:13 PM
+> Posted on: Monday, November 20, 2017 9:17:28 PM
