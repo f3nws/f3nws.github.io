@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protests at Libyan Embassy after CNN report on slave auctions"
-date: 2017-11-20 01:02:56Z
+date: 2017-11-20 10:20:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Protesters gathered outside the Libyan Embassy in central Paris following an exc
 
 Full story on F3News: [Protests at Libyan Embassy after CNN report on slave auctions](http://www.f3nws.com/n/ThMjCE)
 
-> Posted on: Monday, November 20, 2017 1:02:56 AM
+> Posted on: Monday, November 20, 2017 10:20:18 AM
