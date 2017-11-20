@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![High Court orders Senate recount after Nash's citizenship drama](http://www.abc.net.au/news/image/5255930-1x1-700x700.jpg)
 
-The High Court orders a special recount of the votes in the Senate seat that former national's deputy leader Fiona Nash was forced to vacate because of her dual citizenship.
+Liberal candidate and retired Army major general Jim Molan is set to take former Nationals deputy leader Fiona Nash's Senate seat after the High Court orders a special recount sparked by her dual citizenship.
 
 
 Full story on F3News: [High Court orders Senate recount after Nash's citizenship drama](http://www.f3nws.com/n/BnEEzF)

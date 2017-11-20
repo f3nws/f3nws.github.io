@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lebanese Prime Minister Hariri says he is Cairo-bound"
-date: 2017-11-20 00:38:03Z
+date: 2017-11-20 04:52:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lebanese Prime Minister Saad Hariri, who recently resigned, plans to visit Cairo
 
 Full story on F3News: [Lebanese Prime Minister Hariri says he is Cairo-bound](http://www.f3nws.com/n/3CdzKJ)
 
-> Posted on: Monday, November 20, 2017 12:38:03 AM
+> Posted on: Monday, November 20, 2017 4:52:30 AM
