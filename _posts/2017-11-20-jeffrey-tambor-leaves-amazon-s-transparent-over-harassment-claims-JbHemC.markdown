@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Jeffrey Tambor leaves Amazon's 'Transparent' over harassment claims"
+date: 2017-11-20 01:14:00Z
+categories: engadget
+---
+
+![Jeffrey Tambor leaves Amazon's 'Transparent' over harassment claims](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D3000%252C1996%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1065%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252Fb1fef870d2f05596d3478487e32df115%252F205876119%252Factor-jeffrey-tambor-attends-amazon-prime-videos-emmy-fyc-event-and-picture-id671708228%26client%3Da1acac3e1b3290917d92%26signature%3D198d0d6d30165fb33d6f78e9a2b8cd25e6f47e0a&client=cbc79c14efcebee57402&signature=ee21d8d55a870aa2f37f19bde3fb35f9426a0ac1)
+
+The slew of sexual harassment and assault allegations surfacing in Hollywood has affected another major streaming service . Transparent actor Jeffrey Tambor has announced he's leaving the Amazon show after two transgender actresses on the show (Van Barnes and Trace Lysette) alleged that he made lewd remarks and got "physical." He wasn't formally pushed out, but he argued that he couldn't stay on the show given the "politicized atmosphere" the harassment claims brought to the table. "This is no longer the job I signed up for four years ago," he said in a statement. Tambor has denied the allegations ever since they appeared weeks earlier, even though show producer Our Lady J backed both claims. While he said he had "deep regret" if his actions were ever "misinterpreted by anyone as being aggressive," he declared it "simply and utterly untrue" that he would set out to harass others. Amazon had no comment on the departure when we asked, but the company has been talking to Tambor, creator Jill Soloway and others involved in the production team as it investigated the accusations. There were hints that Tambor might have been dropped from the show even if he hadn't left. Deadline tipsters have claimed that there had been talk of writing Tambor's character out of Transparent for the fifth season, and that Tambor's option to star in that season hadn't yet been picked up. If so, Tambor may have seen the writing on the wall and left voluntarily. Whether or not the assertions are true, the exit leaves Amazon in largely the same position as Netflix: one of its earliest original shows is facing a crisis as its lead male actor's behavior overshadows the production. Tambor's leaving is unlikely to have as much of an effect as it would have a few years ago, when he played more of a central role in both the show and Amazon's quest for awards . Still, it's safe to presume that Amazon would have preferred that Tambor avoid questionable behavior in the first place and thus avoid compounding problems that began with Amazon's executive team . Source: Deadline
+
+
+Full story on F3News: [Jeffrey Tambor leaves Amazon's 'Transparent' over harassment claims](http://www.f3nws.com/n/JbHemC)
+
+> Posted on: Monday, November 20, 2017 1:14:00 AM
