@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Woman says Franken inappropriately touched her in 2010 - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171120085020-al-franken-and-lindsay-menz-super-tease.jpg)
 
-CNN Woman says Franken inappropriately touched her in 2010 CNN (CNN) A woman says Sen. Al Franken inappropriately touched her in 2010, telling CNN that he grabbed her buttocks while taking a photo at the Minnesota State Fair. It is the first allegation of improper touching by Franken, who is a Democrat, while he ... Second woman alleges Al Franken groped her Fox News Woman accuses Franken of groping during photo op The Hill A 2nd woman has accused Sen. Al Franken of groping her Business Insider USA TODAY - New York Post - Washington Examiner - Salon all 82 news articles »
+CNN Woman says Franken inappropriately touched her in 2010 CNN (CNN) A woman says Sen. Al Franken inappropriately touched her in 2010, telling CNN that he grabbed her buttocks while taking a photo at the Minnesota State Fair. It is the first allegation of improper touching by Franken, who is a Democrat, while he ... Franken and Trump, Hiding Behind Their 'Jokes' New York Times Sen. Al Franken Hit With Second Groping Allegation NPR Woman Says Al Franken Groped Her During 2010 Photo Op HuffPost The Hill - Chicago Tribune - Business Insider - BBC News all 129 news articles »
 
 
 Full story on F3News: [Woman says Franken inappropriately touched her in 2010 - CNN](http://www.f3nws.com/n/sGAFvG)

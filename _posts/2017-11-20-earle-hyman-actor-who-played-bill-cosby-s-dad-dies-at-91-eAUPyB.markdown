@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Earle Hyman, actor who played Bill Cosby's dad, dies at 91"
-date: 2017-11-20 05:25:20Z
+date: 2017-11-20 15:56:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Earle Hyman, a longtime stage and TV actor who was best known for playing Bill C
 
 Full story on F3News: [Earle Hyman, actor who played Bill Cosby's dad, dies at 91](http://www.f3nws.com/n/eAUPyB)
 
-> Posted on: Monday, November 20, 2017 5:25:20 AM
+> Posted on: Monday, November 20, 2017 3:56:46 PM

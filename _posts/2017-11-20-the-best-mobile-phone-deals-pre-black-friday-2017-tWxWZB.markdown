@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best mobile phone deals pre-Black Friday 2017"
-date: 2017-11-20 12:45:40Z
+date: 2017-11-20 14:45:40Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Compare mobile phone deals on the latest iPhones, Samsung Galaxys and more - we'
 
 Full story on F3News: [The best mobile phone deals pre-Black Friday 2017](http://www.f3nws.com/n/tWxWZB)
 
-> Posted on: Monday, November 20, 2017 12:45:40 PM
+> Posted on: Monday, November 20, 2017 2:45:40 PM
