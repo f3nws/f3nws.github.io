@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US general says nuclear launch order can be refused, sparking debate"
-date: 2017-11-20 05:45:03Z
+date: 2017-11-20 06:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Just a day after the U.S.’s top nuclear commander said he would resist Preside
 
 Full story on F3News: [US general says nuclear launch order can be refused, sparking debate](http://www.f3nws.com/n/yvhA3E)
 
-> Posted on: Monday, November 20, 2017 5:45:03 AM
+> Posted on: Monday, November 20, 2017 6:45:03 AM

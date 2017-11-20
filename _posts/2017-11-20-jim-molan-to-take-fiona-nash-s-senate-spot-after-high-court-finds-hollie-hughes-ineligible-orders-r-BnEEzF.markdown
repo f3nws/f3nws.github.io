@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jim Molan to take Fiona Nash's Senate spot after High Court finds Hollie Hughes ineligible, orders recount - ABC Online"
-date: 2017-11-20 05:36:00Z
+date: 2017-11-20 05:37:24Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Jim Molan to take Fiona Nash's Senate spot after High Court finds Hol
 
 Full story on F3News: [Jim Molan to take Fiona Nash's Senate spot after High Court finds Hollie Hughes ineligible, orders recount - ABC Online](http://www.f3nws.com/n/BnEEzF)
 
-> Posted on: Monday, November 20, 2017 5:36:00 AM
+> Posted on: Monday, November 20, 2017 5:37:24 AM
