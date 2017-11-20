@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller pushes Russia probe closer to Trump"
-date: 2017-11-20 11:24:40Z
+date: 2017-11-20 13:55:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Investigators working for special counsel Robert Mueller are scheduled to interv
 
 Full story on F3News: [Mueller pushes Russia probe closer to Trump](http://www.f3nws.com/n/jxmeGJ)
 
-> Posted on: Monday, November 20, 2017 11:24:40 AM
+> Posted on: Monday, November 20, 2017 1:55:34 PM
