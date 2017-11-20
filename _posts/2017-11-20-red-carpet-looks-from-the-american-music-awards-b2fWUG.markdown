@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Red carpet looks from the American Music Awards"
-date: 2017-11-20 00:53:26Z
+date: 2017-11-20 02:57:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Red carpet looks from the American Music Awards](http://www.f3nws.com/n/b2fWUG)
 
-> Posted on: Monday, November 20, 2017 12:53:26 AM
+> Posted on: Monday, November 20, 2017 2:57:55 AM
