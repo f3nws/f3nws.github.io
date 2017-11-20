@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Wimbledon champion Jana Novotna dies aged 49"
-date: 2017-11-20 15:00:48Z
+date: 2017-11-20 16:44:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Wimbledon champion Jana Novotna has died at the age of 49 after a long ba
 
 Full story on F3News: [Former Wimbledon champion Jana Novotna dies aged 49](http://www.f3nws.com/n/MvSrMC)
 
-> Posted on: Monday, November 20, 2017 3:00:48 PM
+> Posted on: Monday, November 20, 2017 4:44:06 PM
