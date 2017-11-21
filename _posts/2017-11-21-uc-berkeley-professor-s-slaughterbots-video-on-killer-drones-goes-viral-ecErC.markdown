@@ -5,7 +5,7 @@ date: 2017-11-21 06:45:00Z
 categories: fox-news
 ---
 
-A UC Berkeley computer science professor helped to create a video that imagined a world where nuclear weapons were replaced by swarms of autonomous tiny drones that could kill half a city and are virtually unstoppable.
+The video was released earlier this month by the Future of Life Institute, which is backed by Stephen Hawking and Elon Musk.
 
 
 Full story on F3News: [UC Berkeley professor’s ‘slaughterbots’ video on killer drones goes viral](http://www.f3nws.com/n/ecErC)

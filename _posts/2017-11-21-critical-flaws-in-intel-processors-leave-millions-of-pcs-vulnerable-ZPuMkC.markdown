@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Critical Flaws in Intel Processors Leave Millions of PCs Vulnerable"
-date: 2017-11-21 11:33:49Z
+date: 2017-11-21 16:12:28Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ In past few months, several research groups have uncovered vulnerabilities in th
 
 Full story on F3News: [Critical Flaws in Intel Processors Leave Millions of PCs Vulnerable](http://www.f3nws.com/n/ZPuMkC)
 
-> Posted on: Tuesday, November 21, 2017 11:33:49 AM
+> Posted on: Tuesday, November 21, 2017 4:12:28 PM

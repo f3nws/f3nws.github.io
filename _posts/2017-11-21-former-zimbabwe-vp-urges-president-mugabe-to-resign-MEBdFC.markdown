@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Zimbabwe VP urges President Mugabe to resign"
-date: 2017-11-21 14:37:44Z
+date: 2017-11-21 15:11:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe's former Vice President Emmerson Mnangagwa has urged longtime President
 
 Full story on F3News: [Former Zimbabwe VP urges President Mugabe to resign](http://www.f3nws.com/n/MEBdFC)
 
-> Posted on: Tuesday, November 21, 2017 2:37:44 PM
+> Posted on: Tuesday, November 21, 2017 3:11:59 PM

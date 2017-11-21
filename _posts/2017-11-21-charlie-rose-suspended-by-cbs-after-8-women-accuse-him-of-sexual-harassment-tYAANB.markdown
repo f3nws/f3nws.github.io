@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charlie Rose suspended by CBS after 8 women accuse him of sexual harassment"
-date: 2017-11-21 03:50:47Z
+date: 2017-11-21 13:01:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Charlie Rose suspended by CBS after 8 women accuse him of sexual harassment](http://www.f3nws.com/n/tYAANB)
 
-> Posted on: Tuesday, November 21, 2017 3:50:47 AM
+> Posted on: Tuesday, November 21, 2017 1:01:29 PM
