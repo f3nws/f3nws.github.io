@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Samsung accidentally confirmed it's making a Galaxy X - BGR"
+date: 2017-11-21 00:31:00Z
+categories: bgr
+---
+
+![Samsung accidentally confirmed it's making a Galaxy X - BGR](https://boygeniusreport.files.wordpress.com/2016/03/samsung-foldable-phone.jpg?quality=98&strip=all)
+
+BGR Samsung accidentally confirmed it's making a Galaxy X BGR Samsung's dream is to beat Apple's iPhone, and that's why the Galaxy S8's development codename was “dream.” However, no Galaxy S or Galaxy Note device captured the mind of buyers like the iPhone rival, no matter how hard Samsung tried. Galaxy X 'Confirmed' By Samsung In Stunning New Leak Forbes Galaxy X leaked by none other than Samsung itself SlashGear Samsung Galaxy X Support Page Appears Online ValueWalk Pocket-lint.com - Android Community - Android Headlines - Phone Arena all 13 news articles »
+
+
+Full story on F3News: [Samsung accidentally confirmed it's making a Galaxy X - BGR](http://www.f3nws.com/n/vADGK)
+
+> Posted on: Tuesday, November 21, 2017 12:31:00 AM
