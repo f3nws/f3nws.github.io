@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fired Zimbabwean VP says Mugabe should resign immediately"
-date: 2017-11-21 05:25:00Z
+date: 2017-11-21 06:45:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HARARE, Zimbabwe (AP) — Zimbabwean President Robert Mugabe should acknowledge 
 
 Full story on F3News: [Fired Zimbabwean VP says Mugabe should resign immediately](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, November 21, 2017 5:25:00 AM
+> Posted on: Tuesday, November 21, 2017 6:45:00 AM
