@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CBS co-hosts on Charlie Rose: not the man I know"
-date: 2017-11-21 08:37:00Z
+date: 2017-11-21 11:47:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Charlie Rose's co-hosts on "CBS This Morning" sharply condemne
 
 Full story on F3News: [CBS co-hosts on Charlie Rose: not the man I know](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, November 21, 2017 8:37:00 AM
+> Posted on: Tuesday, November 21, 2017 11:47:00 AM
