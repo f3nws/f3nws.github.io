@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Donald Trump Shuts Down His Million-Dollar Charitable Foundation That He Never Gave Money To - Newsweek](http://s.newsweek.com/sites/www.newsweek.com/files/2017/11/20/gettyimages-875411450.jpg)
 
-Newsweek Donald Trump Shuts Down His Million-Dollar Charitable Foundation That He Never Gave Money To Newsweek President Donald Trump's charitable foundation, which he never donated to, is finally in the process of being shut down. In a statement received by NBC News, a spokesperson for the Trump Foundation confirmed that it is being shuttered. "The foundation ... The Trump Foundation is shutting down Axios all 28 news articles »
+Newsweek Donald Trump Shuts Down His Million-Dollar Charitable Foundation That He Never Gave Money To Newsweek President Donald Trump's charitable foundation, which he never donated to, is finally in the process of being shut down. In a statement received by NBC News, a spokesperson for the Trump Foundation confirmed that it is being shuttered. "The foundation ... and more »
 
 
 Full story on F3News: [Donald Trump Shuts Down His Million-Dollar Charitable Foundation That He Never Gave Money To - Newsweek](http://www.f3nws.com/n/XyjzdC)

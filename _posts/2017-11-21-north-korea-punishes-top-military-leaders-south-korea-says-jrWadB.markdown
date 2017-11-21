@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea punishes top military leaders, South Korea says"
-date: 2017-11-21 07:36:01Z
+date: 2017-11-21 10:04:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two key figures in the North Korean military have been punished for "impure beha
 
 Full story on F3News: [North Korea punishes top military leaders, South Korea says](http://www.f3nws.com/n/jrWadB)
 
-> Posted on: Tuesday, November 21, 2017 7:36:01 AM
+> Posted on: Tuesday, November 21, 2017 10:04:30 AM

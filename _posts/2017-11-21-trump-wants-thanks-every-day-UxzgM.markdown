@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump wants thanks every day"
-date: 2017-11-21 03:01:19Z
+date: 2017-11-21 04:25:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has shown an incessant craving for praise during his firs
 
 Full story on F3News: [Trump wants thanks every day](http://www.f3nws.com/n/UxzgM)
 
-> Posted on: Tuesday, November 21, 2017 3:01:19 AM
+> Posted on: Tuesday, November 21, 2017 4:25:09 AM

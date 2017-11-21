@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump administration to end protected status for Haiti"
-date: 2017-11-21 05:11:31Z
+date: 2017-11-21 10:00:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration has announced it will end the Temporary Protected Statu
 
 Full story on F3News: [Trump administration to end protected status for Haiti](http://www.f3nws.com/n/zKkvbE)
 
-> Posted on: Tuesday, November 21, 2017 5:11:31 AM
+> Posted on: Tuesday, November 21, 2017 10:00:16 AM

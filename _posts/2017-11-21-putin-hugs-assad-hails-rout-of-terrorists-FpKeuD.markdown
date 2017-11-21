@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Putin hugs Assad, hails 'rout of terrorists'"
+date: 2017-11-21 09:56:17Z
+categories: cnn-com-top-stories
+---
+
+![Putin hugs Assad, hails 'rout of terrorists'](http://cdn.cnn.com/cnnnext/dam/assets/171121145904-russia-syria-photo-03-super-tease.jpg)
+
+Russian President Vladimir Putin is expected to call US President Donald Trump on Tuesday following a rare meeting with Syrian dictator Bashar Assad to discuss the future of Syria, a statement from the Kremlin said.
+
+
+Full story on F3News: [Putin hugs Assad, hails 'rout of terrorists'](http://www.f3nws.com/n/FpKeuD)
+
+> Posted on: Tuesday, November 21, 2017 9:56:17 AM
