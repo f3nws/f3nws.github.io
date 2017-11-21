@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FanDuel CEO, co-founder Eccles leaves fantasy sports site     - CNET"
-date: 2017-11-21 01:05:53Z
+date: 2017-11-21 03:46:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Shake-up comes five months after failed merger with rival DraftKings.
 
 Full story on F3News: [FanDuel CEO, co-founder Eccles leaves fantasy sports site     - CNET](http://www.f3nws.com/n/pccxeC)
 
-> Posted on: Tuesday, November 21, 2017 1:05:53 AM
+> Posted on: Tuesday, November 21, 2017 3:46:57 AM
