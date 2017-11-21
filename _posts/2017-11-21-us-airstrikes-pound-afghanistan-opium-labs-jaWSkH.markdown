@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US airstrikes pound Afghanistan opium labs"
-date: 2017-11-21 03:10:58Z
+date: 2017-11-21 04:51:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US conducted airstrikes targeting opium processing labs in Afghanistan Sunda
 
 Full story on F3News: [US airstrikes pound Afghanistan opium labs](http://www.f3nws.com/n/jaWSkH)
 
-> Posted on: Tuesday, November 21, 2017 3:10:58 AM
+> Posted on: Tuesday, November 21, 2017 4:51:24 AM

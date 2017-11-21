@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Worst-case scenario': Sub could run out of oxygen in 2 days"
-date: 2017-11-21 02:57:41Z
+date: 2017-11-21 05:16:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Efforts to locate an Argentine submarine that has been missing since last week h
 
 Full story on F3News: ['Worst-case scenario': Sub could run out of oxygen in 2 days](http://www.f3nws.com/n/Xqrg4H)
 
-> Posted on: Tuesday, November 21, 2017 2:57:41 AM
+> Posted on: Tuesday, November 21, 2017 5:16:05 AM
