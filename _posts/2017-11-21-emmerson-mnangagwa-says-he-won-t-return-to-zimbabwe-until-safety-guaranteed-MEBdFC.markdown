@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emmerson Mnangagwa says he won't return to Zimbabwe until safety guaranteed"
-date: 2017-11-21 07:15:13Z
+date: 2017-11-21 09:01:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe's former Vice President Emmerson Mnangagwa has urged longtime President
 
 Full story on F3News: [Emmerson Mnangagwa says he won't return to Zimbabwe until safety guaranteed](http://www.f3nws.com/n/MEBdFC)
 
-> Posted on: Tuesday, November 21, 2017 7:15:13 AM
+> Posted on: Tuesday, November 21, 2017 9:01:48 AM
