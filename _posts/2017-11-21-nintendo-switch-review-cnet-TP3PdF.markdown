@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nintendo Switch review     - CNET"
-date: 2017-11-21 16:21:26Z
+date: 2017-11-21 16:59:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It's been an impressive first year for the Switch as the clever hybrid console's
 
 Full story on F3News: [Nintendo Switch review     - CNET](http://www.f3nws.com/n/TP3PdF)
 
-> Posted on: Tuesday, November 21, 2017 4:21:26 PM
+> Posted on: Tuesday, November 21, 2017 4:59:35 PM

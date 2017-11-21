@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CBS News fires Charlie Rose"
-date: 2017-11-21 17:36:50Z
+date: 2017-11-21 18:05:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CBS News said Tuesday that Charlie Rose's contract has been terminated.
 
 Full story on F3News: [CBS News fires Charlie Rose](http://www.f3nws.com/n/ccxAQF)
 
-> Posted on: Tuesday, November 21, 2017 5:36:50 PM
+> Posted on: Tuesday, November 21, 2017 6:05:42 PM
