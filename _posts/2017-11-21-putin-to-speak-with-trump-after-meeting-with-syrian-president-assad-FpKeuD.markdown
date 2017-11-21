@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin to speak with Trump after meeting with Syrian President Assad"
-date: 2017-11-21 07:33:35Z
+date: 2017-11-21 09:56:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin is expected to call US President Donald Trump o
 
 Full story on F3News: [Putin to speak with Trump after meeting with Syrian President Assad](http://www.f3nws.com/n/FpKeuD)
 
-> Posted on: Tuesday, November 21, 2017 7:33:35 AM
+> Posted on: Tuesday, November 21, 2017 9:56:17 AM

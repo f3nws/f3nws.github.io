@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Charlie Rose Accused of Crude Sexual Advances by Multiple Women - New York Times](https://static01.nyt.com/images/2017/11/21/us/21rose1/21rose1-facebookJumbo.jpg)
 
-New York Times Charlie Rose Accused of Crude Sexual Advances by Multiple Women New York Times After allegations surfaced Monday that the longtime television host Charlie Rose made crude sexual advances toward multiple women who worked on his show over a dozen years, CBS suspended him from its morning program and PBS announced that it ... Charlie Rose, a TV icon, is accused of improper behavior by former interns Business Insider Charlie Rose Suspended After Eight Women Accuse Him of Sexual Harassment: 'I Deeply Apologize' PEOPLE.com TV host Charlie Rose suspended, apologizes, after sexual harassment accusations NBCNews.com Washington Post - New York Daily News - CBS News - BBC News all 259 news articles »
+New York Times Charlie Rose Accused of Crude Sexual Advances by Multiple Women New York Times After allegations surfaced Monday that the longtime television host Charlie Rose made crude sexual advances toward multiple women who worked on his show over a dozen years, CBS suspended him from its morning program and PBS announced that it ... Charlie Rose, Al Franken and Roy Moore: The harassment allegations continue Fox News Charlie Rose, a TV icon, is accused of improper behavior by former interns Business Insider Charlie Rose Suspended After Eight Women Accuse Him of Sexual Harassment: 'I Deeply Apologize' PEOPLE.com NBCNews.com - Washington Post - New York Daily News - CBS News all 260 news articles »
 
 
 Full story on F3News: [Charlie Rose Accused of Crude Sexual Advances by Multiple Women - New York Times](http://www.f3nws.com/n/N3BgvC)
