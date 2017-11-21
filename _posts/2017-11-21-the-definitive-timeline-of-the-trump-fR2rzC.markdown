@@ -7,7 +7,7 @@ categories: msnbc
 
 ![The Definitive Timeline of the Trump...](https://media1.s-nbcnews.com/j/MSNBC/Components/Video/201711/snaps-g-about-morning-joe-on-msnbc-hd-backup_n9_1.video_1067x600.jpg)
 
-Morning Joe takes a deep dive into the Russia timeline.
+Morning Joe takes a deep dive into the Trump-Russia timeline, starting in September 2015, with discussions about a Trump tower project in Moscow.
 
 
 Full story on F3News: [The Definitive Timeline of the Trump...](http://www.f3nws.com/n/fR2rzC)
