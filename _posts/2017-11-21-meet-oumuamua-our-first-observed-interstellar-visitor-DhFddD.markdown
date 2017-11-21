@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meet 'Oumuamua, our first observed interstellar visitor"
-date: 2017-11-21 13:01:08Z
+date: 2017-11-21 14:22:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On October 19, the Pan-STARRS 1 telescope in Hawaii spotted something strange zo
 
 Full story on F3News: [Meet 'Oumuamua, our first observed interstellar visitor](http://www.f3nws.com/n/DhFddD)
 
-> Posted on: Tuesday, November 21, 2017 1:01:08 PM
+> Posted on: Tuesday, November 21, 2017 2:22:43 PM

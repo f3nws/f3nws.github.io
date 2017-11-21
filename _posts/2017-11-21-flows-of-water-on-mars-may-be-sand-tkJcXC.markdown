@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flows of 'water' on Mars may be sand"
-date: 2017-11-21 10:56:30Z
+date: 2017-11-21 14:17:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Since the discovery of dark streaks on the slopes of Mars in 2011, astronomers h
 
 Full story on F3News: [Flows of 'water' on Mars may be sand](http://www.f3nws.com/n/tkJcXC)
 
-> Posted on: Tuesday, November 21, 2017 10:56:30 AM
+> Posted on: Tuesday, November 21, 2017 2:17:07 PM
