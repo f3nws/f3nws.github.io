@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US blocks UN Security Council statement condemning shelling of Russia’s embassy in Damascus"
-date: 2017-11-21 01:27:01Z
+date: 2017-11-21 01:27:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Read Full Article at RT.com
 
 Full story on F3News: [US blocks UN Security Council statement condemning shelling of Russia’s embassy in Damascus](http://www.f3nws.com/n/c4UCfG)
 
-> Posted on: Tuesday, November 21, 2017 1:27:01 AM
+> Posted on: Tuesday, November 21, 2017 1:27:00 AM

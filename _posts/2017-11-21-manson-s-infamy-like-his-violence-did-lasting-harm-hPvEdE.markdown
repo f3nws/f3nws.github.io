@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manson's infamy, like his violence, did lasting harm"
-date: 2017-11-21 00:39:21Z
+date: 2017-11-21 03:07:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The death of Charles Manson, the wild-eyed cult leader whose disciples staged a 
 
 Full story on F3News: [Manson's infamy, like his violence, did lasting harm](http://www.f3nws.com/n/hPvEdE)
 
-> Posted on: Tuesday, November 21, 2017 12:39:21 AM
+> Posted on: Tuesday, November 21, 2017 3:07:04 AM
