@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "David Cassidy, '70s teen heartthrob, dies at age 67"
-date: 2017-11-22 03:24:20Z
+date: 2017-11-22 10:10:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ David Cassidy, who came to fame as a '70s teen heartthrob and lead singer on "Th
 
 Full story on F3News: [David Cassidy, '70s teen heartthrob, dies at age 67](http://www.f3nws.com/n/4NEENC)
 
-> Posted on: Wednesday, November 22, 2017 3:24:20 AM
+> Posted on: Wednesday, November 22, 2017 10:10:53 AM
