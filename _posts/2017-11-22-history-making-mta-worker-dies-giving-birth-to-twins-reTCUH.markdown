@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "History-making MTA worker dies giving birth to twins"
-date: 2017-11-22 03:45:03Z
+date: 2017-11-22 04:16:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The MTA’s first-ever woman elevator and escalator mechanic died last week whil
 
 Full story on F3News: [History-making MTA worker dies giving birth to twins](http://www.f3nws.com/n/reTCUH)
 
-> Posted on: Wednesday, November 22, 2017 3:45:03 AM
+> Posted on: Wednesday, November 22, 2017 4:16:00 AM
