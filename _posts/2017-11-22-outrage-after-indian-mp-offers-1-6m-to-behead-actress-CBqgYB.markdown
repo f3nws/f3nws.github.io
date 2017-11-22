@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Outrage after Indian MP offers $1.6M to behead actress"
-date: 2017-11-22 00:01:51Z
+date: 2017-11-22 02:11:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Producers of a Bollywood movie have delayed its release amid fears for the safet
 
 Full story on F3News: [Outrage after Indian MP offers $1.6M to behead actress](http://www.f3nws.com/n/CBqgYB)
 
-> Posted on: Wednesday, November 22, 2017 12:01:51 AM
+> Posted on: Wednesday, November 22, 2017 2:11:48 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon is offering up to $100 off Sonos speakers right now"
-date: 2017-11-22 00:14:02Z
+date: 2017-11-22 01:47:55Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ One of our favorite deals is available ahead of Friday! Right now you can score 
 
 Full story on F3News: [Amazon is offering up to $100 off Sonos speakers right now](http://www.f3nws.com/n/pEsEmH)
 
-> Posted on: Wednesday, November 22, 2017 12:14:02 AM
+> Posted on: Wednesday, November 22, 2017 1:47:55 AM

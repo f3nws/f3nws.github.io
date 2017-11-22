@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "FTC may investigate TripAdvisor over deleted posts, but it isn't yet"
+date: 2017-11-22 02:26:00Z
+categories: engadget
+---
+
+![FTC may investigate TripAdvisor over deleted posts, but it isn't yet](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D3999%252C2667%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1067%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F45d6e5fceff8c6256a97c5bcdeaa6481%252F205825993%252Fthe-tripadvisor-inc-application-is-displyed-on-an-apple-inc-iphone-a-picture-id680361628%26client%3Da1acac3e1b3290917d92%26signature%3Dd52f7341518ec4b9a3b3af46b939d36ab692b952&client=cbc79c14efcebee57402&signature=793fc873a57ad43cf79a830d3fec8ad858cac1a2)
+
+Earlier this month, the Milwaukee Journal Sentinel reported that TripAdvisor had deleted multiple posts from users warning others about incidents of assault and rape that had taken place at a certain resorts in Mexico. Since then, the journal says that dozens of others have come forward with similar stories. Now, it reports that the Federal Trade Commission (FTC) is looking into the website's business practices. Last week, the FTC sent a letter to Senator Tammy Baldwin saying, "The Commission has a strong interest in protecting consumer confidence in the online marketplace, including the robust online market for hotel and travel. When consumers are unable to post honest reviews about a business, it can harm other consumers whose abilities to make well-informed purchase decisions are hindered and harm businesses that work hard to earn positive reviews." But although the Milwaukee Journal Sentinel says the FTC is now investigating TripAdvisor and its practices, the letter itself falls short of saying that. Instead, FTC Chairwoman Maureen Ohlhausen says, "I assure you that the Commission will consider the information you have provided carefully to determine whether enforcement or other action, such as additional business guidance, is appropriate." The letter was in response to one sent by Senator Baldwin to the Ohlhausen earlier this month. In it, the senator said that she was concerned that TripAdvisor "may be prioritizing profit over providing an open, honest forum for traveler reviews that its users expect." She also said that it was "imperative" that the sites like TripAdvisor not censor content just because it "it might reflect negatively on a particular business or venue." She urged the FTC to investigate TripAdvisor's practices and whether they violate federal consumer protection laws. TripAdvisor, which has since begun vaguely labeling venues where reported assaults have taken place, says it isn't aware of an FTC investigation. In a statement provided to Engadget, TripAdvisor said, "We are not aware of an inquiry by the Federal Trade Commission nor hav...
+
+
+Full story on F3News: [FTC may investigate TripAdvisor over deleted posts, but it isn't yet](http://www.f3nws.com/n/nPnJyC)
+
+> Posted on: Wednesday, November 22, 2017 2:26:00 AM
