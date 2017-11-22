@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best pre-Black Friday deals you can get right now     - CNET"
-date: 2017-11-22 01:51:02Z
+date: 2017-11-22 02:26:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Why wait? There are already some great deals out there -- without the need to wa
 
 Full story on F3News: [Best pre-Black Friday deals you can get right now     - CNET](http://www.f3nws.com/n/uDySb)
 
-> Posted on: Wednesday, November 22, 2017 1:51:02 AM
+> Posted on: Wednesday, November 22, 2017 2:26:16 AM

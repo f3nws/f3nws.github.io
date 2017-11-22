@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Confirmed: Pixel 2 getting second Google Lens in 'weeks'     - CNET"
-date: 2017-11-22 00:27:13Z
+date: 2017-11-22 02:05:29Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ It'll be even easier to open this cool camera feature.
 
 Full story on F3News: [Confirmed: Pixel 2 getting second Google Lens in 'weeks'     - CNET](http://www.f3nws.com/n/SgDkjE)
 
-> Posted on: Wednesday, November 22, 2017 12:27:13 AM
+> Posted on: Wednesday, November 22, 2017 2:05:29 AM
