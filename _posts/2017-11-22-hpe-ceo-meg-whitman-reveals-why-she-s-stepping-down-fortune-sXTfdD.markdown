@@ -7,7 +7,7 @@ categories: fortune
 
 ![HPE CEO Meg Whitman Reveals Why She's Stepping Down - Fortune](https://fortunedotcom.files.wordpress.com/2016/10/meg-whitman-ceo-hewlett-packard-las-vegas-presidential-debate-2016-gettyimages-615688290.jpg)
 
-Fortune HPE CEO Meg Whitman Reveals Why She's Stepping Down Fortune Whitman said Tuesday that she would step down from the business technology giant after a six-year stint, and described the reasons for her upcoming departure in a call with analysts. In Whitman's view, HPE is in much better shape than it was when she ... MEMO: Meg Whitman tells employees that news of her departure should have come 'as no surprise' Business Insider Meg Whitman to leave role as CEO of Hewlett Packard Enterprise, shares tumble 6% CNBC Meg Whitman Gets Credit for Her Work But Not Her Candor: Gadfly Washington Post CNET - New York Times - NBCNews.com - Ars Technica all 186 news articles »
+Fortune HPE CEO Meg Whitman Reveals Why She's Stepping Down Fortune Whitman said Tuesday that she would step down from the business technology giant after a six-year stint, and described the reasons for her upcoming departure in a call with analysts. In Whitman's view, HPE is in much better shape than it was when she ... MEMO: Meg Whitman tells employees that news of her departure should have come 'as no surprise' Business Insider Meg Whitman to leave role as CEO of Hewlett Packard Enterprise, shares tumble 6% CNBC Meg Whitman to Step Down as Hewlett-Packard Enterprise CEO New York Times Washington Post - NBCNews.com - CNET - Ars Technica all 190 news articles »
 
 
 Full story on F3News: [HPE CEO Meg Whitman Reveals Why She's Stepping Down - Fortune](http://www.f3nws.com/n/sXTfdD)
