@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber hid hack that exposed data of 57 million users, drivers     - CNET"
-date: 2017-11-22 00:14:08Z
+date: 2017-11-22 06:16:54Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ New Uber CEO Dara Khosrowshahi says the breach happened in October 2016.
 
 Full story on F3News: [Uber hid hack that exposed data of 57 million users, drivers     - CNET](http://www.f3nws.com/n/BPWdZB)
 
-> Posted on: Wednesday, November 22, 2017 12:14:08 AM
+> Posted on: Wednesday, November 22, 2017 6:16:54 AM

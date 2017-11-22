@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump FCC would close internet with new rule"
-date: 2017-11-22 04:28:14Z
+date: 2017-11-22 02:42:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Xeni Jardin, editor of Boing Boing, talks with Rachel Maddow about why net neutr
 
 Full story on F3News: [Trump FCC would close internet with new rule](http://www.f3nws.com/n/3XB3RJ)
 
-> Posted on: Wednesday, November 22, 2017 4:28:14 AM
+> Posted on: Wednesday, November 22, 2017 2:42:00 AM

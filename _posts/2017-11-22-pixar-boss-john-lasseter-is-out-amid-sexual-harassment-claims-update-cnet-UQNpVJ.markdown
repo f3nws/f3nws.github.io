@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pixar boss John Lasseter is out amid sexual harassment claims (update)     - CNET"
-date: 2017-11-22 02:56:47Z
+date: 2017-11-22 05:38:19Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Oscar-winning animator will take a six-month leave of absence, according to 
 
 Full story on F3News: [Pixar boss John Lasseter is out amid sexual harassment claims (update)     - CNET](http://www.f3nws.com/n/UQNpVJ)
 
-> Posted on: Wednesday, November 22, 2017 2:56:47 AM
+> Posted on: Wednesday, November 22, 2017 5:38:19 AM

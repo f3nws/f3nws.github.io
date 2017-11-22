@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Shots fired at defecting soldier crossed line that divides North and South Korea, US official says"
-date: 2017-11-22 05:45:54Z
+date: 2017-11-22 07:19:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea stands accused of violating the armistice agreement between North an
 
 Full story on F3News: [Shots fired at defecting soldier crossed line that divides North and South Korea, US official says](http://www.f3nws.com/n/qJTvzF)
 
-> Posted on: Wednesday, November 22, 2017 5:45:54 AM
+> Posted on: Wednesday, November 22, 2017 7:19:10 AM
