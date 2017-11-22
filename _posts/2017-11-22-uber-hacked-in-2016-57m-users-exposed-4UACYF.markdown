@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uber hacked in 2016: 57M users exposed"
-date: 2017-11-22 14:51:54Z
+date: 2017-11-22 16:03:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Uber hacked in 2016: 57M users exposed](http://www.f3nws.com/n/4UACYF)
 
-> Posted on: Wednesday, November 22, 2017 2:51:54 PM
+> Posted on: Wednesday, November 22, 2017 4:03:33 PM
