@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside Trump's decision to embrace Moore"
-date: 2017-11-22 01:07:41Z
+date: 2017-11-22 12:05:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's decision to embrace Roy Moore on Tuesday was rooted in 
 
 Full story on F3News: [Inside Trump's decision to embrace Moore](http://www.f3nws.com/n/HXFHkB)
 
-> Posted on: Wednesday, November 22, 2017 1:07:41 AM
+> Posted on: Wednesday, November 22, 2017 12:05:13 PM
