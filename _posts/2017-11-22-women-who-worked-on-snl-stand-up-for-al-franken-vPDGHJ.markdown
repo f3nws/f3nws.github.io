@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Women who worked on SNL stand up for Al Franken"
-date: 2017-11-22 01:04:34Z
+date: 2017-11-22 13:17:50Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Women who worked on SNL stand up for Al Franken](http://www.f3nws.com/n/vPDGHJ)
 
-> Posted on: Wednesday, November 22, 2017 1:04:34 AM
+> Posted on: Wednesday, November 22, 2017 1:17:50 PM
