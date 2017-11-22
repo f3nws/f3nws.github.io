@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "David Cassidy, 'Partridge Family' star, dead at 67"
-date: 2017-11-22 02:30:00Z
+date: 2017-11-22 03:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ categories: fox-news
 
 Full story on F3News: [David Cassidy, 'Partridge Family' star, dead at 67](http://www.f3nws.com/n/et3QfF)
 
-> Posted on: Wednesday, November 22, 2017 2:30:00 AM
+> Posted on: Wednesday, November 22, 2017 3:15:00 AM
