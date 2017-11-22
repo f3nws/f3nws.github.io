@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Navy aircraft crashes in Philippine Sea"
-date: 2017-11-22 16:32:29Z
+date: 2017-11-22 22:27:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A US Navy aircraft carrying 11 crew and passengers crashed into the Pacific Ocea
 
 Full story on F3News: [US Navy aircraft crashes in Philippine Sea](http://www.f3nws.com/n/MzAugB)
 
-> Posted on: Wednesday, November 22, 2017 4:32:29 PM
+> Posted on: Wednesday, November 22, 2017 10:27:37 PM
