@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disable location access? Google collects data from Android users anyway – report"
-date: 2017-11-22 02:21:18Z
+date: 2017-11-22 02:21:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Android phone users may turn off their location services settings, take out thei
 
 Full story on F3News: [Disable location access? Google collects data from Android users anyway – report](http://www.f3nws.com/n/sMdKUJ)
 
-> Posted on: Wednesday, November 22, 2017 2:21:18 AM
+> Posted on: Wednesday, November 22, 2017 2:21:00 AM

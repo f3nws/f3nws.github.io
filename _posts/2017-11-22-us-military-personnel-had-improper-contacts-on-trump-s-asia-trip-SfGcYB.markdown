@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US military personnel had 'improper contacts' on Trump's Asia trip"
-date: 2017-11-22 11:31:52Z
+date: 2017-11-22 18:04:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Allegations that multiple US service members had "improper contact" with foreign
 
 Full story on F3News: [US military personnel had 'improper contacts' on Trump's Asia trip](http://www.f3nws.com/n/SfGcYB)
 
-> Posted on: Wednesday, November 22, 2017 11:31:52 AM
+> Posted on: Wednesday, November 22, 2017 6:04:55 PM
