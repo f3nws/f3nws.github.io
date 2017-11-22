@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Navy aircraft crash leaves 3 missing in Philippine Sea - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171107112515-uss-ronald-reagan-super-tease.jpg)
 
-CNN Navy aircraft crash leaves 3 missing in Philippine Sea CNN (CNN) A US Navy plane crashed into the ocean southeast of Okinawa Wednesday afternoon, leaving three people missing in the latest of a string of troubling incidents facing the Navy in waters off East Asia this year. The C2-A Greyhound transport plane ... US Navy plane carrying 11 crashes into Pacific Ocean off Japan, 8 rescued Washington Post Navy Aircraft With 11 Aboard Crashes Into Waters Off Japan New York Times 3 missing after Navy aircraft crashes en route to USS Ronald Reagan, 8 recovered Fox News NPR - NBCNews.com - U.S. News & World Report - The Hill all 220 news articles »
+CNN Navy aircraft crash leaves 3 missing in Philippine Sea CNN (CNN) A US Navy plane crashed into the ocean southeast of Okinawa Wednesday afternoon, leaving three people missing in the latest of a string of troubling incidents facing the Navy in waters off East Asia this year. The C2-A Greyhound transport plane ... Navy Aircraft With 11 Aboard Crashes Into Waters Off Japan New York Times 3 missing after Navy aircraft crashes en route to USS Ronald Reagan, 8 recovered Fox News Trump offers 'prayers' for victims of Navy plane crash The Hill Foreign Policy (blog) - U.S. News & World Report - NBCNews.com - New York Daily News all 226 news articles »
 
 
 Full story on F3News: [Navy aircraft crash leaves 3 missing in Philippine Sea - CNN](http://www.f3nws.com/n/MzAugB)
