@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 7 deals for Black Friday 2017"
-date: 2017-11-23 20:00:00Z
+date: 2017-11-23 22:00:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ See how to get your hands on Apple's iPhone 7 from only £22.99 a month.
 
 Full story on F3News: [The best iPhone 7 deals for Black Friday 2017](http://www.f3nws.com/n/uSCpWG)
 
-> Posted on: Thursday, November 23, 2017 8:00:00 PM
+> Posted on: Thursday, November 23, 2017 10:00:00 PM
