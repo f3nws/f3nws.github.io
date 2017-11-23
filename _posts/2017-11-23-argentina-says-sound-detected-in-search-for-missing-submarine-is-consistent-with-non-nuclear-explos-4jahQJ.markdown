@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Argentina says sound detected in search for missing submarine is consistent with non-nuclear explosion"
-date: 2017-11-23 15:30:00Z
+date: 2017-11-23 17:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A sound detected in the search for a missing submarine with 44 crew members aboa
 
 Full story on F3News: [Argentina says sound detected in search for missing submarine is consistent with non-nuclear explosion](http://www.f3nws.com/n/4jahQJ)
 
-> Posted on: Thursday, November 23, 2017 3:30:00 PM
+> Posted on: Thursday, November 23, 2017 5:15:00 PM
