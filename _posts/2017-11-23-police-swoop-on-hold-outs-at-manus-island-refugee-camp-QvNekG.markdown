@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police swoop on hold-outs at Manus Island refugee camp"
-date: 2017-11-23 07:42:15Z
+date: 2017-11-23 08:19:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A police operation is underway on Manus island in Papua New Guinea (PNG) at a re
 
 Full story on F3News: [Police swoop on hold-outs at Manus Island refugee camp](http://www.f3nws.com/n/QvNekG)
 
-> Posted on: Thursday, November 23, 2017 7:42:15 AM
+> Posted on: Thursday, November 23, 2017 8:19:54 AM
