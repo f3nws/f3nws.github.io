@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Mar-a-Lago Thanksgiving"
-date: 2017-11-23 10:28:16Z
+date: 2017-11-23 13:58:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump arrived in Florida Tuesday to celebrate his first Thanksg
 
 Full story on F3News: [Trump's Mar-a-Lago Thanksgiving](http://www.f3nws.com/n/JkRUfD)
 
-> Posted on: Thursday, November 23, 2017 10:28:16 AM
+> Posted on: Thursday, November 23, 2017 1:58:18 PM
