@@ -1,15 +1,15 @@
 ---
 layout: post
-title:  "You don't need to wait till Black Friday for these PlayStation deals     - CNET"
-date: 2017-11-23 02:32:01Z
+title:  "You don't need to wait till Black Friday for these PlayStation deals - CNET"
+date: 2017-11-23 00:49:17Z
 categories: cnet
 ---
 
-![You don't need to wait till Black Friday for these PlayStation deals     - CNET](https://cnet2.cbsistatic.com/img/_tpWYLLZ8dK9wpUKAuJpBjzNsws=/670x503/2016/09/21/4fe1145e-4b26-41ba-80b0-9314c1b54cb2/sony-playstation-4-08.jpg)
+![You don't need to wait till Black Friday for these PlayStation deals - CNET](https://cnet2.cbsistatic.com/img/_tpWYLLZ8dK9wpUKAuJpBjzNsws=/670x503/2016/09/21/4fe1145e-4b26-41ba-80b0-9314c1b54cb2/sony-playstation-4-08.jpg)
 
-PS4, PlayStation VR and games: Sony pushed practically all its best deals live early.
+CNET You don't need to wait till Black Friday for these PlayStation deals CNET Perhaps you've seen our huge master list of all the best video game deals you can expect on Black Friday. Here's the thing: You probably shouldn't wait until then. Sony has already let loose some serious deals on its PlayStation 4 game console, the ... There's no good reason for the new PlayStation VR headset to exist Ars Technica The best Black Friday PS4 deals 2017 Polygon Sony gave its cable mess a buzz cut for the cleaned up new PlayStation VR Digital Trends PlayStation LifeStyle - Android Headlines - Android Central - BGR all 179 news articles »
 
 
-Full story on F3News: [You don't need to wait till Black Friday for these PlayStation deals     - CNET](http://www.f3nws.com/n/CrAyRG)
+Full story on F3News: [You don't need to wait till Black Friday for these PlayStation deals - CNET](http://www.f3nws.com/n/CrAyRG)
 
-> Posted on: Thursday, November 23, 2017 2:32:01 AM
+> Posted on: Thursday, November 23, 2017 12:49:17 AM
