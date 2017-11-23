@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soviet motorcycles tear up Asia"
-date: 2017-11-23 03:29:21Z
+date: 2017-11-23 19:30:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hanoi might be famous for its scooters, but the city's youth is shifting gears.
 
 Full story on F3News: [Soviet motorcycles tear up Asia](http://www.f3nws.com/n/PP2ZeB)
 
-> Posted on: Thursday, November 23, 2017 3:29:21 AM
+> Posted on: Thursday, November 23, 2017 7:30:58 PM

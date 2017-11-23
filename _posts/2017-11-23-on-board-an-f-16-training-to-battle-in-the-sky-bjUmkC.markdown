@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On board an F-16 training to battle in the sky"
-date: 2017-11-23 01:48:40Z
+date: 2017-11-23 16:27:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US fighter jet pilots train every day over South Korea for a potential conflict 
 
 Full story on F3News: [On board an F-16 training to battle in the sky](http://www.f3nws.com/n/bjUmkC)
 
-> Posted on: Thursday, November 23, 2017 1:48:40 AM
+> Posted on: Thursday, November 23, 2017 4:27:48 PM
