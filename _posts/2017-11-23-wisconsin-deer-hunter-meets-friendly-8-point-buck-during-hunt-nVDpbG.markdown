@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wisconsin deer hunter meets friendly 8-point buck during hunt"
-date: 2017-11-23 10:45:06Z
+date: 2017-11-23 11:45:48Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A deer hunter in Wisconsin took a cell phone video of an unusual encounter with 
 
 Full story on F3News: [Wisconsin deer hunter meets friendly 8-point buck during hunt](http://www.f3nws.com/n/nVDpbG)
 
-> Posted on: Thursday, November 23, 2017 10:45:06 AM
+> Posted on: Thursday, November 23, 2017 11:45:48 AM
