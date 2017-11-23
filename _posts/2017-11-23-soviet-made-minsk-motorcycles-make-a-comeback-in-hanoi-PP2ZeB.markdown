@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Soviet-made Minsk motorcycles make a comeback in Hanoi"
-date: 2017-11-23 00:38:03Z
+date: 2017-11-23 03:29:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hanoi might be famous for its scooters, but the city's youth is shifting gears.
 
 Full story on F3News: [Soviet-made Minsk motorcycles make a comeback in Hanoi](http://www.f3nws.com/n/PP2ZeB)
 
-> Posted on: Thursday, November 23, 2017 12:38:03 AM
+> Posted on: Thursday, November 23, 2017 3:29:21 AM

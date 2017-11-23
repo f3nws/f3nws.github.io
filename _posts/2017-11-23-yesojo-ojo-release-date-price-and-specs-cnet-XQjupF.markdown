@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yesojo Ojo Release Date, Price and Specs     - CNET"
-date: 2017-11-23 01:25:33Z
+date: 2017-11-23 03:22:09Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ This entry-level projector aims to turn any wall into a big-screen TV for the Ni
 
 Full story on F3News: [Yesojo Ojo Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/XQjupF)
 
-> Posted on: Thursday, November 23, 2017 1:25:33 AM
+> Posted on: Thursday, November 23, 2017 3:22:09 AM

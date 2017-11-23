@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France calls for UN Security Council meeting on Libya slave auctions"
-date: 2017-11-23 01:36:39Z
+date: 2017-11-23 03:21:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ French President Emmanuel Macron called the sale of migrants at slave auctions i
 
 Full story on F3News: [France calls for UN Security Council meeting on Libya slave auctions](http://www.f3nws.com/n/qtZGqD)
 
-> Posted on: Thursday, November 23, 2017 1:36:39 AM
+> Posted on: Thursday, November 23, 2017 3:21:11 AM

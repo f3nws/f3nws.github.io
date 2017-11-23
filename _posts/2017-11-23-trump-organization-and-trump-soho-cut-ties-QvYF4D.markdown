@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Organization and Trump SoHo cut ties"
-date: 2017-11-23 01:15:46Z
+date: 2017-11-23 03:21:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump Organization and Trump SoHo cut ties](http://www.f3nws.com/n/QvYF4D)
 
-> Posted on: Thursday, November 23, 2017 1:15:46 AM
+> Posted on: Thursday, November 23, 2017 3:21:53 AM
