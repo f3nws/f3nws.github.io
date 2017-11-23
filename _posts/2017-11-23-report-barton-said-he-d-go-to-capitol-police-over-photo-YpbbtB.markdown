@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Barton said he'd go to Capitol Police over photo"
-date: 2017-11-23 03:34:00Z
+date: 2017-11-23 07:39:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DALLAS (AP) — U.S. Rep. Joe Barton told a woman that he would complain to U.S.
 
 Full story on F3News: [Report: Barton said he'd go to Capitol Police over photo](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, November 23, 2017 3:34:00 AM
+> Posted on: Thursday, November 23, 2017 7:39:00 AM
