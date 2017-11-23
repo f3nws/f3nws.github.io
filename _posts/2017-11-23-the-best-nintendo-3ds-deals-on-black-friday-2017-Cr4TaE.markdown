@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Nintendo 3DS deals on Black Friday 2017"
-date: 2017-11-23 19:36:00Z
+date: 2017-11-23 21:04:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Browse all the best Nintendo 3DS XL, 2DS and New 2DS XL deals in one place.
 
 Full story on F3News: [The best Nintendo 3DS deals on Black Friday 2017](http://www.f3nws.com/n/Cr4TaE)
 
-> Posted on: Thursday, November 23, 2017 7:36:00 PM
+> Posted on: Thursday, November 23, 2017 9:04:00 PM

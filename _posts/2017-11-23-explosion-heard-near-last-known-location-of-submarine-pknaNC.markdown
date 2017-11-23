@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Explosion' heard near last known location of submarine"
-date: 2017-11-23 18:04:17Z
+date: 2017-11-23 21:38:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An increasingly desperate search for a missing Argentine submarine continued Thu
 
 Full story on F3News: ['Explosion' heard near last known location of submarine](http://www.f3nws.com/n/pknaNC)
 
-> Posted on: Thursday, November 23, 2017 6:04:17 PM
+> Posted on: Thursday, November 23, 2017 9:38:19 PM

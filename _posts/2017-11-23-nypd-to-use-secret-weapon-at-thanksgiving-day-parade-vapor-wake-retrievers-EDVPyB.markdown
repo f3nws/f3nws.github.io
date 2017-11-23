@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYPD to use secret weapon at Thanksgiving Day Parade: 'Vapor Wake' retrievers"
-date: 2017-11-23 18:45:03Z
+date: 2017-11-23 20:46:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Less than a month after the terrorist attack by an Islamic State sympathizer in 
 
 Full story on F3News: [NYPD to use secret weapon at Thanksgiving Day Parade: 'Vapor Wake' retrievers](http://www.f3nws.com/n/EDVPyB)
 
-> Posted on: Thursday, November 23, 2017 6:45:03 PM
+> Posted on: Thursday, November 23, 2017 8:46:02 PM
