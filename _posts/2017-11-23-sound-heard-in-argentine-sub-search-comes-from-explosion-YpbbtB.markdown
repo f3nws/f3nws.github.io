@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sound heard in Argentine sub search comes from explosion"
-date: 2017-11-23 10:43:00Z
+date: 2017-11-23 12:09:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MAR DEL PLATA, Argentina (AP) — Argentina's navy announced Thursday that a sou
 
 Full story on F3News: [Sound heard in Argentine sub search comes from explosion](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, November 23, 2017 10:43:00 AM
+> Posted on: Thursday, November 23, 2017 12:09:00 PM
