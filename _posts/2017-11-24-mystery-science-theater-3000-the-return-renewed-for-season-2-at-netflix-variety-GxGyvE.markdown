@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Mystery Science Theater 3000: The Return' Renewed for Season 2 At Netflix - Variety](https://pmcvariety.files.wordpress.com/2017/11/mst3k_d7_02483-e1511377936577.jpg?w=700&h=393&crop=1)
 
-Variety 'Mystery Science Theater 3000: The Return' Renewed for Season 2 At Netflix Variety We've got movie sign! “Mystery Science Theater 3000: The Return” has officially been renewed for a new season at Netflix, Variety has learned. The announcement, which can be seen above, came at the conclusion of the annual Thanksgiving marathon of ... Is 'Arrow' Headed to The "Star City 2046" Timeline? Comicbook.com 'Mystery Science Theater 3000' Revival Renewed at Netflix Hollywood Reporter 'Mystery Science Theater 3000' will return to Netflix for season 12 Los Angeles Times UPROXX - CNET - Engadget - Paste Magazine all 15 news articles »
+Variety 'Mystery Science Theater 3000: The Return' Renewed for Season 2 At Netflix Variety We've got movie sign! “Mystery Science Theater 3000: The Return” has officially been renewed for a new season at Netflix, Variety has learned. The announcement, which can be seen above, came at the conclusion of the annual Thanksgiving marathon of ... Is 'Arrow' Headed to The "Star City 2046" Timeline? Comicbook.com 'Mystery Science Theater 3000' Revival Renewed at Netflix Hollywood Reporter MST3K Season 12 Confirmed by Netflix! Den of Geek US Los Angeles Times - UPROXX - CNET - Engadget all 18 news articles »
 
 
 Full story on F3News: ['Mystery Science Theater 3000: The Return' Renewed for Season 2 At Netflix - Variety](http://www.f3nws.com/n/GxGyvE)
