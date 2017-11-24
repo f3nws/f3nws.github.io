@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Black Friday 2017 deals in India"
-date: 2017-11-24 04:08:07Z
+date: 2017-11-24 04:55:07Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ This year, the Black Friday falls on November 24, and many retailers are already
 
 Full story on F3News: [The best Black Friday 2017 deals in India](http://www.f3nws.com/n/aGC3xC)
 
-> Posted on: Friday, November 24, 2017 4:08:07 AM
+> Posted on: Friday, November 24, 2017 4:55:07 AM
