@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Actor Billy Baldwin Accuses Donald Trump Of Hitting On His Wife - HuffPost](https://img.huffingtonpost.com/asset/5a1751601400006706b6994e.jpeg?cache=1bgz3xzlxf&ops=1910_1000)
 
-HuffPost Actor Billy Baldwin Accuses Donald Trump Of Hitting On His Wife HuffPost He called the president a “5th degree black belt when it comes to sexual impropriety allegations.” By Mary Papenfuss. Kevin Lamarque/Reuters. Actor Billy Baldwin accused President Donald Trump, above, of hitting on his wife. Actor Billy Baldwin claims President Trump hit on his wife during upscale Manhattan hotel party New York Daily News Billy Baldwin accuses Donald Trump of hitting on wife Chynna Phillips MassLive.com Actor Billy Baldwin accuses Donald Trump of sexual misconduct with his wife Deccan Chronicle Times of India - India Today - News18 - Financial Express all 20 news articles »
+HuffPost Actor Billy Baldwin Accuses Donald Trump Of Hitting On His Wife HuffPost He called the president a “5th degree black belt when it comes to sexual impropriety allegations.” By Mary Papenfuss. Kevin Lamarque/Reuters. Actor Billy Baldwin accused President Donald Trump, above, of hitting on his wife. Actor Billy Baldwin claims President Trump hit on his wife during upscale Manhattan hotel party New York Daily News Billy Baldwin accuses Donald Trump of hitting on wife Chynna Phillips MassLive.com Donald Trump hit on my wife, she showed him the door, says American actor Billy Baldwin India Today Hindustan Times - News18 - Financial Express - The Inquisitr all 22 news articles »
 
 
 Full story on F3News: [Actor Billy Baldwin Accuses Donald Trump Of Hitting On His Wife - HuffPost](http://www.f3nws.com/n/SNeGAG)

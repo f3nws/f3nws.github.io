@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe's new President to be sworn in"
-date: 2017-11-24 07:33:21Z
+date: 2017-11-24 08:44:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Zimbabwe will have a new leader for the first time in almost four decades when E
 
 Full story on F3News: [Zimbabwe's new President to be sworn in](http://www.f3nws.com/n/QNvBjD)
 
-> Posted on: Friday, November 24, 2017 7:33:21 AM
+> Posted on: Friday, November 24, 2017 8:44:42 AM
