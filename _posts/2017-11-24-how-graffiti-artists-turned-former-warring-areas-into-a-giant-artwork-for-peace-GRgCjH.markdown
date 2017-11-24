@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How graffiti artists turned former warring areas into a giant artwork for peace"
-date: 2017-11-24 02:47:23Z
+date: 2017-11-24 08:12:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lebanese graffiti artists Mohamed and Omar Kabbani were born during the dark yea
 
 Full story on F3News: [How graffiti artists turned former warring areas into a giant artwork for peace](http://www.f3nws.com/n/GRgCjH)
 
-> Posted on: Friday, November 24, 2017 2:47:23 AM
+> Posted on: Friday, November 24, 2017 8:12:26 AM
