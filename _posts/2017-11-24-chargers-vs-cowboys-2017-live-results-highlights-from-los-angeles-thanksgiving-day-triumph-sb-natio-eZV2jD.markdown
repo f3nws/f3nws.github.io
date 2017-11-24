@@ -5,6 +5,8 @@ date: 2017-11-24 00:22:00Z
 categories: google-news-top-stories
 ---
 
+![Chargers vs. Cowboys 2017 live results: Highlights from Los Angeles' Thanksgiving Day triumph - SB Nation](https://cdn.vox-cdn.com/thumbor/RRYkSqEzb9MjQrmayw7qrCgVhqA=/0x142:5029x2775/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9721685/usa_today_10427093.jpg)
+
 SB Nation Chargers vs. Cowboys 2017 live results: Highlights from Los Angeles' Thanksgiving Day triumph SB Nation Hopefully your Thanksgiving was better than the one the Cowboys had in their 28-6 loss to the Chargers. Whatever slim playoff hopes they were clinging to are gone, swallowed up by the Chargers offensive attack. As for the Chargers, they're playoff ... NFL Thanksgiving: Chargers look like a playoff team while Cowboys' season is slipping away Washington Post Chargers dominate Cowboys 28-6 NBCSports.com Chargers vs. Cowboys: Score, results, highlights from Thanksgiving game in Dallas Sporting News Los Angeles Times - Bleacher Report (blog) - Dallas News (blog) - Chargers.com (press release) (blog) all 536 news articles »
 
 
