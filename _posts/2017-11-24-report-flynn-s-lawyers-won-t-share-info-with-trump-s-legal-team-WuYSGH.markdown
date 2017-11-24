@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Flynn's lawyers won't share info with Trump's legal team"
-date: 2017-11-24 01:08:29Z
+date: 2017-11-24 17:14:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Michael Flynn's lawyers recently informed President Donald Trump's legal team th
 
 Full story on F3News: [Report: Flynn's lawyers won't share info with Trump's legal team](http://www.f3nws.com/n/WuYSGH)
 
-> Posted on: Friday, November 24, 2017 1:08:29 AM
+> Posted on: Friday, November 24, 2017 5:14:50 PM
