@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Militants assault worshippers in Sinai, killing at least 200"
-date: 2017-11-24 10:26:00Z
+date: 2017-11-24 11:25:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ EL-ARISH, Egypt (AP) — Militants attacked a crowded mosque during Friday praye
 
 Full story on F3News: [Militants assault worshippers in Sinai, killing at least 200](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, November 24, 2017 10:26:00 AM
+> Posted on: Friday, November 24, 2017 11:25:00 AM

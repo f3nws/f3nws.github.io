@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Black Friday is here for battered retailers"
-date: 2017-11-24 05:02:42Z
+date: 2017-11-24 14:57:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNNMoney Black Friday is here: Crucial holiday season begins for battered retail
 
 Full story on F3News: [Black Friday is here for battered retailers](http://www.f3nws.com/n/sNaXFG)
 
-> Posted on: Friday, November 24, 2017 5:02:42 AM
+> Posted on: Friday, November 24, 2017 2:57:06 PM
