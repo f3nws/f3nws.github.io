@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SIM only deals: the best plans for Black Friday 2017"
-date: 2017-11-24 09:00:59Z
+date: 2017-11-24 15:00:59Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Forget signing a 24-month contract. Keep your existing phone and grab a SIM only
 
 Full story on F3News: [SIM only deals: the best plans for Black Friday 2017](http://www.f3nws.com/n/Wz3ZZH)
 
-> Posted on: Friday, November 24, 2017 9:00:59 AM
+> Posted on: Friday, November 24, 2017 3:00:59 PM

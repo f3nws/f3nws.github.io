@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zimbabwe's 'Crocodile' Emmerson Mnangagwa sworn in as leader"
-date: 2017-11-24 14:41:04Z
+date: 2017-11-24 15:26:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Emmerson Mnangagwa has vowed to be a president for all Zimbabweans at his inaugu
 
 Full story on F3News: [Zimbabwe's 'Crocodile' Emmerson Mnangagwa sworn in as leader](http://www.f3nws.com/n/QNvBjD)
 
-> Posted on: Friday, November 24, 2017 2:41:04 PM
+> Posted on: Friday, November 24, 2017 3:26:02 PM
