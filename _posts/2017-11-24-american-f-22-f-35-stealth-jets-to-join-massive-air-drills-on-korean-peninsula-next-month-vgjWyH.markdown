@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American F-22 & F-35 stealth jets to join massive air drills on Korean peninsula next month"
-date: 2017-11-24 01:02:30Z
+date: 2017-11-24 01:02:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Six F-22 Raptor and four F-35A Lightning American stealth jets will reportedly j
 
 Full story on F3News: [American F-22 & F-35 stealth jets to join massive air drills on Korean peninsula next month](http://www.f3nws.com/n/vgjWyH)
 
-> Posted on: Friday, November 24, 2017 1:02:30 AM
+> Posted on: Friday, November 24, 2017 1:02:00 AM
