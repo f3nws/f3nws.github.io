@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mississippi State QB Nick Fitzgerald leaves rivalry game with gruesome injury"
-date: 2017-11-24 10:45:06Z
+date: 2017-11-24 11:45:06Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Mississippi State quarterback Nick Fitzgerald suffered a severe injury to his ri
 
 Full story on F3News: [Mississippi State QB Nick Fitzgerald leaves rivalry game with gruesome injury](http://www.f3nws.com/n/h4Hm2H)
 
-> Posted on: Friday, November 24, 2017 10:45:06 AM
+> Posted on: Friday, November 24, 2017 11:45:06 AM

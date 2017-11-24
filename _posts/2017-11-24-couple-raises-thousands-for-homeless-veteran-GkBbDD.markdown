@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Couple raises thousands for homeless veteran"
-date: 2017-11-24 05:35:28Z
+date: 2017-11-24 11:18:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Kate McClure first met Johnny Bobbit Jr., he was homeless. He spent this Th
 
 Full story on F3News: [Couple raises thousands for homeless veteran](http://www.f3nws.com/n/GkBbDD)
 
-> Posted on: Friday, November 24, 2017 5:35:28 AM
+> Posted on: Friday, November 24, 2017 11:18:17 AM
