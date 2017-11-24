@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best John Lewis Black Friday deals 2017"
-date: 2017-11-24 00:01:52Z
+date: 2017-11-24 03:18:52Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've got all you need to know about the best bargains on offer from John Lewis 
 
 Full story on F3News: [The best John Lewis Black Friday deals 2017](http://www.f3nws.com/n/nSxAe)
 
-> Posted on: Friday, November 24, 2017 12:01:52 AM
+> Posted on: Friday, November 24, 2017 3:18:52 AM

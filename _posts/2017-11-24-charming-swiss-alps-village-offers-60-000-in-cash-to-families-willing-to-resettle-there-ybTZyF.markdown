@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Charming Swiss Alps village offers €60,000 in cash to families willing to resettle there"
-date: 2017-11-24 00:08:07Z
+date: 2017-11-24 00:08:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A tiny village in the Swiss Alps has proposed an innovative financial scheme to 
 
 Full story on F3News: [Charming Swiss Alps village offers €60,000 in cash to families willing to resettle there](http://www.f3nws.com/n/ybTZyF)
 
-> Posted on: Friday, November 24, 2017 12:08:07 AM
+> Posted on: Friday, November 24, 2017 12:08:00 AM

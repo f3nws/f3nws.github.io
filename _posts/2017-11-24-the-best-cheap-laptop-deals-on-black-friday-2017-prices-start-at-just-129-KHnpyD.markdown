@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best cheap laptop deals on Black Friday 2017: prices start at just £129"
-date: 2017-11-24 01:14:57Z
+date: 2017-11-24 03:14:57Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ All the best deals on cheap laptops, ultrabooks and two-in-one laptop/tablet hyb
 
 Full story on F3News: [The best cheap laptop deals on Black Friday 2017: prices start at just £129](http://www.f3nws.com/n/KHnpyD)
 
-> Posted on: Friday, November 24, 2017 1:14:57 AM
+> Posted on: Friday, November 24, 2017 3:14:57 AM
