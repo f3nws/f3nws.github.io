@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Navy ends its search for 3 missing sailors in the Philippine Sea - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171107112515-uss-ronald-reagan-super-tease.jpg)
 
-CNN Navy ends its search for 3 missing sailors in the Philippine Sea CNN (CNN) The US Navy stopped the search and rescue mission to find three sailors who went missing after their plane crashed into the Philippine Sea on Wednesday, a statement said. "Our thoughts and prayers are with our lost shipmates and their families," ... US Navy calls off search for three missing sailors after plane crash in Pacific Ocean Washington Post US Navy pilot pulled off heroic landing that saved 8 after engine failure en route to aircraft carrier Business Insider Navy suspends search for 3 sailors missing after plane crash Fox News Los Angeles Times - NPR - TIME - The Hill all 170 news articles »
+CNN Navy ends its search for 3 missing sailors in the Philippine Sea CNN (CNN) The US Navy stopped the search and rescue mission to find three sailors who went missing after their plane crashed into the Philippine Sea on Wednesday, a statement said. "Our thoughts and prayers are with our lost shipmates and their families," ... Navy suspends search for 3 sailors missing after plane crash Fox News Navy ends search for three sailors lost in C-2A crash UPI.com all 176 news articles »
 
 
 Full story on F3News: [Navy ends its search for 3 missing sailors in the Philippine Sea - CNN](http://www.f3nws.com/n/KksWeD)
