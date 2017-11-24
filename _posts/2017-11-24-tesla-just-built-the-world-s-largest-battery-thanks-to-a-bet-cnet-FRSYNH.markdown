@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla just built the world's largest battery, thanks to a bet     - CNET"
-date: 2017-11-24 00:01:08Z
+date: 2017-11-24 05:28:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The lithium-ion battery in South Australia will be energised within days, all th
 
 Full story on F3News: [Tesla just built the world's largest battery, thanks to a bet     - CNET](http://www.f3nws.com/n/FRSYNH)
 
-> Posted on: Friday, November 24, 2017 12:01:08 AM
+> Posted on: Friday, November 24, 2017 5:28:27 AM

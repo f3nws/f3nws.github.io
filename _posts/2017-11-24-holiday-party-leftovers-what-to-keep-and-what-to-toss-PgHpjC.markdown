@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Holiday party leftovers: What to keep and what to toss"
-date: 2017-11-24 00:45:37Z
+date: 2017-11-24 06:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Q&A with Dr. Manny: I just had a big holiday party, are there any leftovers I sh
 
 Full story on F3News: [Holiday party leftovers: What to keep and what to toss](http://www.f3nws.com/n/PgHpjC)
 
-> Posted on: Friday, November 24, 2017 12:45:37 AM
+> Posted on: Friday, November 24, 2017 6:45:02 AM
