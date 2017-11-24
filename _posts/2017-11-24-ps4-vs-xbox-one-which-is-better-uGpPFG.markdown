@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PS4 vs Xbox One: which is better?"
-date: 2017-11-24 08:33:13Z
+date: 2017-11-24 21:50:13Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Still deciding on Xbox One vs PS4? Let us guide you between these two great cons
 
 Full story on F3News: [PS4 vs Xbox One: which is better?](http://www.f3nws.com/n/uGpPFG)
 
-> Posted on: Friday, November 24, 2017 8:33:13 AM
+> Posted on: Friday, November 24, 2017 9:50:13 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to play golf with Tiger Woods and Dustin Johnson"
-date: 2017-11-24 21:22:12Z
+date: 2017-11-24 21:46:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Donald Trump's list of illustrious golf partners just keeps getting bigger.
 
 Full story on F3News: [Trump to play golf with Tiger Woods and Dustin Johnson](http://www.f3nws.com/n/WncTRC)
 
-> Posted on: Friday, November 24, 2017 9:22:12 PM
+> Posted on: Friday, November 24, 2017 9:46:53 PM

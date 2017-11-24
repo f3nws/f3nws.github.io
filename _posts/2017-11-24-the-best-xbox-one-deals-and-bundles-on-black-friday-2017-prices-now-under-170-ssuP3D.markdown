@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Xbox One deals and bundles on Black Friday 2017: prices now under £170"
-date: 2017-11-24 20:48:00Z
+date: 2017-11-24 21:11:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We have all the best Xbox One deals, including the best value bundles and games.
 
 Full story on F3News: [The best Xbox One deals and bundles on Black Friday 2017: prices now under £170](http://www.f3nws.com/n/ssuP3D)
 
-> Posted on: Friday, November 24, 2017 8:48:00 PM
+> Posted on: Friday, November 24, 2017 9:11:00 PM
