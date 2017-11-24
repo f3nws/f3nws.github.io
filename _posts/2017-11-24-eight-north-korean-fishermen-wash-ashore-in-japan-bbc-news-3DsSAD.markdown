@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eight 'North Korean fishermen' wash ashore in Japan - BBC News](https://ichef.bbci.co.uk/news/1024/cpsprodpb/66A6/production/_98887262_4a40a3a5-42f9-4a50-85c9-f16a8f553975.jpg)
 
-BBC News Eight 'North Korean fishermen' wash ashore in Japan BBC News A boat carrying eight men claiming to be North Korean fishermen has washed ashore the coast in Japan. Japanese police said the men were found at Yurihonjo city's marina late on Thursday, and taken into custody. The men had told authorities that their ... Eight Men Found in Japan Claim to Be North Korean Fishermen Bloomberg Eight men, claiming to be North Korean, have washed up in Japan RTE.ie Boat washes ashore in Akita with eight aboard claiming to be North Korean fishermen The Japan Times all 12 news articles »
+BBC News Eight 'North Korean fishermen' wash ashore in Japan BBC News A boat carrying eight men claiming to be North Korean fishermen has washed ashore the coast in Japan. Japanese police said the men were found at Yurihonjo city's marina late on Thursday, and taken into custody. The men had told authorities that their ... Eight men arrived on Japan's shores claiming they're North Korean fishermen whose boat went adrift Business Insider Eight Men Found in Japan Claim to Be North Korean Fishermen Bloomberg Eight men found on Japan's coast claim they are North Korean fishermen who washed ashore after their boat broke down Daily Mail Jakarta Post - The Japan Times all 16 news articles »
 
 
 Full story on F3News: [Eight 'North Korean fishermen' wash ashore in Japan - BBC News](http://www.f3nws.com/n/3DsSAD)
