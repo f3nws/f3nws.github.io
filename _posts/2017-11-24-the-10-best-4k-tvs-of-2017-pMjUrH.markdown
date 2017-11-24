@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 10 best 4K TVs of 2017"
-date: 2017-11-24 04:25:00Z
+date: 2017-11-24 20:00:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Need an awesome 4K TV? We've tested dozens of the best and can now safely crown 
 
 Full story on F3News: [The 10 best 4K TVs of 2017](http://www.f3nws.com/n/pMjUrH)
 
-> Posted on: Friday, November 24, 2017 4:25:00 AM
+> Posted on: Friday, November 24, 2017 8:00:00 PM
