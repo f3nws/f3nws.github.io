@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manuka honey is an antibiotic powerhouse"
-date: 2017-11-25 02:21:15Z
+date: 2017-11-25 04:09:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Manuka honey is often touted as a "superfood" that treats many ailments, includi
 
 Full story on F3News: [Manuka honey is an antibiotic powerhouse](http://www.f3nws.com/n/tfFWg)
 
-> Posted on: Saturday, November 25, 2017 2:21:15 AM
+> Posted on: Saturday, November 25, 2017 4:09:16 AM
