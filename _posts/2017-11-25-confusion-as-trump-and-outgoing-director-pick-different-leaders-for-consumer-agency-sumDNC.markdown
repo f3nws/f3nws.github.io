@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Confusion as Trump and outgoing director pick different leaders for consumer agency"
-date: 2017-11-25 14:30:27Z
+date: 2017-11-25 16:28:05Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump named an interim head of the Consumer Financial Protectio
 
 Full story on F3News: [Confusion as Trump and outgoing director pick different leaders for consumer agency](http://www.f3nws.com/n/sumDNC)
 
-> Posted on: Saturday, November 25, 2017 2:30:27 PM
+> Posted on: Saturday, November 25, 2017 4:28:05 PM

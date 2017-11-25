@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Samsung Galaxy Note 8 deals for Black Friday 2017"
-date: 2017-11-25 12:10:38Z
+date: 2017-11-25 15:10:38Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ It'll cost a pretty penny, but you've come to the right place to find the best d
 
 Full story on F3News: [The best Samsung Galaxy Note 8 deals for Black Friday 2017](http://www.f3nws.com/n/vJQ4mG)
 
-> Posted on: Saturday, November 25, 2017 12:10:38 PM
+> Posted on: Saturday, November 25, 2017 3:10:38 PM
