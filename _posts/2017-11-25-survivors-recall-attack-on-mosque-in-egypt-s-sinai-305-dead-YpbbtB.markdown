@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Survivors recall attack on mosque in Egypt's Sinai, 305 dead"
-date: 2017-11-25 11:36:00Z
+date: 2017-11-25 13:11:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ISMAILIA, Egypt (AP) — They arrived in five SUVs, took positions across from t
 
 Full story on F3News: [Survivors recall attack on mosque in Egypt's Sinai, 305 dead](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, November 25, 2017 11:36:00 AM
+> Posted on: Saturday, November 25, 2017 1:11:00 PM
