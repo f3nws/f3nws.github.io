@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tweets he 'took a pass' at being named TIME's person of the year"
-date: 2017-11-25 02:59:47Z
+date: 2017-11-25 10:43:41Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump tweeted Friday that he turned down a potential offer to b
 
 Full story on F3News: [Trump tweets he 'took a pass' at being named TIME's person of the year](http://www.f3nws.com/n/cDGqCJ)
 
-> Posted on: Saturday, November 25, 2017 2:59:47 AM
+> Posted on: Saturday, November 25, 2017 10:43:41 AM
