@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump fails to keep proper distance from DoJ"
-date: 2017-11-25 04:20:19Z
+date: 2017-11-25 02:25:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Former Attorney General Eric Holder talks with Rachel Maddow about the necessity
 
 Full story on F3News: [Trump fails to keep proper distance from DoJ](http://www.f3nws.com/n/y2RyEC)
 
-> Posted on: Saturday, November 25, 2017 4:20:19 AM
+> Posted on: Saturday, November 25, 2017 2:25:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Women lead political backlash against Trump"
-date: 2017-11-25 03:44:46Z
+date: 2017-11-25 02:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at how the election of Donald Trump motivated women to actio
 
 Full story on F3News: [Women lead political backlash against Trump](http://www.f3nws.com/n/FqzRsE)
 
-> Posted on: Saturday, November 25, 2017 3:44:46 AM
+> Posted on: Saturday, November 25, 2017 2:00:00 AM
