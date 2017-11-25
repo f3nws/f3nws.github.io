@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt raises death toll in Sinai mosque attack to 305"
-date: 2017-11-25 06:31:00Z
+date: 2017-11-25 07:28:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ISMAILIA, Egypt (AP) — Egypt on Saturday said an attack on a mosque by militan
 
 Full story on F3News: [Egypt raises death toll in Sinai mosque attack to 305](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, November 25, 2017 6:31:00 AM
+> Posted on: Saturday, November 25, 2017 7:28:00 AM

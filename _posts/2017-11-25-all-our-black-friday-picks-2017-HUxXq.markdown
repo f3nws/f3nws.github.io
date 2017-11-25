@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All Our Black Friday Picks 2017"
-date: 2017-11-25 01:03:22Z
+date: 2017-11-25 12:30:22Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ We know not everyone can browse tons of deal feeds to find the best deal, so we'
 
 Full story on F3News: [All Our Black Friday Picks 2017](http://www.f3nws.com/n/HUxXq)
 
-> Posted on: Saturday, November 25, 2017 1:03:22 AM
+> Posted on: Saturday, November 25, 2017 12:30:22 PM
