@@ -7,7 +7,7 @@ categories: bgr
 
 ![These are the best Black Friday MacBook Pro deals we've seen yet - BGR](https://boygeniusreport.files.wordpress.com/2016/12/macbook-pro.jpg?quality=98&strip=all)
 
-BGR These are the best Black Friday MacBook Pro deals we've seen yet BGR Black Friday is upon us and millions of Americans have, as tradition dictates, already spent hours upon hours hopping from store to store in search of incredible deals. While Black Friday offers up deals on all sorts of products, the day is especially ... and more »
+BGR These are the best Black Friday MacBook Pro deals we've seen yet BGR Black Friday is upon us and millions of Americans have, as tradition dictates, already spent hours upon hours hopping from store to store in search of incredible deals. While Black Friday offers up deals on all sorts of products, the day is especially ... Best MacBook Deals for Cyber Monday 2017 Gazette Review all 19 news articles »
 
 
 Full story on F3News: [These are the best Black Friday MacBook Pro deals we've seen yet - BGR](http://www.f3nws.com/n/MAhYNB)

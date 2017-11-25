@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Cyber Monday 2017 deals: here's what's on sale early for Cyber Monday"
-date: 2017-11-25 06:54:30Z
+date: 2017-11-25 08:00:30Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The first Cyber Monday deals are already here at US stores like Walmart, Amazon 
 
 Full story on F3News: [The best Cyber Monday 2017 deals: here's what's on sale early for Cyber Monday](http://www.f3nws.com/n/JvRpzG)
 
-> Posted on: Saturday, November 25, 2017 6:54:30 AM
+> Posted on: Saturday, November 25, 2017 8:00:30 AM
