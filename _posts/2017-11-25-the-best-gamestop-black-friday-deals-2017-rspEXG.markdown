@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best GameStop Black Friday deals 2017"
-date: 2017-11-25 08:25:56Z
+date: 2017-11-25 08:50:56Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ GameStop Black Friday deals on Xbox One X, PS4 and Nintendo Switch games aren't 
 
 Full story on F3News: [The best GameStop Black Friday deals 2017](http://www.f3nws.com/n/rspEXG)
 
-> Posted on: Saturday, November 25, 2017 8:25:56 AM
+> Posted on: Saturday, November 25, 2017 8:50:56 AM
