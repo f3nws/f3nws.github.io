@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US troops killed in plane crashes skyrockets in 2017"
-date: 2017-11-25 00:45:00Z
+date: 2017-11-25 01:56:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Even before the Navy cargo plane crash Wednesday, the number of US troops killed
 
 Full story on F3News: [US troops killed in plane crashes skyrockets in 2017](http://www.f3nws.com/n/vfN2hE)
 
-> Posted on: Saturday, November 25, 2017 12:45:00 AM
+> Posted on: Saturday, November 25, 2017 1:56:00 AM

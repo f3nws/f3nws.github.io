@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mediator tells how Mugabe was persuaded to step down"
-date: 2017-11-25 00:49:35Z
+date: 2017-11-25 02:18:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As a young priest, the Rev. Fidelis Mukonori collected evidence of atrocities du
 
 Full story on F3News: [Mediator tells how Mugabe was persuaded to step down](http://www.f3nws.com/n/kpHqHB)
 
-> Posted on: Saturday, November 25, 2017 12:49:35 AM
+> Posted on: Saturday, November 25, 2017 2:18:34 AM
