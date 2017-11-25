@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Jared Kushner's Vast Duties, and Visibility in White House, Shrink - New York Times](https://static01.nyt.com/images/2017/11/26/us/26dc-kushner1/26dc-kushner1-facebookJumbo.jpg)
 
-New York Times Jared Kushner's Vast Duties, and Visibility in White House, Shrink New York Times WASHINGTON — At a senior staff meeting early in President Trump's tenure, Reince Priebus, then the White House chief of staff, posed a simple question to Jared Kushner: What would his newly created Office of American Innovation do? Mr. Kushner ... The shrinking profile of Jared Kushner Washington Post John Kelly Reportedly Talked About Getting Jared and Ivanka Out of the White House Mediaite all 5 news articles »
+New York Times Jared Kushner's Vast Duties, and Visibility in White House, Shrink New York Times WASHINGTON — At a senior staff meeting early in President Trump's tenure, Reince Priebus, then the White House chief of staff, posed a simple question to Jared Kushner: What would his newly created Office of American Innovation do? Mr. Kushner ... The shrinking profile of Jared Kushner Washington Post Kushner dismisses possible White House departure: 'We're here to stay' The Hill The State Department Is Reportedly Snubbing Ivanka's India Trip Vanity Fair Mediaite all 7 news articles »
 
 
 Full story on F3News: [Jared Kushner's Vast Duties, and Visibility in White House, Shrink - New York Times](http://www.f3nws.com/n/NPtYGF)

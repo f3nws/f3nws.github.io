@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korea digs trench at defection site"
-date: 2017-11-25 01:33:10Z
+date: 2017-11-25 19:58:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea has replaced nearly all of the soldiers along the border where one o
 
 Full story on F3News: [N Korea digs trench at defection site](http://www.f3nws.com/n/tSKyJD)
 
-> Posted on: Saturday, November 25, 2017 1:33:10 AM
+> Posted on: Saturday, November 25, 2017 7:58:18 PM
