@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mutual enemy changes Israel-Saudi relations"
-date: 2017-11-26 12:52:44Z
+date: 2017-11-26 21:03:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The two former spymasters sat an arm's length apart. Both appeared calm and rela
 
 Full story on F3News: [Mutual enemy changes Israel-Saudi relations](http://www.f3nws.com/n/EQhChC)
 
-> Posted on: Sunday, November 26, 2017 12:52:44 PM
+> Posted on: Sunday, November 26, 2017 9:03:53 PM

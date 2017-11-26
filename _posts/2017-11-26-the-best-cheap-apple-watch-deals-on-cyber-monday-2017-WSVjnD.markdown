@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best cheap Apple Watch deals on Cyber Monday 2017"
-date: 2017-11-26 17:46:26Z
+date: 2017-11-26 20:35:26Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Finding a cheap Apple Watch 3 is next to impossible, but you'll find the Apple W
 
 Full story on F3News: [The best cheap Apple Watch deals on Cyber Monday 2017](http://www.f3nws.com/n/WSVjnD)
 
-> Posted on: Sunday, November 26, 2017 5:46:26 PM
+> Posted on: Sunday, November 26, 2017 8:35:26 PM
