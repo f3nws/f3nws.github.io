@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Court fight could be brewing over who leads consumer agency"
-date: 2017-11-26 14:58:00Z
+date: 2017-11-26 17:33:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ A court fight may be brewing over President Donald Trump's move to make a close 
 
 Full story on F3News: [Court fight could be brewing over who leads consumer agency](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, November 26, 2017 2:58:00 PM
+> Posted on: Sunday, November 26, 2017 5:33:00 PM

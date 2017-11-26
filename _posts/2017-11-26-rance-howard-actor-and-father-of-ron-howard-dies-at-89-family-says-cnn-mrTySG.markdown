@@ -7,7 +7,7 @@ categories: cnn-com-entertainment
 
 ![Rance Howard, actor and father of Ron Howard, dies at 89, family says - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171125175704-01-rance-howard-file-super-tease.jpg)
 
-CNN Rance Howard, actor and father of Ron Howard, dies at 89, family says CNN (CNN) Longtime film and television actor Rance Howard, father of director Ron Howard, has died, according to a Saturday tweet from Ron Howard's verified account. "Clint & I have been blessed to be Rance Howard's sons. Today he passed at 89. He stood ... Rance Howard, Actor and Father of Ron and Clint Howard, Dies at 89 Hollywood Reporter Rance Howard, character actor who appeared in movies by son Ron Howard, dies at 89 Washington Post Prolific and Oklahoma native Rance Howard dies NewsOK.com PEOPLE.com - ABC News - E! Online - USA TODAY all 79 news articles »
+CNN Rance Howard, actor and father of Ron Howard, dies at 89, family says CNN (CNN) Longtime film and television actor Rance Howard, father of director Ron Howard, has died, according to a Saturday tweet from Ron Howard's verified account. "Clint & I have been blessed to be Rance Howard's sons. Today he passed at 89. He stood ... Rance Howard, Actor and the Father of Ron Howard, Dies at 89 New York Times Rance Howard, Actor and Father of Ron and Clint Howard, Dies at 89 Hollywood Reporter Rance Howard, Actor and Father of Director Ron Howard, Dead at 89 PEOPLE.com NewsOK.com - Washington Post - ABC News - E! Online all 78 news articles »
 
 
 Full story on F3News: [Rance Howard, actor and father of Ron Howard, dies at 89, family says - CNN](http://www.f3nws.com/n/mrTySG)
