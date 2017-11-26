@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Actress Naya Rivera charged with domestic battery"
-date: 2017-11-26 09:56:41Z
+date: 2017-11-26 15:51:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former "Glee" star Naya Rivera was arrested Saturday night for allegedly assault
 
 Full story on F3News: [Actress Naya Rivera charged with domestic battery](http://www.f3nws.com/n/CSc2vG)
 
-> Posted on: Sunday, November 26, 2017 9:56:41 AM
+> Posted on: Sunday, November 26, 2017 3:51:18 PM
