@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Keneally has welcome mat for refugees: PM - SBS](http://www.sbs.com.au/news/sites/sbs.com.au.news/files/kk.jpg)
 
-SBS Keneally has welcome mat for refugees: PM SBS Prime Minister Malcolm Turnbull has gone on the attack against Labor's candidate in the Bennelong by-election, Kristina Keneally. Source: AAP. 5 MINS AGO. Malcolm Turnbull has launched an attack against Labor's Bennelong candidate Kristina Keneally, ... and more »
+SBS Keneally has welcome mat for refugees: PM SBS Prime Minister Malcolm Turnbull has gone on the attack against Labor's candidate in the Bennelong by-election, Kristina Keneally. Source: AAP. 10 MINS AGO. Malcolm Turnbull has launched an attack against Labor's Bennelong candidate Kristina Keneally, ... and more »
 
 
 Full story on F3News: [Keneally has welcome mat for refugees: PM - SBS](http://www.f3nws.com/n/JADzAH)
