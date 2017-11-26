@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, Russia fight over extradition of alleged hacking mastermind"
-date: 2017-11-26 00:03:38Z
+date: 2017-11-26 15:21:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A young Russian alleged to have masterminded a massive hacking of social network
 
 Full story on F3News: [US, Russia fight over extradition of alleged hacking mastermind](http://www.f3nws.com/n/adbBXE)
 
-> Posted on: Sunday, November 26, 2017 12:03:38 AM
+> Posted on: Sunday, November 26, 2017 3:21:55 PM
