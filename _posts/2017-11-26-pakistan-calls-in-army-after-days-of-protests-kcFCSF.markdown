@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan calls in army after days of protests"
-date: 2017-11-26 11:38:40Z
+date: 2017-11-26 14:32:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pakistani forces moved against protesters blocking a key road in the capital Sun
 
 Full story on F3News: [Pakistan calls in army after days of protests](http://www.f3nws.com/n/kcFCSF)
 
-> Posted on: Sunday, November 26, 2017 11:38:40 AM
+> Posted on: Sunday, November 26, 2017 2:32:14 PM
