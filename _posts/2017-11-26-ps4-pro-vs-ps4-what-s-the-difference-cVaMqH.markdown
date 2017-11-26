@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PS4 Pro vs PS4: What's the difference?"
-date: 2017-11-26 12:06:00Z
+date: 2017-11-26 13:25:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The PS4 Pro is finally here, but how does it compare to Sony's existing console?
 
 Full story on F3News: [PS4 Pro vs PS4: What's the difference?](http://www.f3nws.com/n/cVaMqH)
 
-> Posted on: Sunday, November 26, 2017 12:06:00 PM
+> Posted on: Sunday, November 26, 2017 1:25:00 PM
