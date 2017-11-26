@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Who Will Be Running Consumer Agency on Monday? It's Unclear - New York Times](https://static01.nyt.com/images/2017/11/26/business/26CFPB/26-cfpb-facebookJumbo.jpg)
 
-New York Times Who Will Be Running Consumer Agency on Monday? It's Unclear New York Times Come Monday morning, who will be running the Consumer Financial Protection Bureau? Over the weekend, the answer wasn't clear. Trump administration officials on Saturday defended the president's legal authority to name his budget director, Mick ... White House consulted Justice Department before naming CFPB critic to lead agency, administration says Washington Post Barney Frank rips Mulvaney's appointment to CFPB CNN White House says Trump has right to name CFPB head, setting up clash Politico Business Insider - The Hill - Bloomberg - NPR all 261 news articles »
+New York Times Who Will Be Running Consumer Agency on Monday? It's Unclear New York Times Come Monday morning, who will be running the Consumer Financial Protection Bureau? Over the weekend, the answer wasn't clear. Trump administration officials on Saturday defended the president's legal authority to name his budget director, Mick ... White House consulted Justice Department before naming CFPB critic to lead agency, administration says Washington Post 1 Job, 2 People: Who'll Be in Charge at Consumer Agency? U.S. News & World Report Lawyers predict CFPB pick will be decided in court: report The Hill (blog) Business Insider - Bloomberg - ABC News - NPR all 253 news articles »
 
 
 Full story on F3News: [Who Will Be Running Consumer Agency on Monday? It's Unclear - New York Times](http://www.f3nws.com/n/mKZzbE)
