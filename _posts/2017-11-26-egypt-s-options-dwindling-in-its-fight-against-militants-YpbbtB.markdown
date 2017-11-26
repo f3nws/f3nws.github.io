@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Egypt's options dwindling in its fight against militants"
-date: 2017-11-26 03:20:00Z
+date: 2017-11-26 04:55:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CAIRO (AP) — The scale of the bloodshed was vastly higher than past militant a
 
 Full story on F3News: [Egypt's options dwindling in its fight against militants](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, November 26, 2017 3:20:00 AM
+> Posted on: Sunday, November 26, 2017 4:55:00 AM
