@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "French banks have ‘good reasons’ to close Le Pen party’s accounts, finance minister says"
-date: 2017-11-26 02:03:24Z
+date: 2017-11-26 02:03:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Two banks that have closed accounts belonging to the French National Front appar
 
 Full story on F3News: [French banks have ‘good reasons’ to close Le Pen party’s accounts, finance minister says](http://www.f3nws.com/n/vrVQWH)
 
-> Posted on: Sunday, November 26, 2017 2:03:24 AM
+> Posted on: Sunday, November 26, 2017 2:03:00 AM

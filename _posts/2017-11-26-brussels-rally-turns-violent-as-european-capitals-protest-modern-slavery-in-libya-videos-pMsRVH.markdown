@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brussels rally turns violent as European capitals protest ‘modern slavery’ in Libya (VIDEOS)"
-date: 2017-11-26 01:42:30Z
+date: 2017-11-26 01:42:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Dozens have been arrested in Brussels after one of several European rallies agai
 
 Full story on F3News: [Brussels rally turns violent as European capitals protest ‘modern slavery’ in Libya (VIDEOS)](http://www.f3nws.com/n/pMsRVH)
 
-> Posted on: Sunday, November 26, 2017 1:42:30 AM
+> Posted on: Sunday, November 26, 2017 1:42:00 AM

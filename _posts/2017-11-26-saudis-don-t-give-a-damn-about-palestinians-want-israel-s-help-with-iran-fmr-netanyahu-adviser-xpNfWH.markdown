@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudis ‘don’t give a damn’ about Palestinians, want Israel’s help with Iran – fmr Netanyahu adviser"
-date: 2017-11-26 03:50:50Z
+date: 2017-11-26 03:50:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Riyadh, and Crown Prince Mohammed bin Salman in particular, would approve any ki
 
 Full story on F3News: [Saudis ‘don’t give a damn’ about Palestinians, want Israel’s help with Iran – fmr Netanyahu adviser](http://www.f3nws.com/n/xpNfWH)
 
-> Posted on: Sunday, November 26, 2017 3:50:50 AM
+> Posted on: Sunday, November 26, 2017 3:50:00 AM
