@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China explosion: 2 killed in port city"
-date: 2017-11-26 06:31:41Z
+date: 2017-11-26 12:04:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An explosion at a factory killed at least two people and caused several building
 
 Full story on F3News: [China explosion: 2 killed in port city](http://www.f3nws.com/n/CJtMCJ)
 
-> Posted on: Sunday, November 26, 2017 6:31:41 AM
+> Posted on: Sunday, November 26, 2017 12:04:04 PM
