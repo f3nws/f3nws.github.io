@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Random Number Generation and Sampling Methods"
-date: 2017-11-26 05:59:00Z
+date: 2017-11-26 07:41:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ Discusses many ways applications can do random number generation and sampling fr
 
 Full story on F3News: [Random Number Generation and Sampling Methods](http://www.f3nws.com/n/pxpbDB)
 
-> Posted on: Sunday, November 26, 2017 5:59:00 AM
+> Posted on: Sunday, November 26, 2017 7:41:00 AM
