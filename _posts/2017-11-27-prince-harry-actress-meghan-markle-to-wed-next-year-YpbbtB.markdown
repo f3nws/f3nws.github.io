@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Harry, actress Meghan Markle to wed next year"
-date: 2017-11-27 09:30:00Z
+date: 2017-11-27 10:19:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — Prince Harry, fifth in line to the British throne, will marry Am
 
 Full story on F3News: [Prince Harry, actress Meghan Markle to wed next year](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, November 27, 2017 9:30:00 AM
+> Posted on: Monday, November 27, 2017 10:19:00 AM

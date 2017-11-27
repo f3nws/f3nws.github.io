@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rebel, soldier and activist: Harry is not the usual royal"
-date: 2017-11-27 13:41:51Z
+date: 2017-11-27 15:32:51Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ He's no fan of the limelight. But Henry Charles Albert David Mountbatten-Windsor
 
 Full story on F3News: [Rebel, soldier and activist: Harry is not the usual royal](http://www.f3nws.com/n/NJHxyG)
 
-> Posted on: Monday, November 27, 2017 1:41:51 PM
+> Posted on: Monday, November 27, 2017 3:32:51 PM

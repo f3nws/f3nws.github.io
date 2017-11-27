@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Time Inc. has new owners, including the Koch brothers"
-date: 2017-11-27 04:41:39Z
+date: 2017-11-27 14:48:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Time Inc. has new owners, including the Koch brothers](http://www.f3nws.com/n/XnFAW)
 
-> Posted on: Monday, November 27, 2017 4:41:39 AM
+> Posted on: Monday, November 27, 2017 2:48:15 PM

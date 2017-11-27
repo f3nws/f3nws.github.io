@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Prince Harry and Meghan Markle engaged, set to marry in UK spring](http://www.abc.net.au/news/image/9198756-1x1-700x700.jpg)
 
-Clarence House issues a statement announcing the Prince and the US actress got engaged in London earlier this month.
+The couple pose for photographers outside Kensington Palace, with Markle showing off her diamond ring and Prince Harry saying he knew the US actress was the one "the very first time we met".
 
 
 Full story on F3News: [Prince Harry and Meghan Markle engaged, set to marry in UK spring](http://www.f3nws.com/n/Rzup3G)
