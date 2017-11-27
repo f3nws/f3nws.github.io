@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The complete list of Siri commands     - CNET"
-date: 2017-11-27 16:03:51Z
+date: 2017-11-27 22:05:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ categories: cnet
 
 Full story on F3News: [The complete list of Siri commands     - CNET](http://www.f3nws.com/n/tuEhWH)
 
-> Posted on: Monday, November 27, 2017 4:03:51 PM
+> Posted on: Monday, November 27, 2017 10:05:43 PM
