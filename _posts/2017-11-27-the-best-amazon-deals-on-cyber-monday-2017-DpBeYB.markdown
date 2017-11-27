@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Amazon deals on Cyber Monday 2017"
-date: 2017-11-27 07:20:30Z
+date: 2017-11-27 12:06:30Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've collected all the top bargains hitting Amazon this Cyber Monday so you can
 
 Full story on F3News: [The best Amazon deals on Cyber Monday 2017](http://www.f3nws.com/n/DpBeYB)
 
-> Posted on: Monday, November 27, 2017 7:20:30 AM
+> Posted on: Monday, November 27, 2017 12:06:30 PM

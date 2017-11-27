@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bali volcano: Lava pools up in crater, ‘will certainly spill over to the slopes’"
-date: 2017-11-27 12:00:05Z
+date: 2017-11-27 12:45:08Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Indonesian disaster agency says 100,000 people should evacuate expanded danger z
 
 Full story on F3News: [Bali volcano: Lava pools up in crater, ‘will certainly spill over to the slopes’](http://www.f3nws.com/n/NZzWg)
 
-> Posted on: Monday, November 27, 2017 12:00:05 PM
+> Posted on: Monday, November 27, 2017 12:45:08 PM
