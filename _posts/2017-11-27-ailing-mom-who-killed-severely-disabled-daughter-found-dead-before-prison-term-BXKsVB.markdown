@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ailing mom who killed severely disabled daughter found dead before prison term"
-date: 2017-11-27 06:45:04Z
+date: 2017-11-27 07:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A suburban Chicago mother who administered a fatal dose of medication to her sev
 
 Full story on F3News: [Ailing mom who killed severely disabled daughter found dead before prison term](http://www.f3nws.com/n/BXKsVB)
 
-> Posted on: Monday, November 27, 2017 6:45:04 AM
+> Posted on: Monday, November 27, 2017 7:45:02 AM
