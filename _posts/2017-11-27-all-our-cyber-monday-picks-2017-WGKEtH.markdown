@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All Our Cyber Monday Picks 2017"
-date: 2017-11-27 03:20:41Z
+date: 2017-11-27 05:55:41Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ We know not everyone can browse tons of deal feeds to find the best deal, so we'
 
 Full story on F3News: [All Our Cyber Monday Picks 2017](http://www.f3nws.com/n/WGKEtH)
 
-> Posted on: Monday, November 27, 2017 3:20:41 AM
+> Posted on: Monday, November 27, 2017 5:55:41 AM

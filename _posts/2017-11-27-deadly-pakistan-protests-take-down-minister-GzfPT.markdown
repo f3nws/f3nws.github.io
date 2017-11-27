@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly Pakistan protests take down minister"
-date: 2017-11-27 04:14:51Z
+date: 2017-11-27 06:37:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pakistan's Law Minister Zahid Hamid has resigned after days of protest rocked th
 
 Full story on F3News: [Deadly Pakistan protests take down minister](http://www.f3nws.com/n/GzfPT)
 
-> Posted on: Monday, November 27, 2017 4:14:51 AM
+> Posted on: Monday, November 27, 2017 6:37:01 AM

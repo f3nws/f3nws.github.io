@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bali volcano: Danger zone is expanded, 100K told to flee"
-date: 2017-11-27 05:45:02Z
+date: 2017-11-27 06:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Indonesian disaster agency says 100,000 people should evacuate expanded danger z
 
 Full story on F3News: [Bali volcano: Danger zone is expanded, 100K told to flee](http://www.f3nws.com/n/H3XMBG)
 
-> Posted on: Monday, November 27, 2017 5:45:02 AM
+> Posted on: Monday, November 27, 2017 6:45:02 AM
