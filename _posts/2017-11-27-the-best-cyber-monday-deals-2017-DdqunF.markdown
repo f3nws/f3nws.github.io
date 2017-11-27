@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Cyber Monday deals 2017"
-date: 2017-11-27 08:23:26Z
+date: 2017-11-27 08:44:26Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Cyber Monday is the last day of the deals weekend and possibly your last chance 
 
 Full story on F3News: [The best Cyber Monday deals 2017](http://www.f3nws.com/n/DdqunF)
 
-> Posted on: Monday, November 27, 2017 8:23:26 AM
+> Posted on: Monday, November 27, 2017 8:44:26 AM
