@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Red alert shuts down Bali airport as big Agung volcano eruption deemed ‘imminent’ (WATCH LIVE)"
-date: 2017-11-27 01:36:32Z
+date: 2017-11-27 01:36:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Indonesian authorities have halted all air traffic at Bali’s international air
 
 Full story on F3News: [Red alert shuts down Bali airport as big Agung volcano eruption deemed ‘imminent’ (WATCH LIVE)](http://www.f3nws.com/n/bv2nGB)
 
-> Posted on: Monday, November 27, 2017 1:36:32 AM
+> Posted on: Monday, November 27, 2017 1:36:00 AM
