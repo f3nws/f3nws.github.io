@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope Francis walks religious, diplomatic tightrope as the first pope to visit Myanmar"
-date: 2017-11-27 08:24:50Z
+date: 2017-11-27 11:23:32Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ The world's most high-profile Christian is about to take center stage in a staun
 
 Full story on F3News: [Pope Francis walks religious, diplomatic tightrope as the first pope to visit Myanmar](http://www.f3nws.com/n/ssGjjH)
 
-> Posted on: Monday, November 27, 2017 8:24:50 AM
+> Posted on: Monday, November 27, 2017 11:23:32 AM

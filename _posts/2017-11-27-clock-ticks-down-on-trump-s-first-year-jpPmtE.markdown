@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Clock ticks down on Trump's first year"
-date: 2017-11-27 09:34:46Z
+date: 2017-11-27 11:28:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has just one month left to salvage a lost legislative yea
 
 Full story on F3News: [Clock ticks down on Trump's first year](http://www.f3nws.com/n/jpPmtE)
 
-> Posted on: Monday, November 27, 2017 9:34:46 AM
+> Posted on: Monday, November 27, 2017 11:28:43 AM

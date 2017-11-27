@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Vegas shooting survivor killed in hit-and-run"
-date: 2017-11-27 00:53:24Z
+date: 2017-11-27 11:21:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A man who survived the Las Vegas massacre in October died several weeks later in
 
 Full story on F3News: [Vegas shooting survivor killed in hit-and-run](http://www.f3nws.com/n/azHQmB)
 
-> Posted on: Monday, November 27, 2017 12:53:24 AM
+> Posted on: Monday, November 27, 2017 11:21:47 AM

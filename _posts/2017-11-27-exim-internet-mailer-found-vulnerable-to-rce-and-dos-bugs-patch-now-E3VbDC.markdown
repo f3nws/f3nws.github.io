@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Exim Internet Mailer Found Vulnerable to RCE And DoS Bugs; Patch Now"
-date: 2017-11-27 09:14:55Z
+date: 2017-11-27 11:13:58Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ A security researcher has discovered and publicly disclosed two critical vulnera
 
 Full story on F3News: [Exim Internet Mailer Found Vulnerable to RCE And DoS Bugs; Patch Now](http://www.f3nws.com/n/E3VbDC)
 
-> Posted on: Monday, November 27, 2017 9:14:55 AM
+> Posted on: Monday, November 27, 2017 11:13:58 AM
