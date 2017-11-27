@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![What does the community think of Super Mario Odyssey? - Destructoid](https://www.destructoid.com//ul/474725-what-does-the-community-think-of-mario-odyssey-/ocelot-noscale.jpg)
 
-Telegraph.co.uk What does the community think of Super Mario Odyssey? Destructoid For me personally, there are two big marquee games that defined the Nintendo Switch's explosive entrance onto the scene this year. First was a right-straight with The Legend of Zelda: Breath of the Wild, followed by an uppercut later with Super Mario ... I keep returning the Nintendo Switch because of this tiny cosmetic flaw The Verge Nintendo Switch Demand To Go Through The Roof Next Year If 'Pokémon' Game Is Released, Analyst Says Tech Times Chrissy Teigen Gets Her Nintendo Switch Back After Twitter Plea E! Online GearNuke - Comicbook.com - Yahoo Finance - Metro all 63 news articles »
+Telegraph.co.uk What does the community think of Super Mario Odyssey? Destructoid For me personally, there are two big marquee games that defined the Nintendo Switch's explosive entrance onto the scene this year. First was a right-straight with The Legend of Zelda: Breath of the Wild, followed by an uppercut later with Super Mario ... I keep returning the Nintendo Switch because of this tiny cosmetic flaw The Verge Nintendo Switch Demand To Go Through The Roof Next Year If 'Pokémon' Game Is Released, Analyst Says Tech Times The Nintendo Switch Was the Best-Selling Product of Black Friday in Digital Storefronts Twinfinite GearNuke - Comicbook.com - Metro - Yahoo Finance all 69 news articles »
 
 
 Full story on F3News: [What does the community think of Super Mario Odyssey? - Destructoid](http://www.f3nws.com/n/cYuNxF)

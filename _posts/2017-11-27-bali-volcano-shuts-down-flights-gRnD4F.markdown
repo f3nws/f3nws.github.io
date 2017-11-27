@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bali volcano shuts down flights"
-date: 2017-11-27 00:57:34Z
+date: 2017-11-27 03:34:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Volcanic eruptions on the Indonesian resort island of Bali have prompted officia
 
 Full story on F3News: [Bali volcano shuts down flights](http://www.f3nws.com/n/gRnD4F)
 
-> Posted on: Monday, November 27, 2017 12:57:34 AM
+> Posted on: Monday, November 27, 2017 3:34:58 AM

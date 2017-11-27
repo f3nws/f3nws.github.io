@@ -5,6 +5,8 @@ date: 2017-11-27 00:36:00Z
 categories: google-news-top-stories
 ---
 
+![Police say NY mall evacuated after gun discharges into floor - ABC News](http://a.abcnews.com/images/US/WireAP_12326870d63d4388a5af9e3c83c815bd_16x9_992.jpg)
+
 Syracuse.com Police say NY mall evacuated after gun discharges into floor ABC News A crowded mall in New York's Hudson Valley was evacuated Sunday after a gun discharged into the floor, causing minor injuries to two bystanders, police said. The gun went off shortly after 3 p.m. at the Galleria at Crystal Run in Middletown, about 70 ... Gunfire at Middletown, New York, mall leaves 2 injured CBS News Hudson Valley Mall Evacuated After Man's Gun Discharges, Sparking Panic: State Police NBC New York Two people injured after gun discharges at New York mall, police say New York's PIX11 / WPIX-TV News 12 Hudson Valley - PennLive.com - FOX 61 - The Epoch Times all 62 news articles »
 
 

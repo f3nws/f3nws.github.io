@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cyber Monday Stream: All of the best deals in real-time"
-date: 2017-11-27 00:40:24Z
+date: 2017-11-27 03:22:41Z
 categories: windows-central
 ---
 
@@ -12,4 +12,4 @@ Cyber Monday 2017 is here with all of its deals, and the Thrifter team will be c
 
 Full story on F3News: [Cyber Monday Stream: All of the best deals in real-time](http://www.f3nws.com/n/YHZW4E)
 
-> Posted on: Monday, November 27, 2017 12:40:24 AM
+> Posted on: Monday, November 27, 2017 3:22:41 AM
