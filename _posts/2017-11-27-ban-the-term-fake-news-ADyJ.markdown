@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ban the term 'fake news'"
-date: 2017-11-27 14:11:10Z
+date: 2017-11-27 20:12:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When we use the term "fake news" it is not only self-defeating, it oversimplifie
 
 Full story on F3News: [Ban the term 'fake news'](http://www.f3nws.com/n/ADyJ)
 
-> Posted on: Monday, November 27, 2017 2:11:10 PM
+> Posted on: Monday, November 27, 2017 8:12:42 PM
