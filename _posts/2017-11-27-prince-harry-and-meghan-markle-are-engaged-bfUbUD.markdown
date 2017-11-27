@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Harry and Meghan Markle are engaged"
-date: 2017-11-27 11:38:42Z
+date: 2017-11-27 13:13:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's Prince Harry and American actor Meghan Markle are engaged, according t
 
 Full story on F3News: [Prince Harry and Meghan Markle are engaged](http://www.f3nws.com/n/bfUbUD)
 
-> Posted on: Monday, November 27, 2017 11:38:42 AM
+> Posted on: Monday, November 27, 2017 1:13:46 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's Biggest Botnet Just Sent 12.5 Million Emails With Scarab Ransomware"
-date: 2017-11-27 10:37:18Z
+date: 2017-11-27 13:17:06Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ A massive malicious email campaign that stems from the world's largest spam botn
 
 Full story on F3News: [World's Biggest Botnet Just Sent 12.5 Million Emails With Scarab Ransomware](http://www.f3nws.com/n/BFNMvB)
 
-> Posted on: Monday, November 27, 2017 10:37:18 AM
+> Posted on: Monday, November 27, 2017 1:17:06 PM
