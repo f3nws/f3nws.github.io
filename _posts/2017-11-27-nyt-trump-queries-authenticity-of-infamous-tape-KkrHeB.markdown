@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NYT: Trump queries authenticity of infamous tape"
-date: 2017-11-27 14:22:49Z
+date: 2017-11-27 18:54:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump has questioned the authenticity of the infamous "Access H
 
 Full story on F3News: [NYT: Trump queries authenticity of infamous tape](http://www.f3nws.com/n/KkrHeB)
 
-> Posted on: Monday, November 27, 2017 2:22:49 PM
+> Posted on: Monday, November 27, 2017 6:54:52 PM
