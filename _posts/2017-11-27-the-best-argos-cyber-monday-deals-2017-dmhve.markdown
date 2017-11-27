@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Argos Cyber Monday deals 2017"
-date: 2017-11-27 01:23:24Z
+date: 2017-11-27 07:53:24Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ It's no longer Black Friday but Argos' deals are still open.
 
 Full story on F3News: [The best Argos Cyber Monday deals 2017](http://www.f3nws.com/n/dmhve)
 
-> Posted on: Monday, November 27, 2017 1:23:24 AM
+> Posted on: Monday, November 27, 2017 7:53:24 AM
