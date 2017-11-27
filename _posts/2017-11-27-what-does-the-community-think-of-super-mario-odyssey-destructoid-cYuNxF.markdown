@@ -5,6 +5,8 @@ date: 2017-11-27 00:03:50Z
 categories: google-news-technology
 ---
 
+![What does the community think of Super Mario Odyssey? - Destructoid](https://www.destructoid.com//ul/474725-what-does-the-community-think-of-mario-odyssey-/ocelot-noscale.jpg)
+
 Telegraph.co.uk What does the community think of Super Mario Odyssey? Destructoid For me personally, there are two big marquee games that defined the Nintendo Switch's explosive entrance onto the scene this year. First was a right-straight with The Legend of Zelda: Breath of the Wild, followed by an uppercut later with Super Mario ... I keep returning the Nintendo Switch because of this tiny cosmetic flaw The Verge Video game releases for December 2017 Polygon Best live Cyber Monday games console deals: Xbox One, PS4, Nintendo Switch, Wii U The Independent Telegraph.co.uk - GearNuke - Comicbook.com - Yahoo Finance all 56 news articles »
 
 
