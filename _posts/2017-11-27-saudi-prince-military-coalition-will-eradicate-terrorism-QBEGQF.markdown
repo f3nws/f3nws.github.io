@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi prince: Military coalition will 'eradicate' terrorism"
-date: 2017-11-27 08:27:11Z
+date: 2017-11-27 11:47:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Saudi Arabi's Crown Prince Mohammed bin Salman said a two-year-old Islamic milit
 
 Full story on F3News: [Saudi prince: Military coalition will 'eradicate' terrorism](http://www.f3nws.com/n/QBEGQF)
 
-> Posted on: Monday, November 27, 2017 8:27:11 AM
+> Posted on: Monday, November 27, 2017 11:47:16 AM
