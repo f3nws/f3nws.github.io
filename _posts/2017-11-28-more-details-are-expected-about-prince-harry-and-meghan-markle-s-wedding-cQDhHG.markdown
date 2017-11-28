@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "More details are expected about Prince Harry and Meghan Markle's wedding"
-date: 2017-11-28 15:29:52Z
+date: 2017-11-28 16:58:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More details about the wedding of Prince Harry and Meghan Markle are expected Tu
 
 Full story on F3News: [More details are expected about Prince Harry and Meghan Markle's wedding](http://www.f3nws.com/n/cQDhHG)
 
-> Posted on: Tuesday, November 28, 2017 3:29:52 PM
+> Posted on: Tuesday, November 28, 2017 4:58:50 PM

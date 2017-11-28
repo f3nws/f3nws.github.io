@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Ghost ships' wash up with skeletons aboard"
-date: 2017-11-28 13:34:07Z
+date: 2017-11-28 17:21:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least four ships have washed up on Japan's west coast this month, some with b
 
 Full story on F3News: ['Ghost ships' wash up with skeletons aboard](http://www.f3nws.com/n/FgYjdC)
 
-> Posted on: Tuesday, November 28, 2017 1:34:07 PM
+> Posted on: Tuesday, November 28, 2017 5:21:54 PM
