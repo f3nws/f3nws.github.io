@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Woman Tried to Dupe Washington Post With False Claim About Roy Moore, Paper Says - New York Times](https://static01.nyt.com/images/2017/11/28/us/28xp-veritas2/28xp-veritas2-facebookJumbo.jpg)
 
-New York Times Woman Tried to Dupe Washington Post With False Claim About Roy Moore, Paper Says New York Times A woman with ties to a right-wing activist group falsely claimed to The Washington Post that she had conceived a child with Roy S. Moore, the Republican Senate candidate in Alabama, when she was 15, the newspaper reported on Monday afternoon. The Washington Post turns the tables on Project Veritas Washington Post James O'Keefe on the defensive after failed anti-Post plot CNNMoney Fake Roy Moore accuser approached Washington Post in sting operation CBS News Greensboro News & Record - AL.com - Washington Post - Twitter all 104 news articles »
+New York Times Woman Tried to Dupe Washington Post With False Claim About Roy Moore, Paper Says New York Times A woman with ties to a right-wing activist group falsely claimed to The Washington Post that she had conceived a child with Roy S. Moore, the Republican Senate candidate in Alabama, when she was 15, the newspaper reported on Monday afternoon. The 6 most puzzling aspects of this James O'Keefe-Project Veritas botched sting debacle Washington Post Washington Post says it uncovered fake allegations against Alabama Senate candidate Roy Moore ABC News Conservative media critic: O'Keefe is 'hurting the conservative movement' The Hill Baltimore Sun - ThinkProgress - GeekWire - Patch.com all 187 news articles »
 
 
 Full story on F3News: [Woman Tried to Dupe Washington Post With False Claim About Roy Moore, Paper Says - New York Times](http://www.f3nws.com/n/JpJxpG)
