@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Senators Scramble to Advance Tax Bill That Increasingly Rewards Wealthy - New York Times](https://static01.nyt.com/images/2017/11/28/business/28DC-TAX2/28DC-TAX2-facebookJumbo.jpg)
 
-New York Times Senators Scramble to Advance Tax Bill That Increasingly Rewards Wealthy New York Times WASHINGTON — The Republican tax bill hurtling through Congress is increasingly tilting the United States tax code to benefit wealthy Americans, as party leaders race to shore up wavering lawmakers who are requesting more help for high-earning business ... Trump faces make-or-break meeting with congressional leaders Washington Post The Republican senators who will decide tax reform: Where they stand CNN GOP in furious push for tax-reform votes The Hill Politico - PolitiFact - U.S. News & World Report - Washington Examiner all 926 news articles »
+New York Times Senators Scramble to Advance Tax Bill That Increasingly Rewards Wealthy New York Times WASHINGTON — The Republican tax bill hurtling through Congress is increasingly tilting the United States tax code to benefit wealthy Americans, as party leaders race to shore up wavering lawmakers who are requesting more help for high-earning business ... Undisciplined Trump disrupts his own tax reform pitch CNN Trump faces make-or-break meeting with congressional leaders Washington Post GOP in furious push for tax-reform votes The Hill Politico - USA TODAY - PolitiFact - Slate Magazine all 917 news articles »
 
 
 Full story on F3News: [Senators Scramble to Advance Tax Bill That Increasingly Rewards Wealthy - New York Times](http://www.f3nws.com/n/UdbRtC)
