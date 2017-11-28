@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Why Meghan Markle won't be a princess](http://www.abc.net.au/news/image/9198850-1x1-700x700.jpg)
 
-Even after Meghan Markle marries Prince Harry next year you'd be wrong to call the US actress "Princess Meghan". The reason for that is very complicated — and thoroughly British.
+Even after Meghan Markle marries Prince Harry next year you'd be wrong to call the US actress "Princess Meghan". The reason is very complicated — and thoroughly British.
 
 
 Full story on F3News: [Why Meghan Markle won't be a princess](http://www.f3nws.com/n/yVnHfF)
