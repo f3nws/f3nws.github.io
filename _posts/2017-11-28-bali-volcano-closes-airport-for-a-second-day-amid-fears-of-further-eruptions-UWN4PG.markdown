@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bali volcano closes airport for a second day amid fears of further eruptions"
-date: 2017-11-28 03:43:20Z
+date: 2017-11-28 04:33:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A smoking Bali volcano has halted flights for another day as Indonesian emergenc
 
 Full story on F3News: [Bali volcano closes airport for a second day amid fears of further eruptions](http://www.f3nws.com/n/UWN4PG)
 
-> Posted on: Tuesday, November 28, 2017 3:43:20 AM
+> Posted on: Tuesday, November 28, 2017 4:33:28 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Moore buried under TV ad barrage - Politico](https://static.politico.com/03/be/e954698046598bd9eeb5d35284d3/lede-171117-roy-moore-3-gty-1160.jpg)
 
-Politico Moore buried under TV ad barrage Politico Doug Jones and Roy Moore both released new television ads on Monday. But many Alabama voters will see only one of them. That's because of the massive disparity in TV ad spending between the two candidates in the Alabama special election to a Senate ... Senate Race in Alabama Tests Reach of Trump's Endorsement New York Times Roy Moore compares accusations against him to Russia probe CNN 'Washington Post' claims activist tried to embarrass paper with false Moore accusation USA TODAY Chicago Tribune - CBS News - The Hill - Business Insider all 297 news articles »
+Politico Moore buried under TV ad barrage Politico Doug Jones and Roy Moore both released new television ads on Monday. But many Alabama voters will see only one of them. That's because of the massive disparity in TV ad spending between the two candidates in the Alabama special election to a Senate ... James O'Keefe tweeted about his 'confrontation' with a Post reporter. Here's what really happened. Washington Post Senate Race in Alabama Tests Reach of Trump's Endorsement New York Times Roy Moore compares accusations against him to Russia probe CNN Daily Beast - The Hill - NBCNews.com - USA TODAY all 355 news articles »
 
 
 Full story on F3News: [Moore buried under TV ad barrage - Politico](http://www.f3nws.com/n/2txabB)
