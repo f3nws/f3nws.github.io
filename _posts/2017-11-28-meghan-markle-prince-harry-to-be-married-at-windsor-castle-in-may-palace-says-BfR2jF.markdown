@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meghan Markle, Prince Harry to be married at Windsor Castle in May, palace says"
-date: 2017-11-28 16:22:00Z
+date: 2017-11-28 16:43:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Harry and Markle will wed in May 2018 at Windsor Castle’s St. George’s Chape
 
 Full story on F3News: [Meghan Markle, Prince Harry to be married at Windsor Castle in May, palace says](http://www.f3nws.com/n/BfR2jF)
 
-> Posted on: Tuesday, November 28, 2017 4:22:00 PM
+> Posted on: Tuesday, November 28, 2017 4:43:00 PM
