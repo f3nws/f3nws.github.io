@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "James O'Keefe on the defensive after failed anti-Post plot"
-date: 2017-11-28 13:51:40Z
+date: 2017-11-28 16:21:49Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [James O'Keefe on the defensive after failed anti-Post plot](http://www.f3nws.com/n/DAfFZG)
 
-> Posted on: Tuesday, November 28, 2017 1:51:40 PM
+> Posted on: Tuesday, November 28, 2017 4:21:49 PM
