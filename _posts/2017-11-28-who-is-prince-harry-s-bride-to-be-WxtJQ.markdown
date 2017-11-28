@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who is Prince Harry's bride-to-be?"
-date: 2017-11-28 07:12:35Z
+date: 2017-11-28 08:58:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The rumor mill has been buzzing for months. The first whispers of a royal engage
 
 Full story on F3News: [Who is Prince Harry's bride-to-be?](http://www.f3nws.com/n/WxtJQ)
 
-> Posted on: Tuesday, November 28, 2017 7:12:35 AM
+> Posted on: Tuesday, November 28, 2017 8:58:27 AM
