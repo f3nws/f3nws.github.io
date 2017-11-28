@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 58 best Cyber Monday 2017 deals you can get right now (updated)     - CNET"
-date: 2017-11-28 03:43:52Z
+date: 2017-11-28 04:30:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Black Friday is behind us and Cyber Monday is here. Here are the best bargains y
 
 Full story on F3News: [The 58 best Cyber Monday 2017 deals you can get right now (updated)     - CNET](http://www.f3nws.com/n/MUYupG)
 
-> Posted on: Tuesday, November 28, 2017 3:43:52 AM
+> Posted on: Tuesday, November 28, 2017 4:30:17 AM
