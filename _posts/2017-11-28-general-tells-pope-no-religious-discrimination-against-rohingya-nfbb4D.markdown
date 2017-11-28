@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "General tells Pope 'no religious discrimination' against Rohingya"
-date: 2017-11-28 05:17:12Z
+date: 2017-11-28 05:48:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The general many hold responsible for the Rohingya refugee crisis has told Pope 
 
 Full story on F3News: [General tells Pope 'no religious discrimination' against Rohingya](http://www.f3nws.com/n/nfbb4D)
 
-> Posted on: Tuesday, November 28, 2017 5:17:12 AM
+> Posted on: Tuesday, November 28, 2017 5:48:08 AM
