@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Anger at Trump's 'Pocahontas' comment at Navajo event"
-date: 2017-11-28 03:04:29Z
+date: 2017-11-28 18:34:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Elizabeth Warren says President Donald Trump's reference to his nickname fo
 
 Full story on F3News: [Anger at Trump's 'Pocahontas' comment at Navajo event](http://www.f3nws.com/n/gdEmyF)
 
-> Posted on: Tuesday, November 28, 2017 3:04:29 AM
+> Posted on: Tuesday, November 28, 2017 6:34:10 PM
