@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best digital camera deals on Cyber Monday 2017"
-date: 2017-11-28 00:00:23Z
+date: 2017-11-28 10:16:23Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We're rounding up all of the best deals on cameras and photographic gear for Cyb
 
 Full story on F3News: [The best digital camera deals on Cyber Monday 2017](http://www.f3nws.com/n/gpATZ)
 
-> Posted on: Tuesday, November 28, 2017 12:00:23 AM
+> Posted on: Tuesday, November 28, 2017 10:16:23 AM

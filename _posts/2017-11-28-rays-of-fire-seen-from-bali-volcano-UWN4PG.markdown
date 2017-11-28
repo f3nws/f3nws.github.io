@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Rays of fire' seen from Bali volcano"
-date: 2017-11-28 06:28:20Z
+date: 2017-11-28 08:55:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A smoking Bali volcano has halted flights for another day as Indonesian emergenc
 
 Full story on F3News: ['Rays of fire' seen from Bali volcano](http://www.f3nws.com/n/UWN4PG)
 
-> Posted on: Tuesday, November 28, 2017 6:28:20 AM
+> Posted on: Tuesday, November 28, 2017 8:55:06 AM
