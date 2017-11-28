@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google Detects Android Spyware That Spies On WhatsApp, Skype Calls"
-date: 2017-11-28 09:29:10Z
+date: 2017-11-28 10:50:18Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ In an attempt to protect Android users from malware and shady apps, Google has b
 
 Full story on F3News: [Google Detects Android Spyware That Spies On WhatsApp, Skype Calls](http://www.f3nws.com/n/fMqGa)
 
-> Posted on: Tuesday, November 28, 2017 9:29:10 AM
+> Posted on: Tuesday, November 28, 2017 10:50:18 AM

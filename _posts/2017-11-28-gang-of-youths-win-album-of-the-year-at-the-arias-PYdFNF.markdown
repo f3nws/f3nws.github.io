@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Gang of Youths win Album of the Year at the ARIAs](http://www.abc.net.au/news/image/9203260-1x1-700x700.jpg)
 
-Sydney band Gang of Youths cement their status as one of Australia's leading rock bands by winning Album of the Year at the ARIA Awards.
+Australia loves Paul Kelly again, Gang of Youths rocked out, Harry Styles got mildly political and Sia was so well camouflaged she couldn't be seen at the ARIA Awards.
 
 
 Full story on F3News: [Gang of Youths win Album of the Year at the ARIAs](http://www.f3nws.com/n/PYdFNF)
