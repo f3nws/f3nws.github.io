@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Prince Harry proposed to Meghan Markle"
-date: 2017-11-28 01:22:25Z
+date: 2017-11-28 13:53:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Meghan Markle barely let Prince Harry finish proposing.
 
 Full story on F3News: [How Prince Harry proposed to Meghan Markle](http://www.f3nws.com/n/aPtTM)
 
-> Posted on: Tuesday, November 28, 2017 1:22:25 AM
+> Posted on: Tuesday, November 28, 2017 1:53:26 PM
