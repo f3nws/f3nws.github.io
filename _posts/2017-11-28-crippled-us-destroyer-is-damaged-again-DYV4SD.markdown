@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Crippled US destroyer is damaged again"
-date: 2017-11-28 02:44:19Z
+date: 2017-11-28 15:00:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The USS Fitzgerald, a Navy destroyer that was damaged in June after a deadly col
 
 Full story on F3News: [Crippled US destroyer is damaged again](http://www.f3nws.com/n/DYV4SD)
 
-> Posted on: Tuesday, November 28, 2017 2:44:19 AM
+> Posted on: Tuesday, November 28, 2017 3:00:22 PM
