@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Transport punches two holes in hull of US destroyer"
-date: 2017-11-28 02:37:45Z
+date: 2017-11-28 02:44:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The USS Fitzgerald, a Navy destroyer that was damaged in June after a deadly col
 
 Full story on F3News: [Transport punches two holes in hull of US destroyer](http://www.f3nws.com/n/DYV4SD)
 
-> Posted on: Tuesday, November 28, 2017 2:37:45 AM
+> Posted on: Tuesday, November 28, 2017 2:44:19 AM

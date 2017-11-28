@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Details of Rohingya refugees deal revealed"
-date: 2017-11-28 00:16:52Z
+date: 2017-11-28 02:48:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Details have been revealed of the agreement between Myanmar and Bangladesh to re
 
 Full story on F3News: [Details of Rohingya refugees deal revealed](http://www.f3nws.com/n/hKUMmH)
 
-> Posted on: Tuesday, November 28, 2017 12:16:52 AM
+> Posted on: Tuesday, November 28, 2017 2:48:07 AM

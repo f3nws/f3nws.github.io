@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Blowback': Clinton campaign planned to fire me over email probe, Obama intel watchdog says"
-date: 2017-11-28 02:30:00Z
+date: 2017-11-28 03:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A government watchdog who played a central role in the Hillary Clinton email inv
 
 Full story on F3News: ['Blowback': Clinton campaign planned to fire me over email probe, Obama intel watchdog says](http://www.f3nws.com/n/kXGDy)
 
-> Posted on: Tuesday, November 28, 2017 2:30:00 AM
+> Posted on: Tuesday, November 28, 2017 3:15:00 AM
