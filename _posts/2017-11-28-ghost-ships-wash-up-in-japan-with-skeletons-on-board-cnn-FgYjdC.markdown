@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Ghost ships wash up in Japan with skeletons on board - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171128152947-japan-boat-wreckage-super-tease.jpg)
 
-CNN Ghost ships wash up in Japan with skeletons on board CNN Tokyo (CNN) At least four ships have washed up on Japan's west coast this month, some with bodies on board, and while authorities haven't confirmed their origin, signs suggest they're from North Korea. Eight skeletons were found in the hull of one ... Trump Creating a New Cold War? North Korea, Russia, Syria and Cuba Now Working Together Against the US Newsweek Skeletons found on 'ghost ship' washed up in Japan BBC News Boat carrying 8 bodies washes ashore in Japan New York Post Fox News - TIME - New York Daily News - Mirror.co.uk all 65 news articles »
+CNN Ghost ships wash up in Japan with skeletons on board CNN Tokyo (CNN) At least four ships have washed up on Japan's west coast this month, some with bodies on board, and while authorities haven't confirmed their origin, signs suggest they're from North Korea. Eight skeletons were found in the hull of one ... A 'ghost ship' washed ashore in Japan, and clues point to North Koreans Washington Post Mysterious North Korean Ghost Ships Full Of Skeletons Wash Up In Japan Newsweek South Korea: North Korea could complete its nuclear program next year USA TODAY BBC News - Voice of America - Business Insider - ABC News all 398 news articles »
 
 
 Full story on F3News: [Ghost ships wash up in Japan with skeletons on board - CNN](http://www.f3nws.com/n/FgYjdC)
