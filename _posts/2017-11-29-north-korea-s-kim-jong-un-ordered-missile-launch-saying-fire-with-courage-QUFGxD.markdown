@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea’s Kim Jong Un ordered missile launch, saying, ‘Fire with courage’"
-date: 2017-11-29 11:00:05Z
+date: 2017-11-29 11:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ North Korea’s state television said Wednesday that the nuclear-capable interco
 
 Full story on F3News: [North Korea’s Kim Jong Un ordered missile launch, saying, ‘Fire with courage’](http://www.f3nws.com/n/QUFGxD)
 
-> Posted on: Wednesday, November 29, 2017 11:00:05 AM
+> Posted on: Wednesday, November 29, 2017 11:45:03 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man charged with 4 killings in Tampa"
-date: 2017-11-29 10:49:32Z
+date: 2017-11-29 11:18:47Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tampa Police say they will charge a 24-year-old man in connection with four fata
 
 Full story on F3News: [Man charged with 4 killings in Tampa](http://www.f3nws.com/n/DgJyqF)
 
-> Posted on: Wednesday, November 29, 2017 10:49:32 AM
+> Posted on: Wednesday, November 29, 2017 11:18:47 AM
