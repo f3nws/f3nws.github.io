@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PR braces for harmful new tax in GOP bill"
-date: 2017-11-29 03:06:21Z
+date: 2017-11-29 02:51:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Mayor Carmen Yulin Cruz of San Juan, Puerto Rico, talks with Rachel Maddow about
 
 Full story on F3News: [PR braces for harmful new tax in GOP bill](http://www.f3nws.com/n/YpVpTJ)
 
-> Posted on: Wednesday, November 29, 2017 3:06:21 AM
+> Posted on: Wednesday, November 29, 2017 2:51:00 AM

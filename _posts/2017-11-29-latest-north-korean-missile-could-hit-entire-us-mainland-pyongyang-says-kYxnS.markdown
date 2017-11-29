@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Latest North Korean missile could hit entire US mainland, Pyongyang says"
-date: 2017-11-29 04:45:03Z
+date: 2017-11-29 05:45:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ North Korea’s state television said Wednesday that the nuclear-capable interco
 
 Full story on F3News: [Latest North Korean missile could hit entire US mainland, Pyongyang says](http://www.f3nws.com/n/kYxnS)
 
-> Posted on: Wednesday, November 29, 2017 4:45:03 AM
+> Posted on: Wednesday, November 29, 2017 5:45:01 AM

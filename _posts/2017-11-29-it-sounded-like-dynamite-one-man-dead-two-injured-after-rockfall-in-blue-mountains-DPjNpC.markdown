@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 !['It sounded like dynamite': One man dead, two injured after rockfall in Blue Mountains](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-A rescue operation is underway in tough conditions where a man has died and two others have been injured after a rockfall west of Sydney.
+A 36-year-old man has died and two other men are being airlifted to hospital after being caught in a landslide while working on a rockfall hazard on a closed Blue Mountains walking track.
 
 
 Full story on F3News: ['It sounded like dynamite': One man dead, two injured after rockfall in Blue Mountains](http://www.f3nws.com/n/DPjNpC)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "List of Trump campaign Russia contacts grows"
-date: 2017-11-29 04:08:56Z
+date: 2017-11-29 02:21:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow presents an ongoing tally of the Russians who are reported to have
 
 Full story on F3News: [List of Trump campaign Russia contacts grows](http://www.f3nws.com/n/Wh2uZ)
 
-> Posted on: Wednesday, November 29, 2017 4:08:56 AM
+> Posted on: Wednesday, November 29, 2017 2:21:00 AM
