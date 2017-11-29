@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Zahra Lari: Ice Princess in the Arabian Desert"
-date: 2017-11-29 03:17:16Z
+date: 2017-11-29 04:20:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United Arab Emirates (UAE), a Persian Gulf state where temperatures soar as 
 
 Full story on F3News: [Zahra Lari: Ice Princess in the Arabian Desert](http://www.f3nws.com/n/ZtZkHH)
 
-> Posted on: Wednesday, November 29, 2017 3:17:16 AM
+> Posted on: Wednesday, November 29, 2017 4:20:18 AM

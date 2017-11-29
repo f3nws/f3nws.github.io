@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AT&T, DOJ spar over when antitrust trial should begin"
-date: 2017-11-29 02:28:01Z
+date: 2017-11-29 04:01:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [AT&T, DOJ spar over when antitrust trial should begin](http://www.f3nws.com/n/YgWSrG)
 
-> Posted on: Wednesday, November 29, 2017 2:28:01 AM
+> Posted on: Wednesday, November 29, 2017 4:01:23 AM

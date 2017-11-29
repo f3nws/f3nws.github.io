@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin blasts past $10,000 mark amid bubble concerns     - CNET"
-date: 2017-11-29 02:52:48Z
+date: 2017-11-29 02:58:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The cryptocurrency's value has risen nine-fold since the beginning of the year.
 
 Full story on F3News: [Bitcoin blasts past $10,000 mark amid bubble concerns     - CNET](http://www.f3nws.com/n/za2VgB)
 
-> Posted on: Wednesday, November 29, 2017 2:52:48 AM
+> Posted on: Wednesday, November 29, 2017 2:58:35 AM
