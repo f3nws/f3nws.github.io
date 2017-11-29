@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NBC News Chairman Andy Lack's statement on Matt Lauer's firing"
-date: 2017-11-29 12:51:53Z
+date: 2017-11-29 19:44:59Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [NBC News Chairman Andy Lack's statement on Matt Lauer's firing](http://www.f3nws.com/n/ktAbXG)
 
-> Posted on: Wednesday, November 29, 2017 12:51:53 PM
+> Posted on: Wednesday, November 29, 2017 7:44:59 PM
