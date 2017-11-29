@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect in custody after shots ring out at Nevada high-rise"
-date: 2017-11-29 04:59:45Z
+date: 2017-11-29 05:23:43Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities say someone opened fire at a high-rise building of luxury condominiu
 
 Full story on F3News: [Suspect in custody after shots ring out at Nevada high-rise](http://www.f3nws.com/n/hSWuZF)
 
-> Posted on: Wednesday, November 29, 2017 4:59:45 AM
+> Posted on: Wednesday, November 29, 2017 5:23:43 AM

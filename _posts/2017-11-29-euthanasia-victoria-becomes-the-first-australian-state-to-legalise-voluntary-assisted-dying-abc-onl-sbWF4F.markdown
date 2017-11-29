@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Euthanasia: Victoria becomes the first Australian state to legalise voluntary assisted dying - ABC Online](http://www.abc.net.au/news/image/9069714-1x1-700x700.jpg)
 
-ABC Online Euthanasia: Victoria becomes the first Australian state to legalise voluntary assisted dying ABC Online Victoria has become the first state in the country to legalise assisted dying for the terminally ill, with MPs voting to give patients the right to request a lethal drug to end their lives from mid-2019. After more than 100 hours of debate across both ... Victoria passes historic Assisted Dying bill The Australian Mental illness: the health crisis we're happy to turn a blind eye to The Sydney Morning Herald Euthanasia Bill: Voluntary Assisted Dying scheme passes Victorian Parliament NEWS.com.au SBS - The Conversation AU - The Guardian - BBC News all 34 news articles »
+ABC Online Euthanasia: Victoria becomes the first Australian state to legalise voluntary assisted dying ABC Online Victoria has become the first state in the country to legalise assisted dying for the terminally ill, with MPs voting to give patients the right to request a lethal drug to end their lives from mid-2019. After more than 100 hours of debate across both ... Mental illness: the health crisis we're happy to turn a blind eye to The Sydney Morning Herald Vic makes history with assisted dying laws SBS Victoria passes historic Assisted Dying bill The Australian NEWS.com.au - The Age - The Conversation AU - Yahoo7 News all 47 news articles »
 
 
 Full story on F3News: [Euthanasia: Victoria becomes the first Australian state to legalise voluntary assisted dying - ABC Online](http://www.f3nws.com/n/sbWF4F)

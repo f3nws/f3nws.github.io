@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin just hit $10k: Dizzying rally shows no sign of slowing"
-date: 2017-11-29 02:27:19Z
+date: 2017-11-29 06:02:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Bitcoin just hit $10k: Dizzying rally shows no sign of slowing](http://www.f3nws.com/n/DkJ2)
 
-> Posted on: Wednesday, November 29, 2017 2:27:19 AM
+> Posted on: Wednesday, November 29, 2017 6:02:05 AM
