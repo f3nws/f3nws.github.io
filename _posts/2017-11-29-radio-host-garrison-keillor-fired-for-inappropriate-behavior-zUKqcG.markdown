@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Radio host Garrison Keillor fired for 'inappropriate behavior'"
-date: 2017-11-29 18:36:43Z
+date: 2017-11-29 21:05:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Radio host Garrison Keillor fired for 'inappropriate behavior'](http://www.f3nws.com/n/zUKqcG)
 
-> Posted on: Wednesday, November 29, 2017 6:36:43 PM
+> Posted on: Wednesday, November 29, 2017 9:05:58 PM

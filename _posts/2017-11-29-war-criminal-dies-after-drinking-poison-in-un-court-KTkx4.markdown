@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "War criminal dies after drinking poison in UN court"
-date: 2017-11-29 18:03:46Z
+date: 2017-11-29 21:18:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A war crimes appeal hearing was halted just after the verdict was announced on W
 
 Full story on F3News: [War criminal dies after drinking poison in UN court](http://www.f3nws.com/n/KTkx4)
 
-> Posted on: Wednesday, November 29, 2017 6:03:46 PM
+> Posted on: Wednesday, November 29, 2017 9:18:46 PM

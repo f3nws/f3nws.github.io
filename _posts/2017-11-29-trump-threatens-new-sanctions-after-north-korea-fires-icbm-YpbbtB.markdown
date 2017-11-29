@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump threatens new sanctions after North Korea fires ICBM"
-date: 2017-11-29 15:26:00Z
+date: 2017-11-29 16:29:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The Trump administration threatened new sanctions on North K
 
 Full story on F3News: [Trump threatens new sanctions after North Korea fires ICBM](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, November 29, 2017 3:26:00 PM
+> Posted on: Wednesday, November 29, 2017 4:29:00 PM

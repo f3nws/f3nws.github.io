@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's behavior raises questions of competency - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171129130320-donald-trump-11-02-2017-super-tease.jpg)
 
-CNN Trump's behavior raises questions of competency CNN Washington (CNN) Donald Trump potentially has millions of lives in his hands as the threat of a devastating war with North Korea swiftly escalates. Yet the President of the United States is raising new questions about his temperament, his judgment and ... North Korea's late night missile test may hint at broader strategy Washington Post Seven Critical Truths About North Korea New York Times First Read's Morning Clips: North Korea's Latest Launch NBCNews.com Reuters - CBS News - NPR - Fox News all 2,337 news articles »
+CNN Trump's behavior raises questions of competency CNN Washington (CNN) Donald Trump potentially has millions of lives in his hands as the threat of a devastating war with North Korea swiftly escalates. Yet the President of the United States is raising new questions about his temperament, his judgment and ... Seven Critical Truths About North Korea New York Times First Read's Morning Clips: North Korea's Latest Launch NBCNews.com North Korea's ICBM test: What's new and what's ahead CBS News Reuters - NPR - Washington Post - BBC News all 2,338 news articles »
 
 
 Full story on F3News: [Trump's behavior raises questions of competency - CNN](http://www.f3nws.com/n/hHePED)
