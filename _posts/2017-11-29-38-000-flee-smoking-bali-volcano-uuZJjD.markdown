@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "38,000 flee smoking Bali volcano"
-date: 2017-11-29 08:00:44Z
+date: 2017-11-29 09:04:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ash continues to blanket the area around the smoking crater of Bali's Mount Agun
 
 Full story on F3News: [38,000 flee smoking Bali volcano](http://www.f3nws.com/n/uuZJjD)
 
-> Posted on: Wednesday, November 29, 2017 8:00:44 AM
+> Posted on: Wednesday, November 29, 2017 9:04:47 AM

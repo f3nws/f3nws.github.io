@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Royal Engagement Seen as Symbol of Change, With Asterisks - New York Times](https://static01.nyt.com/images/2017/11/29/world/29uk-royals/29uk-royals-facebookJumbo.jpg)
 
-New York Times Royal Engagement Seen as Symbol of Change, With Asterisks New York Times LONDON — For many in the British news media, the engagement of Prince Harry to Meghan Markle, a divorced biracial American, reflected how egalitarian Britain had become. “A divorced, mixed-race, Hollywood actress who attended a Roman Catholic ... Meghan Markle Officially Leaving Suits After Season 7 Following Engagement News, Says USA Network PEOPLE.com A look at the UK citizenship test Meghan Markle will have to pass ABC News Prince Harry and Meghan Markel: The royal love affair with Africa BBC News EW.com (blog) - Business Insider - HuffPost - Omaha World-Herald all 1,902 news articles »
+New York Times Royal Engagement Seen as Symbol of Change, With Asterisks New York Times LONDON — For many in the British news media, the engagement of Prince Harry to Meghan Markle, a divorced biracial American, reflected how egalitarian Britain had become. “A divorced, mixed-race, Hollywood actress who attended a Roman Catholic ... Meghan Markle Officially Leaving Suits After Season 7 Following Engagement News, Says USA Network PEOPLE.com Prince Harry and Meghan Markel: The royal love affair with Africa BBC News A look at the UK citizenship test Meghan Markle will have to pass ABC News HuffPost - Business Insider - Omaha World-Herald - Entertainment Tonight all 1,904 news articles »
 
 
 Full story on F3News: [Royal Engagement Seen as Symbol of Change, With Asterisks - New York Times](http://www.f3nws.com/n/3WXFxF)
