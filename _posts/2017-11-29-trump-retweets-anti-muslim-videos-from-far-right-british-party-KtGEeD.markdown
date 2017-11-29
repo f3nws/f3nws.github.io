@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump retweets anti-Muslim videos from far-right British party"
-date: 2017-11-29 16:50:42Z
+date: 2017-11-29 18:27:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump retweeted Wednesday morning three inflammatory videos fro
 
 Full story on F3News: [Trump retweets anti-Muslim videos from far-right British party](http://www.f3nws.com/n/KtGEeD)
 
-> Posted on: Wednesday, November 29, 2017 4:50:42 PM
+> Posted on: Wednesday, November 29, 2017 6:27:15 PM
