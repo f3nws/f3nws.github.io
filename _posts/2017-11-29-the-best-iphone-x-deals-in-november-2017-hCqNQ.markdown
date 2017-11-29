@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone X deals in November 2017"
-date: 2017-11-29 08:00:49Z
+date: 2017-11-29 15:00:49Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The 10th anniversary iPhone X is extremely expensive. We tell you the handset pr
 
 Full story on F3News: [The best iPhone X deals in November 2017](http://www.f3nws.com/n/hCqNQ)
 
-> Posted on: Wednesday, November 29, 2017 8:00:49 AM
+> Posted on: Wednesday, November 29, 2017 3:00:49 PM
