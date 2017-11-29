@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Science is no friend to the elusive Yeti, but it may help another"
-date: 2017-11-29 00:05:14Z
+date: 2017-11-29 01:33:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Monster hunters who hoped science would prove the existence of the Yeti once and
 
 Full story on F3News: [Science is no friend to the elusive Yeti, but it may help another](http://www.f3nws.com/n/sVpnpE)
 
-> Posted on: Wednesday, November 29, 2017 12:05:14 AM
+> Posted on: Wednesday, November 29, 2017 1:33:07 AM
