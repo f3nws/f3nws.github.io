@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Man arrested, to be charged in string of Tampa murders - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2017/11/29/c14df341-affb-46ff-a9d1-64ef2bb65caf/tampa-serial-killer-poster-2017-11-28.jpg)
 
-CBS News Man arrested, to be charged in string of Tampa murders CBS News Last Updated Nov 29, 2017 6:23 AM EST. Tampa police said Tuesday night they had arrested a 24-year-old man and that he would be charged with murder in four shooting deaths in the Seminole Heights neighborhood that had stoked fears of a serial killer in ... Suspect Will Be Charged in 4 Killings That Terrorized Tampa New York Times CAUGHT: Arrest made in Seminole Heights murders WTSP 10 News Police Arrest 24-Year-Old McDonald's Employee Suspected of Being the Florida Serial Killer PEOPLE.com WSB Atlanta - New York Post - ABC15 Arizona - CNN all 147 news articles »
+CBS News Man arrested, to be charged in string of Tampa murders CBS News Last Updated Nov 29, 2017 7:34 AM EST. Tampa police said Tuesday night they had arrested a 24-year-old man and that he would be charged with murder in four shooting deaths in the Seminole Heights neighborhood that had stoked fears of a serial killer in ... Tampa killings: Suspect Howell Donaldson to be charged with murder NBCNews.com Tampa police arrest possible serial killer in Seminole Heights murders Fox News Seminole Heights Killings: Timeline of events that led to arrest of Howell Emanuel Donaldson III ABC Action News BBC News - NBC Southern California - WTSP 10 News - Syracuse.com all 174 news articles »
 
 
 Full story on F3News: [Man arrested, to be charged in string of Tampa murders - CBS News](http://www.f3nws.com/n/TbhY4E)
