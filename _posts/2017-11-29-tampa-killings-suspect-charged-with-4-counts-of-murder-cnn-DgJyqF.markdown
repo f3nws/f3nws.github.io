@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tampa killings suspect charged with 4 counts of murder - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171128172438-03-tampa-police-presser-1128-screengrab-aerial-scene-super-tease.jpg)
 
-CNN Tampa killings suspect charged with 4 counts of murder CNN (CNN) [Breaking news update, posted at 10:34 a.m. ET]. Tampa Police Chief Brian Dugan said Howell Donaldson III, the suspect charged with killing four people in the city's Seminole Heights neighborhood, seemed "fine" and knew where he was and what was ... Cellphone tracking, shell casings place alleged Tampa serial killer at shooting locations: Police ABC News Tampa serial killer suspect used same gun in 4 killings, police say Fox News Tampa Police Charge Suspect in 4 Killings That Terrorized Neighborhood New York Times BBC News - NBCNews.com - Miami Herald - WTOP all 236 news articles »
+CNN Tampa killings suspect charged with 4 counts of murder CNN (CNN) After a nearly two-month search, Tampa police arrested and charged a 24-year-old man with four counts of murder in connection to a series of fatal shootings that had terrified residents in the city's Seminole Heights neighborhood. Howell ... "What we needed": Crucial tip led to Tampa serial killing suspect's arrest CBS News Tampa police: Finding gun was key in arrest in 4 slayings ABC News Tampa serial killer suspect used same gun in 4 killings, police say Fox News New York Times - BBC News - NBCNews.com - WLS-TV all 258 news articles »
 
 
 Full story on F3News: [Tampa killings suspect charged with 4 counts of murder - CNN](http://www.f3nws.com/n/DgJyqF)

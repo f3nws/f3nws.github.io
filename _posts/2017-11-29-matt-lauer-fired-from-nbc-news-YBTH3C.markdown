@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Matt Lauer fired from NBC News"
-date: 2017-11-29 16:05:42Z
+date: 2017-11-29 17:11:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Matt Lauer fired from NBC News](http://www.f3nws.com/n/YBTH3C)
 
-> Posted on: Wednesday, November 29, 2017 4:05:42 PM
+> Posted on: Wednesday, November 29, 2017 5:11:11 PM
