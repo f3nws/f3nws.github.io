@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Matt Lauer fired from 'Today' due to 'inappropriate sexual behavior' in the workplace"
-date: 2017-11-29 13:27:00Z
+date: 2017-11-29 13:54:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [Matt Lauer fired from 'Today' due to 'inappropriate sexual behavior' in the workplace](http://www.f3nws.com/n/K4mATJ)
 
-> Posted on: Wednesday, November 29, 2017 1:27:00 PM
+> Posted on: Wednesday, November 29, 2017 1:54:00 PM

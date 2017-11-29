@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NBC News fires Matt Lauer over inappropriate sexual behavior"
-date: 2017-11-29 08:28:00Z
+date: 2017-11-29 09:08:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — NBC News fired longtime "Today" show host Matt Lauer on Wednes
 
 Full story on F3News: [NBC News fires Matt Lauer over inappropriate sexual behavior](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, November 29, 2017 8:28:00 AM
+> Posted on: Wednesday, November 29, 2017 9:08:00 AM

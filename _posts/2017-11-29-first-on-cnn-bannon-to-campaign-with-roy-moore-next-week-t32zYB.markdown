@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First on CNN: Bannon to campaign with Roy Moore next week"
-date: 2017-11-29 07:25:35Z
+date: 2017-11-29 14:03:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon will campaign with embattled Ju
 
 Full story on F3News: [First on CNN: Bannon to campaign with Roy Moore next week](http://www.f3nws.com/n/t32zYB)
 
-> Posted on: Wednesday, November 29, 2017 7:25:35 AM
+> Posted on: Wednesday, November 29, 2017 2:03:51 PM
