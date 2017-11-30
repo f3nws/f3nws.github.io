@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Can a zebra crossing change its stripes?"
-date: 2017-11-30 02:36:02Z
+date: 2017-11-30 12:57:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Imagine a responsive pedestrian crosswalk that thinks for itself.
 
 Full story on F3News: [Can a zebra crossing change its stripes?](http://www.f3nws.com/n/T4JZFB)
 
-> Posted on: Thursday, November 30, 2017 2:36:02 AM
+> Posted on: Thursday, November 30, 2017 12:57:34 PM
