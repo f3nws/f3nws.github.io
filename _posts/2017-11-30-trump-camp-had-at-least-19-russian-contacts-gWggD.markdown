@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump camp had at least 19 Russian contacts"
-date: 2017-11-30 03:09:26Z
+date: 2017-11-30 02:48:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow updates a running list of Russia-connected contacts by members of 
 
 Full story on F3News: [Trump camp had at least 19 Russian contacts](http://www.f3nws.com/n/gWggD)
 
-> Posted on: Thursday, November 30, 2017 3:09:26 AM
+> Posted on: Thursday, November 30, 2017 2:48:00 AM
