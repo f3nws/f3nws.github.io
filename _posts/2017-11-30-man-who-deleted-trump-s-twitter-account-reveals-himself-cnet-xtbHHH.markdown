@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man who deleted Trump's Twitter account reveals himself     - CNET"
-date: 2017-11-30 01:25:04Z
+date: 2017-11-30 01:27:57Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A 20-something German citizen tells TechCrunch the act was a mistake and he didn
 
 Full story on F3News: [Man who deleted Trump's Twitter account reveals himself     - CNET](http://www.f3nws.com/n/xtbHHH)
 
-> Posted on: Thursday, November 30, 2017 1:25:04 AM
+> Posted on: Thursday, November 30, 2017 1:27:57 AM
