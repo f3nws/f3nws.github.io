@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN Exclusive: Jared Kushner met with special counsel about Flynn"
-date: 2017-11-30 03:20:15Z
+date: 2017-11-30 08:49:00Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Jared Kushner met earlier this month with Special Counsel Robert Mueller's team 
 
 Full story on F3News: [CNN Exclusive: Jared Kushner met with special counsel about Flynn](http://www.f3nws.com/n/YzMgRF)
 
-> Posted on: Thursday, November 30, 2017 3:20:15 AM
+> Posted on: Thursday, November 30, 2017 8:49:00 AM

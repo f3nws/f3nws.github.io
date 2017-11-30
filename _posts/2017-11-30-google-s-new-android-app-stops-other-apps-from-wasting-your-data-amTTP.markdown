@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Google’s new Android app stops other apps from wasting your data](https://cdn.vox-cdn.com/thumbor/sutor52NROUFJDgs6LkPq4pSDqM=/0x172:2400x1429/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9776525/datally.jpg)
 
-The Verge Google's new Android app stops other apps from wasting your data The Verge Google is launching another stylish and simple Android app designed to help people manage one of the core functions of their phone — in this case, data usage. The app is called Datally, and it's supposed to help you understand where you data is going ... Google's New App Helps Phone Users in Emerging Markets Monitor Their Data Usage Fortune Google's newest app stops you burning through your data package TechCrunch Google's mobile data-saving app has moved out of beta and renamed to Datally 9to5Google Android Police - androidandme.com - Phone Arena - PhoneDog all 43 news articles »
+The Verge Google's new Android app stops other apps from wasting your data The Verge Google is launching another stylish and simple Android app designed to help people manage one of the core functions of their phone — in this case, data usage. The app is called Datally, and it's supposed to help you understand where you data is going ... Google's New App Helps Phone Users in Emerging Markets Monitor Their Data Usage Fortune Google Rebrands Its Triangle Android App As 'Datally' Android Headlines Google's newest app stops you burning through your data package TechCrunch BetaNews - 9to5Google - Android Police - Neowin all 57 news articles »
 
 
 Full story on F3News: [Google’s new Android app stops other apps from wasting your data](http://www.f3nws.com/n/amTTP)

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mueller's Prosecutors Are Said to Have Interviewed Jared Kushner on Russia Meeting - New York Times](https://static01.nyt.com/images/2017/11/30/business/30dc-Kushner-web/30dc-Kushner-web-facebookJumbo.jpg)
 
-New York Times Mueller's Prosecutors Are Said to Have Interviewed Jared Kushner on Russia Meeting New York Times WASHINGTON — President Trump's son-in-law and adviser, Jared Kushner, met this month with investigators working for Robert S. Mueller III, the special counsel, and answered questions about a meeting with a Russian ambassador during the presidential ... CNN Exclusive: Jared Kushner met with special counsel about Flynn CNN Jared Kushner questioned about Michael Flynn in Mueller's Russia probe, reports say USA TODAY Jared Kushner interviewed by special counsel's office CBS News ABC News - Business Insider - The Hill - Fox News all 78 news articles »
+New York Times Mueller's Prosecutors Are Said to Have Interviewed Jared Kushner on Russia Meeting New York Times WASHINGTON — President Trump's son-in-law and adviser, Jared Kushner, met this month with investigators working for Robert S. Mueller III, the special counsel, and answered questions about a meeting with a Russian ambassador during the presidential ... CNN Exclusive: Jared Kushner met with special counsel about Flynn CNN Judge Andrew Napolitano: Thanksgiving is over but Mueller and his team remain hard at work Fox News Jared Kushner interviewed by special counsel's office CBS News Business Insider - The Hill - ABC News - Reuters all 94 news articles »
 
 
 Full story on F3News: [Mueller's Prosecutors Are Said to Have Interviewed Jared Kushner on Russia Meeting - New York Times](http://www.f3nws.com/n/rMyVAE)
