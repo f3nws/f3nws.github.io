@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jim Nabors, the Cheerful Gomer Pyle on Two TV Series, Dies at 87 - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2017/05/jim_nabors.jpg)
 
-CNN Jim Nabors, the Cheerful Gomer Pyle on Two TV Series, Dies at 87 Hollywood Reporter The Alabama native with the rich baritone voice also had his own CBS variety show and recorded several hit albums. Jim Nabors, who starred as Gomer Pyle on The Andy Griffith Show and on his own sitcom before retiring the wide-eyed, countrified ... Remember Jim Nabors by Streaming These 5 'Andy Griffith Show' Episodes New York Times Jim Nabors, Who Played Affable Klutz Gomer Pyle, Dies At 87 NPR Jim Nabors, 'Gomer Pyle' star, dead at 87 USA TODAY Deadline - EW.com (blog) - Los Angeles Times - HuffPost all 174 news articles »
+TIME Jim Nabors, the Cheerful Gomer Pyle on Two TV Series, Dies at 87 Hollywood Reporter The Alabama native with the rich baritone voice also had his own CBS variety show and recorded several hit albums. Jim Nabors, who starred as Gomer Pyle on The Andy Griffith Show and on his own sitcom before retiring the wide-eyed, countrified ... Jim Nabors, 87, TV's Gomer Pyle, Is Dead New York Times Jim Nabors, 'Gomer Pyle' star, dead at 87 USA TODAY Jim Nabors, Who Played Affable Klutz Gomer Pyle, Dies At 87 NPR Deadline - EW.com (blog) - Los Angeles Times - SFGate all 190 news articles »
 
 
 Full story on F3News: [Jim Nabors, the Cheerful Gomer Pyle on Two TV Series, Dies at 87 - Hollywood Reporter](http://www.f3nws.com/n/ujjDaB)
