@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who knew? Surprising celebrity facts"
-date: 2017-11-30 00:45:03Z
+date: 2017-11-30 04:45:06Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Bet you think you know everything, dontcha.
 
 Full story on F3News: [Who knew? Surprising celebrity facts](http://www.f3nws.com/n/bzEXcB)
 
-> Posted on: Thursday, November 30, 2017 12:45:03 AM
+> Posted on: Thursday, November 30, 2017 4:45:06 AM
