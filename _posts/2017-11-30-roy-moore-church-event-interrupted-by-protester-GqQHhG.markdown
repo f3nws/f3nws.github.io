@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roy Moore church event interrupted by protester"
-date: 2017-11-30 03:22:04Z
+date: 2017-11-30 17:40:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Embattled Republican Senate candidate Roy Moore was interrupted by protester Wed
 
 Full story on F3News: [Roy Moore church event interrupted by protester](http://www.f3nws.com/n/GqQHhG)
 
-> Posted on: Thursday, November 30, 2017 3:22:04 AM
+> Posted on: Thursday, November 30, 2017 5:40:54 PM
