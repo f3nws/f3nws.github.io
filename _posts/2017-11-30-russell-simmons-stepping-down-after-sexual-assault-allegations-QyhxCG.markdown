@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russell Simmons stepping down after sexual assault allegations"
-date: 2017-11-30 17:46:42Z
+date: 2017-11-30 21:52:19Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Russell Simmons stepping down after sexual assault allegations](http://www.f3nws.com/n/QyhxCG)
 
-> Posted on: Thursday, November 30, 2017 5:46:42 PM
+> Posted on: Thursday, November 30, 2017 9:52:19 PM

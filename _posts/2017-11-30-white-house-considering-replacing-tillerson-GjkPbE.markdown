@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House considering replacing Tillerson"
-date: 2017-11-30 19:42:30Z
+date: 2017-11-30 22:37:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House is contemplating a scenario to replace Secretary of State Rex Ti
 
 Full story on F3News: [White House considering replacing Tillerson](http://www.f3nws.com/n/GjkPbE)
 
-> Posted on: Thursday, November 30, 2017 7:42:30 PM
+> Posted on: Thursday, November 30, 2017 10:37:59 PM

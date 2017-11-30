@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Matt Lauer Offers Apology (With a Caveat) - New York Times](https://static01.nyt.com/images/icons/t_logo_291_black.png)
 
-New York Times Matt Lauer Offers Apology (With a Caveat) New York Times Matt Lauer expressed “sorrow and regret for the pain I have caused” in a statement on Thursday morning, his first public comments after NBC News fired the star “Today” show anchor amid allegations of inappropriate sexual behavior with colleagues. “Some ... Why don't women talk about harassment? They are afraid to lose their jobs. Washington Post It's Time to Do Away With 'America's Dad' As Our Journalistic Standard Vulture NBC's Savannah Guthrie slammed for 'disrespectful' interview of sex harassment accuser Fox News Variety - CBS News - PEOPLE.com - Hollywood Reporter all 2,942 news articles »
+New York Times Matt Lauer Offers Apology (With a Caveat) New York Times Matt Lauer expressed “sorrow and regret for the pain I have caused” in a statement on Thursday morning, his first public comments after NBC News fired the star “Today” show anchor amid allegations of inappropriate sexual behavior with colleagues. “Some ... Midler to Rivera: Apologize for alleged sexual assault ABC News Why don't women talk about harassment? They are afraid to lose their jobs. Washington Post NBC's shifting statements on Lauer draw scrutiny Politico Vulture - PEOPLE.com - Daily Beast - Fox News all 3,046 news articles »
 
 
 Full story on F3News: [Matt Lauer Offers Apology (With a Caveat) - New York Times](http://www.f3nws.com/n/XqgzSG)
