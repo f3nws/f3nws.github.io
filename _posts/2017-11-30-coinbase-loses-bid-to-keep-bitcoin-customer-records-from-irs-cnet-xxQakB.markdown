@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Coinbase loses bid to keep Bitcoin customer records from IRS     - CNET"
-date: 2017-11-30 00:00:34Z
+date: 2017-11-30 01:19:31Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Bitcoin exchange must surrender records on transactions of $20,000 or more, a fe
 
 Full story on F3News: [Coinbase loses bid to keep Bitcoin customer records from IRS     - CNET](http://www.f3nws.com/n/xxQakB)
 
-> Posted on: Thursday, November 30, 2017 12:00:34 AM
+> Posted on: Thursday, November 30, 2017 1:19:31 AM

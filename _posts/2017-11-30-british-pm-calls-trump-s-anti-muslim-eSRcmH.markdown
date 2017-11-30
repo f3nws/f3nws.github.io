@@ -7,7 +7,7 @@ categories: msnbc
 
 ![British PM calls Trump’s Anti-Muslim...](https://media1.s-nbcnews.com/j/MSNBC/Components/Video/201711/n_hardball_costa_171129_1920x1080.video_1067x600.jpg)
 
-This morning, President Trump also retreated a series of inflammatory and unverified anti-Muslim videos posted by a leader of the far -right "Britain First" party.
+This morning, President Trump retweeted a series of inflammatory and unverified anti-Muslim videos posted by a leader of the far-right "Britain First" party.
 
 
 Full story on F3News: [British PM calls Trump’s Anti-Muslim...](http://www.f3nws.com/n/eSRcmH)
