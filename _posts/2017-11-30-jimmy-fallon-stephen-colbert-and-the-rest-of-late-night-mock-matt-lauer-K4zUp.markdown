@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Fallon, Stephen Colbert and the rest of late night mock Matt Lauer"
-date: 2017-11-30 06:28:24Z
+date: 2017-11-30 10:46:49Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Jimmy Fallon, Stephen Colbert and the rest of late night mock Matt Lauer](http://www.f3nws.com/n/K4zUp)
 
-> Posted on: Thursday, November 30, 2017 6:28:24 AM
+> Posted on: Thursday, November 30, 2017 10:46:49 AM
