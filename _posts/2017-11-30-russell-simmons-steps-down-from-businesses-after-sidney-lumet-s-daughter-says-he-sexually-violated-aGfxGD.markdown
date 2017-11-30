@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russell Simmons steps down from businesses after Sidney Lumet's daughter says he sexually violated her"
-date: 2017-11-30 16:30:00Z
+date: 2017-11-30 18:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Russell Simmons has stepped down from his businesses after a new report of alleg
 
 Full story on F3News: [Russell Simmons steps down from businesses after Sidney Lumet's daughter says he sexually violated her](http://www.f3nws.com/n/aGfxGD)
 
-> Posted on: Thursday, November 30, 2017 4:30:00 PM
+> Posted on: Thursday, November 30, 2017 6:45:00 PM
