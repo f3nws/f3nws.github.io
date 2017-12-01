@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump slams 'disgraceful' acquittal of Mexican on murder charge"
-date: 2017-12-01 11:20:36Z
+date: 2017-12-01 12:05:02Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump, who often brought up the death of Kate Steinle during hi
 
 Full story on F3News: [Trump slams 'disgraceful' acquittal of Mexican on murder charge](http://www.f3nws.com/n/dfJvNH)
 
-> Posted on: Friday, December 1, 2017 11:20:36 AM
+> Posted on: Friday, December 1, 2017 12:05:02 PM
