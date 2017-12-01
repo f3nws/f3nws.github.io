@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan Emperor Akihito to abdicate on April 30, 2019"
-date: 2017-12-01 03:28:22Z
+date: 2017-12-01 04:13:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan's much-loved Emperor Akihito will stand down on April 30, 2019, the first 
 
 Full story on F3News: [Japan Emperor Akihito to abdicate on April 30, 2019](http://www.f3nws.com/n/PGVCzD)
 
-> Posted on: Friday, December 1, 2017 3:28:22 AM
+> Posted on: Friday, December 1, 2017 4:13:31 AM

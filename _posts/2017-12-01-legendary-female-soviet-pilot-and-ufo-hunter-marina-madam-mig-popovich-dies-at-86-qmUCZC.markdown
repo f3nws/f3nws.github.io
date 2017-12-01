@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Legendary female Soviet pilot and UFO hunter, Marina 'Madam MIG' Popovich, dies at 86"
-date: 2017-12-01 01:45:07Z
+date: 2017-12-01 01:45:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Legendary Soviet first class test pilot Marina Popovich, dubbed “Madam MIG” 
 
 Full story on F3News: [Legendary female Soviet pilot and UFO hunter, Marina 'Madam MIG' Popovich, dies at 86](http://www.f3nws.com/n/qmUCZC)
 
-> Posted on: Friday, December 1, 2017 1:45:07 AM
+> Posted on: Friday, December 1, 2017 1:45:00 AM
