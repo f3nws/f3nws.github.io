@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australia turns on world's biggest battery"
-date: 2017-12-01 06:55:26Z
+date: 2017-12-01 08:12:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Australia turns on world's biggest battery](http://www.f3nws.com/n/GgFrWH)
 
-> Posted on: Friday, December 1, 2017 6:55:26 AM
+> Posted on: Friday, December 1, 2017 8:12:41 AM
