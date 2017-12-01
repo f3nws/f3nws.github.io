@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best VR headset 2017: which headset offers the best bang for your buck?"
-date: 2017-12-01 07:35:00Z
+date: 2017-12-01 08:35:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ The best VR headset for your money, from Oculus and HTC Vive to PlayStation VR a
 
 Full story on F3News: [The best VR headset 2017: which headset offers the best bang for your buck?](http://www.f3nws.com/n/CYkXSG)
 
-> Posted on: Friday, December 1, 2017 7:35:00 AM
+> Posted on: Friday, December 1, 2017 8:35:00 AM
