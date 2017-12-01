@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cop taunts would-be killer with lube on way to prison: 'You are going to need a lot of this'"
-date: 2017-12-01 17:45:05Z
+date: 2017-12-01 18:45:06Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A police officer taunted the Jacksonville man who shot him multiple times last y
 
 Full story on F3News: [Cop taunts would-be killer with lube on way to prison: 'You are going to need a lot of this'](http://www.f3nws.com/n/ggWSGE)
 
-> Posted on: Friday, December 1, 2017 5:45:05 PM
+> Posted on: Friday, December 1, 2017 6:45:06 PM

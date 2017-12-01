@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan helped Iran evade US sanctions, witness claims"
-date: 2017-12-01 17:38:20Z
+date: 2017-12-01 18:20:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Turkish President Recep Tayyip Erdogan personally intervened in a scheme that al
 
 Full story on F3News: [Erdogan helped Iran evade US sanctions, witness claims](http://www.f3nws.com/n/gnaZfC)
 
-> Posted on: Friday, December 1, 2017 5:38:20 PM
+> Posted on: Friday, December 1, 2017 6:20:04 PM
