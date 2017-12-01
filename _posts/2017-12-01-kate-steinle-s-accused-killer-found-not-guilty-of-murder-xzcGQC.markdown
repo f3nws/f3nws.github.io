@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kate Steinle’s accused killer found not guilty of murder"
-date: 2017-12-01 02:06:00Z
+date: 2017-12-01 03:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Jurors have found Jose Ines Garcia Zarate not guilty of killing Kate Steinle on 
 
 Full story on F3News: [Kate Steinle’s accused killer found not guilty of murder](http://www.f3nws.com/n/xzcGQC)
 
-> Posted on: Friday, December 1, 2017 2:06:00 AM
+> Posted on: Friday, December 1, 2017 3:30:00 AM

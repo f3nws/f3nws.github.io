@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Air Force destroys ballistic missile launched from Yemen"
-date: 2017-12-01 02:29:57Z
+date: 2017-12-01 03:43:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Saudi Royal Air Force intercepted and destroyed a ballistic missile launched
 
 Full story on F3News: [Saudi Air Force destroys ballistic missile launched from Yemen](http://www.f3nws.com/n/N4SnSE)
 
-> Posted on: Friday, December 1, 2017 2:29:57 AM
+> Posted on: Friday, December 1, 2017 3:43:34 AM
