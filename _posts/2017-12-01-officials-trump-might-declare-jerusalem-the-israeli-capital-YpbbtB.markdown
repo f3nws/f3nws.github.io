@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials: Trump might declare Jerusalem the Israeli capital"
-date: 2017-12-01 09:33:51Z
+date: 2017-12-01 10:42:20Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump is considering recognizing Jerusalem 
 
 Full story on F3News: [Officials: Trump might declare Jerusalem the Israeli capital](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 1, 2017 9:33:51 AM
+> Posted on: Friday, December 1, 2017 10:42:20 AM

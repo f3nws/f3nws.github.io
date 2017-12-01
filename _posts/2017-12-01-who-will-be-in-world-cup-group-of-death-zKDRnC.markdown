@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who will be in World Cup 'Group of Death?'"
-date: 2017-12-01 08:29:39Z
+date: 2017-12-01 10:12:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Before the World Cup, there's the World Cup draw. Here's all you need to know ab
 
 Full story on F3News: [Who will be in World Cup 'Group of Death?'](http://www.f3nws.com/n/zKDRnC)
 
-> Posted on: Friday, December 1, 2017 8:29:39 AM
+> Posted on: Friday, December 1, 2017 10:12:57 AM
