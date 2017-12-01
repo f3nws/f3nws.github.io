@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American Airlines employees to undergo anti-racism training"
-date: 2017-12-01 00:12:01Z
+date: 2017-12-01 17:44:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [American Airlines employees to undergo anti-racism training](http://www.f3nws.com/n/nYhGd)
 
-> Posted on: Friday, December 1, 2017 12:12:01 AM
+> Posted on: Friday, December 1, 2017 5:44:09 PM

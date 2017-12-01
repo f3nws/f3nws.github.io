@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trial focused on shooting despite spotlight on immigration"
-date: 2017-12-01 16:40:48Z
+date: 2017-12-01 17:35:11Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — Though the 2015 shooting death of Kate Steinle became a f
 
 Full story on F3News: [Trial focused on shooting despite spotlight on immigration](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 1, 2017 4:40:48 PM
+> Posted on: Friday, December 1, 2017 5:35:11 PM
