@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump calls Kate Steinle verdict 'disgraceful,' says 'no wonder' people are 'angry with illegal immigration'"
-date: 2017-12-01 07:45:05Z
+date: 2017-12-01 08:45:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Trump on Thursday night tweeted that the not guilty verdict in the Kat
 
 Full story on F3News: [Trump calls Kate Steinle verdict 'disgraceful,' says 'no wonder' people are 'angry with illegal immigration'](http://www.f3nws.com/n/Cd23NH)
 
-> Posted on: Friday, December 1, 2017 7:45:05 AM
+> Posted on: Friday, December 1, 2017 8:45:05 AM
