@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jim Nabors, who played TV's hapless hayseed Gomer Pyle, dies at 87 - Washington Post](https://www.washingtonpost.com/rf/image_1484w/WashingtonPost/Content/Blogs/reliable-source/Images/People_Nabors-0b77b.jpg?t=20170517)
 
-Washington Post Jim Nabors, who played TV's hapless hayseed Gomer Pyle, dies at 87 Washington Post Jim Nabors, a singer and comic actor who played the bumbling but good-natured hayseed Gomer Pyle on “The Andy Griffith Show” before starring as an unlikely Marine recruit in “Gomer Pyle, U.S.M.C.,” one of the most popular sitcoms of the 1960s, died Nov ... Jim Nabors, TV's homespun Gomer Pyle and singer, dies at 87 WJLA For Nabors, Hawaii was home Honolulu Star-Advertiser Celebrities react to death of 'Gomer Pyle' star Jim Nabors ABC News Hollywood Reporter - Indianapolis Star - Reuters - Hawaii News Now all 245 news articles »
+Washington Post Jim Nabors, who played TV's hapless hayseed Gomer Pyle, dies at 87 Washington Post Jim Nabors, a singer and comic actor who played the bumbling but good-natured hayseed Gomer Pyle on “The Andy Griffith Show” before starring as an unlikely Marine recruit in “Gomer Pyle, U.S.M.C.,” one of the most popular sitcoms of the 1960s, died Nov ... Jim Nabors, Who Made Cheery Gomer Pyle a TV Icon, Dies at 87 U.S. News & World Report For Nabors, Hawaii was home Honolulu Star-Advertiser Celebrities react to death of 'Gomer Pyle' star Jim Nabors ABC News Hollywood Reporter - Indianapolis Star - Hawaii News Now - Jalopnik all 254 news articles »
 
 
 Full story on F3News: [Jim Nabors, who played TV's hapless hayseed Gomer Pyle, dies at 87 - Washington Post](http://www.f3nws.com/n/x34nP)

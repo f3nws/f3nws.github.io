@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Jong Nam had antidote to VX nerve agent on him at time of murder"
-date: 2017-12-01 06:47:31Z
+date: 2017-12-01 07:12:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The half-brother of North Korea's leader Kim Jong Un was carrying an antidote to
 
 Full story on F3News: [Kim Jong Nam had antidote to VX nerve agent on him at time of murder](http://www.f3nws.com/n/y4qEaG)
 
-> Posted on: Friday, December 1, 2017 6:47:31 AM
+> Posted on: Friday, December 1, 2017 7:12:03 AM
