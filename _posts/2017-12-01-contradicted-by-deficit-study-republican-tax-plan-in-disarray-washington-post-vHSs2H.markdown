@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Contradicted by deficit study, Republican tax plan in disarray - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/12/01/Others/Images/2017-11-30/m_9.JPG?t=20170517)
 
-Washington Post Contradicted by deficit study, Republican tax plan in disarray Washington Post Republicans began planning for a day like Thursday the moment they took control of Congress four years ago, almost immediately changing the way tax cuts would be officially scored. Instead of just calculating how much reducing taxes would add to the ... Republican Tax Bill Hits Snag Over Deficit Concerns New York Times McConnell works to salvage tax bill The Hill Republicans rewriting tax bill — with fight pushed into Friday Politico CNN - NPR - Bloomberg - USA TODAY all 3,278 news articles »
+Washington Post Contradicted by deficit study, Republican tax plan in disarray Washington Post Republicans began planning for a day like Thursday the moment they took control of Congress four years ago, almost immediately changing the way tax cuts would be officially scored. Instead of just calculating how much reducing taxes would add to the ... Republican Tax Bill Hits Snag Over Deficit Concerns New York Times Republicans rewriting tax bill — with fight pushed into Friday Politico The Senate tax bill has hit a snag, votes to continue Friday CNN The Hill - NPR - Business Insider - USA TODAY all 2,860 news articles »
 
 
 Full story on F3News: [Contradicted by deficit study, Republican tax plan in disarray - Washington Post](http://www.f3nws.com/n/vHSs2H)

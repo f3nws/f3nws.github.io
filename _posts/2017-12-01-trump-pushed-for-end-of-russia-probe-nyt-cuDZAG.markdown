@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump pushed for end of Russia probe: NYT"
-date: 2017-12-01 04:04:51Z
+date: 2017-12-01 02:35:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Joyce Vance, former U.S. attorney, talks with Rachel Maddow about Donald Trump's
 
 Full story on F3News: [Trump pushed for end of Russia probe: NYT](http://www.f3nws.com/n/cuDZAG)
 
-> Posted on: Friday, December 1, 2017 4:04:51 AM
+> Posted on: Friday, December 1, 2017 2:35:00 AM
