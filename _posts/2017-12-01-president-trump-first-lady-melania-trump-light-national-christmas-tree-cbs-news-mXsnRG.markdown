@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![President Trump, first lady Melania Trump light National Christmas Tree - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2017/11/30/4c635c84-f4a2-4f5c-a01f-423285d02a72/gettyimages-883293726.jpg)
 
-CBS News President Trump, first lady Melania Trump light National Christmas Tree CBS News Last Updated Nov 30, 2017 8:11 PM EST. Kicking off the holiday season, President Trump and first lady Melania Trump lit the National Christmas Tree at the White House Thursday evening. "We want to wish everybody a merry Christmas, a happy New Year ... Twitter Ridicules Trump For Small Crowd At Christmas Tree Lighting International Business Times Donald and Melania Trump light National Christmas tree Fox News Trump Winning The "War On Christmas" Is Bad For Christians (& Everyone Else) Bustle WBUR all 225 news articles »
+CBS News President Trump, first lady Melania Trump light National Christmas Tree CBS News Last Updated Nov 30, 2017 8:11 PM EST. Kicking off the holiday season, President Trump and first lady Melania Trump lit the National Christmas Tree at the White House Thursday evening. "We want to wish everybody a merry Christmas, a happy New Year ... Melania Trump leads 95th annual National Christmas Tree lighting ceremony ABC News Twitter Ridicules Trump For Small Crowd At Christmas Tree Lighting International Business Times Donald and Melania Trump light National Christmas tree Fox News Breitbart News - Voice of America - Washington Times - Hollywood Life all 251 news articles »
 
 
 Full story on F3News: [President Trump, first lady Melania Trump light National Christmas Tree - CBS News](http://www.f3nws.com/n/mXsnRG)
