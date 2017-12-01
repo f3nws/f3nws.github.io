@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Accusers face risks in breaking nondisclosure agreements"
-date: 2017-12-01 06:36:17Z
+date: 2017-12-01 06:50:03Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CHICAGO (AP) — Details of alleged sexual assaults by Hollywood mogul Harvey We
 
 Full story on F3News: [Accusers face risks in breaking nondisclosure agreements](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 1, 2017 6:36:17 AM
+> Posted on: Friday, December 1, 2017 6:50:03 AM
