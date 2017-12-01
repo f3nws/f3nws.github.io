@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rex Tillerson is not leaving role as secretary of state, Trump says"
-date: 2017-12-01 20:30:00Z
+date: 2017-12-01 21:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson is not leaving the Trump administration despite
 
 Full story on F3News: [Rex Tillerson is not leaving role as secretary of state, Trump says](http://www.f3nws.com/n/XYceYE)
 
-> Posted on: Friday, December 1, 2017 8:30:00 PM
+> Posted on: Friday, December 1, 2017 9:00:00 PM
