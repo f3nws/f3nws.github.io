@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best mobile games of 2017     - CNET"
-date: 2017-12-02 04:03:08Z
+date: 2017-12-02 12:30:11Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Looking for a new game to play on your mobile device? Here are our picks of the 
 
 Full story on F3News: [Best mobile games of 2017     - CNET](http://www.f3nws.com/n/SrkFp)
 
-> Posted on: Saturday, December 2, 2017 4:03:08 AM
+> Posted on: Saturday, December 2, 2017 12:30:11 PM
