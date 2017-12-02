@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaii's attack siren barely heard on popular tourist beach"
-date: 2017-12-02 09:42:03Z
+date: 2017-12-02 10:36:56Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HONOLULU (AP) — Hawaii officials were checking if sirens intended to alert tou
 
 Full story on F3News: [Hawaii's attack siren barely heard on popular tourist beach](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 2, 2017 9:42:03 AM
+> Posted on: Saturday, December 2, 2017 10:36:56 AM

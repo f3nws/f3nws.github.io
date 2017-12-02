@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Senate passes Republican tax reform bill"
-date: 2017-12-02 07:10:49Z
+date: 2017-12-02 10:17:20Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Senate Republicans have the votes to pass their tax plan CNN (CNN) Republica
 
 Full story on F3News: [US Senate passes Republican tax reform bill](http://www.f3nws.com/n/cUKU4D)
 
-> Posted on: Saturday, December 2, 2017 7:10:49 AM
+> Posted on: Saturday, December 2, 2017 10:17:20 AM
