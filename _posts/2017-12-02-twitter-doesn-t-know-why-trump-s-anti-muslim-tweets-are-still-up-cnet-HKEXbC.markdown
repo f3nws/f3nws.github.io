@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter doesn't know why Trump's anti-Muslim tweets are still up     - CNET"
-date: 2017-12-02 00:25:46Z
+date: 2017-12-02 01:29:20Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Initially, Twitter said the anti-Muslim videos retweeted by President Trump woul
 
 Full story on F3News: [Twitter doesn't know why Trump's anti-Muslim tweets are still up     - CNET](http://www.f3nws.com/n/HKEXbC)
 
-> Posted on: Saturday, December 2, 2017 12:25:46 AM
+> Posted on: Saturday, December 2, 2017 1:29:20 AM

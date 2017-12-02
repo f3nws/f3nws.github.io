@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump denies Tillerson out as secretary of state"
-date: 2017-12-02 01:32:01Z
+date: 2017-12-02 02:40:14Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump on Friday denied he wants to oust Sec
 
 Full story on F3News: [Trump denies Tillerson out as secretary of state](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 2, 2017 1:32:01 AM
+> Posted on: Saturday, December 2, 2017 2:40:14 AM
