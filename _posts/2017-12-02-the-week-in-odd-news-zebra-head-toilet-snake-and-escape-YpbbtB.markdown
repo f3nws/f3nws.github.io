@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "The week in odd news:  Zebra head, toilet snake and escape"
-date: 2017-12-02 14:42:50Z
+date: 2017-12-02 15:36:48Z
 categories: associated-press-ap-top-headlines
 ---
 
-BUTTERMILK BUSTED: CLEVER BEAGLE AT AN ANIMAL SHELTER CAUGHT SCALING HER CAGE
+SPHINX FROM 90-YEAR-OLD MOVIE SET UNEARTHED IN CALIFORNIA
 
 
 Full story on F3News: [The week in odd news:  Zebra head, toilet snake and escape](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 2, 2017 2:42:50 PM
+> Posted on: Saturday, December 2, 2017 3:36:48 PM

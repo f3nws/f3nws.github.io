@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Voyager 1 spacecraft thrusters fired up for first time since 1980"
-date: 2017-12-02 04:39:56Z
+date: 2017-12-02 15:13:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's a good idea to have a backup plan, especially in interstellar space.
 
 Full story on F3News: [Voyager 1 spacecraft thrusters fired up for first time since 1980](http://www.f3nws.com/n/KvqH2C)
 
-> Posted on: Saturday, December 2, 2017 4:39:56 AM
+> Posted on: Saturday, December 2, 2017 3:13:38 PM
