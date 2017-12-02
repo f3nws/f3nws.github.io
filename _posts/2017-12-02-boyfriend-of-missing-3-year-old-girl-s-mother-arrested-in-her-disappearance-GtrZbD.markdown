@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boyfriend of missing 3-year-old girl's mother arrested in her disappearance"
-date: 2017-12-02 16:07:00Z
+date: 2017-12-02 19:12:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Authorities in North Carolina say they have arrested a suspect in connection wit
 
 Full story on F3News: [Boyfriend of missing 3-year-old girl's mother arrested in her disappearance](http://www.f3nws.com/n/GtrZbD)
 
-> Posted on: Saturday, December 2, 2017 4:07:00 PM
+> Posted on: Saturday, December 2, 2017 7:12:00 PM
