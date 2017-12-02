@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Data Logging using IPC in Windows"
-date: 2017-12-02 00:24:00Z
+date: 2017-12-02 00:52:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ This is yet another MMF IPC data transfer class, but with the particularities of
 
 Full story on F3News: [Data Logging using IPC in Windows](http://www.f3nws.com/n/aPWnt)
 
-> Posted on: Saturday, December 2, 2017 12:24:00 AM
+> Posted on: Saturday, December 2, 2017 12:52:00 AM

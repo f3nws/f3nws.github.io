@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple HomePod Release Date, Price and Specs     - CNET"
-date: 2017-12-02 00:17:51Z
+date: 2017-12-02 00:29:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The wait is almost over. Here's Apple's Siri-powered answer to the Amazon Echo a
 
 Full story on F3News: [Apple HomePod Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/fTMcTD)
 
-> Posted on: Saturday, December 2, 2017 12:17:51 AM
+> Posted on: Saturday, December 2, 2017 12:29:17 AM
