@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Rejects Reports That His Top Diplomat is Departing - New York Times](https://static01.nyt.com/images/2017/12/02/us/politics/02dc-tillerson/02dc-tillerson-facebookJumbo.jpg)
 
-New York Times Trump Rejects Reports That His Top Diplomat is Departing New York Times WASHINGTON — President Trump on Friday rejected reports that he would soon fire Secretary of State Rex W. Tillerson as “fake news,” but declared that “I call the final shots” as he acknowledged his disagreements with his top diplomat. The president's ... Is Trump's Son-in-law Destabilizing the Middle East? Rex Tillerson Thinks Jared Kushner Is a Threat to Peace Newsweek Kushner Is Leaving Tillerson in the Dark on Middle East Talks, Sources Say Bloomberg 'Abused' Tillerson loses clout on world stage, diplomats say Politico CNN - The Atlantic - The Hill - Washington Post all 1,048 news articles »
+New York Times Trump Rejects Reports That His Top Diplomat is Departing New York Times WASHINGTON — President Trump on Friday rejected reports that he would soon fire Secretary of State Rex W. Tillerson as “fake news,” but declared that “I call the final shots” as he acknowledged his disagreements with his top diplomat. The president's ... Kushner Is Leaving Tillerson in the Dark on Middle East Talks, Sources Say Bloomberg White House, State Department Vigorously Deny Rex Tillerson Departure Is Imminent Breitbart News Is Trump's Son-in-law Destabilizing the Middle East? Rex Tillerson Thinks Jared Kushner Is a Threat to Peace Newsweek CNN - Politico - The Atlantic - The Hill all 1,056 news articles »
 
 
 Full story on F3News: [Trump Rejects Reports That His Top Diplomat is Departing - New York Times](http://www.f3nws.com/n/BqVUKB)
