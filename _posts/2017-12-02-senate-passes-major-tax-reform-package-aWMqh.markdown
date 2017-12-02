@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate passes major tax reform package"
-date: 2017-12-02 06:52:00Z
+date: 2017-12-02 09:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The U.S. Senate voted just before 2 a.m. ET Saturday to pass a sweeping tax over
 
 Full story on F3News: [Senate passes major tax reform package](http://www.f3nws.com/n/aWMqh)
 
-> Posted on: Saturday, December 2, 2017 6:52:00 AM
+> Posted on: Saturday, December 2, 2017 9:00:00 AM
