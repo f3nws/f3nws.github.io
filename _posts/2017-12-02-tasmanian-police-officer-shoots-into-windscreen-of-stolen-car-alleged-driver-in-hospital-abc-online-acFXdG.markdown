@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tasmanian police officer shoots into windscreen of stolen car, alleged driver in hospital - ABC Online"
-date: 2017-12-02 02:18:41Z
+date: 2017-12-02 02:23:48Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ ABC Online Tasmanian police officer shoots into windscreen of stolen car, allege
 
 Full story on F3News: [Tasmanian police officer shoots into windscreen of stolen car, alleged driver in hospital - ABC Online](http://www.f3nws.com/n/acFXdG)
 
-> Posted on: Saturday, December 2, 2017 2:18:41 AM
+> Posted on: Saturday, December 2, 2017 2:23:48 AM
