@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Vermont senior tested ricin recipe on retirement community, feds say - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171201195319-wake-robin-ricin-1129-super-tease.jpg)
 
-CNN Vermont senior tested ricin recipe on retirement community, feds say CNN (CNN) The cupboard above the stove in Betty Miller's retirement apartment contained bottles labeled "apple seed," "cherry seed," "castor beans," and "ricin," the FBI says. The potentially deadly ricin, federal agents allege, was homemade by the 70-year ... Police: Woman made ricin, tested it on neighbors at retirement community USA TODAY A Woman Made Ricin Poison and Tested It on Retirement Home Residents, Investigators Say TIME Vermont Woman Tested Ricin On Neighbors At Retirement Home: Feds Patch.com U.S. News & World Report - The Guardian - WCAX - NECN all 50 news articles »
+CNN Vermont senior tested ricin recipe on retirement community, feds say CNN (CNN) The cupboard above the stove in Betty Miller's retirement apartment contained bottles labeled "apple seed," "cherry seed," "castor beans," and "ricin," the FBI says. The potentially deadly ricin, federal agents allege, was homemade by the 70-year ... Retiree, 70, made ricin, tested it on neighbors, feds say Fox News A Woman Made Ricin Poison and Tested It on Retirement Home Residents, Investigators Say TIME Vermont Woman Charged With Making Deadly Poison Ricin in Retirement Home U.S. News & World Report The Guardian - WCAX - Patch.com - International Business Times all 54 news articles »
 
 
 Full story on F3News: [Vermont senior tested ricin recipe on retirement community, feds say - CNN](http://www.f3nws.com/n/mKAagC)
