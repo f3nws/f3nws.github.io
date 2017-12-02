@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flynn case gives insight on probe's progress"
-date: 2017-12-02 03:51:11Z
+date: 2017-12-02 02:26:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Paul Fishman, former U.S. attorney, talks with Rachel Maddow about what the Mike
 
 Full story on F3News: [Flynn case gives insight on probe's progress](http://www.f3nws.com/n/V22AfF)
 
-> Posted on: Saturday, December 2, 2017 3:51:11 AM
+> Posted on: Saturday, December 2, 2017 2:26:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flynn prosecution still possible despite plea"
-date: 2017-12-02 04:16:22Z
+date: 2017-12-02 02:38:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Paul Fishman, former U.S. attorney, talks with Rachel Maddow about Mike Flynn's 
 
 Full story on F3News: [Flynn prosecution still possible despite plea](http://www.f3nws.com/n/MZJkvD)
 
-> Posted on: Saturday, December 2, 2017 4:16:22 AM
+> Posted on: Saturday, December 2, 2017 2:38:00 AM

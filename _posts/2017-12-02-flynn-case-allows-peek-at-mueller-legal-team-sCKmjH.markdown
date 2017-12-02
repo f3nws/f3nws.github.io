@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flynn case allows peek at Mueller legal team"
-date: 2017-12-02 04:11:21Z
+date: 2017-12-02 02:58:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at what was reported about the reputations of Zainab Ahmad a
 
 Full story on F3News: [Flynn case allows peek at Mueller legal team](http://www.f3nws.com/n/sCKmjH)
 
-> Posted on: Saturday, December 2, 2017 4:11:21 AM
+> Posted on: Saturday, December 2, 2017 2:58:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP poised to raise middle class taxes"
-date: 2017-12-02 05:03:55Z
+date: 2017-12-02 02:45:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on the slapdash tax bill that Republicans unveiled at the 
 
 Full story on F3News: [GOP poised to raise middle class taxes](http://www.f3nws.com/n/UeBYKF)
 
-> Posted on: Saturday, December 2, 2017 5:03:55 AM
+> Posted on: Saturday, December 2, 2017 2:45:00 AM
