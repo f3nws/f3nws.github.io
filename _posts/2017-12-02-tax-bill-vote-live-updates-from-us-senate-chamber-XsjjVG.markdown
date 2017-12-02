@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tax bill vote: Live updates from US Senate chamber"
-date: 2017-12-02 06:15:00Z
+date: 2017-12-02 06:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Vice President Mike Pence arrived at the U.S. Capitol late Friday as the U.S. Se
 
 Full story on F3News: [Tax bill vote: Live updates from US Senate chamber](http://www.f3nws.com/n/XsjjVG)
 
-> Posted on: Saturday, December 2, 2017 6:15:00 AM
+> Posted on: Saturday, December 2, 2017 6:45:00 AM
