@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N Korea: Trump is 'begging for nuclear war'"
-date: 2017-12-02 15:34:51Z
+date: 2017-12-02 17:14:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump and his administration are "begging for nuclear war," 
 
 Full story on F3News: [N Korea: Trump is 'begging for nuclear war'](http://www.f3nws.com/n/jVMNjC)
 
-> Posted on: Saturday, December 2, 2017 3:34:51 PM
+> Posted on: Saturday, December 2, 2017 5:14:39 PM

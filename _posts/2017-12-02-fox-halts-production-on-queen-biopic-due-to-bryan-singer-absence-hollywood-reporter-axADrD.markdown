@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Fox Halts Production on Queen Biopic Due to Bryan Singer Absence - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2017/12/gettyimages-632821370_copy_-_h_2017.jpg)
 
-Hollywood Reporter Fox Halts Production on Queen Biopic Due to Bryan Singer Absence Hollywood Reporter Sources tell THR that the director failed to return to set after the Thanksgiving holiday break. Fox has halted production on the studio's Queen biopic, Bohemian Rhapsody, due to the "unexpected unavailability" of director Bryan Singer. Rami Malek is ... Freddie Mercury Movie Halts Due To Bryan Singer 'Health Issue'; Filmmaker's Rep Responds – Update Deadline Production Halted on Queen Biopic 'Bohemian Rhapsody' Just Jared Bryan Singer's Freddie Mercury Biopic Has Halted Production, Here's Why Cinema Blend Entertainment Tonight - Screen Rant - Mashable - TheWrap all 63 news articles »
+Hollywood Reporter Fox Halts Production on Queen Biopic Due to Bryan Singer Absence Hollywood Reporter Sources tell THR that the director failed to return to set after the Thanksgiving holiday break. Fox has halted production on the studio's Queen biopic, Bohemian Rhapsody, due to the "unexpected unavailability" of director Bryan Singer. Rami Malek is ... Freddie Mercury Movie Halts Due To Bryan Singer 'Health Issue'; Filmmaker's Rep Responds – Update Deadline Production Halted on Queen Biopic 'Bohemian Rhapsody' Just Jared Bryan Singer's Freddie Mercury Biopic Has Halted Production, Here's Why Cinema Blend Entertainment Tonight - Screen Rant - TheWrap - Mashable all 65 news articles »
 
 
 Full story on F3News: [Fox Halts Production on Queen Biopic Due to Bryan Singer Absence - Hollywood Reporter](http://www.f3nws.com/n/axADrD)

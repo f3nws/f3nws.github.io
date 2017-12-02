@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims of harassment, assault triggered by recent events"
-date: 2017-12-02 16:31:21Z
+date: 2017-12-02 17:39:59Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. PETERSBURG, Fla. (AP) — Noelle Rose Andressen was raped by her grandfather
 
 Full story on F3News: [Victims of harassment, assault triggered by recent events](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 2, 2017 4:31:21 PM
+> Posted on: Saturday, December 2, 2017 5:39:59 PM

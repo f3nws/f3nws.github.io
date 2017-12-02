@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Missing 3-year-old Mariah Woods believed dead, mother's boyfriend arrested - New York Daily News"
-date: 2017-12-02 14:12:42Z
+date: 2017-12-02 14:42:09Z
 categories: google-news-top-stories
 ---
 
 ![Missing 3-year-old Mariah Woods believed dead, mother's boyfriend arrested - New York Daily News](http://assets.nydailynews.com/polopoly_fs/1.3672348.1512222657!/img/httpImage/image.jpg_gen/derivatives/landscape_1200/woods.jpg)
 
-New York Daily News Missing 3-year-old Mariah Woods believed dead, mother's boyfriend arrested New York Daily News Authorities have not yet found Mariah Woods, but have uncovered evidence that have led them to believe she is dead. BY Jessica Schladebeck. NEW YORK DAILY NEWS. Saturday, December 2, 2017, 8:58 AM. Authorities in North Carolina arrested the live-in ... Mariah Woods, missing 3-year-old, believed dead; mother's boyfriend arrested CBS News Man Charged as Authorities Says Missing North Carolina Girl Presumed Dead U.S. News & World Report Mariah believed to be dead; mother's live-in boyfriend arrested WRAL.com Fox News - News & Observer - WPXI Pittsburgh - WABC-TV all 50 news articles »
+New York Daily News Missing 3-year-old Mariah Woods believed dead, mother's boyfriend arrested New York Daily News Authorities in North Carolina arrested the live-in boyfriend of 3-year-old Mariah Woods' mother and charged him with multiple offenses, including concealing death, despite the fact that the missing toddler has not yet been found. The Onslow County ... Missing 3-year-old girl now believed dead, man charged with concealing death USA TODAY Mariah Woods case: Arrest made after missing North Carolina girl presumed dead NBCNews.com 3-year-old Mariah Woods presumed dead in NC Amber Alert case; man arrested KABC-TV ABC News - KTLA - PEOPLE.com - CBS News all 79 news articles »
 
 
 Full story on F3News: [Missing 3-year-old Mariah Woods believed dead, mother's boyfriend arrested - New York Daily News](http://www.f3nws.com/n/gqemfC)
 
-> Posted on: Saturday, December 2, 2017 2:12:42 PM
+> Posted on: Saturday, December 2, 2017 2:42:09 PM
