@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate takes up tax reform: Here's what the plan looks like"
-date: 2017-12-02 10:45:00Z
+date: 2017-12-02 20:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ As it stands now, the Senate’s tax overhaul plan is slightly different from th
 
 Full story on F3News: [Senate takes up tax reform: Here's what the plan looks like](http://www.f3nws.com/n/D42SnF)
 
-> Posted on: Saturday, December 2, 2017 10:45:00 AM
+> Posted on: Saturday, December 2, 2017 8:15:00 PM
