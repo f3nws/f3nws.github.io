@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US quits UN global compact on migration"
-date: 2017-12-03 10:03:38Z
+date: 2017-12-03 21:16:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United States notified the United Nations that it will no longer take part i
 
 Full story on F3News: [US quits UN global compact on migration](http://www.f3nws.com/n/xmstvH)
 
-> Posted on: Sunday, December 3, 2017 10:03:38 AM
+> Posted on: Sunday, December 3, 2017 9:16:06 PM
