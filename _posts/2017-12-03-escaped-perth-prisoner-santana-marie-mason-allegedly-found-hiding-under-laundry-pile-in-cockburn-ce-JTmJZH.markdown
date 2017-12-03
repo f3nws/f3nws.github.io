@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Escaped Perth prisoner Santana Marie Mason allegedly found hiding under laundry pile in Cockburn Central - PerthNow](https://images.perthnow.com.au/publication/B88678999Z/1512263589780_GCN1BTN4K.1-2.jpg?imwidth=1024)
 
-Yahoo7 News Escaped Perth prisoner Santana Marie Mason allegedly found hiding under laundry pile in Cockburn Central PerthNow A MISSING WA prisoner who police had warned was “unpredictable” was found in Cockburn Central overnight - allegedly hiding under a pile of laundry. Santana Marie Mason had gone missing from a minimum security facility in Bentley on Saturday morning ... Recaptured Escapee Charged 97.3 Coast FM WA prison escapee caught hiding in laundry Yahoo7 News all 4 news articles »
+PerthNow Escaped Perth prisoner Santana Marie Mason allegedly found hiding under laundry pile in Cockburn Central PerthNow A MISSING WA prisoner who police had warned was “unpredictable” was found in Cockburn Central overnight - allegedly hiding under a pile of laundry. Santana Marie Mason had gone missing from a minimum security facility in Bentley on Saturday morning ... WA prison escapee caught hiding in laundry Yahoo7 News Recaptured Escapee Charged 97.3 Coast FM all 4 news articles »
 
 
 Full story on F3News: [Escaped Perth prisoner Santana Marie Mason allegedly found hiding under laundry pile in Cockburn Central - PerthNow](http://www.f3nws.com/n/JTmJZH)
