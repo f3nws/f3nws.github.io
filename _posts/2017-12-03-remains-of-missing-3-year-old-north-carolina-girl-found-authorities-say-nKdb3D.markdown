@@ -5,6 +5,8 @@ date: 2017-12-03 00:45:00Z
 categories: fox-news
 ---
 
+![Remains of missing 3-year-old North Carolina girl found, authorities say](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 Investigators have recovered a body in a creek believed to be 3-year-old Mariah Woods, officials said Saturday
 
 
