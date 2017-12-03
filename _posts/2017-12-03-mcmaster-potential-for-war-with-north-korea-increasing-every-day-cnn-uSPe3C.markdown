@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![McMaster: Potential for war with North Korea 'increasing every day' - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171102143630-h-r-mcmaster-november-2-2017-02-super-tease.jpg)
 
-CNN McMaster: Potential for war with North Korea 'increasing every day' CNN (CNN) White House national security adviser HR McMaster said Saturday that North Korea represents "the greatest immediate threat to the United States" and that the potential for war with the communist nation is growing each day. "I think it's ... HR McMaster: Potential for war with North Korea increases 'every day' Fox News McMaster: North Korean threat increasing every day ABC News McMaster: Potential of war with North Korea 'increasing every day' The Hill (blog) Newsmax - Ventura County Star - Washington Examiner - Xinhua all 22 news articles »
+CNN McMaster: Potential for war with North Korea 'increasing every day' CNN (CNN) White House national security adviser HR McMaster said Saturday that North Korea represents "the greatest immediate threat to the United States" and that the potential for war with the communist nation is growing each day. "I think it's ... HR McMaster: Potential for war with North Korea increases 'every day' Fox News McMaster: Potential of war with North Korea 'increasing every day' The Hill (blog) McMaster: North Korean threat increasing every day ABC News The Guardian - Newsmax - Washington Examiner - Ventura County Star all 24 news articles »
 
 
 Full story on F3News: [McMaster: Potential for war with North Korea 'increasing every day' - CNN](http://www.f3nws.com/n/uSPe3C)
