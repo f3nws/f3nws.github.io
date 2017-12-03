@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ABC suspends reporter over erroneous Flynn story"
-date: 2017-12-03 00:15:36Z
+date: 2017-12-03 02:32:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ ABC News announced Saturday that it has suspended investigative reporter Brian R
 
 Full story on F3News: [ABC suspends reporter over erroneous Flynn story](http://www.f3nws.com/n/PbFRSG)
 
-> Posted on: Sunday, December 3, 2017 12:15:36 AM
+> Posted on: Sunday, December 3, 2017 2:32:18 AM

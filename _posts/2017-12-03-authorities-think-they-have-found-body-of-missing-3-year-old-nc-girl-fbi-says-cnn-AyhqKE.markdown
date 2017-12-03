@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Authorities think they have found body of missing 3-year-old NC girl, FBI says - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171129110518-02-nc-3-year-old-missing-search-super-tease.jpg)
 
-CNN Authorities think they have found body of missing 3-year-old NC girl, FBI says CNN (CNN) Authorities believe they have found the body of Mariah Woods, a 3-year-old eastern North Carolina girl missing since Sunday, the FBI said Saturday. The body was found Saturday evening in Pender County by a dive team, Shelley Lynch, with the FBI ... Body of missing 3-year-old Mariah Woods found, mother's boyfriend arrested New York Daily News Girl's body found; mom's boyfriend charged with hiding death ABC News The Latest: Missing girl's body found in N Carolina creek Fox News USA TODAY - KTLA - WRAL.com - PEOPLE.com all 130 news articles »
+CNN Authorities think they have found body of missing 3-year-old NC girl, FBI says CNN (CNN) Authorities believe they have found the body of Mariah Woods, a 3-year-old eastern North Carolina girl missing for more than five days, the FBI said Saturday. The body was found Saturday evening in Pender County by a dive team, Shelley Lynch ... Body of missing 3-year-old Mariah Woods found, mother's boyfriend arrested New York Daily News Authorities believe they found body of missing 3-year-old girl CBS News Remains of missing 3-year-old North Carolina girl found, authorities say Fox News USA TODAY - WPXI Pittsburgh - WRAL.com - PEOPLE.com all 133 news articles »
 
 
 Full story on F3News: [Authorities think they have found body of missing 3-year-old NC girl, FBI says - CNN](http://www.f3nws.com/n/AyhqKE)

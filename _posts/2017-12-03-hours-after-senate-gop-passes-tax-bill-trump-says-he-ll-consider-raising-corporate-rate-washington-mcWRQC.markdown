@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Hours after Senate GOP passes tax bill, Trump says he'll consider raising corporate rate - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-03-19/AP/Trump_48292-b1575.jpg?t=20170517)
 
-Washington Post Hours after Senate GOP passes tax bill, Trump says he'll consider raising corporate rate Washington Post Hours after the pre-dawn passage of a $1.5 trillion tax cut, President Trump suggested for the first time Saturday that he would consider a higher corporate rate than the one Senate Republicans had just endorsed, in remarks that could complicate ... Tax Bill Offers Last-Minute Breaks for Developers, Banks and Oil Industry New York Times Here Are 6 Of The Most Radical Provisions In The GOP Tax Bill HuffPost What's next on tax reform Politico CNN - Fox News - Chicago Tribune - The Hill all 5,124 news articles »
+Washington Post Hours after Senate GOP passes tax bill, Trump says he'll consider raising corporate rate Washington Post Hours after the pre-dawn passage of a $1.5 trillion tax cut, President Trump suggested for the first time Saturday that he would consider a higher corporate rate than the one Senate Republicans had just endorsed, in remarks that could complicate ... Tax Bill Offers Last-Minute Breaks for Developers, Banks and Oil Industry New York Times Here Are 6 Of The Most Radical Provisions In The GOP Tax Bill HuffPost What's next on tax reform Politico CNN - The Hill - Chicago Tribune - Forbes all 5,148 news articles »
 
 
 Full story on F3News: [Hours after Senate GOP passes tax bill, Trump says he'll consider raising corporate rate - Washington Post](http://www.f3nws.com/n/mcWRQC)

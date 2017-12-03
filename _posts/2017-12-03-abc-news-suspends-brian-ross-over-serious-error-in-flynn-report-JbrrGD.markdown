@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ABC News suspends Brian Ross over 'serious error' in Flynn report"
-date: 2017-12-03 01:45:00Z
+date: 2017-12-03 02:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ ABC News announced Saturday that Chief Investigative Correspondent Brian Ross ha
 
 Full story on F3News: [ABC News suspends Brian Ross over 'serious error' in Flynn report](http://www.f3nws.com/n/JbrrGD)
 
-> Posted on: Sunday, December 3, 2017 1:45:00 AM
+> Posted on: Sunday, December 3, 2017 2:45:00 AM
