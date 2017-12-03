@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump suggests he may be flexible on corporate tax rates"
-date: 2017-12-03 10:31:03Z
+date: 2017-12-03 11:37:11Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — President Donald Trump has suggested that he may be willing 
 
 Full story on F3News: [Trump suggests he may be flexible on corporate tax rates](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, December 3, 2017 10:31:03 AM
+> Posted on: Sunday, December 3, 2017 11:37:11 AM
