@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Remembering 1963 eruption, Bali's elderly wary of another"
-date: 2017-12-03 03:39:55Z
+date: 2017-12-03 04:34:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ KLUNGKUNG, Indonesia (AP) — Bali's glowering Mount Agung has seemingly quieten
 
 Full story on F3News: [Remembering 1963 eruption, Bali's elderly wary of another](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, December 3, 2017 3:39:55 AM
+> Posted on: Sunday, December 3, 2017 4:34:30 AM
