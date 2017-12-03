@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US general: Russia, China building weapons to target US satellites"
-date: 2017-12-03 00:05:05Z
+date: 2017-12-03 00:42:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A senior US general said Saturday that countries like Russia and China are activ
 
 Full story on F3News: [US general: Russia, China building weapons to target US satellites](http://www.f3nws.com/n/JFSBdD)
 
-> Posted on: Sunday, December 3, 2017 12:05:05 AM
+> Posted on: Sunday, December 3, 2017 12:42:50 AM
