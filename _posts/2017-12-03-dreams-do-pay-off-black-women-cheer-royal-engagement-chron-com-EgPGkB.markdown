@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Dreams do pay off:' Black women cheer royal engagement - Chron.com](http://ww4.hdnux.com/photos/67/66/50/14641687/3/rawImage.jpg)
 
-Chron.com 'Dreams do pay off:' Black women cheer royal engagement Chron.com For some black women, Meghan Markle and Prince Harry's engagement was something more. One of the world's most eligible bachelors has chosen someone who looks like them and grew up like them. It's the kind of storybook plot twist they don't always ... First test of a royal romance: How well she knows his country Seattle Times Meghan Markle's handy AZ guide to her new family The Guardian Prince Harry will marry a divorced American - and the church is fine with it Houston Chronicle Independent.ie - PerezHilton.com - Mirror.co.uk - CBS 8 San Diego all 130 news articles »
+Chron.com 'Dreams do pay off:' Black women cheer royal engagement Chron.com For some black women, Meghan Markle and Prince Harry's engagement was something more. One of the world's most eligible bachelors has chosen someone who looks like them and grew up like them. It's the kind of storybook plot twist they don't always ... First test of a royal romance: How well she knows his country Seattle Times Alyssa Rosenberg: Americans, feel free to share royal bliss Greensboro News & Record Meghan Markle's handy AZ guide to her new family The Guardian Houston Chronicle - PerezHilton.com - Independent.ie - CBS 8 San Diego all 136 news articles »
 
 
 Full story on F3News: ['Dreams do pay off:' Black women cheer royal engagement - Chron.com](http://www.f3nws.com/n/EgPGkB)
