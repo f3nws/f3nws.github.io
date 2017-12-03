@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Who can rest easy before the playoff is announced? - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1202%2Fr297797_1296x729_16%2D9.jpg)
 
-ESPN Who can rest easy before the playoff is announced? ESPN 'Twas the night before Selection Day, and all through the country, not a creature was stirring, well, depending on the house. On the eve of the College Football Playoff committee's final batch of playoff rankings, some will curl up all snug in their ... The Top Whatever: Alabama should be in your Playoff top 4, because Alabama didn't lose to Iowa by 31 points SB Nation Ohio State or Alabama? The decision that has the playoff committee anguishing in the abyss. Washington Post CFP committee now has a choice: Urban Meyer's Buckeyes or Nick Saban's Crimson Tide Yahoo Sports ABC News - NJ.com - AL.com - 247Sports all 236 news articles »
+ESPN Who can rest easy before the playoff is announced? ESPN 'Twas the night before Selection Day, and all through the country, not a creature was stirring, well, depending on the house. On the eve of the College Football Playoff committee's final batch of playoff rankings, some will curl up all snug in their ... Final 2017 College Football Bowl Projections NBCSports.com Ohio State or Alabama? The decision that has the playoff committee anguishing in the abyss. Washington Post College Football Playoff selection show live stream: Watch online, TV channel, time CBSSports.com ABC News - NJ.com - NOLA.com - cleveland.com all 271 news articles »
 
 
 Full story on F3News: [Who can rest easy before the playoff is announced? - ESPN](http://www.f3nws.com/n/CyxeJE)
