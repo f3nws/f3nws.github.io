@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Yemen's ex-President killed in Sanaa"
-date: 2017-12-04 19:37:57Z
+date: 2017-12-04 21:10:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Yemen's former President Ali Abdullah Saleh has been killed in the capital Sanaa
 
 Full story on F3News: [Yemen's ex-President killed in Sanaa](http://www.f3nws.com/n/MyGyq)
 
-> Posted on: Monday, December 4, 2017 7:37:57 PM
+> Posted on: Monday, December 4, 2017 9:10:51 PM
