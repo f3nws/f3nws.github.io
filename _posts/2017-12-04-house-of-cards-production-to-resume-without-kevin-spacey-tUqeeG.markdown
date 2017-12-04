@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'House of Cards' production to resume without Kevin Spacey"
-date: 2017-12-04 18:19:46Z
+date: 2017-12-04 20:40:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Netflix has decided to move forward with the final season of "House of Cards" wi
 
 Full story on F3News: ['House of Cards' production to resume without Kevin Spacey](http://www.f3nws.com/n/tUqeeG)
 
-> Posted on: Monday, December 4, 2017 6:19:46 PM
+> Posted on: Monday, December 4, 2017 8:40:04 PM

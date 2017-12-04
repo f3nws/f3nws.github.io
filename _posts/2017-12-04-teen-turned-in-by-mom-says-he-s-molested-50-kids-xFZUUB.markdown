@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen turned in by mom says he's molested 50 kids"
-date: 2017-12-04 17:11:34Z
+date: 2017-12-04 20:34:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It was 3 in the morning, and a California woman was attempting to flag down a po
 
 Full story on F3News: [Teen turned in by mom says he's molested 50 kids](http://www.f3nws.com/n/xFZUUB)
 
-> Posted on: Monday, December 4, 2017 5:11:34 PM
+> Posted on: Monday, December 4, 2017 8:34:22 PM

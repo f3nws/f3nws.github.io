@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU, UK leaders fail to get Brexit deal, remain optimistic"
-date: 2017-12-04 19:39:26Z
+date: 2017-12-04 20:33:17Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRUSSELS (AP) — The European Union and Britain ended a flurry of top-level dip
 
 Full story on F3News: [EU, UK leaders fail to get Brexit deal, remain optimistic](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 4, 2017 7:39:26 PM
+> Posted on: Monday, December 4, 2017 8:33:17 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's lawyer: President can't obstruct justice"
-date: 2017-12-04 16:30:36Z
+date: 2017-12-04 19:50:14Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's personal attorney, John Dowd, claims the President cann
 
 Full story on F3News: [Trump's lawyer: President can't obstruct justice](http://www.f3nws.com/n/FrdJ3D)
 
-> Posted on: Monday, December 4, 2017 4:30:36 PM
+> Posted on: Monday, December 4, 2017 7:50:14 PM
