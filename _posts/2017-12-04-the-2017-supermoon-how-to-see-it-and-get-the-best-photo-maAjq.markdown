@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 2017 supermoon: How to see it and get the best photo"
-date: 2017-12-04 02:10:29Z
+date: 2017-12-04 03:28:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Sunday, stargazers, astronomers and curious sky-watchers will get a chance to
 
 Full story on F3News: [The 2017 supermoon: How to see it and get the best photo](http://www.f3nws.com/n/maAjq)
 
-> Posted on: Monday, December 4, 2017 2:10:29 AM
+> Posted on: Monday, December 4, 2017 3:28:26 AM

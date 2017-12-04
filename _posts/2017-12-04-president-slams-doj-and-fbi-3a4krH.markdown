@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President slams DOJ and FBI"
-date: 2017-12-04 00:32:32Z
+date: 2017-12-04 03:27:40Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump spent the weekend firing off tweets that took aim at the 
 
 Full story on F3News: [President slams DOJ and FBI](http://www.f3nws.com/n/3a4krH)
 
-> Posted on: Monday, December 4, 2017 12:32:32 AM
+> Posted on: Monday, December 4, 2017 3:27:40 AM
