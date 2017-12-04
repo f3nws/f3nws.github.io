@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Billy Bush says Trump 'Access Hollywood' tape is real"
-date: 2017-12-04 07:37:00Z
+date: 2017-12-04 11:44:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — Billy Bush said it was indeed Donald Trump's voice captured on
 
 Full story on F3News: [Billy Bush says Trump 'Access Hollywood' tape is real](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 4, 2017 7:37:00 AM
+> Posted on: Monday, December 4, 2017 11:44:21 AM
