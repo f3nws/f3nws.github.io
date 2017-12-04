@@ -5,6 +5,8 @@ date: 2017-12-04 01:45:00Z
 categories: fox-news
 ---
 
+![Supermoon wows sky-gazers for only time this year](http://a57.foxnews.com/images.foxnews.com/content/fox-news/science/2017/12/03/supermoon-wows-sky-gazers-for-only-time-this-year/_jcr_content/article-text/article-par-3/inline_spotlight_ima/image.img.jpg/612/344/1512351027408.jpg?ve=1&tl=1)
+
 A “supermoon” was visible across the Earth on Sunday evening for the one and only time in 2017.
 
 
