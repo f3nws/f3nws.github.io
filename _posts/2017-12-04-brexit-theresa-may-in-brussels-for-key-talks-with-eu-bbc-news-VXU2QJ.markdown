@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Brexit: Theresa May in Brussels for key talks with EU - BBC News](https://ichef-1.bbci.co.uk/news/1024/cpsprodpb/2084/production/_99042380_may_reuters.jpg)
 
-BBC News Brexit: Theresa May in Brussels for key talks with EU BBC News Theresa May is set to meet key EU figures for talks on Brexit which could determine whether the UK is able to move on to negotiations on trade. The BBC understands deals on the UK "divorce bill" and citizens' rights were reached this weekend. But the ... Key meeting for PM May as Brexit talks enter decisive phase Reuters Brexit: Is Theresa May's luck about to run out? CNN UK Fears Brexit Breakdown as May Takes Her Best Offer to Lunch Bloomberg Business Insider - BBC News - The Australian Financial Review - The Guardian all 1,021 news articles »
+BBC News Brexit: Theresa May in Brussels for key talks with EU BBC News Theresa May is set to meet key EU figures for talks on Brexit which could determine whether the UK is able to move on to negotiations on trade. The BBC understands deals on the UK "divorce bill" and citizens' rights were reached this weekend. But the ... Brexit: Is Theresa May's luck about to run out? CNN Key meeting for PM May as Brexit talks enter decisive phase Reuters UK Fears Brexit Breakdown as May Takes Her Best Offer to Lunch Bloomberg Business Insider - Telegraph.co.uk - The Australian Financial Review - BBC News all 1,019 news articles »
 
 
 Full story on F3News: [Brexit: Theresa May in Brussels for key talks with EU - BBC News](http://www.f3nws.com/n/VXU2QJ)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Met opera suspends conductor after sex abuse accusations"
-date: 2017-12-04 05:34:24Z
+date: 2017-12-04 05:47:30Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — New York's Metropolitan Opera on Sunday said it was suspending
 
 Full story on F3News: [Met opera suspends conductor after sex abuse accusations](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 4, 2017 5:34:24 AM
+> Posted on: Monday, December 4, 2017 5:47:30 AM
