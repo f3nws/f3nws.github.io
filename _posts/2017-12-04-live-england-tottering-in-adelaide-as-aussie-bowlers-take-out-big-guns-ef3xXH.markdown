@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: England tottering in Adelaide as Aussie bowlers take out big guns](http://www.abc.net.au/news/image/9223888-1x1-700x700.jpg)
 
-England's best batsmen Joe Root and Alastair Cook are dismissed in the first session on day three of the second Test, as Australia looks to press its advantage. Follow the action in our live blog.
+Nathan Lyon produces a spectacular catch off his own bowling, as Australia dominates England on day three of the second Ashes Test at Adelaide Oval. Follow the action in our live blog.
 
 
 Full story on F3News: [Live: England tottering in Adelaide as Aussie bowlers take out big guns](http://www.f3nws.com/n/ef3xXH)
