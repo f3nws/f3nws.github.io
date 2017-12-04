@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stealth jets, other aircraft fly in US, South Korean drills"
-date: 2017-12-04 12:35:45Z
+date: 2017-12-04 13:44:24Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SEOUL, South Korea (AP) — Hundreds of aircraft including two dozen stealth jet
 
 Full story on F3News: [Stealth jets, other aircraft fly in US, South Korean drills](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 4, 2017 12:35:45 PM
+> Posted on: Monday, December 4, 2017 1:44:24 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best and worst days of his presidency"
-date: 2017-12-04 06:21:33Z
+date: 2017-12-04 13:33:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ No wonder the President is lashing out.
 
 Full story on F3News: [The best and worst days of his presidency](http://www.f3nws.com/n/KqQWNC)
 
-> Posted on: Monday, December 4, 2017 6:21:33 AM
+> Posted on: Monday, December 4, 2017 1:33:01 PM
