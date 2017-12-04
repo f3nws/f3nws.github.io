@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Wars: The Last Jedi' cast says film is intimate, emotional     - CNET"
-date: 2017-12-04 00:09:06Z
+date: 2017-12-04 01:01:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The cast, who have now seen the movie's final cut, give hints as to what we can 
 
 Full story on F3News: ['Star Wars: The Last Jedi' cast says film is intimate, emotional     - CNET](http://www.f3nws.com/n/TG3EFE)
 
-> Posted on: Monday, December 4, 2017 12:09:06 AM
+> Posted on: Monday, December 4, 2017 1:01:33 AM

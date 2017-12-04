@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The Last Jedi' press event: Sweet Star Wars outfits, cuddly porgs     - CNET"
-date: 2017-12-04 00:34:08Z
+date: 2017-12-04 01:05:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ See what it's like on the floor from the "Star Wars: The Last Jedi" press confer
 
 Full story on F3News: ['The Last Jedi' press event: Sweet Star Wars outfits, cuddly porgs     - CNET](http://www.f3nws.com/n/MexeAF)
 
-> Posted on: Monday, December 4, 2017 12:34:08 AM
+> Posted on: Monday, December 4, 2017 1:05:27 AM
