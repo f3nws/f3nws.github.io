@@ -5,6 +5,8 @@ date: 2017-12-04 08:54:00Z
 categories: codeproject
 ---
 
+![A Few Great Ways to Consume RESTful API in C#](https://codeproject.global.ssl.fastly.net/script/Forums/Images/smiley_wink.gif)
+
 In this article, you will learn how to utilize a few .NET libraries to consume REST APIs.
 
 
