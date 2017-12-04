@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cathay jetliner crew: We saw NK missile"
-date: 2017-12-04 07:36:56Z
+date: 2017-12-04 09:38:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The crew of a Cathay Pacific flight from San Francisco to Hong Kong saw what the
 
 Full story on F3News: [Cathay jetliner crew: We saw NK missile](http://www.f3nws.com/n/PuCadB)
 
-> Posted on: Monday, December 4, 2017 7:36:56 AM
+> Posted on: Monday, December 4, 2017 9:38:07 AM
