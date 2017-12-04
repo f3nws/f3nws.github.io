@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US stealth jets arrive in South Korea as North Korean rhetoric heats up"
-date: 2017-12-04 08:16:07Z
+date: 2017-12-04 09:53:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tensions on the Korean Peninsula escalated over the weekend as US stealth fighte
 
 Full story on F3News: [US stealth jets arrive in South Korea as North Korean rhetoric heats up](http://www.f3nws.com/n/cZZkqB)
 
-> Posted on: Monday, December 4, 2017 8:16:07 AM
+> Posted on: Monday, December 4, 2017 9:53:56 AM
