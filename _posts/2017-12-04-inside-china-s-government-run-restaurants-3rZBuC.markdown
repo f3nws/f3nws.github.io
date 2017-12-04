@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside China's government-run restaurants"
-date: 2017-12-04 01:26:07Z
+date: 2017-12-04 08:24:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Inside China's government-run restaurants](http://www.f3nws.com/n/3rZBuC)
 
-> Posted on: Monday, December 4, 2017 1:26:07 AM
+> Posted on: Monday, December 4, 2017 8:24:18 AM
