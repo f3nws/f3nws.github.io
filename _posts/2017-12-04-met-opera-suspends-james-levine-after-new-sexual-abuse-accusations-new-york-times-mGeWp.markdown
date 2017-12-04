@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Met Opera Suspends James Levine After New Sexual Abuse Accusations - New York Times](https://static01.nyt.com/images/2017/11/24/arts/24listings-classical/24listings-classical-facebookJumbo-v3.jpg)
 
-New York Times Met Opera Suspends James Levine After New Sexual Abuse Accusations New York Times The Metropolitan Opera suspended James Levine, its revered conductor and former music director, on Sunday after three men came forward with accusations that Mr. Levine sexually abused them decades ago, when the men were teenagers. Peter Gelb, the ... Met Suspends Famed Conductor Accused Of Molesting Teenager For Years In The '80s NPR Met suspends Levine; Ravinia, CSO wait for investigations over alleged sexual misconduct Chicago Tribune Met Opera Suspends Conductor After Sex Abuse Accusations U.S. News & World Report ABC News - NBCNews.com - Los Angeles Times - USA TODAY all 111 news articles »
+New York Times Met Opera Suspends James Levine After New Sexual Abuse Accusations New York Times The Metropolitan Opera suspended James Levine, its revered conductor and former music director, on Sunday after three men came forward with accusations that Mr. Levine sexually abused them decades ago, when the men were teenagers. Peter Gelb, the ... Met Suspends Famed Conductor Accused Of Molesting Teenager For Years In The '80s NPR Met opera suspends conductor after sex abuse accusations Washington Post New York's Metropolitan Opera suspends conductor James Levine after sexual abuse claims NBCNews.com Chicago Tribune - ABC News - New York Post - USA TODAY all 118 news articles »
 
 
 Full story on F3News: [Met Opera Suspends James Levine After New Sexual Abuse Accusations - New York Times](http://www.f3nws.com/n/mGeWp)

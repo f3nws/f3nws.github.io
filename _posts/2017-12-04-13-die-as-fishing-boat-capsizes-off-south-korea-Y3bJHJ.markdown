@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "13 die as fishing boat capsizes off South Korea"
-date: 2017-12-04 00:05:13Z
+date: 2017-12-04 04:33:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thirteen people are dead and two missing after a fishing vessel collided with a 
 
 Full story on F3News: [13 die as fishing boat capsizes off South Korea](http://www.f3nws.com/n/Y3bJHJ)
 
-> Posted on: Monday, December 4, 2017 12:05:13 AM
+> Posted on: Monday, December 4, 2017 4:33:05 AM
