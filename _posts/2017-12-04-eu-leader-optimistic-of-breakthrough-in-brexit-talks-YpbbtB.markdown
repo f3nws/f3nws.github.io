@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU leader optimistic of breakthrough in Brexit talks"
-date: 2017-12-04 15:33:50Z
+date: 2017-12-04 15:46:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRUSSELS (AP) — European Union chief Donald Tusk said Monday he was "encourage
 
 Full story on F3News: [EU leader optimistic of breakthrough in Brexit talks](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 4, 2017 3:33:50 PM
+> Posted on: Monday, December 4, 2017 3:46:21 PM
