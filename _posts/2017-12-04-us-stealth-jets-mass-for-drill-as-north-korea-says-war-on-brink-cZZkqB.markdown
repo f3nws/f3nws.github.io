@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US stealth jets mass for drill as North Korea says war on brink"
-date: 2017-12-04 11:27:49Z
+date: 2017-12-04 18:12:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tensions on the Korean Peninsula escalated over the weekend as US stealth fighte
 
 Full story on F3News: [US stealth jets mass for drill as North Korea says war on brink](http://www.f3nws.com/n/cZZkqB)
 
-> Posted on: Monday, December 4, 2017 11:27:49 AM
+> Posted on: Monday, December 4, 2017 6:12:02 PM
