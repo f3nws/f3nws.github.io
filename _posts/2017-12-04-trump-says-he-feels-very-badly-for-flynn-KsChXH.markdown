@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says he feels 'very badly' for Flynn"
-date: 2017-12-04 14:40:18Z
+date: 2017-12-04 17:14:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said Monday he feels "very badly" for Michael Flynn after
 
 Full story on F3News: [Trump says he feels 'very badly' for Flynn](http://www.f3nws.com/n/KsChXH)
 
-> Posted on: Monday, December 4, 2017 2:40:18 PM
+> Posted on: Monday, December 4, 2017 5:14:29 PM
