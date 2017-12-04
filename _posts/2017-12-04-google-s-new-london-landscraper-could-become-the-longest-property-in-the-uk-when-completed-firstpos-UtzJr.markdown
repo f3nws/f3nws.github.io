@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google's new London 'landscraper' could become the longest property in the UK when completed - Firstpost"
-date: 2017-12-04 03:13:57Z
+date: 2017-12-04 03:14:22Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ Firstpost Google's new London "landscraper" could become the longest property in
 
 Full story on F3News: [Google's new London "landscraper" could become the longest property in the UK when completed - Firstpost](http://www.f3nws.com/n/UtzJr)
 
-> Posted on: Monday, December 4, 2017 3:13:57 AM
+> Posted on: Monday, December 4, 2017 3:14:22 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Billy Bush to Trump: Yes, you said that"
-date: 2017-12-04 02:51:02Z
+date: 2017-12-04 05:37:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Billy Bush to Trump: Yes, you said that](http://www.f3nws.com/n/ubTWuC)
 
-> Posted on: Monday, December 4, 2017 2:51:02 AM
+> Posted on: Monday, December 4, 2017 5:37:49 AM

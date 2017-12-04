@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![The Walking Dead recap: 'Time for After' - EW.com](https://ewedit.files.wordpress.com/2017/12/twd_807_gp_0720_0033-rt.jpg?crop=0px%2C0px%2C2700px%2C1417.5px&resize=1200%2C630)
 
-EW.com The Walking Dead recap: 'Time for After' EW.com When it comes to war, the “bad guys” are pretty easy to spot: They're usually the ones on the opposite side. But it's never really that simple, is it? Even the most sadistic, depraved minds believe there's some justification for doing what they do ... 'Walking Dead' Star: Eugene "Is Scared to Die" Hollywood Reporter 'Walking Dead' Recap: Eugene Faces Tough Choice (SPOILERS) Variety 'The Walking Dead' Season 8, Episode 7: Pyrrhic Victories New York Times USA TODAY - Comicbook.com - IndieWire - Vulture all 124 news articles »
+EW.com The Walking Dead recap: 'Time for After' EW.com When it comes to war, the “bad guys” are pretty easy to spot: They're usually the ones on the opposite side. But it's never really that simple, is it? Even the most sadistic, depraved minds believe there's some justification for doing what they do ... 'The Walking Dead' Season 8, Episode 7: Pyrrhic Victories New York Times Keep on trucking: 'The Walking Dead' Season 8 Episode 7 recap Chicago Tribune 'Walking Dead' Star: Eugene "Is Scared to Die" Hollywood Reporter Comicbook.com - Variety - USA TODAY - Vulture all 130 news articles »
 
 
 Full story on F3News: [The Walking Dead recap: 'Time for After' - EW.com](http://www.f3nws.com/n/nqbnV)
