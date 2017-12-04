@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Supreme Court lets full Trump travel ban take effect"
-date: 2017-12-04 21:45:31Z
+date: 2017-12-04 22:34:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US Supreme Court on Monday allowed the newest version President Donald Trump
 
 Full story on F3News: [US Supreme Court lets full Trump travel ban take effect](http://www.f3nws.com/n/KhZWGH)
 
-> Posted on: Monday, December 4, 2017 9:45:31 PM
+> Posted on: Monday, December 4, 2017 10:34:42 PM

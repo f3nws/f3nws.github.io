@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supreme Court permits full enforcement of Trump travel ban"
-date: 2017-12-04 21:30:00Z
+date: 2017-12-04 22:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The Supreme Court announced Monday that it will permit the full enforcement of P
 
 Full story on F3News: [Supreme Court permits full enforcement of Trump travel ban](http://www.f3nws.com/n/kzbSuD)
 
-> Posted on: Monday, December 4, 2017 9:30:00 PM
+> Posted on: Monday, December 4, 2017 10:15:00 PM
