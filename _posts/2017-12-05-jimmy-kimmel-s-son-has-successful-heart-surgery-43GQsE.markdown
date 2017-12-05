@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel's son has 'successful heart surgery'"
-date: 2017-12-05 15:55:17Z
+date: 2017-12-05 20:27:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The late-night host has taken time off to care for his son, who underwent a seco
 
 Full story on F3News: [Jimmy Kimmel's son has 'successful heart surgery'](http://www.f3nws.com/n/43GQsE)
 
-> Posted on: Tuesday, December 5, 2017 3:55:17 PM
+> Posted on: Tuesday, December 5, 2017 8:27:17 PM
