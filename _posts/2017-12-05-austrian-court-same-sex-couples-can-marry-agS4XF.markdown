@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Austrian court: Same-sex couples can marry"
-date: 2017-12-05 12:21:43Z
+date: 2017-12-05 12:49:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Austria's top court has ruled that same-sex couples can get married from 2019, d
 
 Full story on F3News: [Austrian court: Same-sex couples can marry](http://www.f3nws.com/n/agS4XF)
 
-> Posted on: Tuesday, December 5, 2017 12:21:43 PM
+> Posted on: Tuesday, December 5, 2017 12:49:33 PM
