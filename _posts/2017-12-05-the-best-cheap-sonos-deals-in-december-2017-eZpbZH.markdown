@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best cheap Sonos deals in December 2017"
-date: 2017-12-05 07:15:38Z
+date: 2017-12-05 08:25:38Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Want to start your multi-room Sonos setup? Check out these great deals on Play:1
 
 Full story on F3News: [The best cheap Sonos deals in December 2017](http://www.f3nws.com/n/eZpbZH)
 
-> Posted on: Tuesday, December 5, 2017 7:15:38 AM
+> Posted on: Tuesday, December 5, 2017 8:25:38 AM

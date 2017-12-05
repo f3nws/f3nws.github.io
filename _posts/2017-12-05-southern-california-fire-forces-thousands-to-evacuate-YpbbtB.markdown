@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southern California fire forces thousands to evacuate"
-date: 2017-12-05 07:36:53Z
+date: 2017-12-05 09:40:39Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SANTA PAULA, Calif. (AP) — Ferocious winds in Southern California whipped up a
 
 Full story on F3News: [Southern California fire forces thousands to evacuate](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, December 5, 2017 7:36:53 AM
+> Posted on: Tuesday, December 5, 2017 9:40:39 AM
