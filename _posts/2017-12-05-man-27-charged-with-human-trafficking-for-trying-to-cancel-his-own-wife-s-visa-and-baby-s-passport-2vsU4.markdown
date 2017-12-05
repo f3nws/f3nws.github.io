@@ -5,6 +5,8 @@ date: 2017-12-05 00:57:53Z
 categories: google-news-australia
 ---
 
+![Man, 27, charged with human trafficking 'for trying to cancel his own WIFE'S visa and baby's passport after packing ...](http://i.dailymail.co.uk/i/pix/2017/12/05/00/46FDCFC500000578-0-image-a-15_1512433909191.jpg)
+
 Man, 27, charged with human trafficking 'for trying to cancel his own WIFE'S visa and baby's passport after packing ... Daily Mail Full coverage
 
 
