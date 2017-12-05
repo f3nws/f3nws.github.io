@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inconsistencies spotted in North Korea missile images"
-date: 2017-12-05 07:03:06Z
+date: 2017-12-05 11:09:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The photographs North Korean state media released of last week's Hwasong-15 nigh
 
 Full story on F3News: [Inconsistencies spotted in North Korea missile images](http://www.f3nws.com/n/KCYauG)
 
-> Posted on: Tuesday, December 5, 2017 7:03:06 AM
+> Posted on: Tuesday, December 5, 2017 11:09:21 AM

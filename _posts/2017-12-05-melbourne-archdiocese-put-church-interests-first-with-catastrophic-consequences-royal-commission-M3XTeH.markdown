@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Melbourne Archdiocese put church interests first with catastrophic consequences: royal commission](http://www.abc.net.au/news/image/2404312-1x1-700x700.jpg)
 
-Melbourne Archdiocese put church interests first with catastrophic consequences: royal commission ABC Online Melbourne Archbishop knew about 'litany' of child abuse and did nothing NEWS.com.au Melbourne archdiocese had culture of secrecy to protect Church interests, new report says Catholic Leader Full coverage
+Melbourne Archdiocese put church interests first with catastrophic consequences: royal commission ABC Online Melbourne Archbishop knew about 'litany' of child abuse and did nothing NEWS.com.au Damning report condemns former Archbishop for failing children The New Daily Full coverage
 
 
 Full story on F3News: [Melbourne Archdiocese put church interests first with catastrophic consequences: royal commission](http://www.f3nws.com/n/M3XTeH)
