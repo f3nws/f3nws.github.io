@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Roy Moore Gets Trump Endorsement and RNC Funding for Senate Race - New York Times](https://static01.nyt.com/images/2017/12/05/world/05DC-trump/05DC-trump-facebookJumbo.jpg)
 
-New York Times Roy Moore Gets Trump Endorsement and RNC Funding for Senate Race New York Times AUBURN, Ala. — President Trump on Monday strongly endorsed Roy S. Moore, the Republican nominee for a United States Senate seat here, prompting the Republican National Committee to restore its support for a candidate accused of sexual misconduct ... RNC to support Roy Moore in Senate race in Alabama, weeks after cutting ties with his campaign Washington Post As election nears, GOP braces for Moore victory The Hill RNC Restores Financial Support For Roy Moore As Trump Gives Full Endorsement NPR Politico - CNN - HuffPost - Los Angeles Times all 539 news articles »
+New York Times Roy Moore Gets Trump Endorsement and RNC Funding for Senate Race New York Times AUBURN, Ala. — President Trump on Monday strongly endorsed Roy S. Moore, the Republican nominee for a United States Senate seat here, prompting the Republican National Committee to restore its support for a candidate accused of sexual misconduct ... RNC to support Roy Moore in Senate race in Alabama, weeks after cutting ties with his campaign Washington Post As election nears, GOP braces for Moore victory The Hill RNC Restores Financial Support For Roy Moore As Trump Gives Full Endorsement NPR Politico - ABC News - CNN - HuffPost all 556 news articles »
 
 
 Full story on F3News: [Roy Moore Gets Trump Endorsement and RNC Funding for Senate Race - New York Times](http://www.f3nws.com/n/RXspt)

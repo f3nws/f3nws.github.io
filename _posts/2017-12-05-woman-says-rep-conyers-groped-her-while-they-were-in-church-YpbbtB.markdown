@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman says Rep. Conyers groped her while they were in church"
-date: 2017-12-05 08:32:00Z
+date: 2017-12-05 10:34:53Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ DETROIT (AP) — A woman who says she worked for U.S. Rep. John Conyers for more
 
 Full story on F3News: [Woman says Rep. Conyers groped her while they were in church](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, December 5, 2017 8:32:00 AM
+> Posted on: Tuesday, December 5, 2017 10:34:53 AM
