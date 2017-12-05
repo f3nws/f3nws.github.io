@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Explosive wildfires in Southern California force thousands to evacuate"
-date: 2017-12-05 16:05:00Z
+date: 2017-12-05 18:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least two wind-whipped wildfires exploded early Tuesday in Southern Californi
 
 Full story on F3News: [Explosive wildfires in Southern California force thousands to evacuate](http://www.f3nws.com/n/nnFF4H)
 
-> Posted on: Tuesday, December 5, 2017 4:05:00 PM
+> Posted on: Tuesday, December 5, 2017 6:15:00 PM
