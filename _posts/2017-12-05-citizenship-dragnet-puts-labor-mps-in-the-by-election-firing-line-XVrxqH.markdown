@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Citizenship dragnet puts Labor MPs in the by-election firing line](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-Bill Shorten is facing a by-election headache, with today's release of MPs' citizenship documents leaving four Labor MPs and a Nick Xenophon Team MP with questions to answer.
+Bill Shorten is facing a by-election headache, with the release of MPs' citizenship documents leaving four Labor MPs and a Nick Xenophon Team MP with questions to answer.
 
 
 Full story on F3News: [Citizenship dragnet puts Labor MPs in the by-election firing line](http://www.f3nws.com/n/XVrxqH)
