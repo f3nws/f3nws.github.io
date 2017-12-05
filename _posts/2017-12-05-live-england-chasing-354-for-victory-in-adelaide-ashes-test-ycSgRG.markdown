@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: England chasing 354 for victory in Adelaide Ashes Test](http://www.abc.net.au/news/image/9225442-1x1-700x700.jpg)
 
-Australia is dismissed for 138 in its second innings, setting England a victory target of 354 in the second Ashes Test at Adelaide Oval. Follow the action with our live blog.
+England begins its chase of the victory target of 354 after Australia is dismissed for 138 in the second Ashes Test at Adelaide Oval. Follow the action with our live blog.
 
 
 Full story on F3News: [Live: England chasing 354 for victory in Adelaide Ashes Test](http://www.f3nws.com/n/ycSgRG)
