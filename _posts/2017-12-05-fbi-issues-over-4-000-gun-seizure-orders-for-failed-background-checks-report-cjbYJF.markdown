@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI issues over 4,000 gun seizure orders for failed background checks – report"
-date: 2017-12-05 02:13:23Z
+date: 2017-12-05 02:13:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The FBI has issued 4,170 orders to the ATF to seize guns from people who bought 
 
 Full story on F3News: [FBI issues over 4,000 gun seizure orders for failed background checks – report](http://www.f3nws.com/n/cjbYJF)
 
-> Posted on: Tuesday, December 5, 2017 2:13:23 AM
+> Posted on: Tuesday, December 5, 2017 2:13:00 AM

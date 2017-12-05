@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senior UN official to visit North Korea"
-date: 2017-12-05 07:21:39Z
+date: 2017-12-05 08:08:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A senior United Nations official will visit North Korea this week to meet with o
 
 Full story on F3News: [Senior UN official to visit North Korea](http://www.f3nws.com/n/WMSpRD)
 
-> Posted on: Tuesday, December 5, 2017 7:21:39 AM
+> Posted on: Tuesday, December 5, 2017 8:08:41 AM
