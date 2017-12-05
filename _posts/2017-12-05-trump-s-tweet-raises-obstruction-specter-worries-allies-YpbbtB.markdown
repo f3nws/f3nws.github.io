@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's tweet raises obstruction specter, worries allies"
-date: 2017-12-05 01:33:31Z
+date: 2017-12-05 05:34:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — The shifting explanations for why President Donald Trump fir
 
 Full story on F3News: [Trump's tweet raises obstruction specter, worries allies](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, December 5, 2017 1:33:31 AM
+> Posted on: Tuesday, December 5, 2017 5:34:15 AM
