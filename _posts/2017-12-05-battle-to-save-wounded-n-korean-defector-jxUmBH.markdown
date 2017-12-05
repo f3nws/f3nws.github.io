@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Battle to save wounded N Korean defector"
-date: 2017-12-05 18:09:26Z
+date: 2017-12-05 18:49:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korean surgeon Lee Cook-Jong was already having a busy day in Trauma Bay 1
 
 Full story on F3News: [Battle to save wounded N Korean defector](http://www.f3nws.com/n/jxUmBH)
 
-> Posted on: Tuesday, December 5, 2017 6:09:26 PM
+> Posted on: Tuesday, December 5, 2017 6:49:54 PM
