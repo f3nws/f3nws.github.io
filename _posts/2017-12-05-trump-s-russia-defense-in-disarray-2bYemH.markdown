@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Russia defense in disarray"
-date: 2017-12-05 06:48:14Z
+date: 2017-12-05 12:25:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's legal defense against Robert Mueller's unrelenting spec
 
 Full story on F3News: [Trump's Russia defense in disarray](http://www.f3nws.com/n/2bYemH)
 
-> Posted on: Tuesday, December 5, 2017 6:48:14 AM
+> Posted on: Tuesday, December 5, 2017 12:25:43 PM

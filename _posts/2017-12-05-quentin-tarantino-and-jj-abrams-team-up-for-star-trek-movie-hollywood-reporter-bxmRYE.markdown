@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Quentin Tarantino and JJ Abrams Team Up for 'Star Trek' Movie - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2017/12/quentin_tarantino_and_j.j._abrams_split.jpg)
 
-Hollywood Reporter Quentin Tarantino and JJ Abrams Team Up for 'Star Trek' Movie Hollywood Reporter The filmmaker has a pitch for a Star Trek film, and he has shared his vision with J.J. Abrams, The Hollywood Reporter has confirmed. Tarantino and Abrams have plans to bring together a writers room to develop a film at Star Trek studio Paramount ... Quentin Tarantino Hatches 'Star Trek' Movie Idea; Paramount, JJ Abrams To Assemble Writers Room Deadline Quentin Tarantino might be making a Star Trek movie The Verge Quentin Tarantino and JJ Abrams Team on 'Star Trek' Pitch Variety Mashable - Ars Technica - /FILM - Comicbook.com all 72 news articles »
+Hollywood Reporter Quentin Tarantino and JJ Abrams Team Up for 'Star Trek' Movie Hollywood Reporter The filmmaker has a pitch for a Star Trek film, and he has shared his vision with J.J. Abrams, The Hollywood Reporter has confirmed. Tarantino and Abrams have plans to bring together a writers room to develop a film at Star Trek studio Paramount ... Quentin Tarantino Hatches 'Star Trek' Movie Idea; Paramount, JJ Abrams To Assemble Writers Room Deadline Pulp Enterprise? What Tarantino's 'Star Trek' movie could be CNET Quentin Tarantino and JJ Abrams Team on 'Star Trek' Pitch Variety The Verge - Gizmodo - Mashable - /FILM all 90 news articles »
 
 
 Full story on F3News: [Quentin Tarantino and JJ Abrams Team Up for 'Star Trek' Movie - Hollywood Reporter](http://www.f3nws.com/n/bxmRYE)

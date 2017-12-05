@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UAE, Saudi Arabia forming new group, separate from GCC"
-date: 2017-12-05 11:29:51Z
+date: 2017-12-05 12:31:21Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ KUWAIT CITY (AP) — The United Arab Emirates on Tuesday announced it has formed
 
 Full story on F3News: [UAE, Saudi Arabia forming new group, separate from GCC](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, December 5, 2017 11:29:51 AM
+> Posted on: Tuesday, December 5, 2017 12:31:21 PM
