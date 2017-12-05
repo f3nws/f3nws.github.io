@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Syrian air defense intercepts 3 Israeli missiles targeting military site near Damascus – state media"
-date: 2017-12-05 01:25:18Z
+date: 2017-12-05 01:25:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israel has reportedly launched air strikes at a Syrian military research facilit
 
 Full story on F3News: [Syrian air defense intercepts 3 Israeli missiles targeting military site near Damascus – state media](http://www.f3nws.com/n/RfXHgG)
 
-> Posted on: Tuesday, December 5, 2017 1:25:18 AM
+> Posted on: Tuesday, December 5, 2017 1:25:00 AM
