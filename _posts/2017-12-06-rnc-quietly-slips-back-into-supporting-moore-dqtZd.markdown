@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "RNC quietly slips back into supporting Moore"
-date: 2017-12-06 04:05:48Z
+date: 2017-12-06 02:40:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on the Republican National Committee resuming its support 
 
 Full story on F3News: [RNC quietly slips back into supporting Moore](http://www.f3nws.com/n/dqtZd)
 
-> Posted on: Wednesday, December 6, 2017 4:05:48 AM
+> Posted on: Wednesday, December 6, 2017 2:40:00 AM
