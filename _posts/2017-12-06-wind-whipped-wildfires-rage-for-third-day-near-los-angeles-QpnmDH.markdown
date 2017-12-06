@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wind-whipped wildfires rage for third day near Los Angeles"
-date: 2017-12-06 21:38:18Z
+date: 2017-12-06 22:23:00Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A fresh wildfire has closed part of I-405 in Los Angeles and thr
 
 Full story on F3News: [Wind-whipped wildfires rage for third day near Los Angeles](http://www.f3nws.com/n/QpnmDH)
 
-> Posted on: Wednesday, December 6, 2017 9:38:18 PM
+> Posted on: Wednesday, December 6, 2017 10:23:00 PM

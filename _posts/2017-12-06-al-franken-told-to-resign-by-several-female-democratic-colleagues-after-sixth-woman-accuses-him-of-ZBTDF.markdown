@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Al Franken told to resign by several female Democratic colleagues after sixth woman accuses him of sexual misconduct"
-date: 2017-12-06 19:45:00Z
+date: 2017-12-06 22:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A growing group of Democratic senators on Wednesday called for Sen. Al Franken t
 
 Full story on F3News: [Al Franken told to resign by several female Democratic colleagues after sixth woman accuses him of sexual misconduct](http://www.f3nws.com/n/ZBTDF)
 
-> Posted on: Wednesday, December 6, 2017 7:45:00 PM
+> Posted on: Wednesday, December 6, 2017 10:30:00 PM
