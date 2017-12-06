@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US homeless count rises, pushed by crisis on the West Coast"
-date: 2017-12-06 06:31:54Z
+date: 2017-12-06 07:39:59Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — The nation's homeless population increased this year for th
 
 Full story on F3News: [US homeless count rises, pushed by crisis on the West Coast](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, December 6, 2017 6:31:54 AM
+> Posted on: Wednesday, December 6, 2017 7:39:59 AM
