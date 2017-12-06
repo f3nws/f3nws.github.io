@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Democratic senators demand colleague Franken's resignation"
-date: 2017-12-06 18:28:40Z
+date: 2017-12-06 19:20:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Embattled Sen. Al Franken will make an announcement Thursday, his office told re
 
 Full story on F3News: [Democratic senators demand colleague Franken's resignation](http://www.f3nws.com/n/BbDKSH)
 
-> Posted on: Wednesday, December 6, 2017 6:28:40 PM
+> Posted on: Wednesday, December 6, 2017 7:20:59 PM

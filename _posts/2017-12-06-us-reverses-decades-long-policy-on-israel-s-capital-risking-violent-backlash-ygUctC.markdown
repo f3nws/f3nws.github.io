@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US reverses decades-long policy on Israel's capital risking violent backlash"
-date: 2017-12-06 18:26:06Z
+date: 2017-12-06 19:28:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump will recognize Jerusalem as Israel's capital on Wednesday
 
 Full story on F3News: [US reverses decades-long policy on Israel's capital risking violent backlash](http://www.f3nws.com/n/ygUctC)
 
-> Posted on: Wednesday, December 6, 2017 6:26:06 PM
+> Posted on: Wednesday, December 6, 2017 7:28:55 PM
