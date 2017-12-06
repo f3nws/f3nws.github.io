@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump outlines intentions to move US embassy in Israel to Jerusalem, Palestinian Authority spokesman says"
-date: 2017-12-06 02:04:33Z
+date: 2017-12-06 06:20:18Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump outlined his intentions to move the US embassy in Israel 
 
 Full story on F3News: [Trump outlines intentions to move US embassy in Israel to Jerusalem, Palestinian Authority spokesman says](http://www.f3nws.com/n/XTrKtF)
 
-> Posted on: Wednesday, December 6, 2017 2:04:33 AM
+> Posted on: Wednesday, December 6, 2017 6:20:18 AM

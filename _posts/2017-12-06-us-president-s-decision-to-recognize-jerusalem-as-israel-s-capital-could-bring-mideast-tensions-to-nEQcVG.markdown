@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President's decision to recognize Jerusalem as Israel's capital could bring Mideast tensions to a boil"
-date: 2017-12-06 06:08:16Z
+date: 2017-12-06 09:11:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's fragile political standing among American voters may be
 
 Full story on F3News: [US President's decision to recognize Jerusalem as Israel's capital could bring Mideast tensions to a boil](http://www.f3nws.com/n/nEQcVG)
 
-> Posted on: Wednesday, December 6, 2017 6:08:16 AM
+> Posted on: Wednesday, December 6, 2017 9:11:39 AM
