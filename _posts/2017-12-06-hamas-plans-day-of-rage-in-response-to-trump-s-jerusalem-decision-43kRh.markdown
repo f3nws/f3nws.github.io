@@ -5,7 +5,7 @@ date: 2017-12-06 06:46:00Z
 categories: fox-news
 ---
 
-Palestinian terror group Hamas declared the upcoming Friday a “day of rage” and urged Palestinians to protest President Donald Trump’s move to recognize Jerusalem as the capital of Israel and transfer U.S. embassy to the city.
+Terror group Hamas is calling for a “day of rage” Friday, urging Palestinians to protest President Donald Trump’s plan to recognize Jerusalem as Israel's capital and move the U.S. Embassy there from Tel Aviv.
 
 
 Full story on F3News: [Hamas plans 'day of rage' in response to Trump's Jerusalem decision](http://www.f3nws.com/n/43kRh)
