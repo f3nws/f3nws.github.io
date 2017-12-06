@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opinion: Why Trump is still winning"
-date: 2017-12-06 00:24:31Z
+date: 2017-12-06 05:32:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ With prospects looking good for GOP tax reform and Roy Moore's elections, it's t
 
 Full story on F3News: [Opinion: Why Trump is still winning](http://www.f3nws.com/n/VYPbJG)
 
-> Posted on: Wednesday, December 6, 2017 12:24:31 AM
+> Posted on: Wednesday, December 6, 2017 5:32:50 AM

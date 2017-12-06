@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Official ceremony to welcome the original Battle of Long Tan Cross to the Australian War Memorial in Canberra](http://www.abc.net.au/cm/rimage/9230900-16x9-large.jpg?v=3)
 
-Official ceremony to welcome the original Battle of Long Tan Cross to the Australian War Memorial in Canberra ABC Local Full coverage
+Official ceremony to welcome the original Battle of Long Tan Cross to the Australian War Memorial in Canberra ABC Local Cross marking the Battle of Long Tan unveiled Sky News Australia Vietnam War cross finally returned to Australian hands 4BC Full coverage
 
 
 Full story on F3News: [Official ceremony to welcome the original Battle of Long Tan Cross to the Australian War Memorial in Canberra](http://www.f3nws.com/n/TyCWrG)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deutsche Bank query news alarms Trump team"
-date: 2017-12-06 03:44:14Z
+date: 2017-12-06 02:30:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Greg Farrell, investigative reporter for Bloomberg News, talks with Rachel Maddo
 
 Full story on F3News: [Deutsche Bank query news alarms Trump team](http://www.f3nws.com/n/paaZUG)
 
-> Posted on: Wednesday, December 6, 2017 3:44:14 AM
+> Posted on: Wednesday, December 6, 2017 2:30:00 AM

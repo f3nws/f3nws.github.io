@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller reportedly eyeing Deutsche Bank"
-date: 2017-12-06 03:24:54Z
+date: 2017-12-06 02:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at Deutsche Bank's history with Russian money laundering, Do
 
 Full story on F3News: [Mueller reportedly eyeing Deutsche Bank](http://www.f3nws.com/n/bzMeCF)
 
-> Posted on: Wednesday, December 6, 2017 3:24:54 AM
+> Posted on: Wednesday, December 6, 2017 2:00:00 AM
