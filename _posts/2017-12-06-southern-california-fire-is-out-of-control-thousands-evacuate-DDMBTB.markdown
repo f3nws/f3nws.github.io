@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southern California fire is 'out of control;' thousands evacuate"
-date: 2017-12-06 00:31:39Z
+date: 2017-12-06 01:36:44Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pushed by powerful Santa Ana winds, a fire spread with explosive speed to 31,000
 
 Full story on F3News: [Southern California fire is 'out of control;' thousands evacuate](http://www.f3nws.com/n/DDMBTB)
 
-> Posted on: Wednesday, December 6, 2017 12:31:39 AM
+> Posted on: Wednesday, December 6, 2017 1:36:44 AM
