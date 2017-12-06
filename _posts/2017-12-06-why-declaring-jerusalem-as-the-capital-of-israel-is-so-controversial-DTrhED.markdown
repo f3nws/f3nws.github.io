@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why declaring Jerusalem as the capital of Israel is so controversial"
-date: 2017-12-06 13:24:07Z
+date: 2017-12-06 16:46:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump is expected to declare Jerusalem as the capital of Isr
 
 Full story on F3News: [Why declaring Jerusalem as the capital of Israel is so controversial](http://www.f3nws.com/n/DTrhED)
 
-> Posted on: Wednesday, December 6, 2017 1:24:07 PM
+> Posted on: Wednesday, December 6, 2017 4:46:55 PM

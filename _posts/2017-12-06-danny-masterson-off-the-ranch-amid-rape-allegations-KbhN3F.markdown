@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Danny Masterson off 'The Ranch' amid rape allegations"
-date: 2017-12-06 15:20:26Z
+date: 2017-12-06 16:51:13Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Danny Masterson is out of the Netflix comedy "The Ranch" amid rape allegations m
 
 Full story on F3News: [Danny Masterson off 'The Ranch' amid rape allegations](http://www.f3nws.com/n/KbhN3F)
 
-> Posted on: Wednesday, December 6, 2017 3:20:26 PM
+> Posted on: Wednesday, December 6, 2017 4:51:13 PM

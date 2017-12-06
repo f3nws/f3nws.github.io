@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "APNewsBreak: Accusers take on toxic culture in TV newsrooms"
-date: 2017-12-06 14:42:47Z
+date: 2017-12-06 17:43:18Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Women who say they were sexually harassed or mistreated by powerful men in telev
 
 Full story on F3News: [APNewsBreak: Accusers take on toxic culture in TV newsrooms](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, December 6, 2017 2:42:47 PM
+> Posted on: Wednesday, December 6, 2017 5:43:18 PM
