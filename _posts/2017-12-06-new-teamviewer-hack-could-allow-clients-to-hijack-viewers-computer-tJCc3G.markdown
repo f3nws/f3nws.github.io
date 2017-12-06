@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New TeamViewer Hack Could Allow Clients to Hijack Viewers' Computer"
-date: 2017-12-06 09:21:53Z
+date: 2017-12-06 16:28:43Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Do you have remote support software TeamViewer installed on your desktop? If yes
 
 Full story on F3News: [New TeamViewer Hack Could Allow Clients to Hijack Viewers' Computer](http://www.f3nws.com/n/tJCc3G)
 
-> Posted on: Wednesday, December 6, 2017 9:21:53 AM
+> Posted on: Wednesday, December 6, 2017 4:28:43 PM
