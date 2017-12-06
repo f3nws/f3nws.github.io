@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![#MeToo movement named TIME magazine’s 2017 Person of the Year](https://www.thestar.com/content/dam/thestar/news/world/2017/12/06/metoo-movement-named-time-magazines-2017-person-of-the-year/time_jpg.jpg)
 
-The magazine's editor-in-chief Edward Felsenthal revealed the selection Wednesday on the Today show.
+In the wake of revelations about Harvey Weinstein and other men, millions have shared their stories about being sexually harassed and assaulted.
 
 
 Full story on F3News: [#MeToo movement named TIME magazine’s 2017 Person of the Year](http://www.f3nws.com/n/pKWPC)
