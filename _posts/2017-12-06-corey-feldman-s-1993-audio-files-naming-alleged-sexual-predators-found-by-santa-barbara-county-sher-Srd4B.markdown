@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Corey Feldman's 1993 audio files naming alleged sexual predators found by Santa Barbara County Sheriff's Office"
-date: 2017-12-06 14:49:00Z
+date: 2017-12-06 21:39:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Corey Feldman claimed in October that he named sexual predators in Hollywood to 
 
 Full story on F3News: [Corey Feldman's 1993 audio files naming alleged sexual predators found by Santa Barbara County Sheriff's Office](http://www.f3nws.com/n/Srd4B)
 
-> Posted on: Wednesday, December 6, 2017 2:49:00 PM
+> Posted on: Wednesday, December 6, 2017 9:39:00 PM
