@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![800000 NZers at risk of infection from unsafe water supply - report](https://www.radionz.co.nz/assets/news_crops/40550/eight_col_P1011110cr.jpg?1503263418)
 
-800000 NZers at risk of infection from unsafe water supply - report Radio New Zealand Nearly 1 million Kiwis exposed to potentially unsafe drinking water Stuff.co.nz Major reform urgently needed in drinking water supply Scoop.co.nz (press release) Full coverage
+800000 NZers at risk of infection from unsafe water supply - report Radio New Zealand Nearly 1 million Kiwis exposed to potentially unsafe drinking water Stuff.co.nz Government to consider merging inadequate drinking water suppliers The National Business Review Full coverage
 
 
 Full story on F3News: [800000 NZers at risk of infection from unsafe water supply - report](http://www.f3nws.com/n/HKPNQH)

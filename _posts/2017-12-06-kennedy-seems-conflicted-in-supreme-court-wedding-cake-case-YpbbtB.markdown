@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kennedy seems conflicted in Supreme Court wedding cake case"
-date: 2017-12-06 01:31:45Z
+date: 2017-12-06 02:40:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — On a sharply divided Supreme Court, the justice in the middl
 
 Full story on F3News: [Kennedy seems conflicted in Supreme Court wedding cake case](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Wednesday, December 6, 2017 1:31:45 AM
+> Posted on: Wednesday, December 6, 2017 2:40:15 AM

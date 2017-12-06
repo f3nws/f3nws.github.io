@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) - BLABBERMOUTH.NET](http://assets.blabbermouth.net/media/chesterbenningtononemore2017_420x237-100x56.jpg)
 
-BLABBERMOUTH.NET Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) BLABBERMOUTH.NET According to TMZ, Chester Bennington's autopsy shows that he had alcohol in his system at the time of his death. The toxicology results, obtained by TMZ, also reveal that the LINKIN PARK singer's blood tested "presumptive positive" for MDMA, otherwise ... Chester Bennington's Autopsy Report Released RollingStone.com Chester Bennington Toxicology Report Surfaces Following Linkin Park Singer's Suicide Billboard Traces of Alcohol Revealed in Chester Bennington's Autopsy Report Release PEOPLE.com USA TODAY - The Mercury News - Bustle - Hollywood Life all 58 news articles »
+BLABBERMOUTH.NET Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) BLABBERMOUTH.NET According to TMZ, Chester Bennington's autopsy shows that he had alcohol in his system at the time of his death. The toxicology results, obtained by TMZ, also reveal that the LINKIN PARK singer's blood tested "presumptive positive" for MDMA, otherwise ... Chester Bennington's Autopsy Report Released RollingStone.com Chester Bennington's Autopsy Reveals Traces of Alcohol in His System E! Online Chester Bennington Toxicology Report Surfaces Following Linkin Park Singer's Suicide Billboard PEOPLE.com - USA TODAY - TMZ.com - The Mercury News all 61 news articles »
 
 
 Full story on F3News: [Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) - BLABBERMOUTH.NET](http://www.f3nws.com/n/NqP4dH)
