@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Trump's Jerusalem decision promises upheaval"
-date: 2017-12-06 14:28:50Z
+date: 2017-12-06 15:16:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's fragile political standing among American voters may be
 
 Full story on F3News: [Analysis: Trump's Jerusalem decision promises upheaval](http://www.f3nws.com/n/nEQcVG)
 
-> Posted on: Wednesday, December 6, 2017 2:28:50 PM
+> Posted on: Wednesday, December 6, 2017 3:16:58 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Mayer recovering from emergency appendectomy"
-date: 2017-12-06 14:18:20Z
+date: 2017-12-06 15:13:06Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ John Mayer is on the mend following an emergency appendectomy, his representativ
 
 Full story on F3News: [John Mayer recovering from emergency appendectomy](http://www.f3nws.com/n/qSHdbD)
 
-> Posted on: Wednesday, December 6, 2017 2:18:20 PM
+> Posted on: Wednesday, December 6, 2017 3:13:06 PM

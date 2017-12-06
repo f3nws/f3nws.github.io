@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "John Oliver grills Dustin Hoffman about sexual harassment allegations"
-date: 2017-12-06 11:15:23Z
+date: 2017-12-06 15:26:05Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Dustin Hoffman and "Last Week Tonight" host, John Oliver, got into a heated disc
 
 Full story on F3News: [John Oliver grills Dustin Hoffman about sexual harassment allegations](http://www.f3nws.com/n/tzEAAH)
 
-> Posted on: Wednesday, December 6, 2017 11:15:23 AM
+> Posted on: Wednesday, December 6, 2017 3:26:05 PM

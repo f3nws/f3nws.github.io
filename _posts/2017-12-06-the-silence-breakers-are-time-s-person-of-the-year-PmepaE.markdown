@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The Silence Breakers' are Time's Person of the Year"
-date: 2017-12-06 14:07:04Z
+date: 2017-12-06 15:21:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['The Silence Breakers' are Time's Person of the Year](http://www.f3nws.com/n/PmepaE)
 
-> Posted on: Wednesday, December 6, 2017 2:07:04 PM
+> Posted on: Wednesday, December 6, 2017 3:21:14 PM
