@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As wildfires consumed houses, 5 friends grabbed garden hoses"
-date: 2017-12-06 01:22:54Z
+date: 2017-12-06 03:02:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 1,000 firefighters are battling the fast-moving wildfires in Ventura C
 
 Full story on F3News: [As wildfires consumed houses, 5 friends grabbed garden hoses](http://www.f3nws.com/n/juvFfD)
 
-> Posted on: Wednesday, December 6, 2017 1:22:54 AM
+> Posted on: Wednesday, December 6, 2017 3:02:09 AM

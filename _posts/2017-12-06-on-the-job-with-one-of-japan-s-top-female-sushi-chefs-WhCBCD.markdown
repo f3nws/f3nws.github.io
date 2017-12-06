@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "On the job with one of Japan's top female sushi chefs"
-date: 2017-12-06 01:18:31Z
+date: 2017-12-06 03:04:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Female sushi chefs are a rare sight in Japan.
 
 Full story on F3News: [On the job with one of Japan's top female sushi chefs](http://www.f3nws.com/n/WhCBCD)
 
-> Posted on: Wednesday, December 6, 2017 1:18:31 AM
+> Posted on: Wednesday, December 6, 2017 3:04:29 AM

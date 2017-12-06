@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![High Court clarifies Coalition Senate case](http://www.skynews.com.au/content/dam/skynews/news/politics/federal/2017/12/06/skynews_1304749417.jpg/_jcr_content/renditions/skynews.img.1200.1006.jpeg)
 
-High Court clarifies Coalition Senate case Sky News Australia Full coverage
+High Court clarifies Coalition Senate case Sky News Australia Hollie Hughes forfeited Senate opportunity by taking government job, High Court finds ABC Online Full coverage
 
 
 Full story on F3News: [High Court clarifies Coalition Senate case](http://www.f3nws.com/n/rsUxtF)

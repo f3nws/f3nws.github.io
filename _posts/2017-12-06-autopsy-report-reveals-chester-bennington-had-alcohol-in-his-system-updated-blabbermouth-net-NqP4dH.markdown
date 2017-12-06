@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) - BLABBERMOUTH.NET"
-date: 2017-12-06 01:18:45Z
+date: 2017-12-06 01:18:59Z
 categories: google-news-entertaintment
 ---
 
@@ -12,4 +12,4 @@ BLABBERMOUTH.NET Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His Sy
 
 Full story on F3News: [Autopsy Report Reveals CHESTER BENNINGTON Had Alcohol In His System (Updated) - BLABBERMOUTH.NET](http://www.f3nws.com/n/NqP4dH)
 
-> Posted on: Wednesday, December 6, 2017 1:18:45 AM
+> Posted on: Wednesday, December 6, 2017 1:18:59 AM
