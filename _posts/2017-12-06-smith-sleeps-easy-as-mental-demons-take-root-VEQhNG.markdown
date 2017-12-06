@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Smith sleeps easy as mental demons take Root](https://www.cricket.com.au/-/media/News/2017/12/06RootSmith.ashx)
 
-Smith sleeps easy as mental demons take Root cricket.com.au Horror numbers proves Perth is England's Ashes graveyard Daily Telegraph Ashes 2017-18: England have left 'scars' on Australians, claims Trevor Bayliss The Sydney Morning Herald Ashes 2017: Australia are beatable, but it's England being beaten and it's hard to see where a victory will come from The Independent Full coverage
+Smith sleeps easy as mental demons take Root cricket.com.au Pressure of captaincy is Steve Smith's greatest battle, writes Robert Craddock Daily Telegraph Horror numbers proves Perth is England's Ashes graveyard Courier Mail England's hopes knocked out of the ground The Australian Full coverage
 
 
 Full story on F3News: [Smith sleeps easy as mental demons take Root](http://www.f3nws.com/n/VEQhNG)

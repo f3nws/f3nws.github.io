@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dictator's stolen cash seized in Switzerland"
-date: 2017-12-06 12:31:28Z
+date: 2017-12-06 12:46:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Swiss government is to return $321 million to Nigeria that was seized from t
 
 Full story on F3News: [Dictator's stolen cash seized in Switzerland](http://www.f3nws.com/n/gVyAEF)
 
-> Posted on: Wednesday, December 6, 2017 12:31:28 PM
+> Posted on: Wednesday, December 6, 2017 12:46:19 PM
