@@ -5,6 +5,8 @@ date: 2017-12-06 00:07:45Z
 categories: breakingnews-ie-world
 ---
 
+![Three charged with murder of Maltese journalist](http://www.breakingnews.ie/remote/media.central.ie/media/images/d/daphnecaruanagalizia_large.jpg?width=600&s=bn-817340)
+
 A Maltese court has charged three men with the murder of investigative journalist Daphne Caruana Galizia, who was killed by a car bomb in October.
 
 
