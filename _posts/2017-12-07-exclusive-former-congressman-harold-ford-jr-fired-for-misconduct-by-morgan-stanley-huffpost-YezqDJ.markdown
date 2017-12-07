@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Exclusive: Former Congressman Harold Ford Jr. Fired For Misconduct By Morgan Stanley - HuffPost](https://img.huffingtonpost.com/asset/5a29775f150000d59f85c0fb.jpeg?cache=7cmcsrawk1&ops=1910_1000)
 
-HuffPost Exclusive: Former Congressman Harold Ford Jr. Fired For Misconduct By Morgan Stanley HuffPost A woman who was interviewed as part of the company's HR probe separately told HuffPost that Ford harassed her one evening in Manhattan several years ago. By Yashar Ali. 1.7k. 30. Former Democratic Congressman Harold Ford Jr. has been fired for ... Harold Ford Jr., ex-congressman and frequent MSNBC guest, fired by investment bank for sex misconduct Fox News Former Dem rep fired by Morgan Stanley denies harassment allegations The Hill (blog) Morgan Stanley fires former lawmaker for misconduct Reuters New York Post - The Commercial Appeal all 21 news articles »
+HuffPost Exclusive: Former Congressman Harold Ford Jr. Fired For Misconduct By Morgan Stanley HuffPost A woman who was interviewed as part of the company's HR probe separately told HuffPost that Ford harassed her one evening in Manhattan several years ago. By Yashar Ali. 3.9k. 50. Former Democratic Congressman Harold Ford Jr. has been fired for ... Harold Ford Jr., ex-congressman and frequent MSNBC guest, fired by investment bank for sex misconduct Fox News Former Dem rep fired by Morgan Stanley denies harassment allegations The Hill (blog) Morgan Stanley Fires Ex-Lawmaker Harold Ford Jr. After Misconduct Probe Bloomberg USA TODAY - New York Post - Wall Street Journal - The Daily Caller all 35 news articles »
 
 
 Full story on F3News: [Exclusive: Former Congressman Harold Ford Jr. Fired For Misconduct By Morgan Stanley - HuffPost](http://www.f3nws.com/n/YezqDJ)
