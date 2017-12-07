@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Over 10,000 texts' between ex-Mueller team officials found, after discovery of anti-Trump messages"
-date: 2017-12-07 00:30:00Z
+date: 2017-12-07 02:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Justice Department officials are reading through “over 10,000 texts” between
 
 Full story on F3News: ['Over 10,000 texts' between ex-Mueller team officials found, after discovery of anti-Trump messages](http://www.f3nws.com/n/vVvTSD)
 
-> Posted on: Thursday, December 7, 2017 12:30:00 AM
+> Posted on: Thursday, December 7, 2017 2:00:00 AM
