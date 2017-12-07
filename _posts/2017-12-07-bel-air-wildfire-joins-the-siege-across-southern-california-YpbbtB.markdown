@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bel-Air wildfire joins the siege across Southern California"
-date: 2017-12-07 02:32:27Z
+date: 2017-12-07 03:40:32Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LOS ANGELES (AP) — A wildfire erupted in Los Angeles' exclusive Bel-Air sectio
 
 Full story on F3News: [Bel-Air wildfire joins the siege across Southern California](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, December 7, 2017 2:32:27 AM
+> Posted on: Thursday, December 7, 2017 3:40:32 AM
