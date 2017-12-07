@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steam ends support for Bitcoin due to high fees, volatility     - CNET"
-date: 2017-12-07 00:10:11Z
+date: 2017-12-07 00:32:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Valve's decision comes as the cryptocurrency notches another milestone, passing 
 
 Full story on F3News: [Steam ends support for Bitcoin due to high fees, volatility     - CNET](http://www.f3nws.com/n/fzRePE)
 
-> Posted on: Thursday, December 7, 2017 12:10:11 AM
+> Posted on: Thursday, December 7, 2017 12:32:56 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Whistleblower: Flynn told colleague Russia sanctions would be 'ripped up'"
-date: 2017-12-07 00:20:53Z
+date: 2017-12-07 01:22:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As President Donald Trump delivered his inaugural address, incoming-national sec
 
 Full story on F3News: [Whistleblower: Flynn told colleague Russia sanctions would be 'ripped up'](http://www.f3nws.com/n/TsB2DC)
 
-> Posted on: Thursday, December 7, 2017 12:20:53 AM
+> Posted on: Thursday, December 7, 2017 1:22:30 AM
