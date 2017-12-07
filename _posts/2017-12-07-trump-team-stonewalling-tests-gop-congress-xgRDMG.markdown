@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump team stonewalling tests GOP Congress"
-date: 2017-12-07 04:03:57Z
+date: 2017-12-07 02:49:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rep. Adam Schiff talks with Rachel Maddow about how Trump team members have made
 
 Full story on F3News: [Trump team stonewalling tests GOP Congress](http://www.f3nws.com/n/xgRDMG)
 
-> Posted on: Thursday, December 7, 2017 4:03:57 AM
+> Posted on: Thursday, December 7, 2017 2:49:00 AM
