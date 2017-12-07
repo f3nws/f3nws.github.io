@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lindsey Vonn: I won't be representing Trump at Olympics"
-date: 2017-12-07 01:34:11Z
+date: 2017-12-07 10:42:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A number of US athletes have spoken out against Donald Trump during his presiden
 
 Full story on F3News: [Lindsey Vonn: I won't be representing Trump at Olympics](http://www.f3nws.com/n/MyHEWE)
 
-> Posted on: Thursday, December 7, 2017 1:34:11 AM
+> Posted on: Thursday, December 7, 2017 10:42:28 AM
