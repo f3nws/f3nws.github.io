@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did President Trump slur his speech?"
-date: 2017-12-07 03:52:17Z
+date: 2017-12-07 11:36:29Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ While President Donald Trump was giving his historic speech Wednesday to announc
 
 Full story on F3News: [Did President Trump slur his speech?](http://www.f3nws.com/n/mmcgSG)
 
-> Posted on: Thursday, December 7, 2017 3:52:17 AM
+> Posted on: Thursday, December 7, 2017 11:36:29 AM

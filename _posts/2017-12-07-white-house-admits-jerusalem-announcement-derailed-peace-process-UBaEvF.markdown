@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House admits Jerusalem announcement derailed peace process"
-date: 2017-12-07 07:53:42Z
+date: 2017-12-07 11:39:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's decision Wednesday to recognize Jerusalem as Israel's c
 
 Full story on F3News: [White House admits Jerusalem announcement derailed peace process](http://www.f3nws.com/n/UBaEvF)
 
-> Posted on: Thursday, December 7, 2017 7:53:42 AM
+> Posted on: Thursday, December 7, 2017 11:39:53 AM
