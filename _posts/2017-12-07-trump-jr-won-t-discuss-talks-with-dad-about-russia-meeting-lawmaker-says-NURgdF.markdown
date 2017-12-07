@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump Jr. won't discuss talks with dad about Russia meeting, lawmaker says"
-date: 2017-12-07 01:30:00Z
+date: 2017-12-07 03:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Donald Trump Jr. declined to tell lawmakers about conversations he had with his 
 
 Full story on F3News: [Trump Jr. won't discuss talks with dad about Russia meeting, lawmaker says](http://www.f3nws.com/n/NURgdF)
 
-> Posted on: Thursday, December 7, 2017 1:30:00 AM
+> Posted on: Thursday, December 7, 2017 3:45:00 AM

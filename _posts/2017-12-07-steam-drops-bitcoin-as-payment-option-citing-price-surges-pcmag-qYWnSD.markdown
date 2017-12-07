@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Steam Drops Bitcoin as Payment Option, Citing Price Surges - PCMag](https://assets.pcmag.com/media/images/555358-cryptocurrency-bitcoin-chip.jpg?thumb=y&width=810&height=456)
 
-PCMag Steam Drops Bitcoin as Payment Option, Citing Price Surges PCMag The rollercoaster rising value of Bitcoin has forced online gaming distributor Steam to drop the cryptocurrency as a payment method. A year ago, it cost a mere $0.20 to process transaction fees for Bitcoin payments, but due to the digital currency's ... Steam Is No Longer Accepting Bitcoin IGN Steam Drops Bitcoin, Citing Volatility And High Fees GameSpot Why Steam Terminated Support For Bitcoin As Payment Method International Business Times The Verge - PC Gamer - SegmentNext - Engadget all 61 news articles »
+PCMag Steam Drops Bitcoin as Payment Option, Citing Price Surges PCMag The rollercoaster rising value of Bitcoin has forced online gaming distributor Steam to drop the cryptocurrency as a payment method. A year ago, it cost a mere $0.20 to process transaction fees for Bitcoin payments, but due to the digital currency's ... Steam Is No Longer Accepting Bitcoin IGN Steam Drops Bitcoin, Citing Volatility And High Fees GameSpot Why Steam Terminated Support For Bitcoin As Payment Method International Business Times The Verge - PC Gamer - Engadget - PCGamesN all 61 news articles »
 
 
 Full story on F3News: [Steam Drops Bitcoin as Payment Option, Citing Price Surges - PCMag](http://www.f3nws.com/n/qYWnSD)

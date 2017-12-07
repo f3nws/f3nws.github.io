@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrity face change mysteries..."
-date: 2017-12-07 01:45:30Z
+date: 2017-12-07 05:45:04Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Have they or haven't they gone under the knife?
 
 Full story on F3News: [Celebrity face change mysteries...](http://www.f3nws.com/n/AgDsfE)
 
-> Posted on: Thursday, December 7, 2017 1:45:30 AM
+> Posted on: Thursday, December 7, 2017 5:45:04 AM
