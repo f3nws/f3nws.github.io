@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chelsea Handler evacuates home amid wildfire threat"
-date: 2017-12-07 03:35:34Z
+date: 2017-12-07 04:10:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Comedian Chelsea Handler is among the thousands who have had to flee their homes
 
 Full story on F3News: [Chelsea Handler evacuates home amid wildfire threat](http://www.f3nws.com/n/YncGQG)
 
-> Posted on: Thursday, December 7, 2017 3:35:34 AM
+> Posted on: Thursday, December 7, 2017 4:10:35 AM

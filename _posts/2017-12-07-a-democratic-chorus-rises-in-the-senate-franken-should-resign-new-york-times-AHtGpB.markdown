@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![A Democratic Chorus Rises in the Senate: 'Franken Should Resign' - New York Times](https://static01.nyt.com/images/2017/12/07/us/07alpha-sub/07alpha-sub-facebookJumbo.jpg)
 
-New York Times A Democratic Chorus Rises in the Senate: 'Franken Should Resign' New York Times WASHINGTON — Support for Al Franken all but collapsed on Wednesday among his Democratic colleagues in the Senate, with dozens calling for him to resign after a sixth woman said he had made an improper advance on her. “Senator Franken should resign ... Franken's office disputes report that he plans to resign Washington Post Women Lead Charge As Dozens Of Senate Democrats Call For Franken To Resign HuffPost Al Franken To Resign, Democratic Official Says NPR Politico - The Hill - Los Angeles Times - TIME all 634 news articles »
+New York Times A Democratic Chorus Rises in the Senate: 'Franken Should Resign' New York Times WASHINGTON — Support for Al Franken all but collapsed on Wednesday among his Democratic colleagues in the Senate, with dozens calling for him to resign after a sixth woman said he had made an improper advance on her. “Senator Franken should resign ... Franken's office disputes report that he plans to resign Washington Post Al Franken To Resign, Democratic Official Says NPR Women Lead Charge As Dozens Of Senate Democrats Call For Franken To Resign HuffPost Politico - The Hill - Reuters - Los Angeles Times all 635 news articles »
 
 
 Full story on F3News: [A Democratic Chorus Rises in the Senate: 'Franken Should Resign' - New York Times](http://www.f3nws.com/n/AHtGpB)
