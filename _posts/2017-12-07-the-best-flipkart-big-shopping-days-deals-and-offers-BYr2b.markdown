@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Flipkart Big Shopping Days deals and offers"
-date: 2017-12-07 07:24:07Z
+date: 2017-12-07 08:32:07Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Flipkart Big Shopping Days start from December 7. The e-commerce giant is teasin
 
 Full story on F3News: [The best Flipkart Big Shopping Days deals and offers](http://www.f3nws.com/n/BYr2b)
 
-> Posted on: Thursday, December 7, 2017 7:24:07 AM
+> Posted on: Thursday, December 7, 2017 8:32:07 AM
