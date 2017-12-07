@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Democratic senator quitting following sex abuse allegations"
-date: 2017-12-07 17:13:36Z
+date: 2017-12-07 18:09:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Democratic Sen. Al Franken of Minnesota is resigning following allegations that 
 
 Full story on F3News: [Democratic senator quitting following sex abuse allegations](http://www.f3nws.com/n/QyPYSG)
 
-> Posted on: Thursday, December 7, 2017 5:13:36 PM
+> Posted on: Thursday, December 7, 2017 6:09:25 PM
