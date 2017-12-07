@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-USA Gymnastics doctor sentenced to 60 years on child porn charges"
-date: 2017-12-07 19:50:27Z
+date: 2017-12-07 20:50:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Larry Nassar, the disgraced former USA Gymnastics team doctor who admitted to se
 
 Full story on F3News: [Ex-USA Gymnastics doctor sentenced to 60 years on child porn charges](http://www.f3nws.com/n/DrzaeB)
 
-> Posted on: Thursday, December 7, 2017 7:50:27 PM
+> Posted on: Thursday, December 7, 2017 8:50:52 PM
