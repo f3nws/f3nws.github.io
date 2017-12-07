@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Haley: 'Open question' if US athletes can attend Olympics in South Korea"
-date: 2017-12-07 13:24:08Z
+date: 2017-12-07 14:58:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Whether US athletes will be able to attend the 2018 Winter Olympics in South Kor
 
 Full story on F3News: [Haley: 'Open question' if US athletes can attend Olympics in South Korea](http://www.f3nws.com/n/zXtYjB)
 
-> Posted on: Thursday, December 7, 2017 1:24:08 PM
+> Posted on: Thursday, December 7, 2017 2:58:43 PM
