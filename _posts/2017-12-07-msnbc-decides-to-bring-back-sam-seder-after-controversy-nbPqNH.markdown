@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "MSNBC decides to bring back Sam Seder after controversy"
-date: 2017-12-07 16:44:14Z
+date: 2017-12-07 19:24:46Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [MSNBC decides to bring back Sam Seder after controversy](http://www.f3nws.com/n/nbPqNH)
 
-> Posted on: Thursday, December 7, 2017 4:44:14 PM
+> Posted on: Thursday, December 7, 2017 7:24:46 PM

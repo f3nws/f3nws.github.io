@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI director defends his agency against Trump's attacks"
-date: 2017-12-07 18:43:19Z
+date: 2017-12-07 19:37:36Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Countering strident attacks on his agency from the president
 
 Full story on F3News: [FBI director defends his agency against Trump's attacks](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, December 7, 2017 6:43:19 PM
+> Posted on: Thursday, December 7, 2017 7:37:36 PM

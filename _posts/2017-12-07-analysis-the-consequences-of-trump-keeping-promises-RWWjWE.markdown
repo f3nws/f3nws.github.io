@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: The consequences of Trump keeping promises"
-date: 2017-12-07 09:35:10Z
+date: 2017-12-07 11:24:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A politician who actually does what he told voters he would do seems almost unfa
 
 Full story on F3News: [Analysis: The consequences of Trump keeping promises](http://www.f3nws.com/n/RWWjWE)
 
-> Posted on: Thursday, December 7, 2017 9:35:10 AM
+> Posted on: Thursday, December 7, 2017 11:24:08 AM
