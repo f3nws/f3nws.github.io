@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bel-Air is burning': Firefighters battle unprecedented blazes"
-date: 2017-12-07 10:53:15Z
+date: 2017-12-07 14:43:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hundreds of firefighters are working around the clock to battle fast-moving wild
 
 Full story on F3News: ['Bel-Air is burning': Firefighters battle unprecedented blazes](http://www.f3nws.com/n/jF2yfE)
 
-> Posted on: Thursday, December 7, 2017 10:53:15 AM
+> Posted on: Thursday, December 7, 2017 2:43:47 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What on earth is going on with bitcoin?"
-date: 2017-12-07 12:32:05Z
+date: 2017-12-07 14:27:21Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: [What on earth is going on with bitcoin?](http://www.f3nws.com/n/nURkTE)
 
-> Posted on: Thursday, December 7, 2017 12:32:05 PM
+> Posted on: Thursday, December 7, 2017 2:27:21 PM
