@@ -5,6 +5,8 @@ date: 2017-12-07 00:30:00Z
 categories: fox-news
 ---
 
+!['Over 10,000 texts' between ex-Mueller team officials found, after discovery of anti-Trump messages](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 Justice Department officials are reading through “over 10,000 texts” between FBI officials Peter Strzok and Lisa Page, Fox News has learned, after it emerged Strzok was removed from Special Counsel Robert Mueller's Russia probe following the discovery of anti-Trump messages between them.
 
 
