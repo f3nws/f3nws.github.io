@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinians say Trump Jerusalem decision 'biggest mistake of his life'"
-date: 2017-12-07 05:54:46Z
+date: 2017-12-07 07:29:13Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ Top Palestinian officials condemned US President Donald Trump's recognition of J
 
 Full story on F3News: [Palestinians say Trump Jerusalem decision 'biggest mistake of his life'](http://www.f3nws.com/n/RSMNED)
 
-> Posted on: Thursday, December 7, 2017 5:54:46 AM
+> Posted on: Thursday, December 7, 2017 7:29:13 AM

@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![WorldRemit nabs $40M at a $670M valuation to boost its money transfer business](https://tctechcrunch2011.files.wordpress.com/2016/02/24619737710_b0146cd148_k.jpg)
 
-WorldRemit, a London-based startup with some 2 million users that offers a quick way for people to send money to each other with a focus on developing markets, has raised more funds to help it take on the likes of Western Union in the remittances market, estimated by the World Bank to be worth some $596 million globally this year. The company has picked up $40 million — a Series C… Read More
+WorldRemit, a London-based startup with some 2 million users that offers a quick way for people to send money to each other with a focus on developing markets, has raised more funds to help it take on the likes of Western Union in the remittances market, estimated by the World Bank to be worth some $596 million globally this year, and ramp its user number to 10 million. The company has picked… Read More
 
 
 Full story on F3News: [WorldRemit nabs $40M at a $670M valuation to boost its money transfer business](http://www.f3nws.com/n/Dk4sDB)
