@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australia legalizes same-sex marriage"
-date: 2017-12-07 10:54:20Z
+date: 2017-12-07 12:30:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Australia's parliament voted to legalize same-sex marriage Thursday after years 
 
 Full story on F3News: [Australia legalizes same-sex marriage](http://www.f3nws.com/n/Xymh3G)
 
-> Posted on: Thursday, December 7, 2017 10:54:20 AM
+> Posted on: Thursday, December 7, 2017 12:30:57 PM

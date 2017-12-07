@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Franken faces new allegations, weighing future"
-date: 2017-12-07 11:39:12Z
+date: 2017-12-07 12:32:37Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Minnesota Democrat Al Franken, facing fresh allegations of s
 
 Full story on F3News: [Franken faces new allegations, weighing future](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Thursday, December 7, 2017 11:39:12 AM
+> Posted on: Thursday, December 7, 2017 12:32:37 PM
