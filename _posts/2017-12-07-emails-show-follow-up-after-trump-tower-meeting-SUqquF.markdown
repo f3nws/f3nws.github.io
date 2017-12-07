@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Emails show follow-up after Trump Tower meeting"
-date: 2017-12-07 21:33:04Z
+date: 2017-12-07 21:55:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The British publicist who arranged the June 2016 meeting with Russians and Donal
 
 Full story on F3News: [Emails show follow-up after Trump Tower meeting](http://www.f3nws.com/n/SUqquF)
 
-> Posted on: Thursday, December 7, 2017 9:33:04 PM
+> Posted on: Thursday, December 7, 2017 9:55:09 PM
