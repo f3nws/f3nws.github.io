@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan to buy long-range missiles"
-date: 2017-12-08 07:34:42Z
+date: 2017-12-08 07:50:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Japan will for the first time buy long-range missiles to counter the country's "
 
 Full story on F3News: [Japan to buy long-range missiles](http://www.f3nws.com/n/USx2PB)
 
-> Posted on: Friday, December 8, 2017 7:34:42 AM
+> Posted on: Friday, December 8, 2017 7:50:41 AM

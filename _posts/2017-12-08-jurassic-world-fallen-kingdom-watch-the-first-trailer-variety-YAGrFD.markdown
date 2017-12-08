@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Jurassic World: Fallen Kingdom': Watch the First Trailer - Variety](https://pmcvariety.files.wordpress.com/2017/12/screen-shot-2017-12-07-at-5-56-43-pm.png?w=700&h=393&crop=1)
 
-Variety 'Jurassic World: Fallen Kingdom': Watch the First Trailer Variety On Thursday, the prehistoric death trap of Jurassic World beckoned visitors back with a new trailer during Thursday Night Football. “Jurassic World: Fallen Kingdom” is the sequel to “Jurassic World,” Colin Trevorrow's 2015 reboot of the “Jurassic Park ... New Trailer: 'Jurassic World: Fallen Kingdom' With Chris Pratt New York Times Watch the first trailer for Jurassic World: Fallen Kingdom EW.com (blog) 'Jurassic World: Fallen Kingdom' Trailer Released – Or Did It Escape? Deadline Forbes - Hollywood Reporter - E! Online - ComingSoon.net all 202 news articles »
+Variety 'Jurassic World: Fallen Kingdom': Watch the First Trailer Variety On Thursday, the prehistoric death trap of Jurassic World beckoned visitors back with a new trailer during Thursday Night Football. “Jurassic World: Fallen Kingdom” is the sequel to “Jurassic World,” Colin Trevorrow's 2015 reboot of the “Jurassic Park ... New Trailer: 'Jurassic World: Fallen Kingdom' With Chris Pratt New York Times Watch the first trailer for Jurassic World: Fallen Kingdom EW.com (blog) 'Jurassic World: Fallen Kingdom' Trailer Released – Or Did It Escape? Deadline Forbes - Hollywood Reporter - E! Online - Den of Geek US all 218 news articles »
 
 
 Full story on F3News: ['Jurassic World: Fallen Kingdom': Watch the First Trailer - Variety](http://www.f3nws.com/n/YAGrFD)
