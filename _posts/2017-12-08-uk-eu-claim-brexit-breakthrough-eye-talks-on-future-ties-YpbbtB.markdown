@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK, EU claim Brexit breakthrough; eye talks on future ties"
-date: 2017-12-08 12:42:16Z
+date: 2017-12-08 13:36:24Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BRUSSELS (AP) — Britain and the European Union hammered out a deal early Frida
 
 Full story on F3News: [UK, EU claim Brexit breakthrough; eye talks on future ties](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 8, 2017 12:42:16 PM
+> Posted on: Friday, December 8, 2017 1:36:24 PM

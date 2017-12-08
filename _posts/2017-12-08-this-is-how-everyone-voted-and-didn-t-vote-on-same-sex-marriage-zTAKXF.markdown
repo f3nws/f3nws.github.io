@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![This is how everyone voted — and didn't vote — on same-sex marriage](http://www.abc.net.au/news/image/9241608-16x9-700x394.jpg)
 
-In addition to three members of the Coalition and a crossbencher who voted no, at least 10 Government MPs chose to abstain from yesterday's final conscience vote on same-sex marriage in the House of Representatives.
+In addition to three members of the Coalition and a crossbencher who voted no, at least 10 Government MPs chose to abstain from Thursday's final conscience vote on same-sex marriage in the House of Representatives.
 
 
 Full story on F3News: [This is how everyone voted — and didn't vote — on same-sex marriage](http://www.f3nws.com/n/zTAKXF)
