@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![All The Big Games And Announcements At The 2017 Game Awards - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--l2ERkbYj--/c_fill,fl_progressive,g_center,h_900,q_80,w_1600/tpsppkgctyzhn5ighail.png)
 
-Kotaku All The Big Games And Announcements At The 2017 Game Awards Kotaku Tonight in Los Angeles, a bunch of game developers won well-deserved honors for the games they released in 2017. A bunch of other people showed off games that won't be out until 2018 or later. If you want to read who won what, go here. If you want to ... It's Not That Videogames Don't Need Big Award Shows. It's That They Don't Need Any WIRED The 11 biggest announcements and trailers from the 2017 Game Awards The Verge You can win games if you watch The Game Awards on Steam PC Gamer IGN - Polygon - Attack of the Fanboy - TechSpot all 181 news articles »
+Kotaku All The Big Games And Announcements At The 2017 Game Awards Kotaku Tonight in Los Angeles, a bunch of game developers won well-deserved honors for the games they released in 2017. A bunch of other people showed off games that won't be out until 2018 or later. If you want to read who won what, go here. If you want to ... The 10 most exciting announcements made at The Game Awards Digital Trends It's Not That Videogames Don't Need Big Award Shows. It's That They Don't Need Any WIRED Here Are All The Winners Of The 2017 Game Awards Forbes IGN - PC Gamer - Attack of the Fanboy - Siliconera all 194 news articles »
 
 
 Full story on F3News: [All The Big Games And Announcements At The 2017 Game Awards - Kotaku](http://www.f3nws.com/n/HddmMF)
