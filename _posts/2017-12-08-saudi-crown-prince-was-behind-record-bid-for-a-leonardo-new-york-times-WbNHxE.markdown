@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Saudi Crown Prince Was Behind Record Bid for a Leonardo - New York Times](https://static01.nyt.com/images/2017/12/08/world/08saudiart2/08saudiart2-facebookJumbo.jpg)
 
-New York Times Saudi Crown Prince Was Behind Record Bid for a Leonardo New York Times LONDON — Crown Prince Mohammed bin Salman of Saudi Arabia, acting though a friend and distant cousin, was the true buyer behind the purchase of Leonardo da Vinci's “Salvator Mundi” for a record-breaking $450.3 million, American officials and an Arab ... Saudi Crown Prince Mohammed bin Salman Is Revealed as the Real Buyer of the $450 Million 'Salvator Mundi' artnet News Mystery Solved: Saudi Prince Is Buyer Of $450M DaVinci Painting NPR Saudi Arabia's power-hungry crown prince sent a proxy to buy a $450 million Leonardo da Vinci painting Business Insider Hyperallergic - Bloomberg - W Magazine - South China Morning Post all 96 news articles »
+New York Times Saudi Crown Prince Was Behind Record Bid for a Leonardo New York Times LONDON — Crown Prince Mohammed bin Salman of Saudi Arabia, acting through a friend and distant cousin, was the true buyer behind the purchase of Leonardo da Vinci's “Salvator Mundi” for a record-breaking $450.3 million, American officials and an Arab ... Saudi prince's reported da Vinci purchase sign of cultural shift? CBS News all 131 news articles »
 
 
 Full story on F3News: [Saudi Crown Prince Was Behind Record Bid for a Leonardo - New York Times](http://www.f3nws.com/n/WbNHxE)
