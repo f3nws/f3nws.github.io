@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "In Franken's fall, sudden Senate pickup chance for GOP"
-date: 2017-12-08 09:30:41Z
+date: 2017-12-08 18:36:12Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ST. PAUL, Minn. (AP) — Minnesota Sen. Al Franken's departure from the Senate s
 
 Full story on F3News: [In Franken's fall, sudden Senate pickup chance for GOP](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 8, 2017 9:30:41 AM
+> Posted on: Friday, December 8, 2017 6:36:12 PM
