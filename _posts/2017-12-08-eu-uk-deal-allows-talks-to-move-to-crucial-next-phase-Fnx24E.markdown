@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU, UK deal allows talks to move to crucial next phase"
-date: 2017-12-08 11:12:51Z
+date: 2017-12-08 12:26:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After days of intense talks on Brexit, British Prime Minister Theresa May has ru
 
 Full story on F3News: [EU, UK deal allows talks to move to crucial next phase](http://www.f3nws.com/n/Fnx24E)
 
-> Posted on: Friday, December 8, 2017 11:12:51 AM
+> Posted on: Friday, December 8, 2017 12:26:00 PM
