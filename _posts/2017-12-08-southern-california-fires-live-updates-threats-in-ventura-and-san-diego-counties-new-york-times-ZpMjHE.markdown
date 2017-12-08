@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Southern California Fires Live Updates: Threats in Ventura and San Diego Counties - New York Times](https://static01.nyt.com/images/2017/12/08/us/08fires-01SUB/08fires-01SUB-facebookJumbo.jpg)
 
-New York Times Southern California Fires Live Updates: Threats in Ventura and San Diego Counties New York Times (Want to get California Today, our daily newsletter on the state, by email? Here's the sign-up.) LOS ANGELES — Firefighters battled to hold back flames that on Thursday threatened tens of thousands of homes in Southern California and forced new ... California fires: Two people burned in new blaze CNN More than 400 structures destroyed in 115000-acre Ventura County wildfire Los Angeles Times Southern California Fires Surpass 140000 Acres As Santa Ana Winds Drive Flames NPR TIME - NBCNews.com - ABC News - Slate Magazine all 2,281 news articles »
+New York Times Southern California Fires Live Updates: Threats in Ventura and San Diego Counties New York Times (Want to get California Today, our daily newsletter on the state, by email? Here's the sign-up.) LOS ANGELES — Firefighters battled to hold back flames that on Thursday threatened tens of thousands of homes in Southern California and forced new ... Ventura fire rages, threatening communities both coastal and inland; body of woman found Los Angeles Times Southern California Fires Surpass 140000 Acres As Santa Ana Winds Drive Flames NPR Californian Communities Are Under Siege as Destructive Wildfires Continue Their Rampage TIME ABC News - NBCNews.com - CNN - Slate Magazine all 2,264 news articles »
 
 
 Full story on F3News: [Southern California Fires Live Updates: Threats in Ventura and San Diego Counties - New York Times](http://www.f3nws.com/n/ZpMjHE)
