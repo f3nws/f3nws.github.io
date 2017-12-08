@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bel-Air burns as new fire near San Diego spreads quickly"
-date: 2017-12-08 02:36:48Z
+date: 2017-12-08 03:35:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hundreds of firefighters are working around the clock to battle fast-moving wild
 
 Full story on F3News: [Bel-Air burns as new fire near San Diego spreads quickly](http://www.f3nws.com/n/jF2yfE)
 
-> Posted on: Friday, December 8, 2017 2:36:48 AM
+> Posted on: Friday, December 8, 2017 3:35:44 AM

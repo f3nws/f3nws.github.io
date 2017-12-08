@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "House committee grills FBI director: Did Trump–Russia dossier back a FISA warrant?"
-date: 2017-12-08 01:29:26Z
+date: 2017-12-08 01:29:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ FBI Director Christopher Wray has declined to tell the House Judiciary Committee
 
 Full story on F3News: [House committee grills FBI director: Did Trump–Russia dossier back a FISA warrant?](http://www.f3nws.com/n/ZF3J2B)
 
-> Posted on: Friday, December 8, 2017 1:29:26 AM
+> Posted on: Friday, December 8, 2017 1:29:00 AM

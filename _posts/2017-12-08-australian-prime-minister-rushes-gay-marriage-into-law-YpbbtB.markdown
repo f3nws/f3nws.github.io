@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian prime minister rushes gay marriage into law"
-date: 2017-12-08 02:40:56Z
+date: 2017-12-08 03:35:28Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ CANBERRA, Australia (AP) — Australia's prime minister rushed gay marriage into
 
 Full story on F3News: [Australian prime minister rushes gay marriage into law](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Friday, December 8, 2017 2:40:56 AM
+> Posted on: Friday, December 8, 2017 3:35:28 AM

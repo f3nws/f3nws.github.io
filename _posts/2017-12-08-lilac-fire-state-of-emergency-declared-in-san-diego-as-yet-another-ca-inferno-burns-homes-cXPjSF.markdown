@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lilac Fire: State of emergency declared in San Diego as yet another CA inferno burns homes"
-date: 2017-12-08 02:40:47Z
+date: 2017-12-08 02:40:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The Lilac Fire in San Diego North County has burned two people, charred 2,500 ac
 
 Full story on F3News: [Lilac Fire: State of emergency declared in San Diego as yet another CA inferno burns homes](http://www.f3nws.com/n/cXPjSF)
 
-> Posted on: Friday, December 8, 2017 2:40:47 AM
+> Posted on: Friday, December 8, 2017 2:40:00 AM

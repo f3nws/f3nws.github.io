@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Men jailed over rape and death of Lynette Daley](http://www.abc.net.au/news/image/7392268-16x9-700x394.jpg)
 
-Adrian Attwater is sentenced to 19 years jail and Paul Maris is sentenced to nine years jail for their roles in the rape and death of New South Wales woman Lynette Daley in 2011.
+Lynette Daley's friends cheer in court as two men, who brutally raped the mother of seven and did not intervene as she bled to death, are sentenced.
 
 
 Full story on F3News: [Men jailed over rape and death of Lynette Daley](http://www.f3nws.com/n/rdZbAG)
