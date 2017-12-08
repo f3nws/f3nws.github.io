@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2016 email to the then-candidate and Trump Jr. offered what was purported to be a key to hacked documents"
-date: 2017-12-08 13:00:14Z
+date: 2017-12-08 14:04:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Candidate Donald Trump, his son Donald Trump Jr. and others in the Trump Organiz
 
 Full story on F3News: [2016 email to the then-candidate and Trump Jr. offered what was purported to be a key to hacked documents](http://www.f3nws.com/n/kQSmVJ)
 
-> Posted on: Friday, December 8, 2017 1:00:14 PM
+> Posted on: Friday, December 8, 2017 2:04:51 PM
