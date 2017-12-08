@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Net neutrality protesters take to the streets     - CNET"
-date: 2017-12-08 00:54:00Z
+date: 2017-12-08 01:45:07Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Protesters want Congress to step in and stop the FCC's vote next week to end net
 
 Full story on F3News: [Net neutrality protesters take to the streets     - CNET](http://www.f3nws.com/n/cYydc)
 
-> Posted on: Friday, December 8, 2017 12:54:00 AM
+> Posted on: Friday, December 8, 2017 1:45:07 AM
