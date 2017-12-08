@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Jerusalem move: Protests loom after Friday prayers"
-date: 2017-12-08 08:34:44Z
+date: 2017-12-08 11:38:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Muslims across the globe head to Friday prayers, the status of Jerusalem is
 
 Full story on F3News: [Trump's Jerusalem move: Protests loom after Friday prayers](http://www.f3nws.com/n/aUdKGD)
 
-> Posted on: Friday, December 8, 2017 8:34:44 AM
+> Posted on: Friday, December 8, 2017 11:38:17 AM
