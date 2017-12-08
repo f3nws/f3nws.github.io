@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Email pointed Trump campaign to WikiLeaks documents - CNN](http://cdn.cnn.com/cnnnext/dam/assets/160714113933-donald-trump-jr--super-tease.jpg)
 
-CNN Email pointed Trump campaign to WikiLeaks documents CNN Washington (CNN) Correction: This story has been corrected to say the date of the email was September 14, 2016, not September 4, 2016. The story also changed the headline and removed a tweet from Donald Trump Jr., who posted a message about WikiLeaks ... CNN just armed Trump with new ammunition to launch another 'fake news' attack Washington Post UPDATE: Email to Trump campaign flagged WikiLeaks documents The Hill House Intel investigates Trump Jr. email involving documents hacked during campaign CBS News New Republic - Business Insider - Newsweek - NBCNews.com all 101 news articles »
+CNN Email pointed Trump campaign to WikiLeaks documents CNN Washington (CNN) Correction: This story has been corrected to say the date of the email was September 14, 2016, not September 4, 2016. The story also changed the headline and removed a tweet from Donald Trump Jr., who posted a message about WikiLeaks ... House Intel investigates Trump Jr. email involving documents hacked during campaign CBS News UPDATE: Email to Trump campaign flagged WikiLeaks documents The Hill CNN botches dates, inaccurately reports Trump campaign had WikiLeaks sneak peek Fox News BuzzFeed News - Business Insider - Newsweek - Washington Post all 116 news articles »
 
 
 Full story on F3News: [Email pointed Trump campaign to WikiLeaks documents - CNN](http://www.f3nws.com/n/kQSmVJ)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roy Moore accuser admits she wrote part of yearbook inscription attributed to Alabama Senate candidate"
-date: 2017-12-08 16:41:00Z
+date: 2017-12-08 22:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ One of the women who accused Alabama Senate candidate Roy Moore of making advanc
 
 Full story on F3News: [Roy Moore accuser admits she wrote part of yearbook inscription attributed to Alabama Senate candidate](http://www.f3nws.com/n/GcJN3E)
 
-> Posted on: Friday, December 8, 2017 4:41:00 PM
+> Posted on: Friday, December 8, 2017 10:00:00 PM
