@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "I bought $250 in bitcoin. Here's what I learned"
-date: 2017-12-08 04:29:14Z
+date: 2017-12-08 09:55:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [I bought $250 in bitcoin. Here's what I learned](http://www.f3nws.com/n/rGCNHE)
 
-> Posted on: Friday, December 8, 2017 4:29:14 AM
+> Posted on: Friday, December 8, 2017 9:55:44 AM
