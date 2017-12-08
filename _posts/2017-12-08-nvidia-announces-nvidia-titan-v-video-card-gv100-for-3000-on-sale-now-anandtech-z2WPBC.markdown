@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![NVIDIA Announces “NVIDIA Titan V" Video Card: GV100 for $3000, On Sale Now - AnandTech](https://images.anandtech.com/doci/12135/tv2_678x452.jpg)
 
-AnandTech NVIDIA Announces “NVIDIA Titan V" Video Card: GV100 for $3000, On Sale Now AnandTech Out of nowhere, NVIDIA has revealed the NVIDIA Titan V today at the 2017 Neural Information Processing Systems conference, with CEO Jen-Hsun Huang flashing out the card on stage. A mere 7 months after Volta was announced with the Tesla V100 accelerator ... Nvidia's stunning Titan V GPU is for AI research, but can it game as well? Digital Trends Nvidia Launches $3000 Titan V, 'World's Most Powerful PC GPU' ExtremeTech Nvidia's new graphics card is $3000, painted gold, and not meant for graphics Ars Technica Forbes - PC Gamer - SlashGear - Gizmodo all 110 news articles »
+AnandTech NVIDIA Announces “NVIDIA Titan V" Video Card: GV100 for $3000, On Sale Now AnandTech Out of nowhere, NVIDIA has revealed the NVIDIA Titan V today at the 2017 Neural Information Processing Systems conference, with CEO Jen-Hsun Huang flashing out the card on stage. A mere 7 months after Volta was announced with the Tesla V100 accelerator ... Nvidia Launches $3000 Titan V, 'World's Most Powerful PC GPU' ExtremeTech Nvidia's stunning Titan V GPU is for AI research, but can it game as well? Digital Trends NVIDIA Introduces Titan V For Machine Learning Acceleration On The PC Forbes Ars Technica - Seeking Alpha - PC Gamer - Gizmodo all 113 news articles »
 
 
 Full story on F3News: [NVIDIA Announces “NVIDIA Titan V" Video Card: GV100 for $3000, On Sale Now - AnandTech](http://www.f3nws.com/n/z2WPBC)
