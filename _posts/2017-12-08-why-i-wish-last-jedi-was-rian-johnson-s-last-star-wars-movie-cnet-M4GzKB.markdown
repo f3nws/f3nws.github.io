@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why I wish 'Last Jedi' was Rian Johnson's last Star Wars movie     - CNET"
-date: 2017-12-08 05:26:42Z
+date: 2017-12-08 05:34:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: We lost Peter Jackson to middle-Earth. Now we need to rescue Rian Jo
 
 Full story on F3News: [Why I wish 'Last Jedi' was Rian Johnson's last Star Wars movie     - CNET](http://www.f3nws.com/n/M4GzKB)
 
-> Posted on: Friday, December 8, 2017 5:26:42 AM
+> Posted on: Friday, December 8, 2017 5:34:06 AM
