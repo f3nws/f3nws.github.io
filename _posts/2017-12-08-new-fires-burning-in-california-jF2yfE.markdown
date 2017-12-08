@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New fires burning in California"
-date: 2017-12-08 03:35:44Z
+date: 2017-12-08 05:15:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hundreds of firefighters are working around the clock to battle fast-moving wild
 
 Full story on F3News: [New fires burning in California](http://www.f3nws.com/n/jF2yfE)
 
-> Posted on: Friday, December 8, 2017 3:35:44 AM
+> Posted on: Friday, December 8, 2017 5:15:08 AM
