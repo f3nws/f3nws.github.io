@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Jerusalem move: tensions high for Friday prayers"
-date: 2017-12-08 14:17:36Z
+date: 2017-12-08 15:38:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When Muslims across the globe head to Friday prayers, the status of Jerusalem is
 
 Full story on F3News: [Trump's Jerusalem move: tensions high for Friday prayers](http://www.f3nws.com/n/aUdKGD)
 
-> Posted on: Friday, December 8, 2017 2:17:36 PM
+> Posted on: Friday, December 8, 2017 3:38:44 PM

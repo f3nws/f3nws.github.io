@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brexit breakthrough: EU, UK move to crucial next phase"
-date: 2017-12-08 12:54:57Z
+date: 2017-12-08 14:12:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After days of intense talks on Brexit, British Prime Minister Theresa May has ru
 
 Full story on F3News: [Brexit breakthrough: EU, UK move to crucial next phase](http://www.f3nws.com/n/Fnx24E)
 
-> Posted on: Friday, December 8, 2017 12:54:57 PM
+> Posted on: Friday, December 8, 2017 2:12:54 PM
