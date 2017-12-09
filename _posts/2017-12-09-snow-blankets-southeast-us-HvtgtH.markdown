@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snow blankets southeast US"
-date: 2017-12-09 19:57:45Z
+date: 2017-12-09 22:02:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The South got a early taste of winter before other regions this year, but the No
 
 Full story on F3News: [Snow blankets southeast US](http://www.f3nws.com/n/HvtgtH)
 
-> Posted on: Saturday, December 9, 2017 7:57:45 PM
+> Posted on: Saturday, December 9, 2017 10:02:49 PM
