@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Is Apple bringing back the iPhone with a metal back? (Apple Byte Extra Crunchy, Ep. 113) video     - CNET"
-date: 2017-12-09 04:15:29Z
+date: 2017-12-09 06:18:36Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ New iPhone 2018 rumors, Amazon Prime Video is finally on the Apple TV and iOS 11
 
 Full story on F3News: [Is Apple bringing back the iPhone with a metal back? (Apple Byte Extra Crunchy, Ep. 113) video     - CNET](http://www.f3nws.com/n/MGYQM)
 
-> Posted on: Saturday, December 9, 2017 4:15:29 AM
+> Posted on: Saturday, December 9, 2017 6:18:36 AM
