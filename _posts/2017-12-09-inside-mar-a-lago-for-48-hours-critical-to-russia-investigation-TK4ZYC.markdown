@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside Mar-a-Lago for 48 hours critical to Russia investigation"
-date: 2017-12-09 14:21:04Z
+date: 2017-12-09 15:08:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The answer to one of the most critical questions at the heart of the Russia inve
 
 Full story on F3News: [Inside Mar-a-Lago for 48 hours critical to Russia investigation](http://www.f3nws.com/n/TK4ZYC)
 
-> Posted on: Saturday, December 9, 2017 2:21:04 PM
+> Posted on: Saturday, December 9, 2017 3:08:39 PM
