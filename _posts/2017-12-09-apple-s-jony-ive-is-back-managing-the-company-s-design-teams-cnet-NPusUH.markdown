@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple's Jony Ive is back managing the company's design teams     - CNET"
-date: 2017-12-09 00:28:43Z
+date: 2017-12-09 01:04:49Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The man who helped create the look of some of the tech giant's most iconic produ
 
 Full story on F3News: [Apple's Jony Ive is back managing the company's design teams     - CNET](http://www.f3nws.com/n/NPusUH)
 
-> Posted on: Saturday, December 9, 2017 12:28:43 AM
+> Posted on: Saturday, December 9, 2017 1:04:49 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Family Feud's Steve Harvey sued for charity fraud by ex-employee"
-date: 2017-12-09 01:01:18Z
+date: 2017-12-09 01:45:08Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Steve Harvey is being sued by a former employee who claims the “Family Feud”
 
 Full story on F3News: ['Family Feud's Steve Harvey sued for charity fraud by ex-employee](http://www.f3nws.com/n/PvfuEB)
 
-> Posted on: Saturday, December 9, 2017 1:01:18 AM
+> Posted on: Saturday, December 9, 2017 1:45:08 AM
