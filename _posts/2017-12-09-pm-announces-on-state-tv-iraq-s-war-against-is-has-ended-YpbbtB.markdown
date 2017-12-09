@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PM announces on state TV Iraq's war against IS has ended"
-date: 2017-12-09 17:34:26Z
+date: 2017-12-09 21:40:31Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ BAGHDAD (AP) — After more than three years of combat operations, Iraq announce
 
 Full story on F3News: [PM announces on state TV Iraq's war against IS has ended](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 9, 2017 5:34:26 PM
+> Posted on: Saturday, December 9, 2017 9:40:31 PM

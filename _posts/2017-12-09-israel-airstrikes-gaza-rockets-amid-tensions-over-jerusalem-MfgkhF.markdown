@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel airstrikes, Gaza rockets amid tensions over Jerusalem"
-date: 2017-12-09 18:36:48Z
+date: 2017-12-09 20:53:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Israel airstrikes, Gaza rockets amid tensions over Jerusalem CNN Jerusalem (
 
 Full story on F3News: [Israel airstrikes, Gaza rockets amid tensions over Jerusalem](http://www.f3nws.com/n/MfgkhF)
 
-> Posted on: Saturday, December 9, 2017 6:36:48 PM
+> Posted on: Saturday, December 9, 2017 8:53:09 PM
