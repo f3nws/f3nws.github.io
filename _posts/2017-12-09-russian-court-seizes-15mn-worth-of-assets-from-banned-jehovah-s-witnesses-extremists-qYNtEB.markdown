@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian court seizes $15mn worth of assets from banned Jehovah’s Witnesses ‘extremists’"
-date: 2017-12-09 02:44:27Z
+date: 2017-12-09 02:44:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Real estate worth almost US$15 million belonging to Jehovah’s Witnesses around
 
 Full story on F3News: [Russian court seizes $15mn worth of assets from banned Jehovah’s Witnesses ‘extremists’](http://www.f3nws.com/n/qYNtEB)
 
-> Posted on: Saturday, December 9, 2017 2:44:27 AM
+> Posted on: Saturday, December 9, 2017 2:44:00 AM
