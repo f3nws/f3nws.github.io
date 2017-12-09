@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-aide: Rep. Franks offered $5 million to carry his child"
-date: 2017-12-09 12:47:22Z
+date: 2017-12-09 13:42:40Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — A former aide to Republican Rep. Trent Franks has told The A
 
 Full story on F3News: [Ex-aide: Rep. Franks offered $5 million to carry his child](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 9, 2017 12:47:22 PM
+> Posted on: Saturday, December 9, 2017 1:42:40 PM
