@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "We actually like 280-character tweets, it turns out     - CNET"
-date: 2017-12-09 01:38:41Z
+date: 2017-12-09 01:59:53Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ New data from app maker and analysis firm SocialFlow shows people are responding
 
 Full story on F3News: [We actually like 280-character tweets, it turns out     - CNET](http://www.f3nws.com/n/pnJK4B)
 
-> Posted on: Saturday, December 9, 2017 1:38:41 AM
+> Posted on: Saturday, December 9, 2017 1:59:53 AM
