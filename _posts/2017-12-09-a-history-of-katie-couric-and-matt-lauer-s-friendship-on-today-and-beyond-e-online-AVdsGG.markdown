@@ -5,6 +5,8 @@ date: 2017-12-09 01:14:25Z
 categories: google-news-entertaintment
 ---
 
+![A History of Katie Couric and Matt Lauer's Friendship on Today and Beyond - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/2017118/rs_1024x759-171208135658-1024.katie-couric-matt-lauer-1.ct.120817.jpg)
+
 E! Online A History of Katie Couric and Matt Lauer's Friendship on Today and Beyond E! Online For a decade, no other network could come close to capturing the magic being made by Katie Couric and Matt Lauer over at Today. The congenial pair just meshed perfectly, and together with news anchor Ann Curry and weatherman Al Roker they formed the ... Katie Couric Breaks Silence on Matt Lauer Sexual Misconduct Allegations PEOPLE.com Denis Leary slams Matt Lauer as a 'creepy, weaselly guy' USA TODAY Katie Couric Breaks Her Silence On The Matt Lauer Sexual Misconduct Allegations… Sort Of… PerezHilton.com Entertainment Tonight - New York Daily News - Hollywood Life - CBS 8 San Diego all 95 news articles »
 
 
