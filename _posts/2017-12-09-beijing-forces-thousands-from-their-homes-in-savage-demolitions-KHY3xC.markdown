@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Beijing forces thousands from their homes in 'savage' demolitions"
-date: 2017-12-09 03:31:42Z
+date: 2017-12-09 08:25:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Modern Beijing was built on the backs of low-paid migrants like Zhao Guihua.
 
 Full story on F3News: [Beijing forces thousands from their homes in 'savage' demolitions](http://www.f3nws.com/n/KHY3xC)
 
-> Posted on: Saturday, December 9, 2017 3:31:42 AM
+> Posted on: Saturday, December 9, 2017 8:25:21 AM
