@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Iraq is 'fully liberated' from ISIS, its military says - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171209083816-haider-al-abadi-1005-super-tease.jpg)
 
-News18 Iraq is 'fully liberated' from ISIS, its military says CNN (CNN) The Iraqi military has "fully liberated" all of Iraq's territory of "ISIS terrorist gangs" and retaken full control of the Iraqi-Syrian border, it said Saturday in a statement. "Our heroic armed forces have now secured the entire length of the ... Iraq Prime Minister Declares Victory Over ISIS New York Times ISIS's Last Stand Falls In Iraq, Prime Minister Says NPR Iraq declares war with Islamic State is over BBC News U.S. News & World Report - Los Angeles Times - Reuters - The Hill all 150 news articles »
+CNN Iraq is 'fully liberated' from ISIS, its military says CNN (CNN) The Iraqi military has "fully liberated" all of Iraq's territory of "ISIS terrorist gangs" and retaken full control of the Iraqi-Syrian border, it said Saturday in a statement. "Our heroic armed forces have now secured the entire length of the ... Iraq Prime Minister Declares Victory Over ISIS New York Times ISIS's Last Stand Falls In Iraq, Prime Minister Says NPR Iraq declares war with Islamic State is over BBC News Reuters - U.S. News & World Report - Los Angeles Times - SFGate all 160 news articles »
 
 
 Full story on F3News: [Iraq is 'fully liberated' from ISIS, its military says - CNN](http://www.f3nws.com/n/rH4pAB)
