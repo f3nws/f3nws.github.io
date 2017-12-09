@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "American evangelist leads rare event in communist Vietnam"
-date: 2017-12-09 05:31:12Z
+date: 2017-12-09 05:58:26Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ HANOI, Vietnam (AP) — More than 10,000 Vietnamese filled up a stadium in a rar
 
 Full story on F3News: [American evangelist leads rare event in communist Vietnam](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 9, 2017 5:31:12 AM
+> Posted on: Saturday, December 9, 2017 5:58:26 AM

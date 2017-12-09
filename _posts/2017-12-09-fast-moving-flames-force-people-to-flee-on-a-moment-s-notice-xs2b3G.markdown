@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fast-moving flames force people to flee on a moment's notice"
-date: 2017-12-09 01:56:34Z
+date: 2017-12-09 04:43:41Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ California's newest wildfire tore through retirement communities built on golf c
 
 Full story on F3News: [Fast-moving flames force people to flee on a moment's notice](http://www.f3nws.com/n/xs2b3G)
 
-> Posted on: Saturday, December 9, 2017 1:56:34 AM
+> Posted on: Saturday, December 9, 2017 4:43:41 AM
