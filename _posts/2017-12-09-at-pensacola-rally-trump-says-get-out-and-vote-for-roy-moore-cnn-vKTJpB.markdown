@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![At Pensacola rally, Trump says 'get out and vote for Roy Moore' - CNN](http://cdn.cnn.com/cnnnext/dam/assets/161103100945-donald-trump-pensacola-1102-super-tease.jpg)
 
-CNN At Pensacola rally, Trump says 'get out and vote for Roy Moore' CNN (CNN) President Donald Trump urged Alabama voters to "get out and vote for Roy Moore" in Tuesday's Senate special election. "Do it. Do it," he said Friday night at a campaign-style rally in Pensacola, Florida -- 25 miles from the Alabama state line ... Trump says country 'can't afford' to let Roy Moore lose Politico Trump rallies for Moore ahead of Alabama election The Hill Trump says 'get out and vote for Roy Moore' at Pensacola rally Fox News U.S. News & World Report - NBCNews.com - Los Angeles Times - HuffPost all 3,279 news articles »
+CNN At Pensacola rally, Trump says 'get out and vote for Roy Moore' CNN (CNN) President Donald Trump urged Alabama voters to "get out and vote for Roy Moore" in Tuesday's Senate special election. "Do it. Do it," he said Friday night at a campaign-style rally in Pensacola, Florida -- 25 miles from the Alabama state line ... Trump supporters chant 'lock her up' at campaign rally The Hill 'Lock Her Up' Chant Breaks Out At Trump Rally [VIDEO] The Daily Caller PSC teacher installs anti-Trump art exhibit ahead of president's Pensacola rally Pensacola News Journal all 76 news articles »
 
 
 Full story on F3News: [At Pensacola rally, Trump says 'get out and vote for Roy Moore' - CNN](http://www.f3nws.com/n/vKTJpB)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boycotts, protests to greet Trump on Mississippi visit"
-date: 2017-12-09 08:41:27Z
+date: 2017-12-09 09:36:44Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WEST PALM BEACH, Fla. (AP) — President Donald Trump plans to celebrate heroes 
 
 Full story on F3News: [Boycotts, protests to greet Trump on Mississippi visit](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 9, 2017 8:41:27 AM
+> Posted on: Saturday, December 9, 2017 9:36:44 AM
