@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "First fire-related death confirmed in California"
-date: 2017-12-09 09:04:10Z
+date: 2017-12-09 12:39:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A woman, whose body was found at a crash site along an evacuation route, was the
 
 Full story on F3News: [First fire-related death confirmed in California](http://www.f3nws.com/n/XX2sVE)
 
-> Posted on: Saturday, December 9, 2017 9:04:10 AM
+> Posted on: Saturday, December 9, 2017 12:39:04 PM
