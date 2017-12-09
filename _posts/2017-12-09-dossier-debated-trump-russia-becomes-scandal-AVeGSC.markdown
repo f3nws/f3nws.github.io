@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dossier debated, Trump-Russia becomes scandal"
-date: 2017-12-09 06:25:59Z
+date: 2017-12-09 02:44:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at fallout and firings in the Donald Trump administration as
 
 Full story on F3News: [Dossier debated, Trump-Russia becomes scandal](http://www.f3nws.com/n/AVeGSC)
 
-> Posted on: Saturday, December 9, 2017 6:25:59 AM
+> Posted on: Saturday, December 9, 2017 2:44:00 AM

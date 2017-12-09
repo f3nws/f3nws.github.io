@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Rallies a Florida Crowd in Support of an Alabama Senate Candidate - New York Times](https://static01.nyt.com/images/2017/12/09/us/09dc-trump-sub-3/09dc-trump-sub-3-facebookJumbo.jpg)
 
-New York Times Trump Rallies a Florida Crowd in Support of an Alabama Senate Candidate New York Times PENSACOLA, Fla. — President Trump's crowd was here in Florida on Friday night, but his audience was in Alabama. Just four days before a crucial special election for a Senate seat in Alabama, Mr. Trump again offered his unequivocal backing for the ... Alabama voters struggle with whether to support Roy Moore CNN Trump at Pensacola rally: Go vote for Roy Moore USA TODAY Trump says country 'can't afford' to let Roy Moore lose Politico The Hill - Washington Post - ABC News - BuzzFeed News all 3,313 news articles »
+New York Times Trump Rallies a Florida Crowd in Support of an Alabama Senate Candidate New York Times PENSACOLA, Fla. — President Trump's crowd was here in Florida on Friday night, but his audience was in Alabama. Just four days before a crucial special election for a Senate seat in Alabama, Mr. Trump again offered his unequivocal backing for the ... At Pensacola rally, Trump says 'get out and vote for Roy Moore' CNN Trump at Pensacola rally: Go vote for Roy Moore USA TODAY Trump says country 'can't afford' to let Roy Moore lose Politico Fox News - ABC News - NBCNews.com - U.S. News & World Report all 3,304 news articles »
 
 
 Full story on F3News: [Trump Rallies a Florida Crowd in Support of an Alabama Senate Candidate - New York Times](http://www.f3nws.com/n/MnaTKG)
