@@ -5,6 +5,8 @@ date: 2017-12-09 10:03:00Z
 categories: codeproject
 ---
 
+![Color Topics for Programmers](https://codeproject.global.ssl.fastly.net/script/Forums/Images/smiley_smile.gif)
+
 Discusses color spaces, color generation, and other general color topics commonly faced by programmers.
 
 
