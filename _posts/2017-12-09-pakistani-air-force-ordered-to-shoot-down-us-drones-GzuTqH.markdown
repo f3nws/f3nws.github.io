@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistani Air Force ordered to shoot down US drones"
-date: 2017-12-09 00:13:59Z
+date: 2017-12-09 00:13:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Pakistan’s Air Force (PAF) commander has reportedly ordered to take down drone
 
 Full story on F3News: [Pakistani Air Force ordered to shoot down US drones](http://www.f3nws.com/n/GzuTqH)
 
-> Posted on: Saturday, December 9, 2017 12:13:59 AM
+> Posted on: Saturday, December 9, 2017 12:13:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says 'get out and vote for Roy Moore' at Pensacola rally"
-date: 2017-12-09 02:45:00Z
+date: 2017-12-09 03:15:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ President Donald Trump doubled down on his support for embattled Alabama Republi
 
 Full story on F3News: [Trump says 'get out and vote for Roy Moore' at Pensacola rally](http://www.f3nws.com/n/atTnJJ)
 
-> Posted on: Saturday, December 9, 2017 2:45:00 AM
+> Posted on: Saturday, December 9, 2017 3:15:00 AM

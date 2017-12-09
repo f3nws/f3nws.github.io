@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires scorch 160,000 acres"
-date: 2017-12-09 01:37:06Z
+date: 2017-12-09 03:17:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Wildfires roared across Southern California for a fifth day Friday, with new bla
 
 Full story on F3News: [California wildfires scorch 160,000 acres](http://www.f3nws.com/n/PVmuRH)
 
-> Posted on: Saturday, December 9, 2017 1:37:06 AM
+> Posted on: Saturday, December 9, 2017 3:17:52 AM
