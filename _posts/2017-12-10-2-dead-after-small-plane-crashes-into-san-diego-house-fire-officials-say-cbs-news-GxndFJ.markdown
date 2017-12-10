@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![2 dead after small plane crashes into San Diego house, fire officials say - CBS News](https://cbsnews1.cbsistatic.com/hub/i/2017/12/10/cadb88bc-7830-41c2-b65d-bf30ae412740/san-diego-plane-crash-2017-12-9.png)
 
-CBS News 2 dead after small plane crashes into San Diego house, fire officials say CBS News Two people were killed and two others injured when a small plane crashed into a home in a San Diego neighborhood, fire officials said. According to CBS affiliate KFMB, San Diego Fire-Rescue Department chief Brian Fennessy said the plane's pilot ... Plane crashes into Clairemont home, killing 2 passengers The San Diego Union-Tribune LIVE STREAM: Small plane crashes into a Clairemont home CBS 8 San Diego Small Plane Crashes in Residential Neighborhood in San Diego; 2 People Reportedly Dead KTLA KABC-TV - KUSI - Yahoo News UK all 25 news articles »
+CBS News 2 dead after small plane crashes into San Diego house, fire officials say CBS News Two people were killed and two others injured when a small plane crashed into a home in a San Diego neighborhood, fire officials said. According to CBS affiliate KFMB, San Diego Fire-Rescue Department chief Brian Fennessy said the plane's pilot ... 2 killed, 2 injured in small plane crash in San Diego, officials say KABC-TV Plane crashes into Clairemont home, killing 2 passengers The San Diego Union-Tribune LIVE STREAM: Small plane crashes into a Clairemont home CBS 8 San Diego 10News - KTLA - International Business Times - KUSI all 28 news articles »
 
 
 Full story on F3News: [2 dead after small plane crashes into San Diego house, fire officials say - CBS News](http://www.f3nws.com/n/GxndFJ)
