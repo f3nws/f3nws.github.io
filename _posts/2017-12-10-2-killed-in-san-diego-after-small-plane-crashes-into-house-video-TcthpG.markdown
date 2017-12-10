@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 killed in San Diego after small plane crashes into house (VIDEO)"
-date: 2017-12-10 07:51:28Z
+date: 2017-12-10 07:51:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Two people have been killed and two others injured after a small plane crashed i
 
 Full story on F3News: [2 killed in San Diego after small plane crashes into house (VIDEO)](http://www.f3nws.com/n/TcthpG)
 
-> Posted on: Sunday, December 10, 2017 7:51:28 AM
+> Posted on: Sunday, December 10, 2017 7:51:00 AM
