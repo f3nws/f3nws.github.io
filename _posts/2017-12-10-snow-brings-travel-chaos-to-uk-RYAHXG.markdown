@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snow brings travel chaos to UK"
-date: 2017-12-10 17:15:01Z
+date: 2017-12-10 18:48:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ BBC News Heavy snow brings travel chaos to UK CNN (CNN) Heavy snow fell in many 
 
 Full story on F3News: [Snow brings travel chaos to UK](http://www.f3nws.com/n/RYAHXG)
 
-> Posted on: Sunday, December 10, 2017 5:15:01 PM
+> Posted on: Sunday, December 10, 2017 6:48:33 PM

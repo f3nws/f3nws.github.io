@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Man charged with manslaughter following fatal fight in Hindley Street - ABC Online](http://www.abc.net.au/news/image/9244256-16x9-700x394.jpg)
 
-ABC Online Man charged with manslaughter following fatal fight in Hindley Street ABC Online A 22-year-old man from Adelaide's south has died after a brawl in Hindley Street in the city's CBD overnight. Police responded to reports of a group fighting near the intersection with Morphett Street before 5:30am. The man from Glandore was attended ... Man dies after violent CBD brawl The Sunshine Coast Daily all 14 news articles »
+ABC Online Man charged with manslaughter following fatal fight in Hindley Street ABC Online A 22-year-old man from Adelaide's south has died after a brawl in Hindley Street in the city's CBD overnight. Police responded to reports of a group fighting near the intersection with Morphett Street before 5:30am. The man from Glandore was attended ... 'I love you JH': Sister's tribute for man killed in Adelaide CBD brawl 9news.com.au Man dies after violent CBD brawl Rockhampton Morning Bulletin Man arrested after death in Adelaide Sky News Australia myGC.com.au all 14 news articles »
 
 
 Full story on F3News: [Man charged with manslaughter following fatal fight in Hindley Street - ABC Online](http://www.f3nws.com/n/mnKppE)
