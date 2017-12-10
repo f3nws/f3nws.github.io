@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This RSS feed URL is deprecated"
-date: 2017-12-10 16:45:00Z
+date: 2017-12-10 17:45:02Z
 categories: google-news-australia
 ---
 
@@ -10,4 +10,4 @@ This RSS feed URL is deprecated, please update. New URLs can be found in the foo
 
 Full story on F3News: [This RSS feed URL is deprecated](http://www.f3nws.com/n/rPMkfD)
 
-> Posted on: Sunday, December 10, 2017 4:45:00 PM
+> Posted on: Sunday, December 10, 2017 5:45:02 PM

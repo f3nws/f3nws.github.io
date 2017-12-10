@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 39 best holiday shopping deals right now: Dec. 10 update     - CNET"
-date: 2017-12-10 15:07:48Z
+date: 2017-12-10 17:06:17Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ With just two weeks until Christmas, some better-than-Black Friday deals are sta
 
 Full story on F3News: [The 39 best holiday shopping deals right now: Dec. 10 update     - CNET](http://www.f3nws.com/n/nBqXUC)
 
-> Posted on: Sunday, December 10, 2017 3:07:48 PM
+> Posted on: Sunday, December 10, 2017 5:06:17 PM

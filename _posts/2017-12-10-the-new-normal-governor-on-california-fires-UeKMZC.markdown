@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The new normal': Governor on California fires"
-date: 2017-12-10 16:26:05Z
+date: 2017-12-10 17:27:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Gov. Jerry Brown has a sobering message for Southern Californians after a week o
 
 Full story on F3News: ['The new normal': Governor on California fires](http://www.f3nws.com/n/UeKMZC)
 
-> Posted on: Sunday, December 10, 2017 4:26:05 PM
+> Posted on: Sunday, December 10, 2017 5:27:06 PM
