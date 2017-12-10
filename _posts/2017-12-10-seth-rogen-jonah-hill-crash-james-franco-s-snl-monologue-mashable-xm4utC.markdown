@@ -7,7 +7,7 @@ categories: mashable
 
 ![Seth Rogen, Jonah Hill crash James Franco's 'SNL' monologue - Mashable](https://i.amz.mshcdn.com/je_SQDyw_nKR2oXWGmxt-LeEccc=/1200x630/2017%2F12%2F10%2Fbe%2F38e5e4aae07b42fd9499c49f29adf07a.fcdc0.jpg)
 
-Mashable Seth Rogen, Jonah Hill crash James Franco's 'SNL' monologue Mashable James Franco started tonight's Saturday Night Live monologue bummed that the show brass doesn't do anything fancy for a host's fourth time at the rodeo, like give him a Five-Timers jacket, or even write a script. (Humblebrag noted, Jimmy James.) So ... Seth Rogen And Jonah Hill Interrupt James Franco's Monologue To Kick Off 'SNL' UPROXX all 25 news articles »
+Mashable Seth Rogen, Jonah Hill crash James Franco's 'SNL' monologue Mashable James Franco started tonight's Saturday Night Live monologue bummed that the show brass doesn't do anything fancy for a host's fourth time at the rodeo, like give him a Five-Timers jacket, or even write a script. (Humblebrag noted, Jimmy James.) So ... and more »
 
 
 Full story on F3News: [Seth Rogen, Jonah Hill crash James Franco's 'SNL' monologue - Mashable](http://www.f3nws.com/n/xm4utC)
