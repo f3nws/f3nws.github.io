@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Wars: Last Jedi' gets early raves: 'I'm still shaking'     - CNET"
-date: 2017-12-10 06:50:42Z
+date: 2017-12-10 15:08:12Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Rian Johnson's "Jedi" wins early praise for its action and appearance. But the f
 
 Full story on F3News: ['Star Wars: Last Jedi' gets early raves: 'I'm still shaking'     - CNET](http://www.f3nws.com/n/Vhr3tF)
 
-> Posted on: Sunday, December 10, 2017 6:50:42 AM
+> Posted on: Sunday, December 10, 2017 3:08:12 PM
