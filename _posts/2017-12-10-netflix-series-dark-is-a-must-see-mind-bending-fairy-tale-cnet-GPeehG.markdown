@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Netflix series 'Dark' is a must-see, mind-bending fairy tale     - CNET"
-date: 2017-12-10 06:56:34Z
+date: 2017-12-10 18:35:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Having "Stranger Things" withdrawals? Tune in to the eerie supernatu
 
 Full story on F3News: [Netflix series 'Dark' is a must-see, mind-bending fairy tale     - CNET](http://www.f3nws.com/n/GPeehG)
 
-> Posted on: Sunday, December 10, 2017 6:56:34 AM
+> Posted on: Sunday, December 10, 2017 6:35:02 PM
