@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump administration sued for allowing ‘unlimited’ dumping of fracking waste into Gulf of Mexico"
-date: 2017-12-10 00:04:43Z
+date: 2017-12-10 00:04:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The Trump administration is being sued by an activist organization for allegedly
 
 Full story on F3News: [Trump administration sued for allowing ‘unlimited’ dumping of fracking waste into Gulf of Mexico](http://www.f3nws.com/n/jeBBQD)
 
-> Posted on: Sunday, December 10, 2017 12:04:43 AM
+> Posted on: Sunday, December 10, 2017 12:04:00 AM
