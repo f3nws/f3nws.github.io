@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pennsylvania Dem linked to gambling ring awaits sentencing"
-date: 2017-12-10 21:45:03Z
+date: 2017-12-10 22:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Former Pennsylvania state Rep. Marc Gergely – who resigned last month – is a
 
 Full story on F3News: [Pennsylvania Dem linked to gambling ring awaits sentencing](http://www.f3nws.com/n/ckumpG)
 
-> Posted on: Sunday, December 10, 2017 9:45:03 PM
+> Posted on: Sunday, December 10, 2017 10:45:00 PM
