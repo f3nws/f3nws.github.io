@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Masked attackers firebomb Swedish synagogue with Molotov cocktails"
-date: 2017-12-10 01:38:51Z
+date: 2017-12-10 01:38:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A group of masked youths have attacked a synagogue in Gothenburg, Sweden, with M
 
 Full story on F3News: [Masked attackers firebomb Swedish synagogue with Molotov cocktails](http://www.f3nws.com/n/SnbSSE)
 
-> Posted on: Sunday, December 10, 2017 1:38:51 AM
+> Posted on: Sunday, December 10, 2017 1:38:00 AM

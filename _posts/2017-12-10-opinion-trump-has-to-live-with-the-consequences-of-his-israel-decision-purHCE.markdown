@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opinion: Trump has to live with the consequences of his Israel decision"
-date: 2017-12-10 00:26:14Z
+date: 2017-12-10 02:17:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At ground zero, by Jerusalem's Old City walls, reaction to President Trump's dec
 
 Full story on F3News: [Opinion: Trump has to live with the consequences of his Israel decision](http://www.f3nws.com/n/purHCE)
 
-> Posted on: Sunday, December 10, 2017 12:26:14 AM
+> Posted on: Sunday, December 10, 2017 2:17:45 AM
