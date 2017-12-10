@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snow exits South, marches toward Northeast"
-date: 2017-12-10 05:41:57Z
+date: 2017-12-10 06:32:15Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ ATLANTA (AP) — A pre-winter storm that roared through the Deep South and coate
 
 Full story on F3News: [Snow exits South, marches toward Northeast](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, December 10, 2017 5:41:57 AM
+> Posted on: Sunday, December 10, 2017 6:32:15 AM
