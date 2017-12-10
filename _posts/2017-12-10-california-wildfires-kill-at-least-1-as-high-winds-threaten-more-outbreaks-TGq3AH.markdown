@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires kill at least 1 as high winds threaten more outbreaks"
-date: 2017-12-10 13:38:00Z
+date: 2017-12-10 15:42:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ High winds threatened to return Sunday in Southern California as firefighters wo
 
 Full story on F3News: [California wildfires kill at least 1 as high winds threaten more outbreaks](http://www.f3nws.com/n/TGq3AH)
 
-> Posted on: Sunday, December 10, 2017 1:38:00 PM
+> Posted on: Sunday, December 10, 2017 3:42:00 PM

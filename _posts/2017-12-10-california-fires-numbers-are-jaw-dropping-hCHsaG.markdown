@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California fires' numbers are jaw-dropping"
-date: 2017-12-10 03:35:53Z
+date: 2017-12-10 16:13:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Barely two months after fires charred Northern California's wine country, the st
 
 Full story on F3News: [California fires' numbers are jaw-dropping](http://www.f3nws.com/n/hCHsaG)
 
-> Posted on: Sunday, December 10, 2017 3:35:53 AM
+> Posted on: Sunday, December 10, 2017 4:13:21 PM
