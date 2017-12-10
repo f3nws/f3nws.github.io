@@ -5,6 +5,8 @@ date: 2017-12-10 02:30:00Z
 categories: fox-news
 ---
 
+![Oklahoma quarterback Baker Mayfield wins Heisman Trophy](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 University of Oklahoma quarterback Baker Mayfield won the Heisman Trophy as college football’s outstanding player Saturday night, capping off a decorated awards season ahead of a potential national championship run.
 
 
