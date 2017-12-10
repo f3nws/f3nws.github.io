@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Bull's 'catastrophic' broken leg caught on video at Adelaide rodeo, prompting RSPCA to call for ban - ABC Online](http://www.abc.net.au/news/linkableblob/8413676/data/abc-news-og-data.jpg)
 
-9news.com.au Bull's 'catastrophic' broken leg caught on video at Adelaide rodeo, prompting RSPCA to call for ban ABC Online Graphic video of a bull suffering a horrific leg break at a rodeo in Adelaide has prompted the RSPCA to label bull riding "legalised cruelty" and repeat its call to ban the practice. GRAPHIC CONTENT WARNING: Footage may be confronting. The RSPCA has ... Bull breaks leg at riding event at Adelaide Entertainment Centre, RSPCA calls for ban The Advertiser RSPCA investigating after bull breaks leg during rodeo event 9news.com.au Bull snaps leg during Adelaide rodeo Daily Mail all 4 news articles »
+9news.com.au Bull's 'catastrophic' broken leg caught on video at Adelaide rodeo, prompting RSPCA to call for ban ABC Online Graphic video of a bull suffering a horrific leg break at a rodeo in Adelaide has prompted the RSPCA to label bull riding "legalised cruelty" and repeat its call to ban the practice. GRAPHIC CONTENT WARNING: Footage may be confronting. The RSPCA has ... Calls to ban 'inhumane rodeos' after bull snaps leg at Adelaide event The Sydney Morning Herald Bull breaks leg at riding event at Adelaide Entertainment Centre, RSPCA calls for ban The Advertiser RSPCA investigating after bull breaks leg during rodeo event 9news.com.au Daily Mail all 6 news articles »
 
 
 Full story on F3News: [Bull's 'catastrophic' broken leg caught on video at Adelaide rodeo, prompting RSPCA to call for ban - ABC Online](http://www.f3nws.com/n/HNenRC)
