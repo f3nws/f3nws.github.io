@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Firefighting at Christmas' may become normal in California"
-date: 2017-12-10 13:35:03Z
+date: 2017-12-10 14:29:42Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ FALLBROOK, Calif. (AP) — A week of destructive fires in Southern California is
 
 Full story on F3News: ['Firefighting at Christmas' may become normal in California](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, December 10, 2017 1:35:03 PM
+> Posted on: Sunday, December 10, 2017 2:29:42 PM
