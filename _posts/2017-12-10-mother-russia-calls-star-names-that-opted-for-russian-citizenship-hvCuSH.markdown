@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mother Russia calls? Star names that opted for Russian citizenship"
-date: 2017-12-10 01:54:07Z
+date: 2017-12-10 01:54:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Floyd Mayweather Jr.’s recent visit to Moscow has sparked speculation the boxe
 
 Full story on F3News: [Mother Russia calls? Star names that opted for Russian citizenship](http://www.f3nws.com/n/hvCuSH)
 
-> Posted on: Sunday, December 10, 2017 1:54:07 AM
+> Posted on: Sunday, December 10, 2017 1:54:00 AM
