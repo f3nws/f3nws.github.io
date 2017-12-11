@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia lifts 35-year ban on movie theaters"
-date: 2017-12-11 11:37:28Z
+date: 2017-12-11 15:04:17Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Saudi Arabia lifts 35-year ban on movie theaters](http://www.f3nws.com/n/sYHrHH)
 
-> Posted on: Monday, December 11, 2017 11:37:28 AM
+> Posted on: Monday, December 11, 2017 3:04:17 PM

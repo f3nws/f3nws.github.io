@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 8 deals for Christmas 2017"
-date: 2017-12-11 10:20:31Z
+date: 2017-12-11 14:00:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've chosen the best value iPhone 8 deals currently available in the UK - we'll
 
 Full story on F3News: [The best iPhone 8 deals for Christmas 2017](http://www.f3nws.com/n/3UjubB)
 
-> Posted on: Monday, December 11, 2017 10:20:31 AM
+> Posted on: Monday, December 11, 2017 2:00:31 PM
