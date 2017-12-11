@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Futures trading arrives for Bitcoin"
-date: 2017-12-11 00:42:08Z
+date: 2017-12-11 03:30:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Futures trading arrives for Bitcoin](http://www.f3nws.com/n/nPpvcD)
 
-> Posted on: Monday, December 11, 2017 12:42:08 AM
+> Posted on: Monday, December 11, 2017 3:30:53 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan seeks additional $6.4mn to deploy Aegis Ashore anti-missile systems"
-date: 2017-12-11 02:17:23Z
+date: 2017-12-11 02:17:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Japan’s defense ministry has requested additional funding to scout potential d
 
 Full story on F3News: [Japan seeks additional $6.4mn to deploy Aegis Ashore anti-missile systems](http://www.f3nws.com/n/kFBJmB)
 
-> Posted on: Monday, December 11, 2017 2:17:23 AM
+> Posted on: Monday, December 11, 2017 2:17:00 AM
