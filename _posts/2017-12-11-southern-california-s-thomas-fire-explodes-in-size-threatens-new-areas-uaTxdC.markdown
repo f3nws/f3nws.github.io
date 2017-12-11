@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southern California's Thomas Fire explodes in size, threatens new areas"
-date: 2017-12-11 12:25:00Z
+date: 2017-12-11 12:36:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Southern California's largest and most destructive wildfire burning in the regio
 
 Full story on F3News: [Southern California's Thomas Fire explodes in size, threatens new areas](http://www.f3nws.com/n/uaTxdC)
 
-> Posted on: Monday, December 11, 2017 12:25:00 PM
+> Posted on: Monday, December 11, 2017 12:36:00 PM

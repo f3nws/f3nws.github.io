@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![California wildfires now larger than New York City and Boston combined - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171211202727-thomas-fire-monitor-super-tease.jpg)
 
-Los Angeles Times California wildfires now larger than New York City and Boston combined CNN (CNN) Firefighters are struggling to contain the biggest of six blazes burning in southern California, with the Thomas Fire slipping from 15% containment to 10% Sunday. Covering 230,000 acres, the Thomas Fire is now the fifth largest blaze in modern ... Fire crews fighting to defend Carpinteria from reenergized Thomas fire Los Angeles Times California fires, moving north, force Santa Barbara evacuations Washington Post Southern California's Thomas fire grows in size despite efforts Fox News CBS News - BBC News - USA TODAY - NBCNews.com all 6,039 news articles »
+CNN California wildfires now larger than New York City and Boston combined CNN (CNN) Firefighters are struggling to contain the biggest of six blazes burning in southern California, with the Thomas Fire slipping from 15% containment to 10% Sunday. Covering 230,000 acres, the Thomas Fire is now the fifth largest blaze in modern ... At 230000 acres, Thomas fire is now the fifth-largest wildfire in modern California history Los Angeles Times California wildfire rages toward scenic coastal communities Reuters California's Thomas Fire scorches area larger than New York City BBC News USA TODAY - CBS News - NBCNews.com - Fox News all 6,184 news articles »
 
 
 Full story on F3News: [California wildfires now larger than New York City and Boston combined - CNN](http://www.f3nws.com/n/ECTZ4B)
