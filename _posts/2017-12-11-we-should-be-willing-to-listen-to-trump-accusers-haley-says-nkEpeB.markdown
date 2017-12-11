@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'We should be willing to listen' to Trump accusers, Haley says"
-date: 2017-12-11 05:54:24Z
+date: 2017-12-11 09:28:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to the United Nations Nikki Haley said Sunday that any women who s
 
 Full story on F3News: ['We should be willing to listen' to Trump accusers, Haley says](http://www.f3nws.com/n/nkEpeB)
 
-> Posted on: Monday, December 11, 2017 5:54:24 AM
+> Posted on: Monday, December 11, 2017 9:28:54 AM

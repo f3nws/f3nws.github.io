@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans may lose by winning, Democrats can win by losing in Alabama"
-date: 2017-12-11 06:01:27Z
+date: 2017-12-11 09:25:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Alabama's high-stakes Senate election Tuesday perfectly encapsulates how the age
 
 Full story on F3News: [Republicans may lose by winning, Democrats can win by losing in Alabama](http://www.f3nws.com/n/aVFYMB)
 
-> Posted on: Monday, December 11, 2017 6:01:27 AM
+> Posted on: Monday, December 11, 2017 9:25:51 AM
