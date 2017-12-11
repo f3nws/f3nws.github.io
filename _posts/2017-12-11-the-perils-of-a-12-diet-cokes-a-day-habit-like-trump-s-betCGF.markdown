@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The perils of a 12 Diet Cokes-a-day habit like Trump's"
-date: 2017-12-11 19:19:34Z
+date: 2017-12-11 19:57:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump downs a dozen Diet Cokes each day, The New York Times rep
 
 Full story on F3News: [The perils of a 12 Diet Cokes-a-day habit like Trump's](http://www.f3nws.com/n/betCGF)
 
-> Posted on: Monday, December 11, 2017 7:19:34 PM
+> Posted on: Monday, December 11, 2017 7:57:56 PM
