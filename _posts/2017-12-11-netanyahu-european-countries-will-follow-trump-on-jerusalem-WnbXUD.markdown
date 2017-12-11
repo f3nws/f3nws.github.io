@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Netanyahu: European countries will follow Trump on Jerusalem"
-date: 2017-12-11 14:37:38Z
+date: 2017-12-11 21:07:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Israeli Prime Minister Benjamin Netanyahu has defended US President Donald Trump
 
 Full story on F3News: [Netanyahu: European countries will follow Trump on Jerusalem](http://www.f3nws.com/n/WnbXUD)
 
-> Posted on: Monday, December 11, 2017 2:37:38 PM
+> Posted on: Monday, December 11, 2017 9:07:35 PM
