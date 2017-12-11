@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan condemns 'terrorist' Israel as protests continue"
-date: 2017-12-11 00:33:04Z
+date: 2017-12-11 06:19:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Erdogan condemns 'terrorist' Israel as protests continue](http://www.f3nws.com/n/bf3bEH)
 
-> Posted on: Monday, December 11, 2017 12:33:04 AM
+> Posted on: Monday, December 11, 2017 6:19:29 AM
