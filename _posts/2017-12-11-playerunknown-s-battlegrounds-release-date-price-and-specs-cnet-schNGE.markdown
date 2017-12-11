@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PlayerUnknown's Battlegrounds Release Date, Price and Specs     - CNET"
-date: 2017-12-11 13:00:08Z
+date: 2017-12-11 13:17:38Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ PlayerUnknown's Battlegrounds is finally coming to Xbox One. Our guide will brin
 
 Full story on F3News: [PlayerUnknown's Battlegrounds Release Date, Price and Specs     - CNET](http://www.f3nws.com/n/schNGE)
 
-> Posted on: Monday, December 11, 2017 1:00:08 PM
+> Posted on: Monday, December 11, 2017 1:17:38 PM
