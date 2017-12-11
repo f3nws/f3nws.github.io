@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Queens of the Stone Age frontman 'truly sorry' for kicking photographer"
-date: 2017-12-11 07:40:04Z
+date: 2017-12-11 16:55:48Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Queens of the Stone Age guitarist Josh Homme has apologized for kicking a female
 
 Full story on F3News: [Queens of the Stone Age frontman 'truly sorry' for kicking photographer](http://www.f3nws.com/n/jDtQJB)
 
-> Posted on: Monday, December 11, 2017 7:40:04 AM
+> Posted on: Monday, December 11, 2017 4:55:48 PM

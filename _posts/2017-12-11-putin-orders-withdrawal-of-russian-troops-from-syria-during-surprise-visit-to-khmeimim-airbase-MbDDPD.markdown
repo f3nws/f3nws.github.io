@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Putin orders withdrawal of Russian troops from Syria during surprise visit to Khmeimim Airbase](https://cdni.rt.com/files/2017.12/article/5a2e5968fc7e934a208b4567.jpg)
 
-Russian President Vladimir Putin has ordered the withdrawal of Russian troops from Syria. He gave the command during a surprise visit to Khmeimim Airbase in Syria’s Latakia province on Monday morning. Read Full Article at RT.com
+Russian President Vladimir Putin has ordered the withdrawal of Russian troops from Syria. He announced the move during his first visit to the country, as he arrived with no advance notice at Khmeimim Airbase in Syria’s Latakia province on Monday morning. Read Full Article at RT.com
 
 
 Full story on F3News: [Putin orders withdrawal of Russian troops from Syria during surprise visit to Khmeimim Airbase](http://www.f3nws.com/n/MbDDPD)
