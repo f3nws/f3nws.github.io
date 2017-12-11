@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Analysis: Same-sex marriage and the defining image that almost wasn't"
-date: 2017-12-11 02:50:25Z
+date: 2017-12-11 03:52:10Z
 categories: abc-top-stories
 ---
 
@@ -12,4 +12,4 @@ Minutes before same-sex marriage became legal in Australia, a lone voice in the 
 
 Full story on F3News: [Analysis: Same-sex marriage and the defining image that almost wasn't](http://www.f3nws.com/n/rfgQk)
 
-> Posted on: Monday, December 11, 2017 2:50:25 AM
+> Posted on: Monday, December 11, 2017 3:52:10 AM
