@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Suspect said he made device at workplace"
-date: 2017-12-11 15:18:19Z
+date: 2017-12-11 18:37:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Suspect said he made device at workplace](http://www.f3nws.com/n/kRmugG)
 
-> Posted on: Monday, December 11, 2017 3:18:19 PM
+> Posted on: Monday, December 11, 2017 6:37:33 PM
