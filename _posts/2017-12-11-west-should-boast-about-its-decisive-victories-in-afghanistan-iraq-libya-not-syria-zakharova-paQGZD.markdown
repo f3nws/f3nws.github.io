@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "West should boast about its 'decisive victories’ in Afghanistan, Iraq & Libya, not Syria – Zakharova"
-date: 2017-12-11 00:18:14Z
+date: 2017-12-11 00:18:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The US-led coalition should brag about its ‘accomplishments’ in Afghanistan,
 
 Full story on F3News: [West should boast about its 'decisive victories’ in Afghanistan, Iraq & Libya, not Syria – Zakharova](http://www.f3nws.com/n/paQGZD)
 
-> Posted on: Monday, December 11, 2017 12:18:14 AM
+> Posted on: Monday, December 11, 2017 12:18:00 AM
