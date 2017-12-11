@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Port Authority explosion: Suspect ID'd in 'attempted terrorist attack'"
-date: 2017-12-11 16:07:00Z
+date: 2017-12-11 19:24:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Bangladeshi man reportedly inspired by ISIS set off a pipe bomb inside New Yor
 
 Full story on F3News: [Port Authority explosion: Suspect ID'd in 'attempted terrorist attack'](http://www.f3nws.com/n/juPGWD)
 
-> Posted on: Monday, December 11, 2017 4:07:00 PM
+> Posted on: Monday, December 11, 2017 7:24:00 PM

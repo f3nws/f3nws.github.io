@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Port Authority explosion suspect: What we know about Akayed Ullah"
-date: 2017-12-11 17:45:00Z
+date: 2017-12-11 19:20:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A suspect is in custody following an explosion in one of New York City’s busie
 
 Full story on F3News: [Port Authority explosion suspect: What we know about Akayed Ullah](http://www.f3nws.com/n/UQWUTB)
 
-> Posted on: Monday, December 11, 2017 5:45:00 PM
+> Posted on: Monday, December 11, 2017 7:20:00 PM

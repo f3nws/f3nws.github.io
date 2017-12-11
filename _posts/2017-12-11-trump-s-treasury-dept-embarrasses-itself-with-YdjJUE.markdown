@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Treasury Dept embarrasses itself with"
-date: 2017-12-11 17:57:31Z
+date: 2017-12-11 17:57:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ What the Trump administration released this morning isn't an analysis of tax leg
 
 Full story on F3News: [Trump's Treasury Dept embarrasses itself with](http://www.f3nws.com/n/YdjJUE)
 
-> Posted on: Monday, December 11, 2017 5:57:31 PM
+> Posted on: Monday, December 11, 2017 5:57:00 PM
