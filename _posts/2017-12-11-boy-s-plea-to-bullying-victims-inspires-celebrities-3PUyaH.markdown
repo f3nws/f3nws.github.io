@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boy's plea to bullying victims inspires celebrities"
-date: 2017-12-11 02:57:04Z
+date: 2017-12-11 15:49:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mother says her son is a victim of bullying, and she posted a video of his emo
 
 Full story on F3News: [Boy's plea to bullying victims inspires celebrities](http://www.f3nws.com/n/3PUyaH)
 
-> Posted on: Monday, December 11, 2017 2:57:04 AM
+> Posted on: Monday, December 11, 2017 3:49:24 PM
