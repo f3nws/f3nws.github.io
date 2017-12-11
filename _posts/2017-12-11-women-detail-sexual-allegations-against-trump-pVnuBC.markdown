@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Women detail sexual allegations against Trump"
-date: 2017-12-11 20:13:17Z
+date: 2017-12-11 22:00:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A group of women who have publicly accused President Donald Trump of sexual hara
 
 Full story on F3News: [Women detail sexual allegations against Trump](http://www.f3nws.com/n/pVnuBC)
 
-> Posted on: Monday, December 11, 2017 8:13:17 PM
+> Posted on: Monday, December 11, 2017 10:00:09 PM
