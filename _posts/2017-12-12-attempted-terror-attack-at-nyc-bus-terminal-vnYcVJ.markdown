@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Attempted terror attack' at NYC bus terminal"
-date: 2017-12-12 06:45:44Z
+date: 2017-12-12 08:26:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Police are responding to reports of a possible explosion on the A, C and E subwa
 
 Full story on F3News: ['Attempted terror attack' at NYC bus terminal](http://www.f3nws.com/n/vnYcVJ)
 
-> Posted on: Tuesday, December 12, 2017 6:45:44 AM
+> Posted on: Tuesday, December 12, 2017 8:26:40 AM
