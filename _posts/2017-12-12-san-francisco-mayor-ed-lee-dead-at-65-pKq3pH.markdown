@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "San Francisco Mayor Ed Lee dead at 65"
-date: 2017-12-12 17:12:54Z
+date: 2017-12-12 18:25:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ San Francisco Mayor Edwin M. Lee died early Tuesday at Zuckerberg San Francisco 
 
 Full story on F3News: [San Francisco Mayor Ed Lee dead at 65](http://www.f3nws.com/n/pKq3pH)
 
-> Posted on: Tuesday, December 12, 2017 5:12:54 PM
+> Posted on: Tuesday, December 12, 2017 6:25:06 PM
