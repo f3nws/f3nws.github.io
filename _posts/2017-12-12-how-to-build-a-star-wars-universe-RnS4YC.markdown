@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to build a 'Star Wars' universe"
-date: 2017-12-12 01:04:56Z
+date: 2017-12-12 03:39:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In January 1973, George Lucas wrote his first treatment for "Star Wars." Words d
 
 Full story on F3News: [How to build a 'Star Wars' universe](http://www.f3nws.com/n/RnS4YC)
 
-> Posted on: Tuesday, December 12, 2017 1:04:56 AM
+> Posted on: Tuesday, December 12, 2017 3:39:43 AM
