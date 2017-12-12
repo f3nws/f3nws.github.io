@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "10 steps toward a better future"
+date: 2017-12-12 21:21:35Z
+categories: cnn-com-world
+---
+
+![10 steps toward a better future](http://cdn.cnn.com/cnnnext/dam/assets/171102080449-h710-photo-grid-super-tease.jpg)
+
+Their missions vary greatly: To provide loving homes for orphaned children, feed those in crisis or mend war's psychological wounds.
+
+
+Full story on F3News: [10 steps toward a better future](http://www.f3nws.com/n/WCkrzF)
+
+> Posted on: Tuesday, December 12, 2017 9:21:35 PM
