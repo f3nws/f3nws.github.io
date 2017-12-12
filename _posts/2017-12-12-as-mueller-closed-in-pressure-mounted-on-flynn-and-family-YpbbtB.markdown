@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As Mueller closed in, pressure mounted on Flynn and family"
-date: 2017-12-12 14:34:00Z
+date: 2017-12-12 15:25:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — In the days before he pleaded guilty to lying to the FBI, an
 
 Full story on F3News: [As Mueller closed in, pressure mounted on Flynn and family](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Tuesday, December 12, 2017 2:34:00 PM
+> Posted on: Tuesday, December 12, 2017 3:25:00 PM
