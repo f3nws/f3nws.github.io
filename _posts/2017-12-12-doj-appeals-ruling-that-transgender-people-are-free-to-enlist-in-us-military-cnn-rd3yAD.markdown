@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![DOJ appeals ruling that transgender people are free to enlist in US military - CNN](http://cdn.cnn.com/cnnnext/dam/assets/130927142724-pentagon-aerial-story-top.jpg)
 
-CNN DOJ appeals ruling that transgender people are free to enlist in US military CNN (CNN) The Pentagon said it will begin processing transgender applicants to the military on January 1 after a federal judge declined on Monday to put the deadline on hold. Transgender service members are challenging President Donald Trump's memorandum ... After Court Ruling, Military Will Accept Openly Transgender Recruits As Of Jan. 1 NPR Justice Dept. seeks emergency halt to transgender troop deadline Politico Trump's transgender military ban enters a new legal thicket Washington Examiner HuffPost - BuzzFeed News - Washington Post - BBC News all 192 news articles »
+CNN DOJ appeals ruling that transgender people are free to enlist in US military CNN (CNN) The Pentagon said it will begin processing transgender applicants to the military on January 1 after a federal judge declined on Monday to put the deadline on hold. Transgender service members are challenging President Donald Trump's memorandum ... Justice Dept. seeks emergency halt to transgender troop deadline Politico Court ruling: Transgender individuals can enlist in the military beginning Jan. 1 ABC News Federal Court In Seattle Also Rules Against Trump's Transgender Military Ban HuffPost BuzzFeed News - Washington Post - BBC News - Arkansas Online all 191 news articles »
 
 
 Full story on F3News: [DOJ appeals ruling that transgender people are free to enlist in US military - CNN](http://www.f3nws.com/n/rd3yAD)
