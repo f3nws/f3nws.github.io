@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Want to be a spy? Australia's intelligence agency launches recruitment drive - SBS](https://sl.sbs.com.au/public/image/file/b08e2771-5491-491b-92c1-979f9dcc3974/crop/16x9)
 
-SBS Want to be a spy? Australia's intelligence agency launches recruitment drive SBS The Australian Secret Intelligence Service says it is looking to diversify its candidate pool by recruiting people who are 'smart, perceptive and empathetic'. Updated Updated 6 hours ago. By Biwa Kwan. Foreign Minister Julie Bishop said the skill set ... ASIS to launch major recruitment drive Sky News Australia Australian Secret Intelligence Service launches massive recruitment drive Community Newspaper Group Australian Secret Intelligence Service launches biggest recruitment drive in its history The West Australian all 14 news articles »
+SBS Want to be a spy? Australia's intelligence agency launches recruitment drive SBS The Australian Secret Intelligence Service says it is looking to diversify its candidate pool by recruiting people who are 'smart, perceptive and empathetic'. Updated Updated 7 hours ago. By Biwa Kwan. Foreign Minister Julie Bishop said the skill set ... ASIS to launch major recruitment drive Sky News Australia Australia's overseas spy agency launches recruitment campaign 3AW Australian Secret Intelligence Service launches massive recruitment drive Community Newspaper Group all 15 news articles »
 
 
 Full story on F3News: [Want to be a spy? Australia's intelligence agency launches recruitment drive - SBS](http://www.f3nws.com/n/bzmbgG)
