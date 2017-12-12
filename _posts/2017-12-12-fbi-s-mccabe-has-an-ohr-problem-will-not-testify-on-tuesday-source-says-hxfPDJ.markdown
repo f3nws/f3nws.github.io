@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FBI's McCabe 'has an Ohr problem,' will not testify on Tuesday, source says"
-date: 2017-12-12 11:45:01Z
+date: 2017-12-12 12:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Deputy FBI Director Andrew McCabe, who was reportedly scheduled to testify behin
 
 Full story on F3News: [FBI's McCabe 'has an Ohr problem,' will not testify on Tuesday, source says](http://www.f3nws.com/n/hxfPDJ)
 
-> Posted on: Tuesday, December 12, 2017 11:45:01 AM
+> Posted on: Tuesday, December 12, 2017 12:45:02 PM
