@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Collection of 1.4 Billion Plain-Text Leaked Passwords Found Circulating Online"
-date: 2017-12-12 09:39:35Z
+date: 2017-12-12 10:02:13Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Hackers always first go for the weakest link to quickly gain access to your onli
 
 Full story on F3News: [Collection of 1.4 Billion Plain-Text Leaked Passwords Found Circulating Online](http://www.f3nws.com/n/ScerMF)
 
-> Posted on: Tuesday, December 12, 2017 9:39:35 AM
+> Posted on: Tuesday, December 12, 2017 10:02:13 AM

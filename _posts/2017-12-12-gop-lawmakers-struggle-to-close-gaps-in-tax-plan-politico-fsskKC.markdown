@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![GOP lawmakers struggle to close gaps in tax plan - Politico](https://static.politico.com/c8/0c/4847c469460bac2f00e197c32f95/171211thunegettyimages-881980126.jpg)
 
-Politico GOP lawmakers struggle to close gaps in tax plan Politico Top congressional Republicans, racing to hammer out a final tax agreement by the end of the week, have yet to make any breakthroughs on a range of key issues. House and Senate negotiators bounced proposals back and forth over the weekend, but said ... The Trump administration's tax 'report' reads like fan fiction Washington Post A former CEO's view: The GOP tax bill is both mean and stupid CNN Amid the rush to finish GOP tax bill, a sudden slowdown for second thoughts Los Angeles Times The Hill - U.S. News & World Report - Chicago Tribune - Slate Magazine all 365 news articles »
+Politico GOP lawmakers struggle to close gaps in tax plan Politico Top congressional Republicans, racing to hammer out a final tax agreement by the end of the week, have yet to make any breakthroughs on a range of key issues. House and Senate negotiators bounced proposals back and forth over the weekend, but said ... The Trump administration's tax 'report' reads like fan fiction Washington Post Amid the rush to finish GOP tax bill, a sudden slowdown for second thoughts Los Angeles Times Congressional scorekeeper: House-passed tax bill wouldn't pay for itself The Hill Chicago Tribune - Forbes - Philly.com - Vanity Fair all 376 news articles »
 
 
 Full story on F3News: [GOP lawmakers struggle to close gaps in tax plan - Politico](http://www.f3nws.com/n/fsskKC)

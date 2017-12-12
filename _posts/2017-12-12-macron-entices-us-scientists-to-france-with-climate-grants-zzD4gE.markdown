@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron entices US scientists to France with climate grants"
-date: 2017-12-12 07:31:10Z
+date: 2017-12-12 10:11:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a rebuke to US antipathy towards climate science, France's leader has announc
 
 Full story on F3News: [Macron entices US scientists to France with climate grants](http://www.f3nws.com/n/zzD4gE)
 
-> Posted on: Tuesday, December 12, 2017 7:31:10 AM
+> Posted on: Tuesday, December 12, 2017 10:11:26 AM

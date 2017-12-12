@@ -7,7 +7,7 @@ categories: techradar
 
 ![The wearables of Star Wars, and their nearest real-life equivalents](http://cdn.mos.cms.futurecdn.net/LQKBYLCzYDy94vqvwhJkyJ-1200-80.jpg)
 
-Star Wars is full of wearable tech, and we've picked out our favourites along with their nearest real world mirrors.
+Star Wars is full of wearable tech, and we've picked out our favorites along with their nearest real-world mirrors.
 
 
 Full story on F3News: [The wearables of Star Wars, and their nearest real-life equivalents](http://www.f3nws.com/n/JsvKHB)
