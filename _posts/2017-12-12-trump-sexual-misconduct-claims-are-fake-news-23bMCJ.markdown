@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: Sexual misconduct claims are 'fake news'"
-date: 2017-12-12 14:01:37Z
+date: 2017-12-12 16:39:42Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump dismissed accusations of sexual misconduct on Tuesday, al
 
 Full story on F3News: [Trump: Sexual misconduct claims are 'fake news'](http://www.f3nws.com/n/23bMCJ)
 
-> Posted on: Tuesday, December 12, 2017 2:01:37 PM
+> Posted on: Tuesday, December 12, 2017 4:39:42 PM
