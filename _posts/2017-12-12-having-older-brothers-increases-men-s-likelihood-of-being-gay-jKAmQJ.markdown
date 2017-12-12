@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Having older brothers increases men's likelihood of being gay"
-date: 2017-12-12 02:51:34Z
+date: 2017-12-12 07:03:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If you're a guy with an older brother, there's an increased chance you're gay.
 
 Full story on F3News: [Having older brothers increases men's likelihood of being gay](http://www.f3nws.com/n/jKAmQJ)
 
-> Posted on: Tuesday, December 12, 2017 2:51:34 AM
+> Posted on: Tuesday, December 12, 2017 7:03:06 AM
