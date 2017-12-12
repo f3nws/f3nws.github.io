@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 11 weirdest moments at Roy Moore's final rally"
-date: 2017-12-12 17:14:04Z
+date: 2017-12-12 19:30:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Roy Moore's final rally Monday night in the Alabama Senate race was everything y
 
 Full story on F3News: [The 11 weirdest moments at Roy Moore's final rally](http://www.f3nws.com/n/UC2DxE)
 
-> Posted on: Tuesday, December 12, 2017 5:14:04 PM
+> Posted on: Tuesday, December 12, 2017 7:30:17 PM
