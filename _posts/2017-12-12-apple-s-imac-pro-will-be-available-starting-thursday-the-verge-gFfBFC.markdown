@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Apple's iMac Pro will be available starting Thursday - The Verge](https://cdn.vox-cdn.com/thumbor/02I8tG92G9k2tVYFQr8bHvBBRRI=/0x255:3000x1826/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9855101/692685082.jpg.jpg)
 
-The Verge Apple's iMac Pro will be available starting Thursday The Verge Apple announced back in June that its first ever iMac Pro would launch this month — and now, with just a few weeks to go, we're finally getting some details. Apple updated its website today to say that the iMac Pro will go on sale this Thursday ... Apple's iMac Pro arrives December 14, starting at $4999 TechCrunch iMac Pro Described as Blazingly Fast, Quiet, and Fairly Priced, But Lacks Upgradeability Mac Rumors Apple's $4999 all-in-one iMac Pro launches Thursday, Dec. 14 AppleInsider (press release) (blog) Macworld - CNET - 9to5Mac - PCMag all 68 news articles »
+The Verge Apple's iMac Pro will be available starting Thursday The Verge Apple announced back in June that its first ever iMac Pro would launch this month — and now, with just a few weeks to go, we're finally getting some details. Apple updated its website today to say that the iMac Pro will go on sale this Thursday ... iMac Pro testing shows 10-core model dramatically faster than any other Mac on intensive tasks AppleInsider (press release) (blog) Apple's iMac Pro arrives December 14, starting at $4999 TechCrunch iMac Pro Described as Blazingly Fast, Quiet, and Fairly Priced, But Lacks Upgradeability Mac Rumors Macworld - 9to5Mac - CNET - PCMag all 75 news articles »
 
 
 Full story on F3News: [Apple's iMac Pro will be available starting Thursday - The Verge](http://www.f3nws.com/n/gFfBFC)
