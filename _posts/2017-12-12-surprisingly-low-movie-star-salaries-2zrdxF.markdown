@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Surprisingly low movie star salaries"
-date: 2017-12-12 00:45:01Z
+date: 2017-12-12 06:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Stars who made less than they should have
 
 Full story on F3News: [Surprisingly low movie star salaries](http://www.f3nws.com/n/2zrdxF)
 
-> Posted on: Tuesday, December 12, 2017 12:45:01 AM
+> Posted on: Tuesday, December 12, 2017 6:45:02 AM
