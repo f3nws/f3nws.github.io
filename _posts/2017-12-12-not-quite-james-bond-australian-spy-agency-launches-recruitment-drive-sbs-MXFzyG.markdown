@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['Not quite James Bond': Australian spy agency launches recruitment drive - SBS](https://sl.sbs.com.au/public/image/file/b08e2771-5491-491b-92c1-979f9dcc3974/crop/16x9)
 
-SBS 'Not quite James Bond': Australian spy agency launches recruitment drive SBS The Australian Secret Intelligence Service says it is looking to diversify its candidate pool by recruiting people who are 'smart, perceptive and empathetic'. Updated Updated 1 hour ago. By Biwa Kwan. Foreign Minister Julie Bishop said the skill set ... Spy search: Tradies, teachers targeted to join Aussie ranks The Sunshine Coast Daily Australia's overseas spy agency launches recruitment campaign 3AW all 10 news articles »
+SBS 'Not quite James Bond': Australian spy agency launches recruitment drive SBS The Australian Secret Intelligence Service says it is looking to diversify its candidate pool by recruiting people who are 'smart, perceptive and empathetic'. Updated Updated 1 hour ago. By Biwa Kwan. Foreign Minister Julie Bishop said the skill set ... Spy search: Tradies, teachers targeted to join Aussie ranks The Sunshine Coast Daily Australia's overseas spy agency launches recruitment campaign 3AW Australian Secret Intelligence Service launches massive recruitment drive Community Newspaper Group all 10 news articles »
 
 
 Full story on F3News: ['Not quite James Bond': Australian spy agency launches recruitment drive - SBS](http://www.f3nws.com/n/MXFzyG)

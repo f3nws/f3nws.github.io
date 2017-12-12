@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California wildfires now bigger than NYC and Boston combined"
-date: 2017-12-12 03:27:21Z
+date: 2017-12-12 04:17:01Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Firefighters are struggling to contain the biggest of six blazes burning in sout
 
 Full story on F3News: [California wildfires now bigger than NYC and Boston combined](http://www.f3nws.com/n/ECTZ4B)
 
-> Posted on: Tuesday, December 12, 2017 3:27:21 AM
+> Posted on: Tuesday, December 12, 2017 4:17:01 AM

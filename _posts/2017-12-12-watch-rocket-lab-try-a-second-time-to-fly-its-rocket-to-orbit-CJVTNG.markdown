@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Watch Rocket Lab try a second time to fly its rocket to orbit"
-date: 2017-12-12 00:06:26Z
+date: 2017-12-12 04:05:35Z
 categories: the-verge
 ---
 
@@ -12,4 +12,4 @@ categories: the-verge
 
 Full story on F3News: [Watch Rocket Lab try a second time to fly its rocket to orbit](http://www.f3nws.com/n/CJVTNG)
 
-> Posted on: Tuesday, December 12, 2017 12:06:26 AM
+> Posted on: Tuesday, December 12, 2017 4:05:35 AM
