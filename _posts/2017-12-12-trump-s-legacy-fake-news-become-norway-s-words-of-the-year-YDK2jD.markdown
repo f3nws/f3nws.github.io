@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's legacy? 'Fake news' become Norway's words of the year"
-date: 2017-12-12 00:29:17Z
+date: 2017-12-12 00:29:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Norway has adopted a new term into its official lexicon, inspired by the one and
 
 Full story on F3News: [Trump's legacy? 'Fake news' become Norway's words of the year](http://www.f3nws.com/n/YDK2jD)
 
-> Posted on: Tuesday, December 12, 2017 12:29:17 AM
+> Posted on: Tuesday, December 12, 2017 12:29:00 AM
