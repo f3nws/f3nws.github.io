@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside the Trump dossier handoff: McCain's 'go-between' speaks out"
-date: 2017-12-12 00:30:00Z
+date: 2017-12-12 01:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The man who says he acted as a “go-between” last year to inform Sen. John Mc
 
 Full story on F3News: [Inside the Trump dossier handoff: McCain's 'go-between' speaks out](http://www.f3nws.com/n/Z24FDH)
 
-> Posted on: Tuesday, December 12, 2017 12:30:00 AM
+> Posted on: Tuesday, December 12, 2017 1:00:00 AM
