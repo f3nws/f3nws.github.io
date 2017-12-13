@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A devastating loss for Trump"
-date: 2017-12-13 13:12:24Z
+date: 2017-12-13 18:36:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump should be sweating after the shocking outcome in Alabama'
 
 Full story on F3News: [A devastating loss for Trump](http://www.f3nws.com/n/aZTTx)
 
-> Posted on: Wednesday, December 13, 2017 1:12:24 PM
+> Posted on: Wednesday, December 13, 2017 6:36:06 PM

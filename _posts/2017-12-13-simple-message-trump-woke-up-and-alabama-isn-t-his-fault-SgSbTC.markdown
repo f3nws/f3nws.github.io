@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Simple message: Trump woke up and Alabama isn't his fault"
-date: 2017-12-13 15:07:50Z
+date: 2017-12-13 17:58:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Less than 12 hours removed from a searing loss in Alabama's Senate race, Preside
 
 Full story on F3News: [Simple message: Trump woke up and Alabama isn't his fault](http://www.f3nws.com/n/SgSbTC)
 
-> Posted on: Wednesday, December 13, 2017 3:07:50 PM
+> Posted on: Wednesday, December 13, 2017 5:58:42 PM

@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Target is buying Alabama-based, same-day delivery service Shipt for $550 million](https://tctechcrunch2011.files.wordpress.com/2016/07/shipt4.jpg)
 
-Target, America’s other favorite old-line retailer (the one that’s not Walmart, with the arguably better commercials), is buying the Alabama-based delivery startup Shipt in a $550 million all-cash transaction. The deal, announced today, is another example of how every single store in America is responding to the very real threat that Amazon will drink their milkshake and eat… Read More
+Target, America’s other favorite old-line retailer (the one that’s not Walmart), is buying delivery startup Shipt in a $550 million all-cash transaction. The deal is another example of how every store in America is responding to the very real threat that Amazon will drink their milkshake and eat their lunch, shortly after it delivers those things to their doors in 30 minutes or less. Read More
 
 
 Full story on F3News: [Target is buying Alabama-based, same-day delivery service Shipt for $550 million](http://www.f3nws.com/n/YzM4x)
