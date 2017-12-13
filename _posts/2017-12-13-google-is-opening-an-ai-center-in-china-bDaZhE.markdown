@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google is opening an AI center in China"
-date: 2017-12-13 07:32:34Z
+date: 2017-12-13 08:30:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Google is opening an AI center in China](http://www.f3nws.com/n/bDaZhE)
 
-> Posted on: Wednesday, December 13, 2017 7:32:34 AM
+> Posted on: Wednesday, December 13, 2017 8:30:32 AM

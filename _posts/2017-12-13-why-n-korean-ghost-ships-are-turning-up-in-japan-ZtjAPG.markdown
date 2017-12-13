@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why N Korean 'ghost ships' are turning up in Japan"
-date: 2017-12-13 07:12:01Z
+date: 2017-12-13 08:12:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Another presumed North Korean vessel has washed up on Japan's shores, with at le
 
 Full story on F3News: [Why N Korean 'ghost ships' are turning up in Japan](http://www.f3nws.com/n/ZtjAPG)
 
-> Posted on: Wednesday, December 13, 2017 7:12:01 AM
+> Posted on: Wednesday, December 13, 2017 8:12:05 AM
