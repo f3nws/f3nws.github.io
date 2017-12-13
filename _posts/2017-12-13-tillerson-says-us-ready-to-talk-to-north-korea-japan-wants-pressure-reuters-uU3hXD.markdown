@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Tillerson says US ready to talk to North Korea; Japan wants pressure - Reuters](https://s4.reutersmedia.net/resources/r/?m=02&d=20171212&t=2&i=1213990679&w=&fh=545px&fw=&ll=&pl=&sq=&r=LYNXMPEDBB1NR)
 
-Reuters Tillerson says US ready to talk to North Korea; Japan wants pressure Reuters WASHINGTON/SEOUL (Reuters) - U.S. Secretary of State Rex Tillerson offered to begin direct talks with North Korea without pre-conditions, backing away from a key U.S. demand that Pyongyang must first accept that giving up its nuclear arsenal would be ... US Is Ready to Talk to North Korea 'Anytime,' Tillerson Says Bloomberg Tillerson's North Korean Overture Highlights His Credibility Problem NPR Kim Jong Un vows more 'quality' nuclear weapons, honors rocket scientists Fox News ABC News - The Hill (blog) - BBC News - NBCNews.com all 269 news articles »
+Reuters Tillerson says US ready to talk to North Korea; Japan wants pressure Reuters WASHINGTON/SEOUL (Reuters) - U.S. Secretary of State Rex Tillerson offered to begin direct talks with North Korea without pre-conditions, backing away from a key U.S. demand that Pyongyang must first accept that giving up its nuclear arsenal would be ... US Is Ready to Talk to North Korea 'Anytime,' Tillerson Says Bloomberg Tillerson's North Korean Overture Highlights His Credibility Problem NPR High-level Russian delegation visits North Korea The Hill (blog) BBC News - Fox News - Business Insider - Washington Examiner all 278 news articles »
 
 
 Full story on F3News: [Tillerson says US ready to talk to North Korea; Japan wants pressure - Reuters](http://www.f3nws.com/n/uU3hXD)
