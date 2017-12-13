@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "German soldier charged with planning to kill top politicians in fake Islamist attacks"
-date: 2017-12-13 01:20:17Z
+date: 2017-12-13 01:20:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A “right-wing nationalist” German soldier has been presented with new charge
 
 Full story on F3News: [German soldier charged with planning to kill top politicians in fake Islamist attacks](http://www.f3nws.com/n/2UYApC)
 
-> Posted on: Wednesday, December 13, 2017 1:20:17 AM
+> Posted on: Wednesday, December 13, 2017 1:20:00 AM
