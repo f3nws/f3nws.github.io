@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tillerson says US won't set preconditions for North Korea talks"
-date: 2017-12-13 02:56:49Z
+date: 2017-12-13 04:21:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson said the US is ready to talk with North Korea w
 
 Full story on F3News: [Tillerson says US won't set preconditions for North Korea talks](http://www.f3nws.com/n/KHxeSE)
 
-> Posted on: Wednesday, December 13, 2017 2:56:49 AM
+> Posted on: Wednesday, December 13, 2017 4:21:59 AM

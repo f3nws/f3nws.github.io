@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Canada shuns Boeing, will buy used Australian fighter jets"
-date: 2017-12-13 03:40:07Z
+date: 2017-12-13 04:29:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Canada shuns Boeing, will buy used Australian fighter jets](http://www.f3nws.com/n/Fynad)
 
-> Posted on: Wednesday, December 13, 2017 3:40:07 AM
+> Posted on: Wednesday, December 13, 2017 4:29:49 AM
