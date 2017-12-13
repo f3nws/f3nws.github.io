@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Political disaster: Trump tries to minimize stinging defeat"
-date: 2017-12-13 18:24:51Z
+date: 2017-12-13 18:43:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is waking to a self-inflicted political disaster Wednesda
 
 Full story on F3News: [Political disaster: Trump tries to minimize stinging defeat](http://www.f3nws.com/n/WmbuzC)
 
-> Posted on: Wednesday, December 13, 2017 6:24:51 PM
+> Posted on: Wednesday, December 13, 2017 6:43:52 PM
