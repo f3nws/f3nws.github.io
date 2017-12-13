@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Mueller aides' texts revealed: Read them here"
-date: 2017-12-13 07:45:02Z
+date: 2017-12-13 09:45:04Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The anti-Trump text messages between FBI officials Peter Strzok and Lisa Page th
 
 Full story on F3News: [Ex-Mueller aides' texts revealed: Read them here](http://www.f3nws.com/n/VfyAZC)
 
-> Posted on: Wednesday, December 13, 2017 7:45:02 AM
+> Posted on: Wednesday, December 13, 2017 9:45:04 AM
