@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baby survives after being born with heart outside her body"
-date: 2017-12-13 15:12:46Z
+date: 2017-12-13 17:02:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A baby born with her heart outside her body has survived surgery to insert it ba
 
 Full story on F3News: [Baby survives after being born with heart outside her body](http://www.f3nws.com/n/sBnvJB)
 
-> Posted on: Wednesday, December 13, 2017 3:12:46 PM
+> Posted on: Wednesday, December 13, 2017 5:02:25 PM

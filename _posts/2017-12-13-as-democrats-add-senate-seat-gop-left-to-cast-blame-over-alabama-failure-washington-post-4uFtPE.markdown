@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![As Democrats add Senate seat, GOP left to cast blame over Alabama failure - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/12/13/National-Politics/Images/Alabama_Senate_Doug_Jones_83614-9b02f-4667.jpg?t=20170517)
 
-Washington Post As Democrats add Senate seat, GOP left to cast blame over Alabama failure Washington Post BIRMINGHAM, Ala. — Stunned Republicans began casting blame Wednesday over their failure to hold a Senate seat in the Deep South, where Alabama Democrat Doug Jones stitched together just enough support amid voter backlash following accusations of ... Inside McConnell's slow-motion Alabama train wreck Politico 4 Takeaways From Doug Jones's Alabama Victory New York Times The Senate is now very much in play in 2018 CNN NBCNews.com - The Hill - Slate Magazine - Los Angeles Times all 2,704 news articles »
+Washington Post As Democrats add Senate seat, GOP left to cast blame over Alabama failure Washington Post BIRMINGHAM, Ala. — Stunned Republicans began casting blame Wednesday over their failure to hold a Senate seat in the Deep South, where Alabama Democrat Doug Jones stitched together just enough support amid voter backlash following accusations of ... The blame game begins inside the White House after Alabama stunner CNN Inside McConnell's slow-motion Alabama train wreck Politico 4 Takeaways From Doug Jones's Alabama Victory New York Times The Hill - TIME - Los Angeles Times - NBCNews.com all 2,843 news articles »
 
 
 Full story on F3News: [As Democrats add Senate seat, GOP left to cast blame over Alabama failure - Washington Post](http://www.f3nws.com/n/4uFtPE)
