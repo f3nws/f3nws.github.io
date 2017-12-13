@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 people who could wear this suit"
-date: 2017-12-13 19:32:10Z
+date: 2017-12-13 20:33:49Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Their missions vary greatly: To provide loving homes for orphaned children, feed
 
 Full story on F3News: [10 people who could wear this suit](http://www.f3nws.com/n/WCkrzF)
 
-> Posted on: Wednesday, December 13, 2017 7:32:10 PM
+> Posted on: Wednesday, December 13, 2017 8:33:49 PM
