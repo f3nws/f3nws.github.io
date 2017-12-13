@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Historic: First Democrat sent to Senate in a generation"
-date: 2017-12-13 05:51:38Z
+date: 2017-12-13 11:56:06Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Alabama voters are casting their ballots today as the nation watches their US Se
 
 Full story on F3News: [Historic: First Democrat sent to Senate in a generation](http://www.f3nws.com/n/UEPMYG)
 
-> Posted on: Wednesday, December 13, 2017 5:51:38 AM
+> Posted on: Wednesday, December 13, 2017 11:56:06 AM

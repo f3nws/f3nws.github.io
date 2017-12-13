@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump's Combative Denials Again Draw Him Into the Sexual Harassment Debate - New York Times](https://static01.nyt.com/images/2017/12/12/us/13dc-trump/13dc-trump-facebookJumbo.jpg)
 
-New York Times Trump's Combative Denials Again Draw Him Into the Sexual Harassment Debate New York Times WASHINGTON — President Trump put himself once more at the center of the sexual harassment debate on Tuesday, repeating his contention that the women who have accused him of misconduct fabricated the allegations and describing Senator Kirsten ... 'In the gutter': White House again denies what many think Trump meant Washington Post Trump's tweet creates a political opening for Gillibrand Politico The many layers of the Trump-Gillibrand feud CNN The Hill - USA TODAY - HuffPost - Los Angeles Times all 599 news articles »
+New York Times Trump's Combative Denials Again Draw Him Into the Sexual Harassment Debate New York Times WASHINGTON — President Trump put himself once more at the center of the sexual harassment debate on Tuesday, repeating his contention that the women who have accused him of misconduct fabricated the allegations and describing Senator Kirsten ... 'In the gutter': White House again denies what many think Trump meant Washington Post The many layers of the Trump-Gillibrand feud CNN Feud with Trump boosts Gillibrand The Hill USA TODAY - Los Angeles Times - National Review - Politico all 609 news articles »
 
 
 Full story on F3News: [Trump's Combative Denials Again Draw Him Into the Sexual Harassment Debate - New York Times](http://www.f3nws.com/n/fjmrJJ)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top cyclist Froome fights for reputation after failed drug test"
-date: 2017-12-13 10:31:54Z
+date: 2017-12-13 12:07:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Top cyclist Froome fights for reputation after failed drug test](http://www.f3nws.com/n/JPrZJF)
 
-> Posted on: Wednesday, December 13, 2017 10:31:54 AM
+> Posted on: Wednesday, December 13, 2017 12:07:23 PM
