@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CNN projects Alabama Democrat wins Senate race over Roy Moore, who was accused of sexually abusing teens"
-date: 2017-12-13 03:57:06Z
+date: 2017-12-13 05:03:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Will Alabama pick Doug Jones or Roy Moore? See the results above and the latest 
 
 Full story on F3News: [CNN projects Alabama Democrat wins Senate race over Roy Moore, who was accused of sexually abusing teens](http://www.f3nws.com/n/esfqrF)
 
-> Posted on: Wednesday, December 13, 2017 3:57:06 AM
+> Posted on: Wednesday, December 13, 2017 5:03:29 AM

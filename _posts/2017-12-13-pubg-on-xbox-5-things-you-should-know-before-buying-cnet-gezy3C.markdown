@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "PUBG on Xbox: 5 things you should know before buying     - CNET"
-date: 2017-12-13 02:38:06Z
+date: 2017-12-13 04:39:48Z
 categories: google-news-technology
 ---
 
@@ -12,4 +12,4 @@ It's fun, but it doesn't work beautifully on Microsoft's game console yet.
 
 Full story on F3News: [PUBG on Xbox: 5 things you should know before buying     - CNET](http://www.f3nws.com/n/gezy3C)
 
-> Posted on: Wednesday, December 13, 2017 2:38:06 AM
+> Posted on: Wednesday, December 13, 2017 4:39:48 AM
