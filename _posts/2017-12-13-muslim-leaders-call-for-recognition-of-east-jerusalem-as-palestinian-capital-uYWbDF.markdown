@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Muslim leaders call for recognition of East Jerusalem as Palestinian capital](https://cdni.rt.com/files/2017.12/article/5a30f21afc7e93bb378b456c.jpg)
 
-Turkish President Recep Tayyip Erdogan has called on Washington to turn back from its “unlawful and provocative decision” on Jerusalem, and urged world states to recognize East Jerusalem as the capital of Palestine. Read Full Article at RT.com
+Leaders of Islamic countries have called for East Jerusalem to be recognized as capital of Palestine, stating that Donald Trump’s move last week voided any US right to be a mediator of the Palestinian-Israeli peace process. Read Full Article at RT.com
 
 
 Full story on F3News: [Muslim leaders call for recognition of East Jerusalem as Palestinian capital](http://www.f3nws.com/n/uYWbDF)

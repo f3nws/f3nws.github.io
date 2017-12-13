@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "USA Today: Trump 'not fit to clean toilets' in Obama's library"
-date: 2017-12-13 13:10:35Z
+date: 2017-12-13 14:32:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ USA Today isn't known for its blistering op-eds. Which makes the one the paper's
 
 Full story on F3News: [USA Today: Trump 'not fit to clean toilets' in Obama's library](http://www.f3nws.com/n/UeK3MJ)
 
-> Posted on: Wednesday, December 13, 2017 1:10:35 PM
+> Posted on: Wednesday, December 13, 2017 2:32:01 PM

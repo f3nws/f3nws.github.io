@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "France accused of complicity in genocide"
-date: 2017-12-13 11:33:35Z
+date: 2017-12-13 15:22:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ French officials were complicit in the 1994 genocide of Rwanda's Tutsi minority,
 
 Full story on F3News: [France accused of complicity in genocide](http://www.f3nws.com/n/nxYnZC)
 
-> Posted on: Wednesday, December 13, 2017 11:33:35 AM
+> Posted on: Wednesday, December 13, 2017 3:22:48 PM
