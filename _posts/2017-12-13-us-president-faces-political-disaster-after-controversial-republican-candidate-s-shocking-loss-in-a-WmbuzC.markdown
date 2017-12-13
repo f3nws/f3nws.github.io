@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President faces political disaster after controversial Republican candidate's shocking loss in Alabama"
-date: 2017-12-13 10:58:10Z
+date: 2017-12-13 13:08:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is waking to a self-inflicted political disaster Wednesda
 
 Full story on F3News: [US President faces political disaster after controversial Republican candidate's shocking loss in Alabama](http://www.f3nws.com/n/WmbuzC)
 
-> Posted on: Wednesday, December 13, 2017 10:58:10 AM
+> Posted on: Wednesday, December 13, 2017 1:08:09 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stunning win: 5 takeaways from Democrat's victory"
-date: 2017-12-13 05:48:57Z
+date: 2017-12-13 13:15:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Alabama Senate race is over. And Democrat Doug Jones has pulled off an absol
 
 Full story on F3News: [Stunning win: 5 takeaways from Democrat's victory](http://www.f3nws.com/n/NcpKkH)
 
-> Posted on: Wednesday, December 13, 2017 5:48:57 AM
+> Posted on: Wednesday, December 13, 2017 1:15:13 PM
