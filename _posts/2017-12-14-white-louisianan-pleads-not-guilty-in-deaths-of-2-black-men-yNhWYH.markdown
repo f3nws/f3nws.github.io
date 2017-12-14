@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White Louisianan pleads not guilty in deaths of 2 black men"
-date: 2017-12-14 00:18:40Z
+date: 2017-12-14 01:49:59Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A white Louisiana man accused of shooting two black men to death and of firing i
 
 Full story on F3News: [White Louisianan pleads not guilty in deaths of 2 black men](http://www.f3nws.com/n/yNhWYH)
 
-> Posted on: Thursday, December 14, 2017 12:18:40 AM
+> Posted on: Thursday, December 14, 2017 1:49:59 AM
