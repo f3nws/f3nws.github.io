@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Netflix: This is the start of a longer legal battle"
-date: 2017-12-14 19:30:59Z
+date: 2017-12-14 20:07:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Netflix: This is the start of a longer legal battle](http://www.f3nws.com/n/aHYqAD)
 
-> Posted on: Thursday, December 14, 2017 7:30:59 PM
+> Posted on: Thursday, December 14, 2017 8:07:12 PM
