@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How black women saved democracy"
-date: 2017-12-14 05:16:20Z
+date: 2017-12-14 16:08:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [How black women saved democracy](http://www.f3nws.com/n/VAkfrF)
 
-> Posted on: Thursday, December 14, 2017 5:16:20 AM
+> Posted on: Thursday, December 14, 2017 4:08:59 PM
