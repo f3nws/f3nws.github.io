@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Omarosa denies there was a dramatic confrontation at the White House - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171213100432-omarosa-leaves-wh-super-tease.jpg)
 
-CNN Omarosa denies there was a dramatic confrontation at the White House CNN (CNN) Omarosa Manigault Newman, the White House aide whose resignation was announced on Wednesday, denied reports that she left the White House after a dramatic confrontation with White House chief of staff John Kelly. Speaking with ABC on Thursday ... What Omarosa Did Best: Get Fired New York Times Omarosa Manigault dismisses reports of dramatic firing Washington Post Omarosa trolled by Robin Roberts: 'Bye, Felicia,' after ouster from White House Fox News U.S. News & World Report - Politico - BBC News - Bloomberg all 208 news articles »
+CNN Omarosa denies there was a dramatic confrontation at the White House CNN (CNN) Omarosa Manigault Newman, the White House aide whose resignation was announced on Wednesday, denied reports that she left the White House after a dramatic confrontation with White House chief of staff John Kelly. Speaking with ABC on Thursday ... What Omarosa Did Best: Get Fired New York Times Omarosa Manigault dismisses reports of dramatic firing Washington Post Omarosa speaks out on drama behind White House departure Fox News NBCNews.com - U.S. News & World Report - Politico - Chicago Tribune all 225 news articles »
 
 
 Full story on F3News: [Omarosa denies there was a dramatic confrontation at the White House - CNN](http://www.f3nws.com/n/PFtEMJ)

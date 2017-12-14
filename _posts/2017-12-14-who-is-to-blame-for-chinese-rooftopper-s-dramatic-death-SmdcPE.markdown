@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Who is to blame for Chinese rooftopper's dramatic death?"
-date: 2017-12-14 02:36:26Z
+date: 2017-12-14 04:04:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A video circulating on Chinese social media shows a young man preforming chin up
 
 Full story on F3News: [Who is to blame for Chinese rooftopper's dramatic death?](http://www.f3nws.com/n/SmdcPE)
 
-> Posted on: Thursday, December 14, 2017 2:36:26 AM
+> Posted on: Thursday, December 14, 2017 4:04:05 AM
