@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Officials: US to present evidence Iran arming Yemen rebels"
-date: 2017-12-14 00:28:04Z
+date: 2017-12-14 14:37:24Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration will present evidence Thursday of what it says is proof
 
 Full story on F3News: [Officials: US to present evidence Iran arming Yemen rebels](http://www.f3nws.com/n/TRBZJF)
 
-> Posted on: Thursday, December 14, 2017 12:28:04 AM
+> Posted on: Thursday, December 14, 2017 2:37:24 PM
