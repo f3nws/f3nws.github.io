@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill banning Down syndrome abortions passes in Ohio, heads to Kasich's desk"
-date: 2017-12-14 10:45:01Z
+date: 2017-12-14 11:45:07Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The GOP-led Ohio state Senate on Wednesday passed a ban on abortions based on a 
 
 Full story on F3News: [Bill banning Down syndrome abortions passes in Ohio, heads to Kasich's desk](http://www.f3nws.com/n/4gpaPJ)
 
-> Posted on: Thursday, December 14, 2017 10:45:01 AM
+> Posted on: Thursday, December 14, 2017 11:45:07 AM

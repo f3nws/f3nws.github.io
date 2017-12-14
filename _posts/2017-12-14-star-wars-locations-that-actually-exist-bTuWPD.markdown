@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Star Wars' locations that actually exist"
-date: 2017-12-14 03:31:44Z
+date: 2017-12-14 10:46:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Plenty of people dream of travel to other planets. But "Star Wars" fans can actu
 
 Full story on F3News: ['Star Wars' locations that actually exist](http://www.f3nws.com/n/bTuWPD)
 
-> Posted on: Thursday, December 14, 2017 3:31:44 AM
+> Posted on: Thursday, December 14, 2017 10:46:56 AM
