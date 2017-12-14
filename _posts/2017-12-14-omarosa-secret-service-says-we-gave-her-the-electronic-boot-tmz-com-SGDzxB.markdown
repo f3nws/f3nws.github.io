@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Omarosa Secret Service Says We Gave Her the Electronic Boot - TMZ.com](https://media.tmz.com/2017/12/13/1213-omarosa-white-house-tmz-getty-01-1200x630.jpg)
 
-TMZ.com Omarosa Secret Service Says We Gave Her the Electronic Boot TMZ.com The agency confirms it deactivated Omarosa's pass which had granted her access to White House grounds. It's an odd announcement, considering President Trump and WH spokespeople have gone out of their way to say she wasn't fired. Our sources tell us ... Angela Rye On Omarosa's Resignation From The White House: “Good Riddance” Vibe Former 'Apprentice' star Omarosa Manigault Newman to leave White House Washington Post White House Aide Omarosa Manigault Newman to Depart in January Wall Street Journal all 284 news articles »
+TMZ.com Omarosa Secret Service Says We Gave Her the Electronic Boot TMZ.com The agency confirms it deactivated Omarosa's pass which had granted her access to White House grounds. It's an odd announcement, considering President Trump and WH spokespeople have gone out of their way to say she wasn't fired. Our sources tell us ... Angela Rye On Omarosa's Resignation From The White House: “Good Riddance” Vibe Former 'Apprentice' star Omarosa Manigault Newman to leave White House Washington Post all 282 news articles »
 
 
 Full story on F3News: [Omarosa Secret Service Says We Gave Her the Electronic Boot - TMZ.com](http://www.f3nws.com/n/SGDzxB)
