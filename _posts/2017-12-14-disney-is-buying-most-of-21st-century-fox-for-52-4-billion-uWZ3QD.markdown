@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disney is buying most of 21st Century Fox for $52.4 billion"
-date: 2017-12-14 12:26:06Z
+date: 2017-12-14 16:48:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Disney is buying most of 21st Century Fox for $52.4 billion](http://www.f3nws.com/n/uWZ3QD)
 
-> Posted on: Thursday, December 14, 2017 12:26:06 PM
+> Posted on: Thursday, December 14, 2017 4:48:55 PM
