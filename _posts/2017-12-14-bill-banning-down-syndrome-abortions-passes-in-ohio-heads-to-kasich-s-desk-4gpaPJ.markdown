@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "Bill banning Down syndrome abortions passes in Ohio, heads to Kasich's desk"
+date: 2017-12-14 06:45:03Z
+categories: fox-news
+---
+
+The GOP-led Ohio state Senate on Wednesday passed a ban on abortions based on a diagnosis of Down syndrome, and Republican Gov. John Kasich has sent signals that he will soon sign the measure into law.
+
+
+Full story on F3News: [Bill banning Down syndrome abortions passes in Ohio, heads to Kasich's desk](http://www.f3nws.com/n/4gpaPJ)
+
+> Posted on: Thursday, December 14, 2017 6:45:03 AM
