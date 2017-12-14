@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "FCC neuters net neutrality, votes out Obama-era rules     - CNET"
-date: 2017-12-14 20:12:12Z
+date: 2017-12-14 20:47:02Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ In a controversial vote, the FCC rolls back net neutrality rules adopted in 2015
 
 Full story on F3News: [FCC neuters net neutrality, votes out Obama-era rules     - CNET](http://www.f3nws.com/n/3WpdBE)
 
-> Posted on: Thursday, December 14, 2017 8:12:12 PM
+> Posted on: Thursday, December 14, 2017 8:47:02 PM
