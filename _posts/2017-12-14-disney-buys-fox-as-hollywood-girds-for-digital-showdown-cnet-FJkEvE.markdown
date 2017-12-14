@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disney buys Fox as Hollywood girds for digital showdown     - CNET"
-date: 2017-12-14 13:59:17Z
+date: 2017-12-14 14:47:56Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The world's largest traditional media company will buy swaths of 21st Century Fo
 
 Full story on F3News: [Disney buys Fox as Hollywood girds for digital showdown     - CNET](http://www.f3nws.com/n/FJkEvE)
 
-> Posted on: Thursday, December 14, 2017 1:59:17 PM
+> Posted on: Thursday, December 14, 2017 2:47:56 PM
