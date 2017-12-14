@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House reins in Tillerson's offer of 'no preconditions' to negotiations with Pyongyang"
-date: 2017-12-14 04:34:23Z
+date: 2017-12-14 05:09:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House and State Department both stated Wednesday that the US is not re
 
 Full story on F3News: [White House reins in Tillerson's offer of 'no preconditions' to negotiations with Pyongyang](http://www.f3nws.com/n/NWRnQD)
 
-> Posted on: Thursday, December 14, 2017 4:34:23 AM
+> Posted on: Thursday, December 14, 2017 5:09:44 AM

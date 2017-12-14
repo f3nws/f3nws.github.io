@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alabama Senate election: Doug Jones wins in major upset, Roy Moore won't yet concede"
-date: 2017-12-14 02:45:02Z
+date: 2017-12-14 04:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Democrat Doug Jones has defeated Roy Moore in Alabama’s Senate election, accor
 
 Full story on F3News: [Alabama Senate election: Doug Jones wins in major upset, Roy Moore won't yet concede](http://www.f3nws.com/n/vyNWxH)
 
-> Posted on: Thursday, December 14, 2017 2:45:02 AM
+> Posted on: Thursday, December 14, 2017 4:30:00 AM

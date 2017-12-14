@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US demands release of journalists detained in Myanmar"
-date: 2017-12-14 04:43:28Z
+date: 2017-12-14 04:50:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US embassy in Yangon expressed concern Wednesday over the "highly irregular"
 
 Full story on F3News: [US demands release of journalists detained in Myanmar](http://www.f3nws.com/n/SMxrMD)
 
-> Posted on: Thursday, December 14, 2017 4:43:28 AM
+> Posted on: Thursday, December 14, 2017 4:50:44 AM
