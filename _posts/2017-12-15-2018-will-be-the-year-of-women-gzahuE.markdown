@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2018 will be the year of women"
-date: 2017-12-15 03:27:01Z
+date: 2017-12-15 19:20:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [2018 will be the year of women](http://www.f3nws.com/n/gzahuE)
 
-> Posted on: Friday, December 15, 2017 3:27:01 AM
+> Posted on: Friday, December 15, 2017 7:20:19 PM
