@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Murder suspect in Charlottesville charged"
-date: 2017-12-15 02:15:44Z
+date: 2017-12-15 04:57:42Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Ohio driver accused of plowing into a crowd protesting a white nationalist ra
 
 Full story on F3News: [Murder suspect in Charlottesville charged](http://www.f3nws.com/n/cRfxJF)
 
-> Posted on: Friday, December 15, 2017 2:15:44 AM
+> Posted on: Friday, December 15, 2017 4:57:42 AM

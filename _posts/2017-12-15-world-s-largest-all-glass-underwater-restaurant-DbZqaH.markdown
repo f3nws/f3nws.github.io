@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "World's largest all-glass underwater restaurant"
-date: 2017-12-15 00:31:42Z
+date: 2017-12-15 05:27:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A warning to travelers heading below sea level to dine at luxury Maldives resort
 
 Full story on F3News: [World's largest all-glass underwater restaurant](http://www.f3nws.com/n/DbZqaH)
 
-> Posted on: Friday, December 15, 2017 12:31:42 AM
+> Posted on: Friday, December 15, 2017 5:27:51 AM
