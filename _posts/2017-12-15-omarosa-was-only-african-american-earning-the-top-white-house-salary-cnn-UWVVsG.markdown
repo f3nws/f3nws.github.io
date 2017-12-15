@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Omarosa was only African-American earning the top White House salary - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171213100432-omarosa-leaves-wh-super-tease.jpg)
 
-CNN Omarosa was only African-American earning the top White House salary CNN Washington (CNN) Omarosa Manigault Newman, a senior staffer who recently departed the White House and the only African-American drawing a top salary, said Thursday the "lack of diversity" was a challenge she grappled with. "It has been very, very ... Omarosa ousted by Kelly in White House Situation Room, despite her denials Fox News The 'Honorable' Omarosa Manigault: All the Drama from Her Extended 15 Minutes of Fame PEOPLE.com Omarosa's departure raises questions about White House diversity NBCNews.com Deadline - The Hill (blog) - ABC News - Newsweek all 308 news articles »
+CNN Omarosa was only African-American earning the top White House salary CNN Washington (CNN) Omarosa Manigault Newman, a senior staffer who recently departed the White House and the only African-American drawing a top salary, said Thursday the "lack of diversity" was a challenge she grappled with. "It has been very, very ... Spicer: 'I don't know' why Omarosa was hired to White House The Hill (blog) Omarosa ousted by Kelly in White House Situation Room, despite her denials Fox News The 'Honorable' Omarosa Manigault: All the Drama from Her Extended 15 Minutes of Fame PEOPLE.com NBCNews.com - Deadline - Chicago Tribune - ABC News all 321 news articles »
 
 
 Full story on F3News: [Omarosa was only African-American earning the top White House salary - CNN](http://www.f3nws.com/n/UWVVsG)
