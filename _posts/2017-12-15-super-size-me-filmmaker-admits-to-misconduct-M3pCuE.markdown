@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Super Size Me' filmmaker admits to misconduct"
-date: 2017-12-15 02:35:51Z
+date: 2017-12-15 13:10:35Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-world
 
 Full story on F3News: ['Super Size Me' filmmaker admits to misconduct](http://www.f3nws.com/n/M3pCuE)
 
-> Posted on: Friday, December 15, 2017 2:35:51 AM
+> Posted on: Friday, December 15, 2017 1:10:35 PM
