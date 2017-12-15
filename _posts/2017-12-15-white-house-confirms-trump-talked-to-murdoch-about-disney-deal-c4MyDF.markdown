@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House confirms: Trump talked to Murdoch about Disney deal"
-date: 2017-12-15 02:40:47Z
+date: 2017-12-15 11:42:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [White House confirms: Trump talked to Murdoch about Disney deal](http://www.f3nws.com/n/c4MyDF)
 
-> Posted on: Friday, December 15, 2017 2:40:47 AM
+> Posted on: Friday, December 15, 2017 11:42:19 AM

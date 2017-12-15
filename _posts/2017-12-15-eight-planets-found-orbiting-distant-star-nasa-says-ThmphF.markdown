@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Eight planets found orbiting distant star, NASA says"
-date: 2017-12-15 04:47:57Z
+date: 2017-12-15 11:19:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For the first time, eight planets have been found orbiting a distant star, Keple
 
 Full story on F3News: [Eight planets found orbiting distant star, NASA says](http://www.f3nws.com/n/ThmphF)
 
-> Posted on: Friday, December 15, 2017 4:47:57 AM
+> Posted on: Friday, December 15, 2017 11:19:17 AM
