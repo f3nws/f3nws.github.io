@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Charge upgraded against suspect in Charlottesville rally killing - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170812212244-james-alex-fields-mugshot-super-tease.jpg)
 
-U.S. News & World Report Charge upgraded against suspect in Charlottesville rally killing CNN (CNN) An Ohio driver accused of plowing into a crowd protesting a white nationalist rally in Charlottesville, Virginia, killing one woman, is facing an upgraded murder charge. James Alex Fields Jr., of Maumee, Ohio, initially was charged with second ... Charge upgraded to first-degree murder for driver accused of ramming Charlottesville crowd Washington Post White Nationalist Now Faces First-Degree Murder in Charlottesville Killing New York Times First-Degree Murder Charge Against Man Who Drove Into Charlottesville Demonstrators NPR Business Insider - BuzzFeed News - Salt Lake Tribune - ABC News all 63 news articles »
+New York Post Charge upgraded against suspect in Charlottesville rally killing CNN (CNN) The Dodge Challenger crept up, reversed, then accelerated toward the crowd. As he watched a surveillance video of that moment -- the car barreling toward people protesting a white nationalist rally in Charlottesville, Virginia last summer ... Charge upgraded to first-degree murder for driver accused of ramming Charlottesville crowd Washington Post White Nationalist Now Faces First-Degree Murder in Charlottesville Killing New York Times First-Degree Murder Charge Against Man Who Drove Into Charlottesville Demonstrators NPR Business Insider - NBCNews.com - Fox News - CBS News all 74 news articles »
 
 
 Full story on F3News: [Charge upgraded against suspect in Charlottesville rally killing - CNN](http://www.f3nws.com/n/cRfxJF)
