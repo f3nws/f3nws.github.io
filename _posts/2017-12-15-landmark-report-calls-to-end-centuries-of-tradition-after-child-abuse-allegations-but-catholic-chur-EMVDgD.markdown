@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Landmark report calls to end centuries of tradition after child abuse allegations, but Catholic church rejects plan"
-date: 2017-12-15 08:16:41Z
+date: 2017-12-15 10:04:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A wide-reaching investigation into child abuse across Australia whose revelation
 
 Full story on F3News: [Landmark report calls to end centuries of tradition after child abuse allegations, but Catholic church rejects plan](http://www.f3nws.com/n/EMVDgD)
 
-> Posted on: Friday, December 15, 2017 8:16:41 AM
+> Posted on: Friday, December 15, 2017 10:04:10 AM
