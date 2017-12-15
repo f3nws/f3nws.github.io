@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Inside Nigeria's million dollar wedding industry"
-date: 2017-12-15 15:03:00Z
+date: 2017-12-15 17:55:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As the year draws to a close, wedding season in Nigeria begins.
 
 Full story on F3News: [Inside Nigeria's million dollar wedding industry](http://www.f3nws.com/n/TtfYhF)
 
-> Posted on: Friday, December 15, 2017 3:03:00 PM
+> Posted on: Friday, December 15, 2017 5:55:27 PM
