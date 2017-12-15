@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey's Clinton draft statement heavily edited to water down private email server impact"
-date: 2017-12-15 04:44:04Z
+date: 2017-12-15 04:44:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ A release of documents reveals former FBI Director James Comey's draft statement
 
 Full story on F3News: [Comey's Clinton draft statement heavily edited to water down private email server impact](http://www.f3nws.com/n/PzuV2)
 
-> Posted on: Friday, December 15, 2017 4:44:04 AM
+> Posted on: Friday, December 15, 2017 4:44:00 AM
