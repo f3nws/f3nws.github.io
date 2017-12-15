@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "With Rubio, Corker Back on Board, GOP Speeds Ahead With Tax Plan - New York Times"
-date: 2017-12-15 20:35:50Z
+date: 2017-12-15 22:25:57Z
 categories: google-news-australia
 ---
 
 ![With Rubio, Corker Back on Board, GOP Speeds Ahead With Tax Plan - New York Times](https://static01.nyt.com/images/2017/12/16/us/politics/16dc-tax/16dc-tax-facebookJumbo.jpg)
 
-New York Times With Rubio, Corker Back on Board, GOP Speeds Ahead With Tax Plan New York Times WASHINGTON — Republican leaders moved closer to a swift victory on their $1.5 trillion tax plan after one wavering senator, Marco Rubio of Florida, and one senator who voted no on the original Senate bill, Bob Corker of Tennessee, threw their support ... GOP tax plan: The bill is set. Rubio, Corker back to yes. What happens next? CNN Republicans have votes to pass tax plan after Rubio, Corker pledge support Washington Post The winners and losers in the GOP tax plan Politico ABC News - USA TODAY - Los Angeles Times - Fox News all 2,873 news articles »
+New York Times With Rubio, Corker Back on Board, GOP Speeds Ahead With Tax Plan New York Times WASHINGTON — Republican lawmakers on Friday secured enough votes to pass the most sweeping tax overhaul in decades, putting them on the cusp of their first significant legislative victory as party leaders geared up to pass a $1.5 trillion tax cut ... GOP tax plan: The bill is set. Rubio, Corker back to yes. What happens next? CNN The winners and losers in the GOP tax plan Politico Rubio, Corker Give Thumbs Up To Tax Bill, Clearing Roadblock To Passage By Christmas NPR ABC News - USA TODAY - Fox News - Los Angeles Times all 2,838 news articles »
 
 
 Full story on F3News: [With Rubio, Corker Back on Board, GOP Speeds Ahead With Tax Plan - New York Times](http://www.f3nws.com/n/TVeSCH)
 
-> Posted on: Friday, December 15, 2017 8:35:50 PM
+> Posted on: Friday, December 15, 2017 10:25:57 PM
