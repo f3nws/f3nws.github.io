@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Popular PUBG streamer DrDisrespect takes hiatus after confessing to infidelity - PC Gamer](http://cdn.mos.cms.futurecdn.net/fzrnejAhGZfLroTghYHdrf-1200-80.jpg)
 
-PC Gamer Popular PUBG streamer DrDisrespect takes hiatus after confessing to infidelity PC Gamer Popular Twitch streamer DrDisrespect announced on his channel today that he plans to take time away from livestreaming to focus on his family. "I have a beautiful family, and a wife, and kid. And I want to be transparent that I've been unfaithful ... Popular streamer Dr Disrespect admits he was 'unfaithful' to wife Coventry Telegraph 'PUBG,' 'Fortnite' streamer taking a breather after two-timing admission Blasting News NetEase and DrDisrespect mutually agree to cancel his involvement in Rules of Survival "Hunt the Streamer" event. invenglobal Press Start Australia - The Daily Dot - Dexerto.com all 14 news articles »
+PC Gamer Popular PUBG streamer DrDisrespect takes hiatus after confessing to infidelity PC Gamer Popular Twitch streamer DrDisrespect announced on his channel today that he plans to take time away from livestreaming to focus on his family. "I have a beautiful family, and a wife, and kid. And I want to be transparent that I've been unfaithful ... DrDisRespect Taking Break from Streaming After Personal Statement Game Rant Popular streamer Dr Disrespect admits he was 'unfaithful' to wife Coventry Telegraph 'PUBG,' 'Fortnite' streamer taking a breather after two-timing admission Blasting News Dexerto.com - The Daily Dot - eSports Pro all 15 news articles »
 
 
 Full story on F3News: [Popular PUBG streamer DrDisrespect takes hiatus after confessing to infidelity - PC Gamer](http://www.f3nws.com/n/ksbZGD)
