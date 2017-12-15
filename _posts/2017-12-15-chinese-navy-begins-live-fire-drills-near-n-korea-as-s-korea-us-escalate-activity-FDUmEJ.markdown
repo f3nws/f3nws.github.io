@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Chinese Navy begins live-fire drills near N. Korea as S. Korea & US escalate activity"
-date: 2017-12-15 01:42:14Z
+date: 2017-12-15 01:42:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ China’s navy has begun four-day live-fire drills off the coast of North Korea 
 
 Full story on F3News: [Chinese Navy begins live-fire drills near N. Korea as S. Korea & US escalate activity](http://www.f3nws.com/n/FDUmEJ)
 
-> Posted on: Friday, December 15, 2017 1:42:14 AM
+> Posted on: Friday, December 15, 2017 1:42:00 AM
