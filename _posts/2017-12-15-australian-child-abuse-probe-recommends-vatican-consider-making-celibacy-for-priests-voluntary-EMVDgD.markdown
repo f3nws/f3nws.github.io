@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australian child abuse probe recommends Vatican consider making celibacy for priests voluntary"
-date: 2017-12-15 03:31:52Z
+date: 2017-12-15 05:57:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A wide-reaching investigation into child abuse across Australia whose revelation
 
 Full story on F3News: [Australian child abuse probe recommends Vatican consider making celibacy for priests voluntary](http://www.f3nws.com/n/EMVDgD)
 
-> Posted on: Friday, December 15, 2017 3:31:52 AM
+> Posted on: Friday, December 15, 2017 5:57:48 AM
