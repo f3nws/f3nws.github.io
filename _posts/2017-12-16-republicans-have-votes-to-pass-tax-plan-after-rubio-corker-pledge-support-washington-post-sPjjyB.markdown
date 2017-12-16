@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Republicans have votes to pass tax plan after Rubio, Corker pledge support - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/12/14/National-Economy/Images/marcorubio.jpg?t=20170517)
 
-Washington Post Republicans have votes to pass tax plan after Rubio, Corker pledge support Washington Post Congressional Republicans secured enough support Friday to pass their massive tax plan, a measure that would deliver a major legislative victory to President Trump and his GOP allies and make tax changes affecting nearly every American family and ... Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week New York Times Historic tax reform vote lined up with GOP bill finalized Politico Here's Where the GOP Tax Plan Stands Right Now Bloomberg Forbes - Slate Magazine - Daily Beast - New York Daily News all 3,263 news articles »
+Washington Post Republicans have votes to pass tax plan after Rubio, Corker pledge support Washington Post Congressional Republicans secured enough support Friday to pass their massive tax plan, a measure that would deliver a major legislative victory to President Trump and his GOP allies and make tax changes affecting nearly every American family and ... Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week New York Times Historic tax reform vote lined up with GOP bill finalized Politico 'This Is Happening': GOP Revels in All-But-Certain Tax Deal U.S. News & World Report Bloomberg - Slate Magazine - Chicago Tribune - Forbes all 3,180 news articles »
 
 
 Full story on F3News: [Republicans have votes to pass tax plan after Rubio, Corker pledge support - Washington Post](http://www.f3nws.com/n/sPjjyB)

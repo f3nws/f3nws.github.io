@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Strong earthquake strikes Indonesia"
-date: 2017-12-16 02:50:03Z
+date: 2017-12-16 09:14:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A strong earthquake hit Indonesia late Friday, authorities said.
 
 Full story on F3News: [Strong earthquake strikes Indonesia](http://www.f3nws.com/n/NSzKhG)
 
-> Posted on: Saturday, December 16, 2017 2:50:03 AM
+> Posted on: Saturday, December 16, 2017 9:14:37 AM

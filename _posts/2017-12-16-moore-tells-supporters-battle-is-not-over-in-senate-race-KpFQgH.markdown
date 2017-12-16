@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Moore tells supporters 'battle is not over' in Senate race"
-date: 2017-12-16 08:45:02Z
+date: 2017-12-16 09:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Alabama Republican Roy Moore on Friday told supporters that the "battle is not o
 
 Full story on F3News: [Moore tells supporters 'battle is not over' in Senate race](http://www.f3nws.com/n/KpFQgH)
 
-> Posted on: Saturday, December 16, 2017 8:45:02 AM
+> Posted on: Saturday, December 16, 2017 9:45:02 AM
