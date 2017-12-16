@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Jacobs letter' unsealed, accuses Uber of spying, hacking"
-date: 2017-12-16 01:33:00Z
+date: 2017-12-16 02:33:00Z
 categories: engadget
 ---
 
@@ -12,4 +12,4 @@ Waymo's lawsuit against Uber for allegedly stealing technology for self-driving 
 
 Full story on F3News: ['Jacobs letter' unsealed, accuses Uber of spying, hacking](http://www.f3nws.com/n/pJQjtE)
 
-> Posted on: Saturday, December 16, 2017 1:33:00 AM
+> Posted on: Saturday, December 16, 2017 2:33:00 AM

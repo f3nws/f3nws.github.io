@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "George Clooney is working on a Watergate series for Netflix"
-date: 2017-12-16 01:26:35Z
+date: 2017-12-16 03:26:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [George Clooney is working on a Watergate series for Netflix](http://www.f3nws.com/n/aRdSQE)
 
-> Posted on: Saturday, December 16, 2017 1:26:35 AM
+> Posted on: Saturday, December 16, 2017 3:26:01 AM

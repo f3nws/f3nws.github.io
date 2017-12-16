@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Earthquake hits Indonesia's Java, at least two deaths confirmed - ABC Online](http://www.abc.net.au/news/image/9264924-16x9-700x394.jpg)
 
-ABC Online Earthquake hits Indonesia's Java, at least two deaths confirmed ABC Online An earthquake with a magnitude of 6.5 struck the island of Java in Indonesia, the US Geological Survey (USGS) said, with authorities reporting at least two deaths and damage to buildings. Indonesia's national disaster management agency said the quake ... At least two dead after Java earthquake 9news.com.au Indonesian quake kills at least one person The Australian Indonesian earthquake: Strong quake hits Java and felt as far away as Jakarta NEWS.com.au CBC.ca - The Guardian - CNN - The Times all 68 news articles »
+ABC Online Earthquake hits Indonesia's Java, at least two deaths confirmed ABC Online An earthquake with a magnitude of 6.5 struck the island of Java in Indonesia, the US Geological Survey (USGS) said, with authorities reporting at least two deaths and damage to buildings. Indonesia's national disaster management agency said the quake ... Indonesian earthquake: Strong quake hits Java and felt as far away as Jakarta PerthNow Indonesian quake kills at least one person The Australian Deadly earthquake strikes Indonesian island of Java The Guardian SBS - CNN - The Hindu - Reuters all 96 news articles »
 
 
 Full story on F3News: [Earthquake hits Indonesia's Java, at least two deaths confirmed - ABC Online](http://www.f3nws.com/n/gDCexF)
