@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Democrats Could Claim a New American Majority. Will They? - New York Times](https://static01.nyt.com/images/2017/12/16/opinion/16phillipsWeb/16phillipsWeb-facebookJumbo.jpg)
 
-New York Times Democrats Could Claim a New American Majority. Will They? New York Times The Alabama special election for the Senate affirms that the coalition that elected and re-elected an African-American as president of the United States remains a majority of the country's population. By combining a large and inspired turnout of voters ... Doug Jones, eager to speak for the South, embraces the spotlight Washington Post Pride and the fall: Why young evangelicals rejected Roy Moore The Hill How Doug Jones Destroyed Roy Moore's Whole Shtick with One Well-Chosen Verb Daily Beast TIME - CNN - Washington Examiner - Los Angeles Times all 7,790 news articles »
+New York Times Democrats Could Claim a New American Majority. Will They? New York Times The Alabama special election for the Senate affirms that the coalition that elected and re-elected an African-American as president of the United States remains a majority of the country's population. By combining a large and inspired turnout of voters ... Doug Jones, eager to speak for the South, embraces the spotlight Washington Post How Doug Jones Destroyed Roy Moore's Whole Shtick with One Well-Chosen Verb Daily Beast Pride and the fall: Why young evangelicals rejected Roy Moore The Hill Washington Examiner - Los Angeles Times - Raw Story - Charleston Post Courier all 7,898 news articles »
 
 
 Full story on F3News: [Democrats Could Claim a New American Majority. Will They? - New York Times](http://www.f3nws.com/n/BpPpEB)

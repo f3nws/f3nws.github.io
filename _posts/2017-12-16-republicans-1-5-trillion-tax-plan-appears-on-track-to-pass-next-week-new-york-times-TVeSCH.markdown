@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week - New York Times](https://static01.nyt.com/images/2017/12/16/us/politics/16dc-tax/16dc-tax-facebookJumbo.jpg)
 
-New York Times Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week New York Times WASHINGTON — Republican lawmakers appeared to secure enough votes on Friday to pass the most sweeping tax overhaul in decades, putting them on the cusp of their first significant legislative victory as leaders geared up to pass a $1.5 trillion tax cut ... Republicans have votes to pass tax plan after Rubio, Corker pledge support Washington Post Historic tax reform vote lined up with GOP bill finalized Politico Republicans release their final tax bill ahead of key vote next week CNN The Hill - Bloomberg - NPR - NBCNews.com all 3,019 news articles »
+New York Times Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week New York Times WASHINGTON — Republican lawmakers appeared to secure enough votes on Friday to pass the most sweeping tax overhaul in decades, putting them on the cusp of their first significant legislative victory as leaders geared up to pass a $1.5 trillion tax cut ... Republicans have votes to pass tax plan after Rubio, Corker pledge support Washington Post Republicans release their final tax bill ahead of key vote next week CNN Historic tax reform vote lined up with GOP bill finalized Politico The Hill - Bloomberg - Chicago Tribune - NPR all 3,108 news articles »
 
 
 Full story on F3News: [Republicans' $1.5 Trillion Tax Plan Appears on Track to Pass Next Week - New York Times](http://www.f3nws.com/n/TVeSCH)
