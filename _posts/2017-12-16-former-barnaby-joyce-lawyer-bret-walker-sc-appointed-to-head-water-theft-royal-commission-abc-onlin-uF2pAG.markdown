@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Former Barnaby Joyce lawyer Bret Walker SC appointed to head 'water theft' royal commission - ABC Online](http://www.abc.net.au/news/image/9265446-16x9-700x394.jpg)
 
-ABC Online Former Barnaby Joyce lawyer Bret Walker SC appointed to head 'water theft' royal commission ABC Online A leading constitutional lawyer from New South Wales has been appointed by the South Australian Government to lead its royal commission into the use of Murray-Darling Basin water. Premier Jay Weatherill announced he would establish the royal commission ... Plea for 'fair go' from Basin Plan Riverine Herald Barrister to lead Murray royal commission The West Australian all 8 news articles »
+ABC Online Former Barnaby Joyce lawyer Bret Walker SC appointed to head 'water theft' royal commission ABC Online A leading constitutional lawyer from New South Wales has been appointed by the South Australian Government to lead its royal commission into the use of Murray-Darling Basin water. Premier Jay Weatherill announced he would establish the royal commission ... Irrigation in Murray Darling Basin is about more than politics Herald Sun Barrister to lead Murray royal commission PerthNow Plea for 'fair go' from Basin Plan Riverine Herald all 9 news articles »
 
 
 Full story on F3News: [Former Barnaby Joyce lawyer Bret Walker SC appointed to head 'water theft' royal commission - ABC Online](http://www.f3nws.com/n/uF2pAG)
