@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Billionaire and wife found dead in their home"
-date: 2017-12-16 06:01:23Z
+date: 2017-12-16 03:56:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Toronto billionaire and philanthropist Barry Sherman and his wife were found dea
 
 Full story on F3News: [Billionaire and wife found dead in their home](http://www.f3nws.com/n/RQ4TFD)
 
-> Posted on: Saturday, December 16, 2017 6:01:23 AM
+> Posted on: Saturday, December 16, 2017 3:56:08 AM
