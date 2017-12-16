@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'This is happening': GOP revels in all-but-certain tax deal"
-date: 2017-12-16 03:08:00Z
+date: 2017-12-16 09:26:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Republicans working to execute their first major legislative
 
 Full story on F3News: ['This is happening': GOP revels in all-but-certain tax deal](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Saturday, December 16, 2017 3:08:00 AM
+> Posted on: Saturday, December 16, 2017 9:26:00 AM
