@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protests over Trump's Jerusalem move leave 4 dead, hundreds injured"
-date: 2017-12-16 00:44:09Z
+date: 2017-12-16 14:48:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Protesters took to the streets of Jerusalem, several cities in the West Bank, an
 
 Full story on F3News: [Protests over Trump's Jerusalem move leave 4 dead, hundreds injured](http://www.f3nws.com/n/mJCScG)
 
-> Posted on: Saturday, December 16, 2017 12:44:09 AM
+> Posted on: Saturday, December 16, 2017 2:48:05 PM
