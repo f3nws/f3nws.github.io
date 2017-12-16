@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What's in the GOP's tax plan"
-date: 2017-12-16 02:13:24Z
+date: 2017-12-16 17:30:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [What's in the GOP's tax plan](http://www.f3nws.com/n/2aMNBC)
 
-> Posted on: Saturday, December 16, 2017 2:13:24 AM
+> Posted on: Saturday, December 16, 2017 5:30:47 PM
