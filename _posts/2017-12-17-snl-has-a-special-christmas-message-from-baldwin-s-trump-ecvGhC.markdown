@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'SNL' has a special Christmas message from Baldwin's Trump"
-date: 2017-12-17 05:32:19Z
+date: 2017-12-17 07:44:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['SNL' has a special Christmas message from Baldwin's Trump](http://www.f3nws.com/n/ecvGhC)
 
-> Posted on: Sunday, December 17, 2017 5:32:19 AM
+> Posted on: Sunday, December 17, 2017 7:44:54 AM
