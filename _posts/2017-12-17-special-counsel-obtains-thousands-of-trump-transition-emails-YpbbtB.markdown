@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Special counsel obtains thousands of Trump transition emails"
-date: 2017-12-17 03:13:00Z
+date: 2017-12-17 05:17:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Special counsel Robert Mueller's investigation into Russian 
 
 Full story on F3News: [Special counsel obtains thousands of Trump transition emails](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Sunday, December 17, 2017 3:13:00 AM
+> Posted on: Sunday, December 17, 2017 5:17:00 AM

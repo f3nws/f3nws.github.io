@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spurlock's new film pulled from festival after admitting to sexual misconduct"
-date: 2017-12-17 09:45:03Z
+date: 2017-12-17 10:36:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Documentary filmmaker Morgan Spurlock’s latest work has been pulled from the 2
 
 Full story on F3News: [Spurlock's new film pulled from festival after admitting to sexual misconduct](http://www.f3nws.com/n/fFfQ3D)
 
-> Posted on: Sunday, December 17, 2017 9:45:03 AM
+> Posted on: Sunday, December 17, 2017 10:36:00 AM
