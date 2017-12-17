@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller team defends obtaining Trump transition emails"
-date: 2017-12-17 16:06:10Z
+date: 2017-12-17 20:51:04Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Lawyers representing the Trump presidential transition wrote to members of Congr
 
 Full story on F3News: [Mueller team defends obtaining Trump transition emails](http://www.f3nws.com/n/RXphTG)
 
-> Posted on: Sunday, December 17, 2017 4:06:10 PM
+> Posted on: Sunday, December 17, 2017 8:51:04 PM

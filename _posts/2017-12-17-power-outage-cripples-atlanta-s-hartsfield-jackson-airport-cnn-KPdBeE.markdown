@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Power outage cripples Atlanta's Hartsfield-Jackson airport - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171217142825-01-atlanta-airport-outage-1217-super-tease.jpg)
 
-CNN Power outage cripples Atlanta's Hartsfield-Jackson airport CNN (CNN) A power outage at Atlanta's Hartsfield-Jackson International Airport, the world's busiest airport, is leaving thousands of passengers stranded and planes grounded indefinitely. The Federal Aviation Administration issued a ground stop for flights ... Atlanta airport loses power, trapping travelers in planes and terminals NBCNews.com Power outage hits Atlanta's airport; flights affected USA TODAY Power Failure at Atlanta Airport Snarls Operations New York Times ABC News - Fox News - Washington Post - New York Post all 83 news articles »
+CNN Power outage cripples Atlanta's Hartsfield-Jackson airport CNN (CNN) A power outage at Atlanta's Hartsfield-Jackson International Airport has left thousands of passengers at the world's busiest airport stranded in the dark and grounded incoming and outgoing planes indefinitely. The Federal Aviation Administration ... Passengers describe power outage at Atlanta airport Atlanta Journal Constitution Power outage at Atlanta airport causes 'pandemonium,' grounds flights Fox News Power outage suspends flights at Atlanta airport USA TODAY ABC News - NBCNews.com - Reuters - New York Times all 118 news articles »
 
 
 Full story on F3News: [Power outage cripples Atlanta's Hartsfield-Jackson airport - CNN](http://www.f3nws.com/n/KPdBeE)
