@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southern California's Thomas Fire forces new evacuations, threatens wealthy enclave"
-date: 2017-12-17 12:30:00Z
+date: 2017-12-17 17:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ One of the biggest wildfires in California's history sparked new evacuation orde
 
 Full story on F3News: [Southern California's Thomas Fire forces new evacuations, threatens wealthy enclave](http://www.f3nws.com/n/ykdaVH)
 
-> Posted on: Sunday, December 17, 2017 12:30:00 PM
+> Posted on: Sunday, December 17, 2017 5:30:00 PM
