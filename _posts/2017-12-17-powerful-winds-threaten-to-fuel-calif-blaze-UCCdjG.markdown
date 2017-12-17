@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Powerful winds threaten to fuel Calif blaze"
-date: 2017-12-17 02:51:55Z
+date: 2017-12-17 04:44:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Firefighters battling the Thomas Fire will face more challenges Saturday with th
 
 Full story on F3News: [Powerful winds threaten to fuel Calif blaze](http://www.f3nws.com/n/UCCdjG)
 
-> Posted on: Sunday, December 17, 2017 2:51:55 AM
+> Posted on: Sunday, December 17, 2017 4:44:12 AM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Melbourne Lord Mayor stands aside over indecent assault allegations](http://www.abc.net.au/news/image/5957118-16x9-700x394.jpg)
 
-Melbourne Lord Mayor Robert Doyle says he is "shocked" but "distressed" as he announces he will stand aside while he is investigated for alleged sexual harassment, indecent assault and misconduct.
+Melbourne Lord Mayor Robert Doyle says he is "shocked" and "distressed" as he announces he will stand aside while he is investigated for alleged sexual harassment, indecent assault and misconduct.
 
 
 Full story on F3News: [Melbourne Lord Mayor stands aside over indecent assault allegations](http://www.f3nws.com/n/KnHKSH)
