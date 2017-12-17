@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pentagon study of UFOs revealed"
-date: 2017-12-17 04:10:04Z
+date: 2017-12-17 06:17:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Beyond preparing for the next field of battle, or advancing a massive arsenal th
 
 Full story on F3News: [Pentagon study of UFOs revealed](http://www.f3nws.com/n/nsZxpC)
 
-> Posted on: Sunday, December 17, 2017 4:10:04 AM
+> Posted on: Sunday, December 17, 2017 6:17:54 AM

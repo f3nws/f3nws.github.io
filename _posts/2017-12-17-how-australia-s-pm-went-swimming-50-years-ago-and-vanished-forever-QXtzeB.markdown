@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Australia's PM went swimming 50 years ago and vanished forever"
-date: 2017-12-17 03:04:00Z
+date: 2017-12-17 05:55:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [How Australia's PM went swimming 50 years ago and vanished forever](http://www.f3nws.com/n/QXtzeB)
 
-> Posted on: Sunday, December 17, 2017 3:04:00 AM
+> Posted on: Sunday, December 17, 2017 5:55:50 AM
