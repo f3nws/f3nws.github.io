@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Events cancelled across Perth as parts of WA brace for 'unusual' storm](http://www.abc.net.au/news/image/9266318-16x9-700x394.jpg)
 
-Major Perth events, including Carols by Candlelight and A Day on the Green, are cancelled as a severe and unseasonal storm approaches the city, but the Ashes Test looks likely to escape disruption.
+Major Perth events, including Carols by Candlelight and A Day on the Green, are cancelled as a severe and unseasonal storm approaches the city.
 
 
 Full story on F3News: [Events cancelled across Perth as parts of WA brace for 'unusual' storm](http://www.f3nws.com/n/tqNaXH)
