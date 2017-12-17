@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['A Prairie Home Companion' Radio Show Renamed 'Live From Here' - Billboard](https://www.billboard.com/files/media/Chris-Thile-2016-billboard-1548.jpg)
 
-U.S. News & World Report 'A Prairie Home Companion' Radio Show Renamed 'Live From Here' Billboard "A Prairie Home Companion" radio show has been given a new name -- "Live From Here" -- in the wake of creator Garrison Keillor's acrimonious split with Minnesota Public Radio. Chris Thile, the mandolin virtuoso who has hosted the weekly variety show ... Thile announces new name for 'A Prairie Home Companion' Minneapolis Star Tribune 'Prairie Home Companion' has a new name: 'Live from Here' TwinCities.com-Pioneer Press Prairie Home Companion renamed 'Live from Here with Chris Thile' Minnesota Public Radio News all 8 news articles »
+Kansas City Star 'A Prairie Home Companion' Radio Show Renamed 'Live From Here' Billboard "A Prairie Home Companion" radio show has been given a new name -- "Live From Here" -- in the wake of creator Garrison Keillor's acrimonious split with Minnesota Public Radio. Chris Thile, the mandolin virtuoso who has hosted the weekly variety show ... 'A Prairie Home Companion' Renamed 'Live From Here' After Garrison Keillor Exits MPR Deadline 'Prairie Home Companion' has a new name: 'Live from Here' TwinCities.com-Pioneer Press Prairie Home Companion renamed 'Live from Here with Chris Thile' Minnesota Public Radio News WHIO all 8 news articles »
 
 
 Full story on F3News: ['A Prairie Home Companion' Radio Show Renamed 'Live From Here' - Billboard](http://www.f3nws.com/n/P4qyHB)
