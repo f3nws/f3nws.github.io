@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Even Batman admires these super heroes"
-date: 2017-12-17 17:30:21Z
+date: 2017-12-17 19:31:14Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Emmy award-winning actor Sterling K. Brown regularly turns in three-tissue perfo
 
 Full story on F3News: [Even Batman admires these super heroes](http://www.f3nws.com/n/WCETqF)
 
-> Posted on: Sunday, December 17, 2017 5:30:21 PM
+> Posted on: Sunday, December 17, 2017 7:31:14 PM
