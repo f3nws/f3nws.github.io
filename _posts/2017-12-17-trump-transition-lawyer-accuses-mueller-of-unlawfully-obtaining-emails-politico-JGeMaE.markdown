@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump transition lawyer accuses Mueller of unlawfully obtaining emails - Politico](https://static.politico.com/60/b5/408e9cbd42d5a0fa1086d7a5c39d/171216muellergettyimages-170852757.jpg)
 
-Politico Trump transition lawyer accuses Mueller of unlawfully obtaining emails Politico A lawyer for President Donald Trump's transition team is accusing special counsel Robert Mueller of unlawfully obtaining tens of thousands of private emails during its investigation into Russian meddling in last year's presidential election. Kory ... Mueller unlawfully obtained emails, Trump transition team says Washington Post Trump Russia inquiry: Mueller improperly obtained emails, lawyer says BBC News Trump transition accuses Mueller of improperly obtaining emails CNN HuffPost - USA TODAY - The Hill (blog) - Business Insider all 97 news articles »
+Politico Trump transition lawyer accuses Mueller of unlawfully obtaining emails Politico A lawyer for President Donald Trump's transition team is accusing special counsel Robert Mueller of unlawfully obtaining tens of thousands of private emails during its investigation into Russian meddling in last year's presidential election. Kory ... Gregg Jarrett: Mueller's allegedly lawless acts have corrupted his probe and demand his removal Fox News Mueller unlawfully obtained emails, Trump transition team says Washington Post Trump transition accuses Mueller of improperly obtaining emails CNN HuffPost - USA TODAY - BBC News - The Hill (blog) all 124 news articles »
 
 
 Full story on F3News: [Trump transition lawyer accuses Mueller of unlawfully obtaining emails - Politico](http://www.f3nws.com/n/JGeMaE)
