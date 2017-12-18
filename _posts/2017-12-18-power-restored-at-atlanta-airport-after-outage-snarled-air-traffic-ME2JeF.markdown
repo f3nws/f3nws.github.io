@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Power restored at Atlanta airport after outage snarled air traffic"
-date: 2017-12-18 08:45:02Z
+date: 2017-12-18 09:45:01Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Georgia Power said that it expects power to be fully restored by midnight at the
 
 Full story on F3News: [Power restored at Atlanta airport after outage snarled air traffic](http://www.f3nws.com/n/ME2JeF)
 
-> Posted on: Monday, December 18, 2017 8:45:02 AM
+> Posted on: Monday, December 18, 2017 9:45:01 AM
