@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US judge steps down after accusations of sexual misconduct"
-date: 2017-12-18 10:26:00Z
+date: 2017-12-18 11:14:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN FRANCISCO (AP) — A prominent U.S. appeals court judge announced his retire
 
 Full story on F3News: [US judge steps down after accusations of sexual misconduct](http://www.f3nws.com/n/YpbbtB)
 
-> Posted on: Monday, December 18, 2017 10:26:00 AM
+> Posted on: Monday, December 18, 2017 11:14:00 AM
