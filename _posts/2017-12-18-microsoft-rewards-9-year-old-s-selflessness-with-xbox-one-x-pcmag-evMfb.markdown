@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Microsoft Rewards 9-Year-Old's Selflessness With Xbox One X - PCMag](https://assets.pcmag.com/media/images/567404-mikah-frye-s-xbox-one-x.jpg?thumb=y&width=810&height=456)
 
-PCMag Microsoft Rewards 9-Year-Old's Selflessness With Xbox One X PCMag Do a good deed, everybody wins. At least, that's the holiday lesson one 9-year-old from Ashland County, Ohio recently learned. He gave up an on-the-way Christmas gift—a brand-new Xbox One X—preferring instead that his grandmother take the $300 the ... Microsoft surprises a thoughtful 9-year-old who gave up his Xbox to help the homeless Mashable Boy gives up his Xbox One present to help the homeless; Microsoft surprises him with new console and gifts TechSpot The Nine Year Old That Gave Up His Xbox To Help The Homeless Kotaku Australia WTNH Connecticut News (press release) - The Inquisitr - AZFamily - fox8.com all 16 news articles »
+PCMag Microsoft Rewards 9-Year-Old's Selflessness With Xbox One X PCMag Do a good deed, everybody wins. At least, that's the holiday lesson one 9-year-old from Ashland County, Ohio recently learned. He gave up an on-the-way Christmas gift—a brand-new Xbox One X—preferring instead that his grandmother take the $300 the ... Microsoft surprises a thoughtful 9-year-old who gave up his Xbox to help the homeless Mashable Boy gives up his Xbox One present to help the homeless; Microsoft surprises him with new console and gifts TechSpot The Nine Year Old That Gave Up His Xbox To Help The Homeless Kotaku Australia FOX10 News - WTNH Connecticut News (press release) - The Inquisitr - ClickLancashire all 19 news articles »
 
 
 Full story on F3News: [Microsoft Rewards 9-Year-Old's Selflessness With Xbox One X - PCMag](http://www.f3nws.com/n/evMfb)
