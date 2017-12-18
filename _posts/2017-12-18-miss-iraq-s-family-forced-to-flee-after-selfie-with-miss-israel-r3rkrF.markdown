@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Miss Iraq's family forced to flee after selfie with Miss Israel"
-date: 2017-12-18 00:46:21Z
+date: 2017-12-18 02:39:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nearly a month ago, Sarah Idan was in a hand-beaded Swarovski crystal gown repre
 
 Full story on F3News: [Miss Iraq's family forced to flee after selfie with Miss Israel](http://www.f3nws.com/n/r3rkrF)
 
-> Posted on: Monday, December 18, 2017 12:46:21 AM
+> Posted on: Monday, December 18, 2017 2:39:58 AM
