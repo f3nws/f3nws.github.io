@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Carolina Panthers owner Jerry Richardson, 81, selling team - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2016%2F0320%2Fr65427_1296x729_16%2D9.jpg)
 
-ESPN Carolina Panthers owner Jerry Richardson, 81, selling team ESPN CHARLOTTE, N.C. -- Carolina Panthers owner Jerry Richardson, amid allegations of workplace misconduct, announced Sunday night in a letter on the team website that he plans to put the NFL team he founded up for sale after the 2017 season. The letter ... Panthers owner Jerry Richardson announces plan to sell team amid NFL investigation Washington Post Diddy Wants to Buy the Panthers, and Steph Curry Wants in Sports Illustrated Jerry Richardson's shocking decision to sell Panthers clouds NFL investigation Charlotte Observer New York Times - The Denver Post - News & Observer (blog) - Dallas News all 226 news articles »
+ESPN Carolina Panthers owner Jerry Richardson, 81, selling team ESPN CHARLOTTE, N.C. -- Carolina Panthers owner Jerry Richardson, amid allegations of workplace misconduct, announced Sunday night in a letter on the team website that he plans to put the NFL team he founded up for sale after the 2017 season. The letter ... Will Jerry Richardson Avoid the NFL Investigation by Selling the Panthers? Not Quite Sports Illustrated Who else might be following Panthers owner Jerry Richardson out the door? USA TODAY Jerry Richardson, Facing Misconduct Allegations, Will Sell Panthers New York Times Washington Post - Charlotte Observer - Chicago Tribune - Seattle Times all 244 news articles »
 
 
 Full story on F3News: [Carolina Panthers owner Jerry Richardson, 81, selling team - ESPN](http://www.f3nws.com/n/ygTxEC)

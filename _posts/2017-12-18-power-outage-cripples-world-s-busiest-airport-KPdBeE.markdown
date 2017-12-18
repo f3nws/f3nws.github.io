@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Power outage cripples world's busiest airport"
-date: 2017-12-18 02:31:46Z
+date: 2017-12-18 04:03:51Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A power outage at Atlanta's Hartsfield-Jackson International Airport left thousa
 
 Full story on F3News: [Power outage cripples world's busiest airport](http://www.f3nws.com/n/KPdBeE)
 
-> Posted on: Monday, December 18, 2017 2:31:46 AM
+> Posted on: Monday, December 18, 2017 4:03:51 AM

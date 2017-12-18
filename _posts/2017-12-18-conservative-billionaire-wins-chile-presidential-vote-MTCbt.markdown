@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conservative billionaire wins Chile presidential vote"
-date: 2017-12-18 03:29:03Z
+date: 2017-12-18 03:57:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Chile's former President, the conservative billionaire Sebastian Pinera, has bee
 
 Full story on F3News: [Conservative billionaire wins Chile presidential vote](http://www.f3nws.com/n/MTCbt)
 
-> Posted on: Monday, December 18, 2017 3:29:03 AM
+> Posted on: Monday, December 18, 2017 3:57:59 AM
