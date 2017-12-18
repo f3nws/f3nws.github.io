@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Death threats haunt Miss Iraq after selfie controversy"
-date: 2017-12-18 15:59:49Z
+date: 2017-12-18 20:03:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nearly a month ago, Sarah Idan was in a hand-beaded Swarovski crystal gown repre
 
 Full story on F3News: [Death threats haunt Miss Iraq after selfie controversy](http://www.f3nws.com/n/r3rkrF)
 
-> Posted on: Monday, December 18, 2017 3:59:49 PM
+> Posted on: Monday, December 18, 2017 8:03:33 PM
