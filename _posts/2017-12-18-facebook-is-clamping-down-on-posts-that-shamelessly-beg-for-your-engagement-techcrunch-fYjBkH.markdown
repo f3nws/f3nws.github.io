@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Facebook is clamping down on posts that shamelessly beg for your engagement - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2017/09/facebook-instagram-apps.jpg)
 
-TechCrunch Facebook is clamping down on posts that shamelessly beg for your engagement TechCrunch A lot of crap gets shared on Facebook, but coming soon the volume may be a little less after Facebook made a move to penalize content that shamelessly begs people for engagement. The social network giant said today that it will penalize Page owners and ... Facebook is clamping down on posts that ask people for Likes or shares Recode Facebook will soon demote posts that beg for likes, comments, and shares The Verge Facebook to fight 'engagement baiting' spam in your News Feed VentureBeat Business Insider - Ubergizmo - The INQUIRER - Siliconrepublic.com all 59 news articles »
+TechCrunch Facebook is clamping down on posts that shamelessly beg for your engagement TechCrunch A lot of crap gets shared on Facebook, but coming soon the volume may be a little less after Facebook made a move to penalize content that shamelessly begs people for engagement. The social network giant said today that it will penalize Page owners and ... Facebook will soon demote posts that beg for likes, comments, and shares The Verge Facebook to fight 'engagement baiting' spam in your News Feed VentureBeat Facebook is clamping down on posts that ask people for Likes or shares Recode PCMag - CNET - Business Insider - Android Police all 68 news articles »
 
 
 Full story on F3News: [Facebook is clamping down on posts that shamelessly beg for your engagement - TechCrunch](http://www.f3nws.com/n/fYjBkH)
