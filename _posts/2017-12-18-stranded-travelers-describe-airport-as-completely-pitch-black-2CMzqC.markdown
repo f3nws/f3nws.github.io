@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Stranded travelers describe airport as 'completely pitch black'"
-date: 2017-12-18 03:51:27Z
+date: 2017-12-18 08:42:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Travelers stranded on planes on the tarmac for hours. Darkness in the terminal. 
 
 Full story on F3News: [Stranded travelers describe airport as 'completely pitch black'](http://www.f3nws.com/n/2CMzqC)
 
-> Posted on: Monday, December 18, 2017 3:51:27 AM
+> Posted on: Monday, December 18, 2017 8:42:14 AM
