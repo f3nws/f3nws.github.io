@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Power outage at Atlanta airport causes 'pandemonium,' grounds flights"
-date: 2017-12-18 02:30:00Z
+date: 2017-12-18 03:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A complete power outage at the nation’s busiest airport, the Hartsfield-Jackso
 
 Full story on F3News: [Power outage at Atlanta airport causes 'pandemonium,' grounds flights](http://www.f3nws.com/n/dJbWvE)
 
-> Posted on: Monday, December 18, 2017 2:30:00 AM
+> Posted on: Monday, December 18, 2017 3:15:00 AM
