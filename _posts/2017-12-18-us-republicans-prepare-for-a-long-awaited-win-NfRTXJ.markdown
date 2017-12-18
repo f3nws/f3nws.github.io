@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Republicans prepare for a long-awaited win"
-date: 2017-12-18 01:03:24Z
+date: 2017-12-18 07:17:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republicans are on the brink of passing a nearly $1.5 trillion tax overhaul, and
 
 Full story on F3News: [US Republicans prepare for a long-awaited win](http://www.f3nws.com/n/NfRTXJ)
 
-> Posted on: Monday, December 18, 2017 1:03:24 AM
+> Posted on: Monday, December 18, 2017 7:17:54 AM
