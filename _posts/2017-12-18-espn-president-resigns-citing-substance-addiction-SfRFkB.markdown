@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ESPN president resigns, citing substance addiction"
-date: 2017-12-18 17:41:56Z
+date: 2017-12-18 18:52:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [ESPN president resigns, citing substance addiction](http://www.f3nws.com/n/SfRFkB)
 
-> Posted on: Monday, December 18, 2017 5:41:56 PM
+> Posted on: Monday, December 18, 2017 6:52:32 PM
