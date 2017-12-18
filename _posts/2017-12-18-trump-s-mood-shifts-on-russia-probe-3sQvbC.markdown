@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's mood shifts on Russia probe"
-date: 2017-12-18 13:16:39Z
+date: 2017-12-18 19:58:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is privately striking a less agitated tone on the Russia 
 
 Full story on F3News: [Trump's mood shifts on Russia probe](http://www.f3nws.com/n/3sQvbC)
 
-> Posted on: Monday, December 18, 2017 1:16:39 PM
+> Posted on: Monday, December 18, 2017 7:58:59 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Multiple fatalities' as US passenger train derails over highway"
-date: 2017-12-18 20:09:26Z
+date: 2017-12-18 21:03:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An Amtrak passenger train derailed and at least one car is dangling on to Inters
 
 Full story on F3News: ['Multiple fatalities' as US passenger train derails over highway](http://www.f3nws.com/n/DDqSNE)
 
-> Posted on: Monday, December 18, 2017 8:09:26 PM
+> Posted on: Monday, December 18, 2017 9:03:05 PM
