@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi prince who led anti-corruption purge revealed as owner of ‘world’s most expensive home’"
-date: 2017-12-18 01:44:30Z
+date: 2017-12-18 01:44:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Saudi crown prince who led a recent royal crackdown on corruption and lavish
 
 Full story on F3News: [Saudi prince who led anti-corruption purge revealed as owner of ‘world’s most expensive home’](http://www.f3nws.com/n/zXXXH)
 
-> Posted on: Monday, December 18, 2017 1:44:30 AM
+> Posted on: Monday, December 18, 2017 1:44:00 AM
