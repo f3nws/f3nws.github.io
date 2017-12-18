@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Far-right takes power in Austria: Thousands protest against new coalition"
-date: 2017-12-18 11:25:46Z
+date: 2017-12-18 13:34:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Austria's new coalition government, which includes the far-right Freedom Party, 
 
 Full story on F3News: [Far-right takes power in Austria: Thousands protest against new coalition](http://www.f3nws.com/n/CaK4HF)
 
-> Posted on: Monday, December 18, 2017 11:25:46 AM
+> Posted on: Monday, December 18, 2017 1:34:40 PM

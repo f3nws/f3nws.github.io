@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erdogan defies Trump on embassy move"
-date: 2017-12-18 07:38:46Z
+date: 2017-12-18 13:17:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Turkey's President Recep Tayyip Erdogan said he hopes one day to open a Turkish 
 
 Full story on F3News: [Erdogan defies Trump on embassy move](http://www.f3nws.com/n/yDGCQ)
 
-> Posted on: Monday, December 18, 2017 7:38:46 AM
+> Posted on: Monday, December 18, 2017 1:17:10 PM
