@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amtrak train derails in Washington state onto Interstate 5; 'multiple fatalities' reported"
-date: 2017-12-18 17:40:00Z
+date: 2017-12-18 18:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An inaugural ride on Amtrak's new line meant to speed train service in Washingto
 
 Full story on F3News: [Amtrak train derails in Washington state onto Interstate 5; 'multiple fatalities' reported](http://www.f3nws.com/n/h4qdRJ)
 
-> Posted on: Monday, December 18, 2017 5:40:00 PM
+> Posted on: Monday, December 18, 2017 6:00:00 PM
