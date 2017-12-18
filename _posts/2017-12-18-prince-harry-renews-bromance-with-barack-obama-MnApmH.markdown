@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Harry renews bromance with Barack Obama"
-date: 2017-12-18 07:15:38Z
+date: 2017-12-18 11:55:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Prince Harry interviewed Barack Obama as part of his guest editorship of BBC Rad
 
 Full story on F3News: [Prince Harry renews bromance with Barack Obama](http://www.f3nws.com/n/MnApmH)
 
-> Posted on: Monday, December 18, 2017 7:15:38 AM
+> Posted on: Monday, December 18, 2017 11:55:33 AM

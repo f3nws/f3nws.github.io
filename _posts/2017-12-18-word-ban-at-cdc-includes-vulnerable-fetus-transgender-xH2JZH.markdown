@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Word ban at CDC includes 'vulnerable,' 'fetus,' 'transgender'"
-date: 2017-12-18 04:27:44Z
+date: 2017-12-18 12:18:59Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Officials at the Centers for Disease Control and Prevention, the very agency tas
 
 Full story on F3News: [Word ban at CDC includes 'vulnerable,' 'fetus,' 'transgender'](http://www.f3nws.com/n/xH2JZH)
 
-> Posted on: Monday, December 18, 2017 4:27:44 AM
+> Posted on: Monday, December 18, 2017 12:18:59 PM

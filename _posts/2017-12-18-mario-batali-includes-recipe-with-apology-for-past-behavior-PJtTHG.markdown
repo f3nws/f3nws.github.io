@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mario Batali includes recipe with apology for 'past behavior'"
-date: 2017-12-18 01:58:30Z
+date: 2017-12-18 12:26:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ How about some cinnamon rolls with that apology?
 
 Full story on F3News: [Mario Batali includes recipe with apology for 'past behavior'](http://www.f3nws.com/n/PJtTHG)
 
-> Posted on: Monday, December 18, 2017 1:58:30 AM
+> Posted on: Monday, December 18, 2017 12:26:55 PM

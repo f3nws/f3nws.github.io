@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wildfire on track to become California's largest-ever"
-date: 2017-12-18 06:48:56Z
+date: 2017-12-18 11:48:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A wildfire that has devastated swathes of southern California is on course to be
 
 Full story on F3News: [Wildfire on track to become California's largest-ever](http://www.f3nws.com/n/VSQn2D)
 
-> Posted on: Monday, December 18, 2017 6:48:56 AM
+> Posted on: Monday, December 18, 2017 11:48:50 AM
