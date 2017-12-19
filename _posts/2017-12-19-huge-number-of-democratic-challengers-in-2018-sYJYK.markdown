@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Huge number of Democratic challengers in 2018"
-date: 2017-12-19 04:11:28Z
+date: 2017-12-19 02:57:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow shows a chart of the number of candidates from each party challeng
 
 Full story on F3News: [Huge number of Democratic challengers in 2018](http://www.f3nws.com/n/sYJYK)
 
-> Posted on: Tuesday, December 19, 2017 4:11:28 AM
+> Posted on: Tuesday, December 19, 2017 2:57:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump legal team set to meet with Mueller"
-date: 2017-12-19 04:26:06Z
+date: 2017-12-19 02:35:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Sari Horwitz, Justice Department reporter for The Washington Post, talks with Ra
 
 Full story on F3News: [Trump legal team set to meet with Mueller](http://www.f3nws.com/n/EPa4EC)
 
-> Posted on: Tuesday, December 19, 2017 4:26:06 AM
+> Posted on: Tuesday, December 19, 2017 2:35:00 AM
