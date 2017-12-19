@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump judicial nominee withdraws after viral hearing video"
-date: 2017-12-19 04:40:48Z
+date: 2017-12-19 11:26:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Matthew Petersen, President Donald Trump's district court nominee who struggled 
 
 Full story on F3News: [Trump judicial nominee withdraws after viral hearing video](http://www.f3nws.com/n/deRWBC)
 
-> Posted on: Tuesday, December 19, 2017 4:40:48 AM
+> Posted on: Tuesday, December 19, 2017 11:26:25 AM
