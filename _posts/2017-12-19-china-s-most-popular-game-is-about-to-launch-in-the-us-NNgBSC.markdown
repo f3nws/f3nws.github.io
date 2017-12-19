@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "China's most popular game is about to launch in the US"
+date: 2017-12-19 00:19:00Z
+categories: engadget
+---
+
+![China's most popular game is about to launch in the US](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D4557%252C3037%252C0%252C290%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1067%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F715e04f5cc521678cbc424960c952e5a%252F205964235%252Fmatch-of-the-mobile-game-named-arena-of-valor-are-held-in-a-shopping-picture-id857380148%26client%3Da1acac3e1b3290917d92%26signature%3D7f5203a5fe26ac2818eb38956f79c08edd626d5f&client=cbc79c14efcebee57402&signature=af7b8f80498cc6d30371341ffd67eebf95a131e9)
+
+You might not have even heard of Arena of Valor (outside of a Twitch tourney ), but it's all-consuming in its native China, with 200 million registered players and over 80 million daily active users. Tencent's mobile-only MOBA game, known as Honor of Kings in its original form, is so popular in its homeland that tournaments are everywhere and the game has time limits to prevent kids from playing too long. And now, Tencent wants it to become a household name in the rest of the world. In a confirmation of some earlier rumors , the tech giant is formally launching Arena of Valor worldwide on December 19th, with users in North and South America getting their first crack at the Android and iOS hit. Watch Arena of Valor MAJOR Announcement & Giveaways! from ArenaofValor on www.twitch.tv Arena sticks to Honor's core MOBA formula, where teams of five distinctive heroes clash in a bid to take over each other's bases. The largest change is a cultural one: Arena drops Chinese legends in favor of Western fantasy tropes, and it switches to Facebook for connecting friends instead of WeChat. The game has been available in Europe since August, and has had at least some success with more than 2 million downloads. The problem, as The Verge notes, is that Chinese companies have historically had problems translating the success of their domestic games to an international audience. The titles rarely have any name recognition outside of China, and there are differences in gaming habits that make success difficult. Where limited access to games has led to MOBAs becoming wildly popular on phones in China, there's a stigma against mobile gaming in North America. Tencent is creating an eSports league to boost competitive play and is partnering with livestreamers to drum up hype, but there's no guarantee of success -- certainly not when it has to take on established titles like Vainglory . However, it's the attempt that matters. Chinese behemoths like Tencent know they'll have to move beyond their home turf to keep growing, and that means doing more than acquiring foreign companies (T...
+
+
+Full story on F3News: [China's most popular game is about to launch in the US](http://www.f3nws.com/n/NNgBSC)
+
+> Posted on: Tuesday, December 19, 2017 12:19:00 AM
