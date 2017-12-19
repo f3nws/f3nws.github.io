@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Disney adds Trump robot to its Hall of Presidents"
-date: 2017-12-19 14:24:26Z
+date: 2017-12-19 15:53:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Hall of Presidents at the Magic Kingdom Park at Disney World in Florida is s
 
 Full story on F3News: [Disney adds Trump robot to its Hall of Presidents](http://www.f3nws.com/n/PzkNuH)
 
-> Posted on: Tuesday, December 19, 2017 2:24:26 PM
+> Posted on: Tuesday, December 19, 2017 3:53:14 PM
