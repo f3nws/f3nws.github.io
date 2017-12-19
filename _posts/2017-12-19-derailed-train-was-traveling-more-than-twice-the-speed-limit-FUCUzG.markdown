@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Derailed train was traveling more than twice the speed limit"
-date: 2017-12-19 20:03:46Z
+date: 2017-12-19 21:23:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Amtrak passenger train that derailed Monday in Washington state was travelin
 
 Full story on F3News: [Derailed train was traveling more than twice the speed limit](http://www.f3nws.com/n/FUCUzG)
 
-> Posted on: Tuesday, December 19, 2017 8:03:46 PM
+> Posted on: Tuesday, December 19, 2017 9:23:35 PM

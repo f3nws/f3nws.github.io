@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republican tax overhaul clears first hurdle"
-date: 2017-12-19 19:54:42Z
+date: 2017-12-19 21:20:38Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House of Representatives approved the final version of the first overhaul of
 
 Full story on F3News: [Republican tax overhaul clears first hurdle](http://www.f3nws.com/n/WNvgaE)
 
-> Posted on: Tuesday, December 19, 2017 7:54:42 PM
+> Posted on: Tuesday, December 19, 2017 9:20:38 PM
