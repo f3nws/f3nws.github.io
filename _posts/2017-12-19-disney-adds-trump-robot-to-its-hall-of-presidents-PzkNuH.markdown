@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Disney adds Trump robot to its Hall of Presidents"
+date: 2017-12-19 14:24:26Z
+categories: cnn-com-top-stories
+---
+
+![Disney adds Trump robot to its Hall of Presidents](http://cdn.cnn.com/cnnnext/dam/assets/171219074233-disney-world-super-tease.jpg)
+
+The Hall of Presidents at the Magic Kingdom Park at Disney World in Florida is set to reopen Tuesday -- featuring a new robot President Donald Trump.
+
+
+Full story on F3News: [Disney adds Trump robot to its Hall of Presidents](http://www.f3nws.com/n/PzkNuH)
+
+> Posted on: Tuesday, December 19, 2017 2:24:26 PM
