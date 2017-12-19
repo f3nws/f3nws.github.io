@@ -5,6 +5,8 @@ date: 2017-12-19 01:00:00Z
 categories: fox-news
 ---
 
+![White House says North Korea was behind massive ‘WannaCry’ cyberattack in May](http://www.foxnews.com/content/dam/fox-news/logo/og-fn-foxnews.jpg)
+
 North Korea was behind the massive 'WannaCry' cyberattack in May that spread around the world costing billions of dollars, White House Homeland Security Adviser Tom Bossert announced in a Wall Street Journal op-ed Monday.
 
 
