@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Teenager's drowning at Glenelg prompts push for better swimming programs for migrants - ABC Online](http://www.abc.net.au/news/image/9271000-16x9-700x394.jpg)
 
-ABC Online Teenager's drowning at Glenelg prompts push for better swimming programs for migrants ABC Online Two recent drownings at one of Adelaide's most popular beaches should spur authorities to do more to fund swimming education for migrants and tourists, surf lifesavers have said. A 15-year-old boy of African heritage last night became the latest victim ... 'You weak dogs': Abuse hurled at friends of drowned teen 9news.com.au SA drownings spark call for more education The Australian Adelaide teenager dies as summer drowning toll mounts The Guardian Ten Eyewitness News - Yahoo7 News - Daily Mail - Infosurhoy all 12 news articles »
+ABC Online Teenager's drowning at Glenelg prompts push for better swimming programs for migrants ABC Online Two recent drownings at one of Adelaide's most popular beaches should spur authorities to do more to fund swimming education for migrants and tourists, surf lifesavers have said. A 15-year-old boy of African heritage last night became the latest victim ... 'You weak dogs': Abuse hurled at friends of drowned teen 9news.com.au SA drownings spark call for more education The Australian Teenage boy drowns at Glenelg beach Ten Eyewitness News Yahoo7 News - Newburgh Gazette - ClickLancashire all 18 news articles »
 
 
 Full story on F3News: [Teenager's drowning at Glenelg prompts push for better swimming programs for migrants - ABC Online](http://www.f3nws.com/n/e4nePJ)
