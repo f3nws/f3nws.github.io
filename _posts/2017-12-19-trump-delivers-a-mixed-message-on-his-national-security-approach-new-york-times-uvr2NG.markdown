@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Delivers a Mixed Message on His National Security Approach - New York Times](https://static01.nyt.com/images/2017/12/19/us/19dc-security-new/19dc-security-new-facebookJumbo.jpg)
 
-New York Times Trump Delivers a Mixed Message on His National Security Approach New York Times WASHINGTON — President Trump presented a blueprint for the country's national security on Monday that warns of a treacherous world in which the United States faces rising threats from an emboldened Russia and China, as well as from what it calls rogue ... 5 things to know about Trump's national security strategy CNN A Bold Strategy to Save Trump From Trumpism Bloomberg Trump tries 'America First' national security strategy The Hill Los Angeles Times - Washington Post - National Review - Business Insider all 824 news articles »
+New York Times Trump Delivers a Mixed Message on His National Security Approach New York Times WASHINGTON — President Trump presented a blueprint for the country's national security on Monday that warns of a treacherous world in which the United States faces rising threats from an emboldened Russia and China, as well as from what it calls rogue ... 5 things to know about Trump's national security strategy CNN Trump tries 'America First' national security strategy The Hill A Bold Strategy to Save Trump From Trumpism Bloomberg Los Angeles Times - Washington Post - The Atlantic - Business Insider all 844 news articles »
 
 
 Full story on F3News: [Trump Delivers a Mixed Message on His National Security Approach - New York Times](http://www.f3nws.com/n/uvr2NG)

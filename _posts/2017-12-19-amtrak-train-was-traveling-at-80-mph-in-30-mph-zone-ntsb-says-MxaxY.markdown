@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amtrak train was traveling at 80 mph in 30 mph zone, NTSB says"
-date: 2017-12-19 08:00:00Z
+date: 2017-12-19 09:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An Amtrak train on its inaugural ride on a new line in Washington Monday was rep
 
 Full story on F3News: [Amtrak train was traveling at 80 mph in 30 mph zone, NTSB says](http://www.f3nws.com/n/MxaxY)
 
-> Posted on: Tuesday, December 19, 2017 8:00:00 AM
+> Posted on: Tuesday, December 19, 2017 9:45:00 AM
