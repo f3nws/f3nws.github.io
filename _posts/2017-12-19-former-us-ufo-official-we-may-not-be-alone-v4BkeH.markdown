@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former US UFO official: 'We may not be alone'"
-date: 2017-12-19 04:07:01Z
+date: 2017-12-19 12:00:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A former Pentagon official who led a recently revealed government program to res
 
 Full story on F3News: [Former US UFO official: 'We may not be alone'](http://www.f3nws.com/n/v4BkeH)
 
-> Posted on: Tuesday, December 19, 2017 4:07:01 AM
+> Posted on: Tuesday, December 19, 2017 12:00:09 PM

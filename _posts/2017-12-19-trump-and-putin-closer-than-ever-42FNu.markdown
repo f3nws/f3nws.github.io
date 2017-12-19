@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump and Putin, closer than ever"
-date: 2017-12-19 06:11:01Z
+date: 2017-12-19 11:56:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After President Donald Trump spoke by phone on Sunday from a cabin at Camp David
 
 Full story on F3News: [Trump and Putin, closer than ever](http://www.f3nws.com/n/42FNu)
 
-> Posted on: Tuesday, December 19, 2017 6:11:01 AM
+> Posted on: Tuesday, December 19, 2017 11:56:09 AM
