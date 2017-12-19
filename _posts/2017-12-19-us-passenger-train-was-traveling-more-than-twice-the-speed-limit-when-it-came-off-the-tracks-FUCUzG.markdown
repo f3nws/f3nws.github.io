@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US passenger train was traveling more than twice the speed limit when it came off the tracks"
-date: 2017-12-19 11:22:57Z
+date: 2017-12-19 12:54:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Amtrak passenger train that derailed Monday in Washington state was travelin
 
 Full story on F3News: [US passenger train was traveling more than twice the speed limit when it came off the tracks](http://www.f3nws.com/n/FUCUzG)
 
-> Posted on: Tuesday, December 19, 2017 11:22:57 AM
+> Posted on: Tuesday, December 19, 2017 12:54:41 PM
