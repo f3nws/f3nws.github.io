@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Local Washington mayor feared deadly accidents weeks before Amtrak derailment"
-date: 2017-12-19 00:35:00Z
+date: 2017-12-19 01:50:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An Amtrak train carrying more than 70 passengers derailed in Washington state Mo
 
 Full story on F3News: [Local Washington mayor feared deadly accidents weeks before Amtrak derailment](http://www.f3nws.com/n/AAP2R)
 
-> Posted on: Tuesday, December 19, 2017 12:35:00 AM
+> Posted on: Tuesday, December 19, 2017 1:50:00 AM

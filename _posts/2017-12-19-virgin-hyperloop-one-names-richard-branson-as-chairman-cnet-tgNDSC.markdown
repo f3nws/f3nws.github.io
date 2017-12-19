@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Virgin Hyperloop One names Richard Branson as chairman     - CNET"
-date: 2017-12-19 00:14:32Z
+date: 2017-12-19 01:28:45Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Transportation startup also announces it has raised another $50 million and achi
 
 Full story on F3News: [Virgin Hyperloop One names Richard Branson as chairman     - CNET](http://www.f3nws.com/n/tgNDSC)
 
-> Posted on: Tuesday, December 19, 2017 12:14:32 AM
+> Posted on: Tuesday, December 19, 2017 1:28:45 AM

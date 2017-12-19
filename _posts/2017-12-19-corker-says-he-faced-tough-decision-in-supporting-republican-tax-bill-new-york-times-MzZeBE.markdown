@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Corker Says He Faced 'Tough' Decision in Supporting Republican Tax Bill - New York Times](https://static01.nyt.com/images/2017/12/19/us/19dc-tax2/19dc-tax2-facebookJumbo.jpg)
 
-New York Times Corker Says He Faced 'Tough' Decision in Supporting Republican Tax Bill New York Times WASHINGTON — A day before Republicans are expected to begin voting on their $1.5 trillion tax cut, the big question was not whether it would pass but why the lone Republican Senate holdout, Bob Corker of Tennessee, suddenly flipped his position to ... Why Corker flipped on the tax bill Politico Senate GOP wary of ending Russia probes, despite pressure The Hill The tax code isn't a real emergency Washington Post Los Angeles Times - Slate Magazine - USA TODAY - TIME all 605 news articles »
+New York Times Corker Says He Faced 'Tough' Decision in Supporting Republican Tax Bill New York Times WASHINGTON — A day before Republicans are expected to begin voting on their $1.5 trillion tax cut, the big question was not whether it would pass but why the lone Republican Senate holdout, Bob Corker of Tennessee, suddenly flipped his position to ... GOP racing to tax votes The Hill Why Corker flipped on the tax bill Politico The tax code isn't a real emergency Washington Post CNN - Slate Magazine - Los Angeles Times - USA TODAY all 617 news articles »
 
 
 Full story on F3News: [Corker Says He Faced 'Tough' Decision in Supporting Republican Tax Bill - New York Times](http://www.f3nws.com/n/MzZeBE)
