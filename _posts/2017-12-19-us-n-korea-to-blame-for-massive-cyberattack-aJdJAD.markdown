@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US: N. Korea to blame for massive cyberattack"
-date: 2017-12-19 03:20:56Z
+date: 2017-12-19 07:17:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ White House homeland security adviser Tom Bossert said Monday the United States 
 
 Full story on F3News: [US: N. Korea to blame for massive cyberattack](http://www.f3nws.com/n/aJdJAD)
 
-> Posted on: Tuesday, December 19, 2017 3:20:56 AM
+> Posted on: Tuesday, December 19, 2017 7:17:10 AM

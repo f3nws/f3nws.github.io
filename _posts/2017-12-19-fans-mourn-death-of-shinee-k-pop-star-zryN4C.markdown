@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fans mourn death of SHINee K-pop star"
-date: 2017-12-19 06:38:35Z
+date: 2017-12-19 06:45:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fans of K-pop superstar Kim Jong-hyun are expressing their grief at the loss of 
 
 Full story on F3News: [Fans mourn death of SHINee K-pop star](http://www.f3nws.com/n/zryN4C)
 
-> Posted on: Tuesday, December 19, 2017 6:38:35 AM
+> Posted on: Tuesday, December 19, 2017 6:45:10 AM
