@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House axes online petition tool to build new one"
-date: 2017-12-19 02:38:13Z
+date: 2017-12-19 02:38:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The White House temporarily removed its “We The People” petition tool from i
 
 Full story on F3News: [White House axes online petition tool to build new one](http://www.f3nws.com/n/XJxnPB)
 
-> Posted on: Tuesday, December 19, 2017 2:38:13 AM
+> Posted on: Tuesday, December 19, 2017 2:38:00 AM
