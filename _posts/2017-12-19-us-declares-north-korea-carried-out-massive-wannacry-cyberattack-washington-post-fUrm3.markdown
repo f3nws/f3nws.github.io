@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US declares North Korea carried out massive WannaCry cyberattack - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/12/18/National-Security/Images/AFP_V43J2.jpg?t=20170517)
 
-Washington Post US declares North Korea carried out massive WannaCry cyberattack Washington Post The Trump administration on Monday evening publicly acknowledged that North Korea was behind the WannaCry computer worm that affected more than 230,000 computers in over 150 countries earlier this year. As a result, the administration will be calling ... US to officially accuse North Korea of WannaCry cyber attack: report The Hill Cyber-Attack: US blames North Korea for WannaCry BBC News Trump administration blames North Korea for 'WannaCry' ransomware attack NBCNews.com U.S. News & World Report - Politico - Business Insider - CBS News all 230 news articles »
+Washington Post US declares North Korea carried out massive WannaCry cyberattack Washington Post The Trump administration on Monday evening publicly acknowledged that North Korea was behind the WannaCry computer worm that affected more than 230,000 computers in over 150 countries earlier this year. As a result, the administration will be calling ... US to officially accuse North Korea of WannaCry cyber attack: report The Hill Trump administration blames North Korea for 'WannaCry' ransomware attack NBCNews.com Cyber-Attack: US blames North Korea for WannaCry BBC News Politico - TechCrunch - CBS News - Bloomberg all 240 news articles »
 
 
 Full story on F3News: [US declares North Korea carried out massive WannaCry cyberattack - Washington Post](http://www.f3nws.com/n/fUrm3)

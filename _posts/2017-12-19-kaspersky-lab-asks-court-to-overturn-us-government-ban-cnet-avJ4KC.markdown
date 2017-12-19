@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kaspersky Lab asks court to overturn US government ban     - CNET"
-date: 2017-12-19 03:32:11Z
+date: 2017-12-19 05:09:06Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Moscow-based software company says a Trump administration ban on the use of 
 
 Full story on F3News: [Kaspersky Lab asks court to overturn US government ban     - CNET](http://www.f3nws.com/n/avJ4KC)
 
-> Posted on: Tuesday, December 19, 2017 3:32:11 AM
+> Posted on: Tuesday, December 19, 2017 5:09:06 AM
