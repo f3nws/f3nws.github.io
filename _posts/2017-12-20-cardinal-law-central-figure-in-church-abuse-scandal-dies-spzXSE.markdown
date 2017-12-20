@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cardinal Law, central figure in church abuse scandal, dies"
-date: 2017-12-20 05:25:00Z
+date: 2017-12-20 06:20:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ VATICAN CITY (AP) — Cardinal Bernard Law, the disgraced former archbishop of B
 
 Full story on F3News: [Cardinal Law, central figure in church abuse scandal, dies](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Wednesday, December 20, 2017 5:25:00 AM
+> Posted on: Wednesday, December 20, 2017 6:20:00 AM
