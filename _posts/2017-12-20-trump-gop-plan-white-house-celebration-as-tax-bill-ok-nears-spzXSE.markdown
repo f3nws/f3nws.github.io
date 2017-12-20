@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump, GOP plan White House celebration as tax bill OK nears"
-date: 2017-12-20 10:36:00Z
+date: 2017-12-20 11:29:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Jubilant Republican lawmakers laid plans to join President D
 
 Full story on F3News: [Trump, GOP plan White House celebration as tax bill OK nears](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Wednesday, December 20, 2017 10:36:00 AM
+> Posted on: Wednesday, December 20, 2017 11:29:00 AM
