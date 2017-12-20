@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "EU rules Uber is taxi service - not just an app"
-date: 2017-12-20 12:52:42Z
+date: 2017-12-20 13:22:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [EU rules Uber is taxi service - not just an app](http://www.f3nws.com/n/pNkYKE)
 
-> Posted on: Wednesday, December 20, 2017 12:52:42 PM
+> Posted on: Wednesday, December 20, 2017 1:22:34 PM

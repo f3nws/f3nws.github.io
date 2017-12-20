@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Myanmar bans UN official after grave found"
-date: 2017-12-20 12:27:45Z
+date: 2017-12-20 13:10:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Myanmar has banned a United Nations official investigating the ongoing crackdown
 
 Full story on F3News: [Myanmar bans UN official after grave found](http://www.f3nws.com/n/CE4xGG)
 
-> Posted on: Wednesday, December 20, 2017 12:27:45 PM
+> Posted on: Wednesday, December 20, 2017 1:10:10 PM
