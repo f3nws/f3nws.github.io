@@ -5,7 +5,9 @@ date: 2017-12-20 19:11:45Z
 categories: google-news-top-stories
 ---
 
-Fox News Case against Cliven Bundy, Nevada rancher involved in 2014 armed standoff, declared a mistrial Fox News The Nevada ranchers face charges of assault and obstruction after engaging in a standoff with federal agents over grazing rights on their land; William La Jeunesse reports for 'Special Report.' A federal judge declared a mistrial Wednesday in the case ... Judge declares mistrial in case of Nevada rancher's standoff with federal government Los Angeles Times Mistrial declared in Cliven Bundy standoff case OregonLive.com Mistrial Declared in Case Against Nevada Rancher Cliven Bundy U.S. News & World Report The Hill (blog) - Washington Times - CBS Local - CBC.ca all 137 news articles »
+![Case against Cliven Bundy, Nevada rancher involved in 2014 armed standoff, declared a mistrial - Fox News](http://a57.foxnews.com/images.foxnews.com/content/dam/fox-news/images/2017/12/20/ap17349743305884.jpg.img.png/0/0/1513795233376.png?ve=1)
+
+Fox News Case against Cliven Bundy, Nevada rancher involved in 2014 armed standoff, declared a mistrial Fox News The Nevada ranchers face charges of assault and obstruction after engaging in a standoff with federal agents over grazing rights on their land; William La Jeunesse reports for 'Special Report.' A federal judge declared a mistrial Wednesday in the case ... Judge declares mistrial in case of Nevada rancher's standoff with federal government Los Angeles Times Mistrial declared in Cliven Bundy standoff case OregonLive.com Mistrial Declared in Case Against Nevada Rancher Cliven Bundy U.S. News & World Report The Hill (blog) - Washington Times - The Daily Caller - CBC.ca all 141 news articles »
 
 
 Full story on F3News: [Case against Cliven Bundy, Nevada rancher involved in 2014 armed standoff, declared a mistrial - Fox News](http://www.f3nws.com/n/p4UxRB)
