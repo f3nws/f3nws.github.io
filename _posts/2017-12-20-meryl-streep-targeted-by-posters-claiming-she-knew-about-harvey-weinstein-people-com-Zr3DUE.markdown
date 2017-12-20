@@ -5,6 +5,8 @@ date: 2017-12-20 00:54:19Z
 categories: google-news-entertaintment
 ---
 
+![Meryl Streep Targeted by Posters Claiming 'She Knew' About Harvey Weinstein - PEOPLE.com](https://peopledotcom.files.wordpress.com/2017/12/meryl-streep1.jpg?crop=0px%2C35px%2C2000px%2C1051px&resize=1200%2C630)
+
 PEOPLE.com Meryl Streep Targeted by Posters Claiming 'She Knew' About Harvey Weinstein PEOPLE.com Posters featuring a photograph of Meryl Streep next to Harvey Weinstein with the phrase “She Knew” written across the actress's eyes popped up around Los Angeles on Tuesday. Streep has denied that she was aware of Weinstein's alleged sexual misconduct ... Meryl Streep responds to Rose McGowan's slam CNN Amber Tamblyn Criticizes Rose McGowan for Golden Globes Tweet Hollywood Reporter Rose McGowan: I Never Accused Meryl Streep of Deliberately Staying Silent on Harvey Weinstein Us Weekly The Mary Sue - Quartz - The Hollywood Gossip - Mashable all 83 news articles »
 
 
