@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 ways 'Star Wars: The Last Jedi' left me so confused     - CNET"
-date: 2017-12-20 01:23:24Z
+date: 2017-12-20 01:36:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Change is hard, but the newest Star Wars movie doesn't hold back from rewriting 
 
 Full story on F3News: [5 ways 'Star Wars: The Last Jedi' left me so confused     - CNET](http://www.f3nws.com/n/TqZQVC)
 
-> Posted on: Wednesday, December 20, 2017 1:23:24 AM
+> Posted on: Wednesday, December 20, 2017 1:36:27 AM

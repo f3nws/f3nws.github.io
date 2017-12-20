@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Review: Bridge Constructor Portal brings the fun of Valve's hit game to iOS in a clever way - 9to5Mac](https://9to5mac.files.wordpress.com/2017/12/levelheader.jpg?quality=82&strip=all&w=1600)
 
-9to5Mac Review: Bridge Constructor Portal brings the fun of Valve's hit game to iOS in a clever way 9to5Mac In most circumstances, I'd be repelled by a chilling, robotic voice mocking me from inside of my phone. The one exception is if that voice belongs to GLaDOS, the sharp-witted, snide, and devilishly funny computer that provides background commentary for ... 'Bridge Constructor Portal' review Digital Trends Review: Bridge Constructor Portal Destructoid Bridge Constructor Portal comes complete with more GLaDOS Polygon IGN - Wccftech - Android Authority (blog) all 13 news articles »
+9to5Mac Review: Bridge Constructor Portal brings the fun of Valve's hit game to iOS in a clever way 9to5Mac In most circumstances, I'd be repelled by a chilling, robotic voice mocking me from inside of my phone. The one exception is if that voice belongs to GLaDOS, the sharp-witted, snide, and devilishly funny computer that provides background commentary for ... Review: 'Bridge Constructor Portal' for iOS brings new ideas to the building puzzle genre AppleInsider (press release) (blog) 'Bridge Constructor Portal' review Digital Trends Review: Bridge Constructor Portal Destructoid Polygon - IGN - Android Authority (blog) - Wccftech all 13 news articles »
 
 
 Full story on F3News: [Review: Bridge Constructor Portal brings the fun of Valve's hit game to iOS in a clever way - 9to5Mac](http://www.f3nws.com/n/hBhDJH)
