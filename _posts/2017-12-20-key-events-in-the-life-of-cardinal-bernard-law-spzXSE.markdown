@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Key events in the life of Cardinal Bernard Law"
-date: 2017-12-20 00:48:00Z
+date: 2017-12-20 01:34:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ Key dates in the life of Cardinal Bernard Law, who died early Wednesday at age 8
 
 Full story on F3News: [Key events in the life of Cardinal Bernard Law](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Wednesday, December 20, 2017 12:48:00 AM
+> Posted on: Wednesday, December 20, 2017 1:34:00 AM
