@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former Navy pilot: I saw a UFO"
-date: 2017-12-20 03:36:31Z
+date: 2017-12-20 08:46:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Retired US Navy pilot David Fravor trusts what he saw with his own two eyes. And
 
 Full story on F3News: [Former Navy pilot: I saw a UFO](http://www.f3nws.com/n/gtptzB)
 
-> Posted on: Wednesday, December 20, 2017 3:36:31 AM
+> Posted on: Wednesday, December 20, 2017 8:46:14 AM
