@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Lady Florence Bjelke-Petersen dies at 97](http://www.abc.net.au/news/image/9277300-16x9-700x394.jpg)
 
-Former senator Lady Florence Bjelke-Petersen dies at 97 years of age.
+The former Nationals senator and wife of Queensland premier Sir Joh Bjelke-Petersen dies after a short period of illness.
 
 
 Full story on F3News: [Lady Florence Bjelke-Petersen dies at 97](http://www.f3nws.com/n/FYxGSD)

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![12 cruise ship passengers dead after bus crashes in Mexico - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Images/2017-12-19/Getty/AFP_VB2XO.jpg?t=20170517)
 
-Washington Post 12 cruise ship passengers dead after bus crashes in Mexico Washington Post At least 12 people died after a bus carrying cruise ship passengers from South Florida to Mayan ruins in eastern Mexico flipped over a highway early Tuesday. The nationalities of those who died have not yet been confirmed. Among those injured were ... At least 12 dead in tourist bus crash in Mexico, according to officials CBS News 12 killed as bus carrying foreign tourists crashes in Mexico Sacramento Bee 12 reported dead as tourist bus crashes in Mexico Miami Herald NPR - Austin American-Statesman - BBC News - Sun Sentinel all 117 news articles »
+Washington Post 12 cruise ship passengers dead after bus crashes in Mexico Washington Post At least 12 people died after a bus carrying cruise ship passengers from South Florida to Mayan ruins in eastern Mexico flipped over a highway early Tuesday. The nationalities of those who died have not yet been confirmed. Among those injured were ... At least 12 dead in tourist bus crash in Mexico, according to officials CBS News Twelve Dead After Bus Carrying Mainly American Cruise Passengers Crashes in Mexico PEOPLE.com 12 reported dead as tourist bus crashes in Mexico Miami Herald U.S. News & World Report - NPR - CNBC - Austin American-Statesman all 124 news articles »
 
 
 Full story on F3News: [12 cruise ship passengers dead after bus crashes in Mexico - Washington Post](http://www.f3nws.com/n/BfHuaD)

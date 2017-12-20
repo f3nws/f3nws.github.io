@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate moves tax cut legislation to brink of final passage"
-date: 2017-12-20 01:19:00Z
+date: 2017-12-20 03:32:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — Jubilant Republicans pushed on early Wednesday to the verge 
 
 Full story on F3News: [Senate moves tax cut legislation to brink of final passage](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Wednesday, December 20, 2017 1:19:00 AM
+> Posted on: Wednesday, December 20, 2017 3:32:00 AM
