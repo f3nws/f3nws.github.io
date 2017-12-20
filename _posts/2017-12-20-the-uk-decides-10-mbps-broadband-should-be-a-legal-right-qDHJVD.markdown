@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "The UK decides 10 Mbps broadband should be a legal right"
+date: 2017-12-20 09:51:00Z
+categories: engadget
+---
+
+![The UK decides 10 Mbps broadband should be a legal right](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D2508%252C1511%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C964%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F4638b6b7dac126d326a3aa399c0db4c1%252F205968189%252Fgeneric-picture-of-a-bt-home-broadband-hub-picture-id852275356%26client%3Da1acac3e1b3290917d92%26signature%3Dd8a7af8ddaec0b5d9f87847178d2e515f3d104d2&client=cbc79c14efcebee57402&signature=f0c2870e2db80800571c4d556ebcf4b5b3bfc902)
+
+Over the past decade, the UK government has attempted to lock in a basic level of broadband service across Britain. The idea is that by 2020 , members of the public will have the legal right to request speeds of at least 10 Mbps from their ISP, whether they happen to live in a big city or in the countryside. It's all part of the government's Universal Service Obligation (USO), which was laid out in the Digital Economy Act passed earlier this year . Ministers originally considered adopting BT's voluntary offer, which would have seen it spend up to £600 million giving 1.4 million rural residents access to speeds of at least 10 Mbps. However, in a statement today, the government confirmed that it now will go down the regulatory route as it provides "sufficient certainty and the legal enforceability that is required to ensure high speed broadband access for the whole of the UK by 2020." Culture Secretary Karen Bradley said: "We know how important broadband is to homes and businesses and we want everyone to benefit from a fast and reliable connection. We are grateful to BT for their proposal but have decided that only a regulatory approach will make high speed broadband a reality for everyone in the UK, regardless of where they live or work." The government will now begin setting out what the Universal Service Obligation (USO) must include. It's expected that legislation will be passed in early 2018 and that it will take roughly two years to formally introduce the minimum expected speeds previously laid out by Ofcom. While it's certainly a blow for BT, the government is confident it's made the correct decision. It believes that by introducing legislation, minimum speeds can be increased as consumers' requirements evolve and that no household will be left behind (subject to a cost threshold). The good news is that fixed line "superfast broadband" connections -- which provide speeds of 24 Mbps or more -- currently cover an estimated 95 percent of UK homes and businesses. Thanks to the Government's subsidised Broadband Delivery UK programme, that figure could reach...
+
+
+Full story on F3News: [The UK decides 10 Mbps broadband should be a legal right](http://www.f3nws.com/n/qDHJVD)
+
+> Posted on: Wednesday, December 20, 2017 9:51:00 AM
