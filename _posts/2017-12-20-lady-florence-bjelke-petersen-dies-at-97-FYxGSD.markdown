@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Lady Florence Bjelke-Petersen dies at 97](http://www.abc.net.au/news/image/9277300-16x9-700x394.jpg)
 
-The former Nationals senator and wife of Queensland premier Sir Joh Bjelke-Petersen dies after a short period of illness.
+The former Nationals senator and wife of Queensland's most controversial premier dies in a Kingaroy nursing home surrounded by family, after a short period of illness.
 
 
 Full story on F3News: [Lady Florence Bjelke-Petersen dies at 97](http://www.f3nws.com/n/FYxGSD)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Belgium to appoint first-ever female Saudi ambassador"
-date: 2017-12-20 08:37:26Z
+date: 2017-12-20 09:05:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Belgium is likely to be the first country to send a female ambassador to Saudi A
 
 Full story on F3News: [Belgium to appoint first-ever female Saudi ambassador](http://www.f3nws.com/n/NSDdYF)
 
-> Posted on: Wednesday, December 20, 2017 8:37:26 AM
+> Posted on: Wednesday, December 20, 2017 9:05:12 AM
