@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive leak exposes data on 123 million US households     - CNET"
-date: 2017-12-20 02:01:25Z
+date: 2017-12-20 13:40:33Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ An unsecured database contained a wide range of personal details about virtually
 
 Full story on F3News: [Massive leak exposes data on 123 million US households     - CNET](http://www.f3nws.com/n/VtngkB)
 
-> Posted on: Wednesday, December 20, 2017 2:01:25 AM
+> Posted on: Wednesday, December 20, 2017 1:40:33 PM

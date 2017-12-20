@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump administration finds success in bringing home Americans detained abroad"
-date: 2017-12-20 13:45:03Z
+date: 2017-12-20 14:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump is well known for his brash and confrontational style of governi
 
 Full story on F3News: [Trump administration finds success in bringing home Americans detained abroad](http://www.f3nws.com/n/buGWSJ)
 
-> Posted on: Wednesday, December 20, 2017 1:45:03 PM
+> Posted on: Wednesday, December 20, 2017 2:00:00 PM
