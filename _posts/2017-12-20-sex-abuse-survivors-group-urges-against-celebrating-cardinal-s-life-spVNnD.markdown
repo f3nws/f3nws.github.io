@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sex abuse survivors group urges against celebrating Cardinal's life"
-date: 2017-12-20 15:32:00Z
+date: 2017-12-20 20:51:13Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ Cardinal Bernard Law, who has died 15 years after he resigned as Boston's archbi
 
 Full story on F3News: [Sex abuse survivors group urges against celebrating Cardinal's life](http://www.f3nws.com/n/spVNnD)
 
-> Posted on: Wednesday, December 20, 2017 3:32:00 PM
+> Posted on: Wednesday, December 20, 2017 8:51:13 PM

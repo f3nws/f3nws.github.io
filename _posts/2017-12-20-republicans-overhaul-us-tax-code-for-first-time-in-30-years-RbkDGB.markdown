@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans overhaul US tax code for first time in 30 years"
-date: 2017-12-20 21:14:31Z
+date: 2017-12-20 22:37:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House of Representatives gave final approval Wednesday afternoon to its majo
 
 Full story on F3News: [Republicans overhaul US tax code for first time in 30 years](http://www.f3nws.com/n/RbkDGB)
 
-> Posted on: Wednesday, December 20, 2017 9:14:31 PM
+> Posted on: Wednesday, December 20, 2017 10:37:44 PM
