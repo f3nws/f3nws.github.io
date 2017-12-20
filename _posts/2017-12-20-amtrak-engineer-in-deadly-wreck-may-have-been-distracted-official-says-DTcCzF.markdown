@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amtrak engineer in deadly wreck may have been distracted, official says"
-date: 2017-12-20 00:15:00Z
+date: 2017-12-20 03:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Federal investigators are looking into whether the Amtrak engineer operating a t
 
 Full story on F3News: [Amtrak engineer in deadly wreck may have been distracted, official says](http://www.f3nws.com/n/DTcCzF)
 
-> Posted on: Wednesday, December 20, 2017 12:15:00 AM
+> Posted on: Wednesday, December 20, 2017 3:15:00 AM
