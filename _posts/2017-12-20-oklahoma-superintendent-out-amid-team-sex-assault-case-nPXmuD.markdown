@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oklahoma superintendent out amid team sex assault case"
-date: 2017-12-20 02:16:44Z
+date: 2017-12-20 02:48:24Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ An Oklahoma superintendent resigned Tuesday amid an investigation of accusations
 
 Full story on F3News: [Oklahoma superintendent out amid team sex assault case](http://www.f3nws.com/n/nPXmuD)
 
-> Posted on: Wednesday, December 20, 2017 2:16:44 AM
+> Posted on: Wednesday, December 20, 2017 2:48:24 AM
