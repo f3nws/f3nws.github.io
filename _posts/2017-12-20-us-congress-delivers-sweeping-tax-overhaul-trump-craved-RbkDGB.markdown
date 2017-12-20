@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Congress delivers sweeping tax overhaul Trump craved"
-date: 2017-12-20 17:58:20Z
+date: 2017-12-20 20:28:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House of Representatives gave final approval Wednesday afternoon to its majo
 
 Full story on F3News: [US Congress delivers sweeping tax overhaul Trump craved](http://www.f3nws.com/n/RbkDGB)
 
-> Posted on: Wednesday, December 20, 2017 5:58:20 PM
+> Posted on: Wednesday, December 20, 2017 8:28:34 PM
