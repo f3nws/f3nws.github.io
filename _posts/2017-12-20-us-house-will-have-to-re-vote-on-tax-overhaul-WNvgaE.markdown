@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US House will have to re-vote on tax overhaul"
-date: 2017-12-20 00:23:50Z
+date: 2017-12-20 05:53:12Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The House of Representatives approved the final version of the first overhaul of
 
 Full story on F3News: [US House will have to re-vote on tax overhaul](http://www.f3nws.com/n/WNvgaE)
 
-> Posted on: Wednesday, December 20, 2017 12:23:50 AM
+> Posted on: Wednesday, December 20, 2017 5:53:12 AM
