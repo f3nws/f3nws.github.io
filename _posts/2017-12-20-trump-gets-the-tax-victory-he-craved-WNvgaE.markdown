@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump gets the tax victory he craved"
-date: 2017-12-20 11:37:39Z
+date: 2017-12-20 11:41:15Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ In a vote in the early Wednesday morning hours, the Senate approved the final ve
 
 Full story on F3News: [Trump gets the tax victory he craved](http://www.f3nws.com/n/WNvgaE)
 
-> Posted on: Wednesday, December 20, 2017 11:37:39 AM
+> Posted on: Wednesday, December 20, 2017 11:41:15 AM
