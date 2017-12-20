@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baby born from 25-year-old frozen embryo"
-date: 2017-12-20 00:24:20Z
+date: 2017-12-20 02:03:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The longest known frozen human embryo to result in a successful birth was born l
 
 Full story on F3News: [Baby born from 25-year-old frozen embryo](http://www.f3nws.com/n/mnGnFE)
 
-> Posted on: Wednesday, December 20, 2017 12:24:20 AM
+> Posted on: Wednesday, December 20, 2017 2:03:54 AM
