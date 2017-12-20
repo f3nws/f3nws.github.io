@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mexico tour bus crash leaves 12 dead, including 8 Americans, officials say"
-date: 2017-12-20 16:47:00Z
+date: 2017-12-20 21:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Eight Americans were among the 12 people killed when a bus carrying Royal Caribb
 
 Full story on F3News: [Mexico tour bus crash leaves 12 dead, including 8 Americans, officials say](http://www.f3nws.com/n/SSXvHE)
 
-> Posted on: Wednesday, December 20, 2017 4:47:00 PM
+> Posted on: Wednesday, December 20, 2017 9:00:00 PM

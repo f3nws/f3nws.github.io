@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US is 'taking names' on UN's Jerusalem resolution"
-date: 2017-12-20 18:51:32Z
+date: 2017-12-20 21:13:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to the United Nations Nikki Haley warns the US will be "taking nam
 
 Full story on F3News: [US is 'taking names' on UN's Jerusalem resolution](http://www.f3nws.com/n/JgbMZE)
 
-> Posted on: Wednesday, December 20, 2017 6:51:32 PM
+> Posted on: Wednesday, December 20, 2017 9:13:34 PM
