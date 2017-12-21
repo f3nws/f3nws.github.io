@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK minister resigns over porn scandal"
-date: 2017-12-21 02:14:12Z
+date: 2017-12-21 08:29:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ British Prime Minister Theresa May's de facto deputy, Damian Green, resigned Wed
 
 Full story on F3News: [UK minister resigns over porn scandal](http://www.f3nws.com/n/uGZEDF)
 
-> Posted on: Thursday, December 21, 2017 2:14:12 AM
+> Posted on: Thursday, December 21, 2017 8:29:33 AM
