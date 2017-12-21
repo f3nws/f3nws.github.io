@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin heading to $0.00 & many will lose everything when bubble pops – warns investor Peter Schiff"
-date: 2017-12-21 09:54:28Z
+date: 2017-12-21 09:54:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Bitcoin is a massive speculative bubble that will implode, and people who are bu
 
 Full story on F3News: [Bitcoin heading to $0.00 & many will lose everything when bubble pops – warns investor Peter Schiff](http://www.f3nws.com/n/zbADGJ)
 
-> Posted on: Thursday, December 21, 2017 9:54:28 AM
+> Posted on: Thursday, December 21, 2017 9:54:00 AM
