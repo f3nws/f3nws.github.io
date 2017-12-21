@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK spies boast ‘over-achievement’ in developing arsenal of hacking tools"
-date: 2017-12-21 00:56:38Z
+date: 2017-12-21 00:56:00Z
 categories: rt-uk
 ---
 
@@ -12,4 +12,4 @@ The UK’s largest spy agency, Government Communications Headquarters (GCHQ), ha
 
 Full story on F3News: [UK spies boast ‘over-achievement’ in developing arsenal of hacking tools](http://www.f3nws.com/n/Yqs3FG)
 
-> Posted on: Thursday, December 21, 2017 12:56:38 AM
+> Posted on: Thursday, December 21, 2017 12:56:00 AM
