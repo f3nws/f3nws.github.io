@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Father drowns in bid to rescue sons at Victorian beach - ABC Online](http://www.abc.net.au/news/image/237816-16x9-700x394.jpg)
 
-ABC Online Father drowns in bid to rescue sons at Victorian beach ABC Online Police are investigating after a father drowned while trying to rescue his two children at a surf beach on Victoria's south-west coast. Emergency services were called to Skenes Creek on the Great Ocean Road after the 41-year-old Sydenham man got into ... Father drowns after rescue bid at Skenes Creek, near Apollo Bay The Australian Father tragically dies trying to pull struggling boys from sea 9news.com.au Man drowns after rescuing his two children at Victorian beach The Age Herald Sun - SBS - NEWS.com.au - Geelong Advertiser all 14 news articles »
+ABC Online Father drowns in bid to rescue sons at Victorian beach ABC Online Police are investigating after a father drowned while trying to rescue his two children at a surf beach on Victoria's south-west coast. Emergency services were called to Skenes Creek on the Great Ocean Road after the 41-year-old Sydenham man got into ... Father tragically dies trying to pull struggling boys from sea 9news.com.au all 14 news articles »
 
 
 Full story on F3News: [Father drowns in bid to rescue sons at Victorian beach - ABC Online](http://www.f3nws.com/n/RV2Ma)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SUV plows into pedestrians in Australia; two in custody"
-date: 2017-12-21 10:00:00Z
+date: 2017-12-21 11:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least 14 people were injured Thursday when a white SUV plowed into a crowd of
 
 Full story on F3News: [SUV plows into pedestrians in Australia; two in custody](http://www.f3nws.com/n/RupVME)
 
-> Posted on: Thursday, December 21, 2017 10:00:00 AM
+> Posted on: Thursday, December 21, 2017 11:30:00 AM

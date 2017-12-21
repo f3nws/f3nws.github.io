@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "When Kathy Griffin's jokes crossed the line"
-date: 2017-12-21 09:45:02Z
+date: 2017-12-21 10:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ categories: fox-news
 
 Full story on F3News: [When Kathy Griffin's jokes crossed the line](http://www.f3nws.com/n/XHBqDJ)
 
-> Posted on: Thursday, December 21, 2017 9:45:02 AM
+> Posted on: Thursday, December 21, 2017 10:00:00 AM
