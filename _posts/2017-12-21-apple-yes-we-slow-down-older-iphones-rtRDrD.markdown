@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple: Yes, we slow down older iPhones"
-date: 2017-12-21 15:04:53Z
+date: 2017-12-21 16:00:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Apple: Yes, we slow down older iPhones](http://www.f3nws.com/n/rtRDrD)
 
-> Posted on: Thursday, December 21, 2017 3:04:53 PM
+> Posted on: Thursday, December 21, 2017 4:00:38 PM

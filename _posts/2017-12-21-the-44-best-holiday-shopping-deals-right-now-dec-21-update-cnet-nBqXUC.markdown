@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 44 best holiday shopping deals right now: Dec. 21 update     - CNET"
-date: 2017-12-21 14:57:46Z
+date: 2017-12-21 15:08:31Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ With four days to go until Christmas, some better-than-Black Friday deals are st
 
 Full story on F3News: [The 44 best holiday shopping deals right now: Dec. 21 update     - CNET](http://www.f3nws.com/n/nBqXUC)
 
-> Posted on: Thursday, December 21, 2017 2:57:46 PM
+> Posted on: Thursday, December 21, 2017 3:08:31 PM
