@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pokemon Go update: all the news and rumors for what's coming next"
-date: 2017-12-21 10:12:00Z
+date: 2017-12-21 14:13:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Want Pokemon Go news and rumors? The game has a long way to go, but Niantic cont
 
 Full story on F3News: [Pokemon Go update: all the news and rumors for what's coming next](http://www.f3nws.com/n/UbMbT)
 
-> Posted on: Thursday, December 21, 2017 10:12:00 AM
+> Posted on: Thursday, December 21, 2017 2:13:00 PM
