@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump thinks he just quietly repealed Obamacare"
-date: 2017-12-21 02:27:31Z
+date: 2017-12-21 18:28:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the midst of a long statement to tout the passage of Republicans' massive tax
 
 Full story on F3News: [Trump thinks he just quietly repealed Obamacare](http://www.f3nws.com/n/tetyvD)
 
-> Posted on: Thursday, December 21, 2017 2:27:31 AM
+> Posted on: Thursday, December 21, 2017 6:28:09 PM

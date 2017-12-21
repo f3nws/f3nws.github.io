@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fury at Pope's role in cardinal's funeral"
-date: 2017-12-21 16:42:57Z
+date: 2017-12-21 18:11:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pope Francis is expected to give the final blessing at the funeral Thursday of C
 
 Full story on F3News: [Fury at Pope's role in cardinal's funeral](http://www.f3nws.com/n/PCreUF)
 
-> Posted on: Thursday, December 21, 2017 4:42:57 PM
+> Posted on: Thursday, December 21, 2017 6:11:04 PM
