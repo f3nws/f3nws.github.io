@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish prosecutor wants NBA player jailed over Erdogan comments"
-date: 2017-12-21 09:45:01Z
+date: 2017-12-21 10:45:05Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A player for the NBA's New York Knicks has ignited controversy in his home count
 
 Full story on F3News: [Turkish prosecutor wants NBA player jailed over Erdogan comments](http://www.f3nws.com/n/KUsYFF)
 
-> Posted on: Thursday, December 21, 2017 9:45:01 AM
+> Posted on: Thursday, December 21, 2017 10:45:05 AM

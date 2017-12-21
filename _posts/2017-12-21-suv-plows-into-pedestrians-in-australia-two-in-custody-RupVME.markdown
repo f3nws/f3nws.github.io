@@ -1,13 +1,13 @@
 ---
 layout: post
 title:  "SUV plows into pedestrians in Australia; two in custody"
-date: 2017-12-21 07:15:00Z
+date: 2017-12-21 10:00:00Z
 categories: fox-news
 ---
 
-Police in Melbourne, Australia, say they arrested the driver and one other person Thursday after a white SUV plowed into a crowd of pedestrians, injuring at least 19 people.
+At least 14 people were injured Thursday when a white SUV plowed into a crowd of pedestrians in Melbourne, Australia. Police said they had two men in custody, including the driver of the vehicle.
 
 
 Full story on F3News: [SUV plows into pedestrians in Australia; two in custody](http://www.f3nws.com/n/RupVME)
 
-> Posted on: Thursday, December 21, 2017 7:15:00 AM
+> Posted on: Thursday, December 21, 2017 10:00:00 AM
