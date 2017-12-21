@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amtrak crash: '1,000 unanswered questions'"
-date: 2017-12-21 02:01:28Z
+date: 2017-12-21 03:36:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As investigators combed through the wreckage of the Amtrak train, officials vowe
 
 Full story on F3News: [Amtrak crash: '1,000 unanswered questions'](http://www.f3nws.com/n/cbeuHF)
 
-> Posted on: Thursday, December 21, 2017 2:01:28 AM
+> Posted on: Thursday, December 21, 2017 3:36:32 AM

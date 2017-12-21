@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean soldier defects across demilitarized zone"
-date: 2017-12-21 02:22:05Z
+date: 2017-12-21 03:20:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A "low-ranking" North Korean soldier defected to South Korea early Thursday morn
 
 Full story on F3News: [North Korean soldier defects across demilitarized zone](http://www.f3nws.com/n/szbJtF)
 
-> Posted on: Thursday, December 21, 2017 2:22:05 AM
+> Posted on: Thursday, December 21, 2017 3:20:34 AM
