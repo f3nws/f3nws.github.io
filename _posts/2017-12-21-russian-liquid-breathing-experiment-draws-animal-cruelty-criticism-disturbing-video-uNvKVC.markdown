@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian liquid breathing experiment draws animal cruelty criticism (DISTURBING VIDEO)"
-date: 2017-12-21 00:30:56Z
+date: 2017-12-21 00:30:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Russian scientists have demonstrated that a canine can survive underwater using 
 
 Full story on F3News: [Russian liquid breathing experiment draws animal cruelty criticism (DISTURBING VIDEO)](http://www.f3nws.com/n/uNvKVC)
 
-> Posted on: Thursday, December 21, 2017 12:30:56 AM
+> Posted on: Thursday, December 21, 2017 12:30:00 AM
