@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Bank of China Tower changed Hong Kong's skyline"
-date: 2017-12-21 04:31:38Z
+date: 2017-12-21 05:21:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ This year of 2017 marks the 100th birthday of the renowned Chinese-American Arch
 
 Full story on F3News: [How Bank of China Tower changed Hong Kong's skyline](http://www.f3nws.com/n/PxRxQB)
 
-> Posted on: Thursday, December 21, 2017 4:31:38 AM
+> Posted on: Thursday, December 21, 2017 5:21:07 AM

@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Australian man stabbed to death in Sweden - ABC Online](http://www.abc.net.au/news/image/9278736-16x9-700x394.jpg)
 
-ABC Online Australian man stabbed to death in Sweden ABC Online An Australian man who was fatally stabbed in Sweden managed to walk several hundred metres along a street before collapsing. The 30-year-old was found in Odinsplatsen, a public space in the middle of the city of Gothenburg, at 4:50am on Wednesday ... Australian man killed in Sweden The Sydney Morning Herald Australian man fatally stabbed in Sweden The Australian Australian man stabbed to death in Swedish city of Gothenburg: reports Herald Sun 9news.com.au - The New Daily - SBS - Daily Mail all 11 news articles »
+ABC Online Australian man stabbed to death in Sweden ABC Online An Australian man who was fatally stabbed in Sweden managed to walk several hundred metres along a street before collapsing. The 30-year-old was found in Odinsplatsen, a public space in the middle of the city of Gothenburg, at 4:50am on Wednesday ... Australian man killed in Sweden The Sydney Morning Herald Australian man fatally stabbed in Sweden The Australian Australian man dies from 'serious' stab wounds in Sweden 9news.com.au Pedestrian TV all 11 news articles »
 
 
 Full story on F3News: [Australian man stabbed to death in Sweden - ABC Online](http://www.f3nws.com/n/yyxMF)

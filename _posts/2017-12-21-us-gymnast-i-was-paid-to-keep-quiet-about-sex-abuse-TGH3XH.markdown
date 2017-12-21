@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US gymnast: I was paid to keep quiet about sex abuse"
-date: 2017-12-21 00:17:03Z
+date: 2017-12-21 04:55:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Olympic gold-medal-winning gymnast McKayla Maroney alleges in a lawsuit filed We
 
 Full story on F3News: [US gymnast: I was paid to keep quiet about sex abuse](http://www.f3nws.com/n/TGH3XH)
 
-> Posted on: Thursday, December 21, 2017 12:17:03 AM
+> Posted on: Thursday, December 21, 2017 4:55:22 AM
