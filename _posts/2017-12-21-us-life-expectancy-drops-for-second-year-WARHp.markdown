@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US life expectancy drops for second year"
-date: 2017-12-21 05:16:03Z
+date: 2017-12-21 20:18:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Life expectancy in the United States has dropped again following last year's dec
 
 Full story on F3News: [US life expectancy drops for second year](http://www.f3nws.com/n/WARHp)
 
-> Posted on: Thursday, December 21, 2017 5:16:03 AM
+> Posted on: Thursday, December 21, 2017 8:18:41 PM

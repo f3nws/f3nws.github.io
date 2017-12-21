@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN overwhelmingly condemns Trump's Jerusalem decision"
-date: 2017-12-21 18:33:44Z
+date: 2017-12-21 20:10:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United Nations voted overwhelmingly to condemn President Donald Trump's deci
 
 Full story on F3News: [UN overwhelmingly condemns Trump's Jerusalem decision](http://www.f3nws.com/n/3U3JfC)
 
-> Posted on: Thursday, December 21, 2017 6:33:44 PM
+> Posted on: Thursday, December 21, 2017 8:10:09 PM
