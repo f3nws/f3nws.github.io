@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Australia ends anti-ISIS strikes in Iraq & Syria, pulls fighter jets but vows to continue ‘support’"
-date: 2017-12-22 01:39:25Z
+date: 2017-12-22 01:39:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Royal Australian Air Force is withdrawing its jets from anti-terrorist missi
 
 Full story on F3News: [Australia ends anti-ISIS strikes in Iraq & Syria, pulls fighter jets but vows to continue ‘support’](http://www.f3nws.com/n/bt3HUF)
 
-> Posted on: Friday, December 22, 2017 1:39:25 AM
+> Posted on: Friday, December 22, 2017 1:39:00 AM

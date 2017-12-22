@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Schmidt to step down as executive chairman of Google parent Alphabet     - CNET"
-date: 2017-12-22 01:35:10Z
+date: 2017-12-22 03:14:18Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The longtime Google executive will move into a role as “technical advisor,” 
 
 Full story on F3News: [Schmidt to step down as executive chairman of Google parent Alphabet     - CNET](http://www.f3nws.com/n/GaqFhH)
 
-> Posted on: Friday, December 22, 2017 1:35:10 AM
+> Posted on: Friday, December 22, 2017 3:14:18 AM
