@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump admin orders sharp drawdown of US refugee resettlement: report"
-date: 2017-12-22 11:45:09Z
+date: 2017-12-22 12:45:03Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Trump administration is dramatically scaling back U.S. refugee resettlement 
 
 Full story on F3News: [Trump admin orders sharp drawdown of US refugee resettlement: report](http://www.f3nws.com/n/nYuUqD)
 
-> Posted on: Friday, December 22, 2017 11:45:09 AM
+> Posted on: Friday, December 22, 2017 12:45:03 PM

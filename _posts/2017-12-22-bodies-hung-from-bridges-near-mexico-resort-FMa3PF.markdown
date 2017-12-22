@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bodies hung from bridges near Mexico resort"
-date: 2017-12-22 03:46:07Z
+date: 2017-12-22 12:18:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The bodies of six men were found Wednesday hanging from bridges in the Mexican s
 
 Full story on F3News: [Bodies hung from bridges near Mexico resort](http://www.f3nws.com/n/FMa3PF)
 
-> Posted on: Friday, December 22, 2017 3:46:07 AM
+> Posted on: Friday, December 22, 2017 12:18:42 PM
