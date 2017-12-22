@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel: 'Several' nations are considering following Trump on Jerusalem"
-date: 2017-12-22 16:13:49Z
+date: 2017-12-22 21:02:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Israeli Prime Minister Benjamin Netanyahu said "several countries" are consideri
 
 Full story on F3News: [Israel: 'Several' nations are considering following Trump on Jerusalem](http://www.f3nws.com/n/mjjGY)
 
-> Posted on: Friday, December 22, 2017 4:13:49 PM
+> Posted on: Friday, December 22, 2017 9:02:09 PM
