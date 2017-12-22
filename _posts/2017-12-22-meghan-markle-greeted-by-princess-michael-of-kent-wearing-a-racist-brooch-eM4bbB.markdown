@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meghan Markle greeted by Princess Michael of Kent wearing a 'racist' brooch"
-date: 2017-12-22 14:03:00Z
+date: 2017-12-22 18:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Princess Pushy may not make the guest list for the royal wedding after this stun
 
 Full story on F3News: [Meghan Markle greeted by Princess Michael of Kent wearing a 'racist' brooch](http://www.f3nws.com/n/eM4bbB)
 
-> Posted on: Friday, December 22, 2017 2:03:00 PM
+> Posted on: Friday, December 22, 2017 6:30:00 PM

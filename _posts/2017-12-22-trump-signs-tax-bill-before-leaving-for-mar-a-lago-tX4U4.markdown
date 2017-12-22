@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump signs tax bill before leaving for Mar-a-Lago"
-date: 2017-12-22 16:41:01Z
+date: 2017-12-22 17:50:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump signed the Republican tax cut bill Friday morning as he p
 
 Full story on F3News: [Trump signs tax bill before leaving for Mar-a-Lago](http://www.f3nws.com/n/tX4U4)
 
-> Posted on: Friday, December 22, 2017 4:41:01 PM
+> Posted on: Friday, December 22, 2017 5:50:56 PM
