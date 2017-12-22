@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catalan separatist parties declare victory in election"
-date: 2017-12-22 04:09:44Z
+date: 2017-12-22 07:35:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Voters in the Spanish region of Catalonia have backed pro-independence parties i
 
 Full story on F3News: [Catalan separatist parties declare victory in election](http://www.f3nws.com/n/jcvEWH)
 
-> Posted on: Friday, December 22, 2017 4:09:44 AM
+> Posted on: Friday, December 22, 2017 7:35:57 AM
