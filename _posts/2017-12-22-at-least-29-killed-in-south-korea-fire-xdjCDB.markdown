@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 29 killed in South Korea fire"
-date: 2017-12-22 04:16:13Z
+date: 2017-12-22 05:25:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 28 people have died in a fire at an eight-story building in Jecheon in 
 
 Full story on F3News: [At least 29 killed in South Korea fire](http://www.f3nws.com/n/xdjCDB)
 
-> Posted on: Friday, December 22, 2017 4:16:13 AM
+> Posted on: Friday, December 22, 2017 5:25:55 AM
