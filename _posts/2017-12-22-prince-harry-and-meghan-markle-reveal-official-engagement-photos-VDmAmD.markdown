@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince Harry and Meghan Markle reveal official engagement photos"
-date: 2017-12-22 15:13:14Z
+date: 2017-12-22 16:01:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's Prince Harry and American actor Meghan Markle published a set of offic
 
 Full story on F3News: [Prince Harry and Meghan Markle reveal official engagement photos](http://www.f3nws.com/n/VDmAmD)
 
-> Posted on: Friday, December 22, 2017 3:13:14 PM
+> Posted on: Friday, December 22, 2017 4:01:03 PM

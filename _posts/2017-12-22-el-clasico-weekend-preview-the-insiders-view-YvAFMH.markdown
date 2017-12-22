@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "El Clasico weekend preview: The insiders' view"
-date: 2017-12-22 15:39:12Z
+date: 2017-12-22 16:36:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It is a rivalry like no other, a match which permeates beyond the white lines of
 
 Full story on F3News: [El Clasico weekend preview: The insiders' view](http://www.f3nws.com/n/YvAFMH)
 
-> Posted on: Friday, December 22, 2017 3:39:12 PM
+> Posted on: Friday, December 22, 2017 4:36:50 PM
