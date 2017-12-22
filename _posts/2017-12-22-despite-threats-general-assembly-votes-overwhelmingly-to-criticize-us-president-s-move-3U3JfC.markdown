@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Despite threats, General Assembly votes overwhelmingly to criticize US President's move"
-date: 2017-12-22 03:20:35Z
+date: 2017-12-22 04:14:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The United Nations voted overwhelmingly to condemn President Donald Trump's deci
 
 Full story on F3News: [Despite threats, General Assembly votes overwhelmingly to criticize US President's move](http://www.f3nws.com/n/3U3JfC)
 
-> Posted on: Friday, December 22, 2017 3:20:35 AM
+> Posted on: Friday, December 22, 2017 4:14:14 AM
