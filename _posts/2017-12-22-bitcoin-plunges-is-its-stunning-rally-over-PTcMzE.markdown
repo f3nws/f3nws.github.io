@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin plunges: Is its stunning rally over?"
-date: 2017-12-22 10:02:08Z
+date: 2017-12-22 14:35:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Bitcoin plunges: Is its stunning rally over?](http://www.f3nws.com/n/PTcMzE)
 
-> Posted on: Friday, December 22, 2017 10:02:08 AM
+> Posted on: Friday, December 22, 2017 2:35:23 PM
