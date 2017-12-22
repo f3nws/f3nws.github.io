@@ -5,6 +5,8 @@ date: 2017-12-22 01:45:04Z
 categories: fox-news
 ---
 
+![Daniel Radcliffe trusts his instincts after 'Harry Potter,' produces 'amazing' documentary 'Circus Kid'](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2017/12/22/daniel-radcliffe-trusts-his-instincts-after-harry-potter-produces-amazing-documentary-circus-kid/_jcr_content/article-text/article-par-9/inline_spotlight_ima/image.img.jpg/612/344/1513877123138.jpg?ve=1&tl=1)
+
 The British actor, still celebrated by fans as young wizard Harry Potter from the popular film franchise, has taken on a new surprising role.
 
 
