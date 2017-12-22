@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Will Republicans follow up tax bill win with government shutdown?"
-date: 2017-12-22 00:15:10Z
+date: 2017-12-22 01:32:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ House Republican leaders, after scrambling for support to keep the government op
 
 Full story on F3News: [Will Republicans follow up tax bill win with government shutdown?](http://www.f3nws.com/n/GVy3bH)
 
-> Posted on: Friday, December 22, 2017 12:15:10 AM
+> Posted on: Friday, December 22, 2017 1:32:49 AM

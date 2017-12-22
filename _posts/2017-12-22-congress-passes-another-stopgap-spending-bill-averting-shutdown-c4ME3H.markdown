@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Congress passes another stopgap spending bill, averting shutdown"
-date: 2017-12-22 00:15:00Z
+date: 2017-12-22 01:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The House and Senate Thursday approved a temporary spending bill, avoiding a gov
 
 Full story on F3News: [Congress passes another stopgap spending bill, averting shutdown](http://www.f3nws.com/n/c4ME3H)
 
-> Posted on: Friday, December 22, 2017 12:15:00 AM
+> Posted on: Friday, December 22, 2017 1:45:00 AM
