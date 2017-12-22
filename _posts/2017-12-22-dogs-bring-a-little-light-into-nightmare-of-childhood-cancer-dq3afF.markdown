@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dogs bring 'a little light' into 'nightmare' of childhood cancer"
-date: 2017-12-22 09:12:02Z
+date: 2017-12-22 16:12:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Squeals of delight echo around the room at Vanderbilt's Children's Hospital in N
 
 Full story on F3News: [Dogs bring 'a little light' into 'nightmare' of childhood cancer](http://www.f3nws.com/n/dq3afF)
 
-> Posted on: Friday, December 22, 2017 9:12:02 AM
+> Posted on: Friday, December 22, 2017 4:12:57 PM
