@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senate bill would help guard against election hacks"
-date: 2017-12-22 00:27:00Z
+date: 2017-12-22 02:13:00Z
 categories: engadget
 ---
 
@@ -12,4 +12,4 @@ American election security is a mess. Many voting systems are vulnerable , but r
 
 Full story on F3News: [Senate bill would help guard against election hacks](http://www.f3nws.com/n/FhuyQG)
 
-> Posted on: Friday, December 22, 2017 12:27:00 AM
+> Posted on: Friday, December 22, 2017 2:13:00 AM
