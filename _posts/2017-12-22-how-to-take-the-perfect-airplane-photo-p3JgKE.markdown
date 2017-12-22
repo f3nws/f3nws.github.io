@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to take the perfect airplane photo"
-date: 2017-12-22 01:51:17Z
+date: 2017-12-22 10:17:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [How to take the perfect airplane photo](http://www.f3nws.com/n/p3JgKE)
 
-> Posted on: Friday, December 22, 2017 1:51:17 AM
+> Posted on: Friday, December 22, 2017 10:17:31 AM
