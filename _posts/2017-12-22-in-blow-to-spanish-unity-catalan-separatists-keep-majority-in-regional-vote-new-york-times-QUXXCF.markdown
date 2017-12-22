@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![In Blow to Spanish Unity, Catalan Separatists Keep Majority in Regional Vote - New York Times](https://static01.nyt.com/images/2017/12/22/world/europe/22catalonia9/22catalonia9-facebookJumbo.jpg)
 
-New York Times In Blow to Spanish Unity, Catalan Separatists Keep Majority in Regional Vote New York Times BARCELONA — Spain's effort to snuff out an independence drive in Catalonia was dealt a significant blow on Thursday as secessionists narrowly won an election called by Prime Minister Mariano Rajoy in hopes of calming the country's constitutional ... Separatist parties in Spain's Catalonia win majority in election CNN Catalan separatists win majority in election, in rebuke to Spain and EU NBCNews.com Catalonia election: Puigdemont hails 'defeat' for Spanish state BBC News NPR - Fox News - Bloomberg - Los Angeles Times all 580 news articles »
+New York Times In Blow to Spanish Unity, Catalan Separatists Keep Majority in Regional Vote New York Times BARCELONA — Spain's effort to snuff out an independence drive in Catalonia was dealt a significant blow on Thursday as secessionists narrowly won an election called by Prime Minister Mariano Rajoy in hopes of calming the country's constitutional ... Catalonia election: Puigdemont hails 'defeat' for Spanish state BBC News Catalan separatists win majority in election, in rebuke to Spain and EU NBCNews.com In Special Election, Catalonians Put Pro-Independence Leaders Back In Power NPR Bloomberg - Voice of America - Wall Street Journal - CNBC all 609 news articles »
 
 
 Full story on F3News: [In Blow to Spanish Unity, Catalan Separatists Keep Majority in Regional Vote - New York Times](http://www.f3nws.com/n/QUXXCF)

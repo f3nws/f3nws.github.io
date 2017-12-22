@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The declarative approach of the Ring programming language"
-date: 2017-12-22 07:21:00Z
+date: 2017-12-22 08:22:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ We will learn about the innovation in the declarative approach of the Ring progr
 
 Full story on F3News: [The declarative approach of the Ring programming language](http://www.f3nws.com/n/SURz)
 
-> Posted on: Friday, December 22, 2017 7:21:00 AM
+> Posted on: Friday, December 22, 2017 8:22:00 AM
