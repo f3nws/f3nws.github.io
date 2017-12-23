@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US will provide anti-tank weapons to Ukraine"
-date: 2017-12-23 02:41:38Z
+date: 2017-12-23 04:05:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US is going to provide anti-tank weapons to Ukraine, a senior State Departme
 
 Full story on F3News: [US will provide anti-tank weapons to Ukraine](http://www.f3nws.com/n/KvPzNE)
 
-> Posted on: Saturday, December 23, 2017 2:41:38 AM
+> Posted on: Saturday, December 23, 2017 4:05:23 AM
