@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Melbourne car attack suspect charged with attempted murder"
-date: 2017-12-23 05:15:55Z
+date: 2017-12-23 10:12:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A driver who plowed into pedestrians on a busy street in Melbourne this week was
 
 Full story on F3News: [Melbourne car attack suspect charged with attempted murder](http://www.f3nws.com/n/PK4tPF)
 
-> Posted on: Saturday, December 23, 2017 5:15:55 AM
+> Posted on: Saturday, December 23, 2017 10:12:19 AM

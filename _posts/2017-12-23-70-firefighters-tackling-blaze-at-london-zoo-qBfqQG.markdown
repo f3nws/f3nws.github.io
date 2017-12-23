@@ -7,7 +7,7 @@ categories: breakingnews-ie-world
 
 ![70 firefighters tackling blaze at London Zoo](http://www.breakingnews.ie/remote/media.central.ie/media/images/f/FirefighterGeneric_large.jpg?width=600&s=bn-820081)
 
-Up to 70 firefighters are tackling a blaze at London Zoo.
+70 firefighters are attending a blaze at ZSL London Zoo.
 
 
 Full story on F3News: [70 firefighters tackling blaze at London Zoo](http://www.f3nws.com/n/qBfqQG)
