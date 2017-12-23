@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "MSNBC host apologizes for remarks about Halperin victims"
-date: 2017-12-23 03:53:19Z
+date: 2017-12-23 20:53:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNNMoney MSNBC host Mika Brzezinski apologizes for remarks about Mark Halperin v
 
 Full story on F3News: [MSNBC host apologizes for remarks about Halperin victims](http://www.f3nws.com/n/3rgk3C)
 
-> Posted on: Saturday, December 23, 2017 3:53:19 AM
+> Posted on: Saturday, December 23, 2017 8:53:56 PM
