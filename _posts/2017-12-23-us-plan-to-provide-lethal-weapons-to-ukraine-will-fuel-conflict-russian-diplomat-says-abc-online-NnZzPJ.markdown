@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![US plan to provide lethal weapons to Ukraine will fuel conflict, Russian diplomat says - ABC Online](http://www.abc.net.au/news/image/8228462-16x9-700x394.jpg)
 
-ABC Online US plan to provide lethal weapons to Ukraine will fuel conflict, Russian diplomat says ABC Online A US decision to provide Ukraine with lethal weapons will fuel the conflict in the country's east, a senior Russian diplomat says. Key points: State Department says sending weapons is to "deter further aggression"; More than 10,000 people killed during ... Merkel, Macron push for Ukraine peace The Australian US provision of weapons to Ukraine could fuel conflict, Russia says The Guardian American-made lethal weapons heading to Ukraine, US officials say CBC.ca Yahoo7 News - Washington Post - News24 - RadioFreeEurope/RadioLiberty all 202 news articles »
+ABC Online US plan to provide lethal weapons to Ukraine will fuel conflict, Russian diplomat says ABC Online A US decision to provide Ukraine with lethal weapons will fuel the conflict in the country's east, a senior Russian diplomat says. Key points: State Department says sending weapons is to "deter further aggression"; More than 10,000 people killed during ... Russia: US arms will fuel Ukraine conflict SBS Merkel, Macron push for Ukraine peace The Australian Trump to send weapons to Ukrainian military Financial Times Yahoo7 News - AL.com - The Guardian - NEWS.com.au all 220 news articles »
 
 
 Full story on F3News: [US plan to provide lethal weapons to Ukraine will fuel conflict, Russian diplomat says - ABC Online](http://www.f3nws.com/n/NnZzPJ)
