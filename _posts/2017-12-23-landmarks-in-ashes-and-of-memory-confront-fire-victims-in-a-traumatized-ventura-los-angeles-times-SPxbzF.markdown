@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Landmarks in ashes, and of memory, confront fire victims in a traumatized Ventura - Los Angeles Times"
+date: 2017-12-23 12:01:28Z
+categories: google-news-top-stories
+---
+
+![Landmarks in ashes, and of memory, confront fire victims in a traumatized Ventura - Los Angeles Times](http://www.trbimg.com/img-5a3e4fad/turbine/la-me-ventura-trauma-20171219)
+
+Los Angeles Times Landmarks in ashes, and of memory, confront fire victims in a traumatized Ventura Los Angeles Times From left, Jeff Lipscomb, Gabriel Lipscomb, 17, and Rachel Lipscomb, 11, look for items to recover in the wreckage of their burned home in Ventura. (Marcus Yam / Los Angeles Times). By Thomas CurwenContact Reporter · Fires. Two weeks after the Thomas ... California Wildfire Now Largest in State History NBC Southern California California's monster Thomas fire becomes largest-ever wildfire in state history CNBC California wildfire becomes largest on record in the state Reuters BBC News - NBCNews.com - Newsweek - Pittsburgh Post-Gazette all 192 news articles »
+
+
+Full story on F3News: [Landmarks in ashes, and of memory, confront fire victims in a traumatized Ventura - Los Angeles Times](http://www.f3nws.com/n/SPxbzF)
+
+> Posted on: Saturday, December 23, 2017 12:01:28 PM
