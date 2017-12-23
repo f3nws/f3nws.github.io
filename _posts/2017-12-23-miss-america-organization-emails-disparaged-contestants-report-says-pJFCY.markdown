@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Miss America Organization emails disparaged contestants, report says"
-date: 2017-12-23 01:34:19Z
+date: 2017-12-23 03:32:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sam Haskell, chief executive officer of the Miss America Organization, was suspe
 
 Full story on F3News: [Miss America Organization emails disparaged contestants, report says](http://www.f3nws.com/n/pJFCY)
 
-> Posted on: Saturday, December 23, 2017 1:34:19 AM
+> Posted on: Saturday, December 23, 2017 3:32:06 AM
