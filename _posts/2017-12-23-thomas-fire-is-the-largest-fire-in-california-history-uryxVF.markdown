@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thomas Fire is the largest fire in California history"
-date: 2017-12-23 15:36:13Z
+date: 2017-12-23 16:15:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Thomas Fire is now the largest wildfire in California's modern history after
 
 Full story on F3News: [Thomas Fire is the largest fire in California history](http://www.f3nws.com/n/uryxVF)
 
-> Posted on: Saturday, December 23, 2017 3:36:13 PM
+> Posted on: Saturday, December 23, 2017 4:15:56 PM
