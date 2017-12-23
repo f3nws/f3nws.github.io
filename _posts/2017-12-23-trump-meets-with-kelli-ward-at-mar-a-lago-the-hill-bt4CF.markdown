@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump meets with Kelli Ward at Mar-a-Lago - The Hill](http://thehill.com/sites/default/files/donaldtrump_0_17.jpg)
 
-The Hill Trump meets with Kelli Ward at Mar-a-Lago The Hill President Trump · Donald John TrumpHouse Democrat slams Donald Trump Jr. for 'serious case of amnesia' after testimony Skier Lindsey Vonn: I don't want to represent Trump at Olympics Poll: 4 in 10 Republicans think senior Trump advisers had improper ... and more »
+The Hill Trump meets with Kelli Ward at Mar-a-Lago The Hill President Trump · Donald John TrumpHouse Democrat slams Donald Trump Jr. for 'serious case of amnesia' after testimony Skier Lindsey Vonn: I don't want to represent Trump at Olympics Poll: 4 in 10 Republicans think senior Trump advisers had improper ... Trump Slammed Obama for Spending Christmas Away From the White House, but He's Doing Exactly the Same Newsweek all 67 news articles »
 
 
 Full story on F3News: [Trump meets with Kelli Ward at Mar-a-Lago - The Hill](http://www.f3nws.com/n/bt4CF)
