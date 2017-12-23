@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aliens over LA? No, this incredible sight is a SpaceX Falcon 9     - CNET"
-date: 2017-12-23 02:40:49Z
+date: 2017-12-23 03:46:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Southern California is reporting that someone broke a hole in the sky. That some
 
 Full story on F3News: [Aliens over LA? No, this incredible sight is a SpaceX Falcon 9     - CNET](http://www.f3nws.com/n/scsYeB)
 
-> Posted on: Saturday, December 23, 2017 2:40:49 AM
+> Posted on: Saturday, December 23, 2017 3:46:27 AM

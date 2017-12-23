@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SpaceX launch stirs alien UFO fears in California, Arizona (VIDEOS)"
-date: 2017-12-23 03:22:05Z
+date: 2017-12-23 03:22:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The aftermath of SpaceX’s launch of satellites into space from Southern Califo
 
 Full story on F3News: [SpaceX launch stirs alien UFO fears in California, Arizona (VIDEOS)](http://www.f3nws.com/n/RAyAKF)
 
-> Posted on: Saturday, December 23, 2017 3:22:05 AM
+> Posted on: Saturday, December 23, 2017 3:22:00 AM
