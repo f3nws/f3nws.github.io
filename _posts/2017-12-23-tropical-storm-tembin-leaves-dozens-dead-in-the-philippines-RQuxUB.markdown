@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical Storm Tembin leaves dozens dead in the Philippines"
-date: 2017-12-23 11:09:22Z
+date: 2017-12-23 14:21:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tropical Storm Tembin hit the southern island of Mindanao in the Philippines on 
 
 Full story on F3News: [Tropical Storm Tembin leaves dozens dead in the Philippines](http://www.f3nws.com/n/RQuxUB)
 
-> Posted on: Saturday, December 23, 2017 11:09:22 AM
+> Posted on: Saturday, December 23, 2017 2:21:01 PM
