@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Philippines Tropical Storm Tembin kills more than 100 on Mindanao - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05rwpbp.jpg)
 
-BBC News Philippines Tropical Storm Tembin kills more than 100 on Mindanao BBC News More than 100 people are reported to have been killed as a tropical storm swept through the southern Philippines, with dozens more missing. Storm Tembin brought flash flooding and mudslides to parts of Mindanao island. Two towns badly hit were Tubod ... Tropical Storm Tembin leaves dozens dead in the Philippines CNN Tropical Storm Leaves Dozens Dead, Missing in Southern Philippines Voice of America Tropical Storm Kills Dozens in Philippines Wall Street Journal Fox News - New York Times - Rappler - News24 all 99 news articles »
+BBC News Philippines Tropical Storm Tembin kills more than 100 on Mindanao BBC News More than 100 people are reported to have been killed as a tropical storm swept through the southern Philippines, with dozens more missing. Storm Tembin brought flash flooding and mudslides to parts of Mindanao island. Two towns badly hit were Tubod ... Tropical Storm in Philippines Kills More Than 100 and Leaves Dozens Missing New York Times Tropical Storm Tembin leaves dozens dead in the Philippines CNN Tropical Storm Leaves Dozens Dead, Missing in Southern Philippines Voice of America Wall Street Journal - The Independent - Aljazeera.com - Xinhua all 98 news articles »
 
 
 Full story on F3News: [Philippines Tropical Storm Tembin kills more than 100 on Mindanao - BBC News](http://www.f3nws.com/n/zXafEC)
