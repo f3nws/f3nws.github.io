@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Appeals Court Rules Against Latest Travel Ban - New York Times](https://static01.nyt.com/images/2017/12/23/us/23travelban1/23travelban1-facebookJumbo.jpg)
 
-New York Times Appeals Court Rules Against Latest Travel Ban New York Times A federal appeals court ruled Friday against President Trump's latest travel ban, saying that it “exceeds the scope of his delegated authority,” but that it was ultimately for the Supreme Court to decide. A three-judge panel of the United States Court ... Appeals court: Trump exceeded the scope of his authority with his latest travel ban Business Insider 9th Circuit says Trump's third travel ban is illegal Los Angeles Times SF court strikes down Trump's 3rd attempt at travel ban SFGate The Boston Globe - Fox News - Reuters - wtvr.com all 67 news articles »
+New York Times Appeals Court Rules Against Latest Travel Ban New York Times A federal appeals court ruled Friday against President Trump's latest travel ban, saying that it “exceeds the scope of his delegated authority,” but that it was ultimately for the Supreme Court to decide. A three-judge panel of the United States Court ... Second court rejects Trump bid to stop transgender military recruits Reuters Appeals court rules Trump's latest travel ban violates the law The Boston Globe 9th Circuit says Trump's third travel ban is illegal Los Angeles Times SFGate - Fox News - The Daily Caller - Politico all 185 news articles »
 
 
 Full story on F3News: [Appeals Court Rules Against Latest Travel Ban - New York Times](http://www.f3nws.com/n/AQPPZE)
