@@ -5,6 +5,8 @@ date: 2017-12-23 00:22:30Z
 categories: google-news-entertaintment
 ---
 
+![Mariah Carey To Get Another Chance on Dick Clark's New Year's Rockin' Eve Following 2016 Fiasco - PEOPLE.com](https://peopledotcom.files.wordpress.com/2017/01/mariah-carey.jpg?crop=197px%2C81px%2C1879px%2C1409px&resize=1200%2C630)
+
 PEOPLE.com Mariah Carey To Get Another Chance on Dick Clark's New Year's Rockin' Eve Following 2016 Fiasco PEOPLE.com The singer, 47, announced on Instagram and Twitter that she will be once again taking the stage during the live broadcast of Dick Clark's New Year's Rockin' Eve with Ryan Seacrest. “Take 2. #RockinEve #NYE,” Carey wrote. Carey and Dick Clark ... Mariah Carey will return to New Year's Rockin' Eve as headliner EW.com (blog) Mariah Carey will return to 'New Year's Rockin' Eve' ABC News APNewsBreak: Carey returns to 'New Year's Rockin' Eve' Washington Post Deadline - TMZ.com - Hollywood Life - Us Weekly all 25 news articles »
 
 

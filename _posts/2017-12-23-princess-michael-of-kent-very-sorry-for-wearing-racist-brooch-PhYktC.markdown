@@ -5,6 +5,8 @@ date: 2017-12-23 00:28:00Z
 categories: breakingnews-ie-world
 ---
 
+![Princess Michael of Kent ’very sorry’ for wearing ’racist’ brooch](http://www.breakingnews.ie/remote/media.central.ie/media/images/p/PrincessMichaelOfKentBrooch_large.jpg?width=600&s=bn-820056)
+
 Princess Michael of Kent has apologised after wearing a brooch which has been deemed racist.
 
 
