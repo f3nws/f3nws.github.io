@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mob-tied Trump partner gets special treatment"
-date: 2017-12-23 03:46:57Z
+date: 2017-12-23 02:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on the colorful background of Donald Trump business partne
 
 Full story on F3News: [Mob-tied Trump partner gets special treatment](http://www.f3nws.com/n/fqYB2D)
 
-> Posted on: Saturday, December 23, 2017 3:46:57 AM
+> Posted on: Saturday, December 23, 2017 2:00:00 AM

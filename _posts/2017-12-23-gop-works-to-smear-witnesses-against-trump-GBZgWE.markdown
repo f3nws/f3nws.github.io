@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "GOP works to smear witnesses against Trump"
-date: 2017-12-23 04:15:17Z
+date: 2017-12-23 02:20:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at how Republican congressional investigators seem less inte
 
 Full story on F3News: [GOP works to smear witnesses against Trump](http://www.f3nws.com/n/GBZgWE)
 
-> Posted on: Saturday, December 23, 2017 4:15:17 AM
+> Posted on: Saturday, December 23, 2017 2:20:00 AM

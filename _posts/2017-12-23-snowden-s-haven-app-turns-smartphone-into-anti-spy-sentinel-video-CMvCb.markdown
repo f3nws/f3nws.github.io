@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Snowden’s Haven app turns smartphone into anti-spy sentinel (VIDEO)"
-date: 2017-12-23 00:24:36Z
+date: 2017-12-23 00:24:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A new app developed by NSA whistleblower Edward Snowden promises to harness the 
 
 Full story on F3News: [Snowden’s Haven app turns smartphone into anti-spy sentinel (VIDEO)](http://www.f3nws.com/n/CMvCb)
 
-> Posted on: Saturday, December 23, 2017 12:24:36 AM
+> Posted on: Saturday, December 23, 2017 12:24:00 AM

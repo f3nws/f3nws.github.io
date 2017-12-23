@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Neocon emissary Boris Johnson embarrassed Britain on Moscow visit’"
-date: 2017-12-23 04:16:13Z
+date: 2017-12-23 04:16:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Boris Johnson has embarrassed the British people he was supposed to represent in
 
 Full story on F3News: [‘Neocon emissary Boris Johnson embarrassed Britain on Moscow visit’](http://www.f3nws.com/n/JVCasG)
 
-> Posted on: Saturday, December 23, 2017 4:16:13 AM
+> Posted on: Saturday, December 23, 2017 4:16:00 AM
