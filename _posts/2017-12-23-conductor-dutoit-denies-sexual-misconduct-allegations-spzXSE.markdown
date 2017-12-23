@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Conductor Dutoit denies sexual misconduct allegations"
-date: 2017-12-23 12:13:00Z
+date: 2017-12-23 13:19:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LONDON (AP) — Renowned conductor Charles Dutoit on Saturday denied serious acc
 
 Full story on F3News: [Conductor Dutoit denies sexual misconduct allegations](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Saturday, December 23, 2017 12:13:00 PM
+> Posted on: Saturday, December 23, 2017 1:19:00 PM
