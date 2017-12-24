@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims forcibly placed with new families as kids & abused there to be paid off in Switzerland"
-date: 2017-12-24 00:34:31Z
+date: 2017-12-24 00:34:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The so-called ‘contract children’ who were taken away from their parents and
 
 Full story on F3News: [Victims forcibly placed with new families as kids & abused there to be paid off in Switzerland](http://www.f3nws.com/n/GT3mz)
 
-> Posted on: Sunday, December 24, 2017 12:34:31 AM
+> Posted on: Sunday, December 24, 2017 12:34:00 AM
