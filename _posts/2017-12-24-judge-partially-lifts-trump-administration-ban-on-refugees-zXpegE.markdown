@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge partially lifts Trump administration ban on refugees"
-date: 2017-12-24 01:01:26Z
+date: 2017-12-24 02:00:23Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A federal judge in Seattle has partially lifted a Trump administration ban on ce
 
 Full story on F3News: [Judge partially lifts Trump administration ban on refugees](http://www.f3nws.com/n/zXpegE)
 
-> Posted on: Sunday, December 24, 2017 1:01:26 AM
+> Posted on: Sunday, December 24, 2017 2:00:23 AM
