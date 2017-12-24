@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge: American accused of fighting for IS must get lawyer"
-date: 2017-12-24 01:21:00Z
+date: 2017-12-24 05:33:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ WASHINGTON (AP) — A federal judge ruled Saturday that the U.S. military must p
 
 Full story on F3News: [Judge: American accused of fighting for IS must get lawyer](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Sunday, December 24, 2017 1:21:00 AM
+> Posted on: Sunday, December 24, 2017 5:33:00 AM

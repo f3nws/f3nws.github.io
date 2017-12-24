@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Despite Trump's hopes, US-Russia relations are getting chilly"
-date: 2017-12-24 06:04:14Z
+date: 2017-12-24 09:49:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the space of a week, the Trump administration has named Russia a "rival power
 
 Full story on F3News: [Despite Trump's hopes, US-Russia relations are getting chilly](http://www.f3nws.com/n/jFGWyF)
 
-> Posted on: Sunday, December 24, 2017 6:04:14 AM
+> Posted on: Sunday, December 24, 2017 9:49:44 AM
