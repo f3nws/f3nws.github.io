@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dozens feared dead in Davao mall fire"
-date: 2017-12-24 03:28:15Z
+date: 2017-12-24 07:45:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 37 people were missing and feared dead Sunday, more than a day after a 
 
 Full story on F3News: [Dozens feared dead in Davao mall fire](http://www.f3nws.com/n/XKvRW)
 
-> Posted on: Sunday, December 24, 2017 3:28:15 AM
+> Posted on: Sunday, December 24, 2017 7:45:31 AM
