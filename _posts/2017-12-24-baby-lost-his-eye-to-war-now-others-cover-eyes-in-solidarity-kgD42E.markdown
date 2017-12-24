@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Baby lost his eye to war. Now others cover eyes in solidarity"
-date: 2017-12-24 05:15:22Z
+date: 2017-12-24 22:30:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Karim Abdel Rahman -- a Syrian infant who lost his left eye two months ago in an
 
 Full story on F3News: [Baby lost his eye to war. Now others cover eyes in solidarity](http://www.f3nws.com/n/kgD42E)
 
-> Posted on: Sunday, December 24, 2017 5:15:22 AM
+> Posted on: Sunday, December 24, 2017 10:30:26 PM
