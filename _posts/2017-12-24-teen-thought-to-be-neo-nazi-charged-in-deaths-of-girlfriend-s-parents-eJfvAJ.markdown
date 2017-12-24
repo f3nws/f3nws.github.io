@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teen thought to be neo-Nazi charged in deaths of girlfriend's parents"
-date: 2017-12-24 05:45:00Z
+date: 2017-12-24 12:00:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Family members say a Virginia couple tried to get their teenage daughter to end 
 
 Full story on F3News: [Teen thought to be neo-Nazi charged in deaths of girlfriend's parents](http://www.f3nws.com/n/eJfvAJ)
 
-> Posted on: Sunday, December 24, 2017 5:45:00 AM
+> Posted on: Sunday, December 24, 2017 12:00:00 PM
