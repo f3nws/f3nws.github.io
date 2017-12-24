@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Track Santa's movements on Christmas Eve"
-date: 2017-12-24 07:15:33Z
+date: 2017-12-24 13:30:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US military command that is charged with protecting the airspace for North A
 
 Full story on F3News: [Track Santa's movements on Christmas Eve](http://www.f3nws.com/n/pcuFsB)
 
-> Posted on: Sunday, December 24, 2017 7:15:33 AM
+> Posted on: Sunday, December 24, 2017 1:30:35 PM
