@@ -5,6 +5,8 @@ date: 2017-12-24 12:00:00Z
 categories: fox-news
 ---
 
+![Teen thought to be neo-Nazi charged in deaths of girlfriend's parents](http://a57.foxnews.com/images.foxnews.com/content/fox-news/us/2017/12/24/teen-thought-to-be-neo-nazi-charged-in-deaths-girlfriends-parents/_jcr_content/article-text/article-par-3/inline_spotlight_ima/image.img.jpg/612/344/1514116833165.jpg?ve=1&tl=1)
+
 Family members say a Virginia couple tried to get their teenage daughter to end a relationship with a boyfriend whom the parents believed espoused neo-Nazi views. Now that boyfriend, 17, has been charged with killing the parents.
 
 
