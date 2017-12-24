@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Haley’s Binomo island? US continues to ‘remind’ Russia of its place, UN envoy tells pranksters](https://cdni.rt.com/files/2017.12/article/5a3f2820fc7e93c60d8b4567.jpg)
 
-The US keeps reminding Russia about its “place” in the world and follows the situation on the fictional island of Binomo closely, a famous comedy duo said of US envoy Nikki Haley, who apparently fell victim to their latest prank. Read Full Article at RT.com
+A Russian comedy duo has apparently pranked US envoy to the UN Nikki Haley, who assured them the US is closely following the situation on the fictional island of Binomo and will “continue to remind” Russia “what their place is.” Read Full Article at RT.com
 
 
 Full story on F3News: [Haley’s Binomo island? US continues to ‘remind’ Russia of its place, UN envoy tells pranksters](http://www.f3nws.com/n/TfjThB)

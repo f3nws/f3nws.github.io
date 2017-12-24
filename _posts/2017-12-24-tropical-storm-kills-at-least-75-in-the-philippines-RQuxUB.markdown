@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tropical storm kills at least 75 in the Philippines"
-date: 2017-12-24 05:44:20Z
+date: 2017-12-24 07:15:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tropical Storm Tembin hit the southern island of Mindanao in the Philippines on 
 
 Full story on F3News: [Tropical storm kills at least 75 in the Philippines](http://www.f3nws.com/n/RQuxUB)
 
-> Posted on: Sunday, December 24, 2017 5:44:20 AM
+> Posted on: Sunday, December 24, 2017 7:15:54 AM
