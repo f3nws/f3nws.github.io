@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Flash floods, and landslides kill over 100 in Philippines storm"
-date: 2017-12-24 14:30:28Z
+date: 2017-12-24 15:13:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A tropical storm unleashed devastating floods and landslides in southern Philipp
 
 Full story on F3News: [Flash floods, and landslides kill over 100 in Philippines storm](http://www.f3nws.com/n/xWXSkF)
 
-> Posted on: Sunday, December 24, 2017 2:30:28 PM
+> Posted on: Sunday, December 24, 2017 3:13:30 PM
