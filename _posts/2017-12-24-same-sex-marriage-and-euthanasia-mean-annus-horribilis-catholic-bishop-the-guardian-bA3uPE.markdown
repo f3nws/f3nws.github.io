@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Same-sex marriage and euthanasia mean annus horribilis – Catholic bishop - The Guardian"
-date: 2017-12-24 06:44:34Z
+date: 2017-12-24 06:40:00Z
 categories: google-news-australia
 ---
 
@@ -12,4 +12,4 @@ The Guardian Same-sex marriage and euthanasia mean annus horribilis – Catholic
 
 Full story on F3News: [Same-sex marriage and euthanasia mean annus horribilis – Catholic bishop - The Guardian](http://www.f3nws.com/n/bA3uPE)
 
-> Posted on: Sunday, December 24, 2017 6:44:34 AM
+> Posted on: Sunday, December 24, 2017 6:40:00 AM

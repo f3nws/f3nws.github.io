@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![North Korea says new UN sanctions an act of war - Reuters](https://s2.reutersmedia.net/resources/r/?m=02&d=20171224&t=2&i=1216837787&w=1200&r=LYNXMPEDBN07I)
 
-Reuters North Korea says new UN sanctions an act of war Reuters BEIJING/SEOUL (Reuters) - The latest U.N. sanctions against North Korea are an act of war and tantamount to a complete economic blockade against it, North Korea's foreign ministry said on Sunday, threatening to punish those who supported the measure ... North Korea calls latest UN sanctions 'an act of war' CNN North Korea: New UN sanctions an act of war BBC News North Korea declares latest UN sanctions 'an act of war' Washington Post NBCNews.com - USA TODAY - The Hill - TIME all 1,307 news articles »
+Reuters North Korea says new UN sanctions an act of war Reuters BEIJING/SEOUL (Reuters) - The latest U.N. sanctions against North Korea are an act of war and tantamount to a complete economic blockade against it, North Korea's foreign ministry said on Sunday, threatening to punish those who supported the measure ... North Korea calls latest UN sanctions 'an act of war' CNN North Korea: New UN sanctions an act of war BBC News North Korea declares latest UN sanctions 'an act of war' Washington Post The Hill - USA TODAY - TIME - New York Times all 1,340 news articles »
 
 
 Full story on F3News: [North Korea says new UN sanctions an act of war - Reuters](http://www.f3nws.com/n/vGvJqG)

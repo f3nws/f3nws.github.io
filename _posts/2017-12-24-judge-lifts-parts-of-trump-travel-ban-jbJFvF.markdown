@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge lifts parts of Trump travel ban"
-date: 2017-12-24 04:52:03Z
+date: 2017-12-24 17:38:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A federal judge in Washington state has blocked parts of the Trump administratio
 
 Full story on F3News: [Judge lifts parts of Trump travel ban](http://www.f3nws.com/n/jbJFvF)
 
-> Posted on: Sunday, December 24, 2017 4:52:03 AM
+> Posted on: Sunday, December 24, 2017 5:38:59 PM
