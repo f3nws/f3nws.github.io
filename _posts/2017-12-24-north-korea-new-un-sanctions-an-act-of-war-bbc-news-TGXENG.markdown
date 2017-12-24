@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![North Korea: New UN sanctions an act of war - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05pnkwq.jpg)
 
-BBC News North Korea: New UN sanctions an act of war BBC News North Korea has described the latest UN sanctions imposed on the country as an "act of war". A foreign ministry statement said the measures were tantamount to a total economic blockade, the official KCNA news agency reported. It added that ... North Korea says new UN sanctions an act of war Reuters North Korea Rejects New Sanctions, Vows to Avenge Sympathizers Bloomberg Biggest News Stories of 2017: Hurricanes, Donald Trump, #MeToo, North Korea, Las Vegas and More Newsweek The Hill - Fox News - Telegraph.co.uk - Boston Herald all 960 news articles »
+BBC News North Korea: New UN sanctions an act of war BBC News North Korea has described the latest UN sanctions imposed on the country as an "act of war". A foreign ministry statement said the measures were tantamount to a total economic blockade, the official KCNA news agency reported. It added that ... North Korea Rejects New Sanctions, Vows to Avenge Sympathizers Bloomberg Biggest News Stories of 2017: Hurricanes, Donald Trump, #MeToo, North Korea, Las Vegas and More Newsweek North Korea: Latest UN Sanctions an 'Act of War' Voice of America The Hill - Fox News - Metro - Irish Times all 1,078 news articles »
 
 
 Full story on F3News: [North Korea: New UN sanctions an act of war - BBC News](http://www.f3nws.com/n/TGXENG)
