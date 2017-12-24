@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian Central Bank head sings to promote new 2,000 ruble notes (VIDEO)"
-date: 2017-12-24 01:20:08Z
+date: 2017-12-24 01:20:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The new Russian 2,000 ruble note elicits spontaneous singing, a viral promotiona
 
 Full story on F3News: [Russian Central Bank head sings to promote new 2,000 ruble notes (VIDEO)](http://www.f3nws.com/n/A3BDYD)
 
-> Posted on: Sunday, December 24, 2017 1:20:08 AM
+> Posted on: Sunday, December 24, 2017 1:20:00 AM
