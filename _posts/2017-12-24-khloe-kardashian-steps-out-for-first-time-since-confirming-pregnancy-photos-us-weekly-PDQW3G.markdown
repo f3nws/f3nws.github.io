@@ -5,6 +5,8 @@ date: 2017-12-24 00:22:32Z
 categories: google-news-entertaintment
 ---
 
+![Khloe Kardashian Steps Out for First Time Since Confirming Pregnancy: Photos - Us Weekly](https://i2.wp.com/www.usmagazine.com/wp-content/uploads/2017/12/bgus_1096109_001.jpg?crop=0px%2C149px%2C1200px%2C631px&resize=1200%2C630&ssl=1)
+
 Us Weekly Khloe Kardashian Steps Out for First Time Since Confirming Pregnancy: Photos Us Weekly Khloe Kardashian hides her baby bump while out at Polacheck's Jewelers in Calabasas on December 23. Ixola/Backgrid. Khloé Kardashian was spotted out in L.A. for the first time since confirming her pregnancy news this week. Cutest Celebrity Baby ... Is Tristan Thompson's Ex Jordan Craig Upset About Khloe's Pregnancy? The Truth Hollywood Life Khloe Kardashian Is All Smiles After Pregnancy Announcement -- See the Pic! Entertainment Tonight Kim Kardashian surrounded by sisters Khloe and Kourtney for Day 23 of Kardashian Christmas Daily Mail Metro - Mirror.co.uk - 10,000 Couples - GkMen all 48 news articles »
 
 
