@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea calls latest UN sanctions an act of war"
-date: 2017-12-25 02:30:07Z
+date: 2017-12-25 03:21:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea warned Sunday that a new round of UN sanctions against it are "an ac
 
 Full story on F3News: [North Korea calls latest UN sanctions an act of war](http://www.f3nws.com/n/ancWHB)
 
-> Posted on: Monday, December 25, 2017 2:30:07 AM
+> Posted on: Monday, December 25, 2017 3:21:37 AM
