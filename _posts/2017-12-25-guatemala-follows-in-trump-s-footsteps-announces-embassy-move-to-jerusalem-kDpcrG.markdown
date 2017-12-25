@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guatemala follows in Trump's footsteps, announces embassy move to Jerusalem"
-date: 2017-12-25 00:45:00Z
+date: 2017-12-25 02:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Guatemala's president announced on Christmas Eve that the Central American count
 
 Full story on F3News: [Guatemala follows in Trump's footsteps, announces embassy move to Jerusalem](http://www.f3nws.com/n/kDpcrG)
 
-> Posted on: Monday, December 25, 2017 12:45:00 AM
+> Posted on: Monday, December 25, 2017 2:00:00 AM
