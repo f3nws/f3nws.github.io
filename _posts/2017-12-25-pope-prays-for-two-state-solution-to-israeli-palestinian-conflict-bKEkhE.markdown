@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Pope prays for two-state solution to Israeli-Palestinian conflict](http://cdn.cnn.com/cnnnext/dam/assets/171225132027-pope-francis-1224-01-super-tease.jpg)
 
-Pope Francis issued a strong defense of immigration in his Christmas Eve mass Sunday, saying faith demands foreigners be welcomed, even as support for far-right parties has risen in Europe.
+Pope Francis used his annual Christmas Day message to pray for a peaceful two-state solution to the Israeli-Palestinian conflict.
 
 
 Full story on F3News: [Pope prays for two-state solution to Israeli-Palestinian conflict](http://www.f3nws.com/n/bKEkhE)

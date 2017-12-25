@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kremlin critic Navalny barred from entering presidential race"
-date: 2017-12-25 16:42:29Z
+date: 2017-12-25 17:35:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian officials barred activist Alexey Navalny from entering the country's pre
 
 Full story on F3News: [Kremlin critic Navalny barred from entering presidential race](http://www.f3nws.com/n/vWMVdD)
 
-> Posted on: Monday, December 25, 2017 4:42:29 PM
+> Posted on: Monday, December 25, 2017 5:35:46 PM
