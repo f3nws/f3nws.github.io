@@ -5,6 +5,8 @@ date: 2017-12-25 02:50:00Z
 categories: fox-news
 ---
 
+![Matt Lauer, wife spotted with daughter on Long Island horse farm](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2017/12/24/matt-lauer-wife-spotted-with-daughter-on-long-island-horse-farm/_jcr_content/article-text/article-par-4/inline_spotlight_ima/image.img.jpg/612/344/1514172211651.jpg?ve=1&tl=1)
+
 Could it be a holiday miracle in the making? Matt Lauer was spotted Saturday with estranged wife Annette Roque and the couple’s 14-year-old daughter Romy.
 
 
