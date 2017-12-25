@@ -1,13 +1,13 @@
 ---
 layout: post
-title:  "EntityWorker.Core an alternative to entity Framework"
+title:  "EntityWorker.Core - An Alternative to Entity Framework"
 date: 2017-12-25 07:48:00Z
 categories: codeproject
 ---
 
-EntityWorker.Core an alternative to entity Framework
+EntityWorker.Core - an alternative to entity Framework
 
 
-Full story on F3News: [EntityWorker.Core an alternative to entity Framework](http://www.f3nws.com/n/HMPzRH)
+Full story on F3News: [EntityWorker.Core - An Alternative to Entity Framework](http://www.f3nws.com/n/HMPzRH)
 
 > Posted on: Monday, December 25, 2017 7:48:00 AM
