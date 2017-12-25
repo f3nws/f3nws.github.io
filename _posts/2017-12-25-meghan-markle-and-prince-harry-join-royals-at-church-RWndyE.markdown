@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meghan Markle and Prince Harry join royals at church"
-date: 2017-12-25 11:46:18Z
+date: 2017-12-25 13:00:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Prince Harry and Meghan Markle were met by hundreds of well-wishers as they turn
 
 Full story on F3News: [Meghan Markle and Prince Harry join royals at church](http://www.f3nws.com/n/RWndyE)
 
-> Posted on: Monday, December 25, 2017 11:46:18 AM
+> Posted on: Monday, December 25, 2017 1:00:09 PM

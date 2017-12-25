@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Trump's first year changed the Middle East"
-date: 2017-12-25 00:01:48Z
+date: 2017-12-25 13:15:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Men in combat fatigues posed for pictures on the border between Syria and Iraq, 
 
 Full story on F3News: [How Trump's first year changed the Middle East](http://www.f3nws.com/n/Wgvcn)
 
-> Posted on: Monday, December 25, 2017 12:01:48 AM
+> Posted on: Monday, December 25, 2017 1:15:10 PM

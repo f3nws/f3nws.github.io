@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pope speaks out for immigrants in Christmas Eve message"
-date: 2017-12-25 06:03:23Z
+date: 2017-12-25 12:53:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pope Francis issued a strong defense of immigration in his Christmas Eve mass Su
 
 Full story on F3News: [Pope speaks out for immigrants in Christmas Eve message](http://www.f3nws.com/n/bKEkhE)
 
-> Posted on: Monday, December 25, 2017 6:03:23 AM
+> Posted on: Monday, December 25, 2017 12:53:45 PM
