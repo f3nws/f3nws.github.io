@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "20 pilgrims killed in Christmas Day bus crash"
-date: 2017-12-25 07:27:48Z
+date: 2017-12-25 16:16:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twenty worshipers were killed in a road accident in the northern Philippines as 
 
 Full story on F3News: [20 pilgrims killed in Christmas Day bus crash](http://www.f3nws.com/n/fKxBQF)
 
-> Posted on: Monday, December 25, 2017 7:27:48 AM
+> Posted on: Monday, December 25, 2017 4:16:44 PM

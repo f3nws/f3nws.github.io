@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guatemala says it is moving embassy in Israel to Jerusalem"
-date: 2017-12-25 10:19:00Z
+date: 2017-12-25 10:54:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ GUATEMALA CITY (AP) — Guatemala's president announced on Christmas Eve that th
 
 Full story on F3News: [Guatemala says it is moving embassy in Israel to Jerusalem](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Monday, December 25, 2017 10:19:00 AM
+> Posted on: Monday, December 25, 2017 10:54:00 AM
