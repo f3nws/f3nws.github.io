@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Julian Assange's official Twitter account not appearing - CBS News](https://cbsnews1.cbsistatic.com/hub/i/r/2017/03/09/074b38b0-40a0-4d7f-9fc3-933b0555b921/thumbnail/1200x630/72ced5b708b42816db72b9be0c50a324/assange-march-9-2017.jpg)
 
-CBS News Julian Assange's official Twitter account not appearing CBS News The official Twitter account of controversial Wikileaks founder Julian Assange -- @JulianAssange -- isn't showing up. It wasn't clear whether the account was suspended or deleted by Twitter or Assange himself -- or why or for how long. Twitter wasn't ... Julian Assange's official Twitter account disappears The Hill Julian Assange's Twitter account mysteriously disappears New York Post Julian Assange's Twitter account disappears Washington Examiner Engadget - Mashable - NEWS.com.au - TheWrap all 22 news articles »
+CBS News Julian Assange's official Twitter account not appearing CBS News The official Twitter account of controversial Wikileaks founder Julian Assange -- @JulianAssange -- isn't showing up. It wasn't clear whether the account was suspended or deleted by Twitter or Assange himself -- or why or for how long. Twitter wasn't ... Julian Assange's official Twitter account disappears The Hill Julian Assange's Twitter account mysteriously disappears New York Post Julian Assange's Twitter account goes quiet (Update: It's back) Engadget Washington Examiner - NEWS.com.au - Mashable - TheWrap all 28 news articles »
 
 
 Full story on F3News: [Julian Assange's official Twitter account not appearing - CBS News](http://www.f3nws.com/n/gK4aRG)
