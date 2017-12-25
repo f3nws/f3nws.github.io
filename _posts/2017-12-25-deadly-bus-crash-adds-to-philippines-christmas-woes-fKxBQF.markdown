@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deadly bus crash adds to Philippines' Christmas woes"
-date: 2017-12-25 06:30:44Z
+date: 2017-12-25 07:27:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Twenty worshipers were killed in a road accident in the northern Philippines as 
 
 Full story on F3News: [Deadly bus crash adds to Philippines' Christmas woes](http://www.f3nws.com/n/fKxBQF)
 
-> Posted on: Monday, December 25, 2017 6:30:44 AM
+> Posted on: Monday, December 25, 2017 7:27:48 AM
