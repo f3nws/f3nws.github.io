@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Helicopter crews rescue 150 skiers from stuck gondola lifts in French Alps (VIDEOS)"
-date: 2017-12-25 01:42:55Z
+date: 2017-12-25 01:42:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Some 150 skiers were forced to spend most of their Christmas Eve admiring the ma
 
 Full story on F3News: [Helicopter crews rescue 150 skiers from stuck gondola lifts in French Alps (VIDEOS)](http://www.f3nws.com/n/2vZvxB)
 
-> Posted on: Monday, December 25, 2017 1:42:55 AM
+> Posted on: Monday, December 25, 2017 1:42:00 AM

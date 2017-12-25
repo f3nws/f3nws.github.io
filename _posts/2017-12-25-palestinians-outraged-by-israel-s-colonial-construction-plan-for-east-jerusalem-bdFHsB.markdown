@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Palestinians outraged by Israel’s ‘colonial construction plan’ for East Jerusalem"
-date: 2017-12-25 04:43:22Z
+date: 2017-12-25 04:43:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Palestinian authorities have condemned the planned construction of new housing u
 
 Full story on F3News: [Palestinians outraged by Israel’s ‘colonial construction plan’ for East Jerusalem](http://www.f3nws.com/n/bdFHsB)
 
-> Posted on: Monday, December 25, 2017 4:43:22 AM
+> Posted on: Monday, December 25, 2017 4:43:00 AM
