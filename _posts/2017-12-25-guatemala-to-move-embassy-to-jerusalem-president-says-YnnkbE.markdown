@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Guatemala to move embassy to Jerusalem, president says"
-date: 2017-12-25 15:44:59Z
+date: 2017-12-25 20:44:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Guatemala plans to move its embassy in Israel to Jerusalem, Guatemalan President
 
 Full story on F3News: [Guatemala to move embassy to Jerusalem, president says](http://www.f3nws.com/n/YnnkbE)
 
-> Posted on: Monday, December 25, 2017 3:44:59 PM
+> Posted on: Monday, December 25, 2017 8:44:09 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mariah Carey to return to Times Square for NYE after last year's mishap"
-date: 2017-12-25 20:41:17Z
+date: 2017-12-25 20:42:40Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ It's a redo for the musician Mariah Carey, who will be making a grand return to 
 
 Full story on F3News: [Mariah Carey to return to Times Square for NYE after last year's mishap](http://www.f3nws.com/n/QggxeF)
 
-> Posted on: Monday, December 25, 2017 8:41:17 PM
+> Posted on: Monday, December 25, 2017 8:42:40 PM

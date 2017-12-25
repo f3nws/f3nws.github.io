@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russian officials bar Navalny from running for president"
-date: 2017-12-25 15:05:00Z
+date: 2017-12-25 15:55:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ MOSCOW (AP) — Russian election officials on Monday formally barred Russian opp
 
 Full story on F3News: [Russian officials bar Navalny from running for president](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Monday, December 25, 2017 3:05:00 PM
+> Posted on: Monday, December 25, 2017 3:55:00 PM

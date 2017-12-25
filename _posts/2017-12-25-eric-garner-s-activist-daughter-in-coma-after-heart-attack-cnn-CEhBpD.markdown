@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Eric Garner's activist daughter in coma after heart attack - CNN](http://cdn.cnn.com/cnnnext/dam/assets/161028095823-erica-garner-super-tease.jpg)
 
-CNN Eric Garner's activist daughter in coma after heart attack CNN (CNN) The eldest daughter of Eric Garner, who died after a New York City police officer put him in a chokehold, is in a coma after suffering a heart attack, according to multiple reports. In a series of tweets, Erica Garner's verified Twitter account ... Family surrounds Eric Garner's daughter after cardiac event New York Post Activist Erica Garner Hospitalized After Heart Attack NPR Eric Garner's Daughter, An Advocate Against Police Brutality, Is In A Coma HuffPost International Business Times - New York Times - UPI.com - New York Daily News all 42 news articles »
+CNN Eric Garner's activist daughter in coma after heart attack CNN (CNN) The eldest daughter of Eric Garner, who died after a New York City police officer put him in a chokehold, is in a coma after suffering a heart attack, according to multiple reports. In a series of tweets, Erica Garner's verified Twitter account ... Family surrounds Eric Garner's daughter after cardiac event New York Post Activist Erica Garner Hospitalized After Heart Attack NPR Activist daughter of Erica Garner in coma following heart attack Washington Examiner NBC New York - International Business Times - UPI.com - New York Daily News all 44 news articles »
 
 
 Full story on F3News: [Eric Garner's activist daughter in coma after heart attack - CNN](http://www.f3nws.com/n/CEhBpD)
