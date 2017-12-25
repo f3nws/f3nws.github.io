@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Buying and selling Bitcoin, explained     - CNET"
-date: 2017-12-25 01:11:51Z
+date: 2017-12-25 03:32:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ A quick and dirty introduction to trading the world’s most exciting cryptocurr
 
 Full story on F3News: [Buying and selling Bitcoin, explained     - CNET](http://www.f3nws.com/n/ZXb2WB)
 
-> Posted on: Monday, December 25, 2017 1:11:51 AM
+> Posted on: Monday, December 25, 2017 3:32:16 AM
