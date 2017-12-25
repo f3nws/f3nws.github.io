@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meghan Markle and Prince Harry join royal family at Sandringham"
-date: 2017-12-25 14:13:27Z
+date: 2017-12-25 22:01:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Prince Harry and Meghan Markle were met by hundreds of well-wishers as they turn
 
 Full story on F3News: [Meghan Markle and Prince Harry join royal family at Sandringham](http://www.f3nws.com/n/RWndyE)
 
-> Posted on: Monday, December 25, 2017 2:13:27 PM
+> Posted on: Monday, December 25, 2017 10:01:50 PM
