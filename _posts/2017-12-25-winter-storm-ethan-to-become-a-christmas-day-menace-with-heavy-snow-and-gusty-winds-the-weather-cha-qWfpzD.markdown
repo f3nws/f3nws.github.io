@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Winter Storm Ethan to Become a Christmas Day Menace With Heavy Snow and Gusty Winds - The Weather Channel](https://s.w-x.co/dct_special104_1280x720_3.jpeg)
 
-The Weather Channel Winter Storm Ethan to Become a Christmas Day Menace With Heavy Snow and Gusty Winds The Weather Channel Meteorologist Danielle Banks says much of New England will see snowflakes on Christmas, thanks to Winter Storm Ethan. Christmas Storm to Dump Up to 18" of Snow. Winter Storm Ethan Bringing Snow and Ice. A Huge 'Wave' of Snow in Wyoming. Climate Change ... Winter storm sweeps across Midwest toward New England, promising Christmas snow NBCNews.com Dozens of crashes, road closures after snow blankets Puget Sound region KOMO News Christmas Eve snow and ice expected across much of US CNN NBC New York - Hartford Courant - Boston Herald - Chicago Tribune all 1,102 news articles »
+The Weather Channel Winter Storm Ethan to Become a Christmas Day Menace With Heavy Snow and Gusty Winds The Weather Channel Winter Storm Ethan is bringing snow to parts of the Northeast, making for a beautiful Christmas. Ethan Bringing Christmas Snow to New England. An Adventure Driving Down Icy Driveway in Maine. A Huge 'Wave' of Snow in Wyoming. Climate Change Could ... Northeast, Northwest looking at likelihood of white Christmas ABC News Christmas Day Storm May Drop 3-6 Inches Of Snow On Northern CT Hartford Courant 'I'm dreaming of a white Christmas' Boston Herald Boston.com - WXYZ - The State - NBC New York all 1,115 news articles »
 
 
 Full story on F3News: [Winter Storm Ethan to Become a Christmas Day Menace With Heavy Snow and Gusty Winds - The Weather Channel](http://www.f3nws.com/n/qWfpzD)

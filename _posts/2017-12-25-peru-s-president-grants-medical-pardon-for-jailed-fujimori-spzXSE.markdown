@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peru's president grants medical pardon for jailed Fujimori"
-date: 2017-12-25 02:12:00Z
+date: 2017-12-25 05:52:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ LIMA, Peru (AP) — Peru's president announced Sunday night that he granted a me
 
 Full story on F3News: [Peru's president grants medical pardon for jailed Fujimori](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Monday, December 25, 2017 2:12:00 AM
+> Posted on: Monday, December 25, 2017 5:52:00 AM

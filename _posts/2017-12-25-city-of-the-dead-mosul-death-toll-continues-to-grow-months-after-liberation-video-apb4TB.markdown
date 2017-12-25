@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "City of the dead: Mosul death toll continues to grow months after liberation (VIDEO)"
-date: 2017-12-25 05:53:32Z
+date: 2017-12-25 05:53:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The liberation of Mosul from ISIS came at a high cost, with the death toll conti
 
 Full story on F3News: [City of the dead: Mosul death toll continues to grow months after liberation (VIDEO)](http://www.f3nws.com/n/apb4TB)
 
-> Posted on: Monday, December 25, 2017 5:53:32 AM
+> Posted on: Monday, December 25, 2017 5:53:00 AM

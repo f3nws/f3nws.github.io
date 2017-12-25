@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Police hit with bottles at NSW beach party - 9news.com.au](https://www.9news.com.au/assets/img/9news_imgbg.053d2949.png)
 
-Police hit with bottles at NSW beach party 9news.com.au Christmas revellers at an unauthorised Sydney beach party have reacted angrily as police broke it up, allegedly hitting two officers with bottles. Officers were called to Little Bay, south of Maroubra, AT about 3pm on Monday following reports of the ... and more »
+Police hit with bottles at NSW beach party 9news.com.au Christmas revellers have been pepper sprayed and shoved to the ground as Sydney police broke up an unauthorised beach party where two officers were hit by bottles. Police were called to Little Bay, south of Maroubra, at about 3pm on Monday following ... and more »
 
 
 Full story on F3News: [Police hit with bottles at NSW beach party - 9news.com.au](http://www.f3nws.com/n/FaeETC)
