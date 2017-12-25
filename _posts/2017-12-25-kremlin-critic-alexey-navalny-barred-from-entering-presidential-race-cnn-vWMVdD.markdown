@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Kremlin critic Alexey Navalny barred from entering presidential race - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171225124214-01-alexey-navalny-1225-super-tease.jpg)
 
-CNN Kremlin critic Alexey Navalny barred from entering presidential race CNN (CNN) Russian officials barred activist Alexey Navalny from entering the country's presidential race a day after he held nomination gatherings to kick off his run, according to state-run media outlet RIA-Novosti. Russia's Central Election Commission ... Russian Opposition Leader Barred From Running Against Putin In 2018 NPR Russian election officials bar protest leader Navalny from 2018 presidential race Washington Post Putin Critic Navalny's Presidential Bid Blocked by Election Body Bloomberg Reuters - BBC News - The Hill - NBCNews.com all 204 news articles »
+CNN Kremlin critic Alexey Navalny barred from entering presidential race CNN (CNN) Russian officials barred activist Alexey Navalny from entering the country's presidential race a day after he held nomination gatherings to kick off his run, according to state-run media outlet RIA-Novosti. Russia's Central Election Commission ... Russian election officials bar protest leader Navalny from 2018 presidential race Washington Post Russian Opposition Leader Barred From Running Against Putin In 2018 NPR Putin critic Navalny barred from Russian presidential election Reuters Bloomberg - BBC News - U.S. News & World Report - The Hill all 225 news articles »
 
 
 Full story on F3News: [Kremlin critic Alexey Navalny barred from entering presidential race - CNN](http://www.f3nws.com/n/vWMVdD)

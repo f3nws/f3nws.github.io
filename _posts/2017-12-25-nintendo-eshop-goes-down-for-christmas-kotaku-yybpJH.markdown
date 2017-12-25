@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Nintendo Eshop Goes Down For Christmas - Kotaku](https://i.kinja-img.com/gawker-media/image/upload/s--OuEcRfhM--/c_fill,fl_progressive,g_center,h_450,q_80,w_800/neto2klefrvseugyfesy.png)
 
-Niche Gamer Nintendo Eshop Goes Down For Christmas Kotaku As thousands (tens of thousands? Hundreds of thousands?) of people wake up this morning to find Nintendo Switches under their Christmas trees (Hanukkah bushes? Kwanzaa shrubs?), they are discovering that they can't actually download any new games ... This Is Why You Should Love Nintendo Stock Motley Fool Meat Boy Switch is coming in a few weeks, with a kick ass 'Race Mode' Destructoid Nintendo Switch to be Restocked at Toys R Us Tomorrow GameZone Comicbook.com - Twinfinite - Daily Star - Siliconera all 43 news articles »
+GameTransfers Nintendo Eshop Goes Down For Christmas Kotaku As thousands (tens of thousands? Hundreds of thousands?) of people wake up this morning to find Nintendo Switches under their Christmas trees (Hanukkah bushes? Kwanzaa shrubs?), they are discovering that they can't actually download any new games ... Nintendo's eShop is down, leaving new Switch owners high and dry VentureBeat This Is Why You Should Love Nintendo Stock Motley Fool Nintendo eShop is down on Christmas SlashGear Comicbook.com - Twinfinite - Daily Star - Siliconera all 45 news articles »
 
 
 Full story on F3News: [Nintendo Eshop Goes Down For Christmas - Kotaku](http://www.f3nws.com/n/yybpJH)
