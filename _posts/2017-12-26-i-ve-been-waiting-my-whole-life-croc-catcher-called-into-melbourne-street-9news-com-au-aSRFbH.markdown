@@ -7,7 +7,7 @@ categories: google-news-australia
 
 !['I've been waiting my whole life': Croc catcher called into Melbourne street - 9news.com.au](http://prod.static9.net.au/_/media/2017/12/26/20/06/171226_gtv_lostcroc2.jpg)
 
-9news.com.au 'I've been waiting my whole life': Croc catcher called into Melbourne street 9news.com.au The pair found a one-metre long saltwater crocodile in a Heidelberg Heights front yard about 8.30pm on Monday. Police were skeptical, and thought they would find a large lizard instead, but there was indeed a crocodile on the loose in suburban ... Did Ah… Anyone In Melbourne Lose A Saltwater Croc? 'Cos The Cops Found One Pedestrian TV all 17 news articles »
+9news.com.au 'I've been waiting my whole life': Croc catcher called into Melbourne street 9news.com.au The pair found a one-metre long saltwater crocodile in a Heidelberg Heights front yard about 8.30pm on Monday. Police were skeptical, and thought they would find a large lizard instead, but there was indeed a crocodile on the loose in suburban ... Freshwater crocodile found on street in suburban Melbourne The New Daily Surprise for couple who find a baby crocodile on a Christmas day walk in Melbourne Sky News Anyone missing a crocodile? If so, a couple stumbled across one on a Christmas Day stroll in city's north east The Age The Straits Times - Yahoo7 News - Triple M - Pedestrian TV all 20 news articles »
 
 
 Full story on F3News: ['I've been waiting my whole life': Croc catcher called into Melbourne street - 9news.com.au](http://www.f3nws.com/n/aSRFbH)
