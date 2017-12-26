@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S Korea to create N Korea nuclear monitoring team"
-date: 2017-12-26 07:42:38Z
+date: 2017-12-26 08:58:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The South Korean Defense Ministry is creating a new bureau dedicated to monitori
 
 Full story on F3News: [S Korea to create N Korea nuclear monitoring team](http://www.f3nws.com/n/btcQPD)
 
-> Posted on: Tuesday, December 26, 2017 7:42:38 AM
+> Posted on: Tuesday, December 26, 2017 8:58:54 AM
