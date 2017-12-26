@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Fujimori: New clashes after Peru ex-president is pardoned - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05s0w4f.jpg)
 
-BBC News Fujimori: New clashes after Peru ex-president is pardoned BBC News Police in Peru have fired tear gas and clashed with thousands of protesters angry at the authorities' decision to pardon ex-President Alberto Fujimori. "No to the pardon!" chanted crowds in the capital Lima, during a second day of unrest that began on ... Peru's Kuczynski urges people to accept Fujimori pardon and 'turn the page' Reuters Peruvians protest suspiciously timed medical pardon of jailed ex-leader Alberto Fujimori The Week Magazine Peruvians see scheme in presidential pardon Fort Wayne Journal Gazette U.S. News & World Report - Vanguard - MaltaToday all 76 news articles »
+BBC News Fujimori: New clashes after Peru ex-president is pardoned BBC News Police in Peru have fired tear gas and clashed with thousands of protesters angry at the authorities' decision to pardon ex-President Alberto Fujimori. "No to the pardon!" chanted crowds in the capital Lima, during a second day of unrest that began on ... Peru's Kuczynski urges people to accept Fujimori pardon and 'turn the page' Reuters Peruvians protest suspiciously timed medical pardon of jailed ex-leader Alberto Fujimori The Week Magazine Thousands protest pardoning of Peru's former president Seattle Times Fort Wayne Journal Gazette - U.S. News & World Report - Vanguard all 84 news articles »
 
 
 Full story on F3News: [Fujimori: New clashes after Peru ex-president is pardoned - BBC News](http://www.f3nws.com/n/GNXzbE)
