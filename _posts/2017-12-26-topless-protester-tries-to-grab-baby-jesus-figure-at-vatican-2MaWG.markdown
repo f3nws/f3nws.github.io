@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Topless protester tries to grab baby Jesus figure at Vatican"
-date: 2017-12-26 14:50:02Z
+date: 2017-12-26 22:10:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A topless protester was detained by Vatican police on Monday for attempting to s
 
 Full story on F3News: [Topless protester tries to grab baby Jesus figure at Vatican](http://www.f3nws.com/n/2MaWG)
 
-> Posted on: Tuesday, December 26, 2017 2:50:02 PM
+> Posted on: Tuesday, December 26, 2017 10:10:48 PM

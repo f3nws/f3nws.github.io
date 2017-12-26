@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This US city got a white Christmas -- and then some"
-date: 2017-12-26 21:14:57Z
+date: 2017-12-26 21:53:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There's White Christmas. And then there's Whiteout Christmas.
 
 Full story on F3News: [This US city got a white Christmas -- and then some](http://www.f3nws.com/n/WxNkpG)
 
-> Posted on: Tuesday, December 26, 2017 9:14:57 PM
+> Posted on: Tuesday, December 26, 2017 9:53:56 PM
