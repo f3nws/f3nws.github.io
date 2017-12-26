@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pardoned Peru ex-leader asks for forgiveness after heated protests"
-date: 2017-12-26 14:41:31Z
+date: 2017-12-26 16:03:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Peruvians, angered at the pardoning of ailing former President Alberto Fujimori,
 
 Full story on F3News: [Pardoned Peru ex-leader asks for forgiveness after heated protests](http://www.f3nws.com/n/MNUDDC)
 
-> Posted on: Tuesday, December 26, 2017 2:41:31 PM
+> Posted on: Tuesday, December 26, 2017 4:03:28 PM

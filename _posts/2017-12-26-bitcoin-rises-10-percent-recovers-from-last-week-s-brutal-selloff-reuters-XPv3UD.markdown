@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![Bitcoin rises 10 percent, recovers from last week's brutal selloff - Reuters](https://s3.reutersmedia.net/resources/r/?m=02&d=20171226&t=2&i=1217223726&w=1200&r=LYNXMPEDBP07Q)
 
-Reuters Bitcoin rises 10 percent, recovers from last week's brutal selloff Reuters SINGAPORE/TOKYO (Reuters) - Bitcoin extended its recovery in holiday-thinned trading on Tuesday, rising 10 percent to be up more than a third from last week's lows of below $12,000. FILE PHOTO - Broken representation of the Bitcoin virtual currency ... Bitcoin holds overnight gains after last week's rout Tech Journal Hub (blog) Bitcoin 'Is Just Like the Dot-Com Bubble' The Atlantic Bitcoin could hit $60000 in 2018 but another crash is coming, says startup exec CNBC BGR - Newsweek - VentureBeat - The Guardian all 55 news articles »
+Reuters Bitcoin rises 10 percent, recovers from last week's brutal selloff Reuters SINGAPORE/TOKYO (Reuters) - Bitcoin extended its recovery in holiday-thinned trading on Tuesday, rising 10 percent to be up more than a third from last week's lows of below $12,000. FILE PHOTO - Broken representation of the Bitcoin virtual currency ... Bitcoin holds overnight gains after last week's rout Tech Journal Hub (blog) Bitcoin could hit $60000 in 2018 but another crash is coming, says startup exec CNBC The next few weeks will be crucial for Bitcoin BGR Newsweek - VentureBeat - Inside Bitcoins - Reading Eagle all 53 news articles »
 
 
 Full story on F3News: [Bitcoin rises 10 percent, recovers from last week's brutal selloff - Reuters](http://www.f3nws.com/n/XPv3UD)

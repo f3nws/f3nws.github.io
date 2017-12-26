@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mother and 2 children killed in Christmas Day shooting"
-date: 2017-12-26 13:44:39Z
+date: 2017-12-26 16:14:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A mother and her two children -- one just 10 months old -- were killed on Christ
 
 Full story on F3News: [Mother and 2 children killed in Christmas Day shooting](http://www.f3nws.com/n/PBY3BH)
 
-> Posted on: Tuesday, December 26, 2017 1:44:39 PM
+> Posted on: Tuesday, December 26, 2017 4:14:46 PM
