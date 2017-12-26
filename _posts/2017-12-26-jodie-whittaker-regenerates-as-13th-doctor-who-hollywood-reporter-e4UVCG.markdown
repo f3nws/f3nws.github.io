@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Jodie Whittaker Regenerates as 13th 'Doctor Who' - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2017/07/jodie_whittaker.jpg)
 
-Newsweek Jodie Whittaker Regenerates as 13th 'Doctor Who' Hollywood Reporter The actress became the first female incarnation of the BBC's famed Time Lord in a special episode on Christmas Day. Jodie Whittaker has officially taken over for Peter Capaldi as the lead role in the hit BBC science-fiction series Doctor Who. At the ... Doctor Who recap: 'Twice Upon a Time' EW.com (blog) 'Doctor Who' Review: Peter Capaldi Takes Too Long to Say Goodbye In Emotional Christmas Special IndieWire Peter Capaldi and Steven Moffat's final Doctor Who was surprisingly graceful and generous Vox TV Guide - Comicbook.com - Cinema Blend - Den of Geek US all 246 news articles »
+Newsweek Jodie Whittaker Regenerates as 13th 'Doctor Who' Hollywood Reporter The actress became the first female incarnation of the BBC's famed Time Lord in a special episode on Christmas Day. Jodie Whittaker has officially taken over for Peter Capaldi as the lead role in the hit BBC science-fiction series Doctor Who. At the ... Doctor Who recap: 'Twice Upon a Time' EW.com (blog) 'Doctor Who' Review: Peter Capaldi Takes Too Long to Say Goodbye In Emotional Christmas Special IndieWire Peter Capaldi and Steven Moffat's final Doctor Who was surprisingly graceful and generous Vox Comicbook.com - Den of Geek US - TV Guide - Cinema Blend all 245 news articles »
 
 
 Full story on F3News: [Jodie Whittaker Regenerates as 13th 'Doctor Who' - Hollywood Reporter](http://www.f3nws.com/n/e4UVCG)
