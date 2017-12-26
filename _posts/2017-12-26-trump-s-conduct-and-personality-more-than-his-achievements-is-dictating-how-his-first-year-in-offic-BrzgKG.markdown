@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Trump's conduct and personality, more than his achievements, is dictating how his first year in office is perceived"
+date: 2017-12-26 11:16:27Z
+categories: cnn-com-top-stories
+---
+
+![Trump's conduct and personality, more than his achievements, is dictating how his first year in office is perceived](http://cdn.cnn.com/cnnnext/dam/assets/171204114336-01-donald-trump-12-04-2017-super-tease.jpg)
+
+CNN Why Trump isn't getting the credit he thinks he deserves CNN Washington (CNN) President Donald Trump is probably right: he doesn't get due credit for the volume of achievements he's stacked up during a tumultuous political year. But to judge his presidency so far simply on bills passed, regulations slashed ... Trump claims he's boosting US influence, but many foreign leaders see America in retreat Los Angeles Times America is on the brink of a historic break with Europe, thanks to Trump USA TODAY Trump International: 7 Highlights of the President's Trips Abroad in 2017 Breitbart News The Australian - The Australian Financial Review - New York Times - South China Morning Post all 54 news articles »
+
+
+Full story on F3News: [Trump's conduct and personality, more than his achievements, is dictating how his first year in office is perceived](http://www.f3nws.com/n/BrzgKG)
+
+> Posted on: Tuesday, December 26, 2017 11:16:27 AM

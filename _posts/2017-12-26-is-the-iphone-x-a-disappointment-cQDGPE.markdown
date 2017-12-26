@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Is the iPhone X a disappointment?"
-date: 2017-12-26 13:56:51Z
+date: 2017-12-26 18:23:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Is the iPhone X a disappointment?](http://www.f3nws.com/n/cQDGPE)
 
-> Posted on: Tuesday, December 26, 2017 1:56:51 PM
+> Posted on: Tuesday, December 26, 2017 6:23:44 PM
