@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin recovers from brutal sell-off that wiped out nearly half its value"
-date: 2017-12-26 09:23:27Z
+date: 2017-12-26 09:23:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The leading cryptocurrency bitcoin has passed the $15,000 mark on Tuesday. It ha
 
 Full story on F3News: [Bitcoin recovers from brutal sell-off that wiped out nearly half its value](http://www.f3nws.com/n/C3yWDH)
 
-> Posted on: Tuesday, December 26, 2017 9:23:27 AM
+> Posted on: Tuesday, December 26, 2017 9:23:00 AM

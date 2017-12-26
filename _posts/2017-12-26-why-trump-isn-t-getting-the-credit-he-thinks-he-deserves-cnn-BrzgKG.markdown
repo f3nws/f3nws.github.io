@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Why Trump isn't getting the credit he thinks he deserves - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171204114336-01-donald-trump-12-04-2017-super-tease.jpg)
 
-CNN Why Trump isn't getting the credit he thinks he deserves CNN Washington (CNN) President Donald Trump is probably right: he doesn't get due credit for the volume of achievements he's stacked up during a tumultuous political year. But to judge his presidency so far simply on bills passed, regulations slashed ... Trump claims he's boosting US influence, but many foreign leaders see America in retreat Los Angeles Times US tax law may spur cuts by other nations, fuelling trade tensions TODAYonline US security strategy report reignites rivalry among major powers Global Times South China Morning Post - The Augusta Chronicle - New Delhi Times - ecns all 34 news articles »
+CNN Why Trump isn't getting the credit he thinks he deserves CNN Washington (CNN) President Donald Trump is probably right: he doesn't get due credit for the volume of achievements he's stacked up during a tumultuous political year. But to judge his presidency so far simply on bills passed, regulations slashed ... Trump claims he's boosting US influence, but many foreign leaders see America in retreat Los Angeles Times Trump International: 7 Highlights of the President's Trips Abroad in 2017 Breitbart News Which Nation Does the World Trust Most? (Hint: Follow the Dollar) New York Times TODAYonline - South China Morning Post - Global Times - The Herald-News all 37 news articles »
 
 
 Full story on F3News: [Why Trump isn't getting the credit he thinks he deserves - CNN](http://www.f3nws.com/n/BrzgKG)
