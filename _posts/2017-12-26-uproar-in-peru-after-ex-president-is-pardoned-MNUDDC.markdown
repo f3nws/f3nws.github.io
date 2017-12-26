@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uproar in Peru after ex-president is pardoned"
-date: 2017-12-26 11:31:06Z
+date: 2017-12-26 12:00:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Peruvians, angered at the pardoning of ailing former President Alberto Fujimori,
 
 Full story on F3News: [Uproar in Peru after ex-president is pardoned](http://www.f3nws.com/n/MNUDDC)
 
-> Posted on: Tuesday, December 26, 2017 11:31:06 AM
+> Posted on: Tuesday, December 26, 2017 12:00:26 PM
