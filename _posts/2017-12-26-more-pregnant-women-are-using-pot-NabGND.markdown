@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'More pregnant women are using pot'"
-date: 2017-12-26 17:08:03Z
+date: 2017-12-26 20:18:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More pregnant women seem to be using pot -- sometimes to ease the nausea of morn
 
 Full story on F3News: ['More pregnant women are using pot'](http://www.f3nws.com/n/NabGND)
 
-> Posted on: Tuesday, December 26, 2017 5:08:03 PM
+> Posted on: Tuesday, December 26, 2017 8:18:18 PM
