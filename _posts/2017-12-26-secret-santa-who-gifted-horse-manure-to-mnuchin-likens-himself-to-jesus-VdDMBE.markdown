@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Secret Santa' who gifted horse manure to Mnuchin likens himself to Jesus"
-date: 2017-12-26 02:10:07Z
+date: 2017-12-26 02:10:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Dropping horse manure as a Christmas gift to US Treasury Secretary Steven Mnuchi
 
 Full story on F3News: ['Secret Santa' who gifted horse manure to Mnuchin likens himself to Jesus](http://www.f3nws.com/n/VdDMBE)
 
-> Posted on: Tuesday, December 26, 2017 2:10:07 AM
+> Posted on: Tuesday, December 26, 2017 2:10:00 AM

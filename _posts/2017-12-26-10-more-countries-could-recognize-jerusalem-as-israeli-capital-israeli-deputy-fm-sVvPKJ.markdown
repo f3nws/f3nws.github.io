@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "10 more countries could recognize Jerusalem as Israeli capital – Israeli deputy FM"
-date: 2017-12-26 01:41:52Z
+date: 2017-12-26 01:41:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israeli Deputy Foreign Minister Tzipi Hotovely has told a radio station that 10 
 
 Full story on F3News: [10 more countries could recognize Jerusalem as Israeli capital – Israeli deputy FM](http://www.f3nws.com/n/sVvPKJ)
 
-> Posted on: Tuesday, December 26, 2017 1:41:52 AM
+> Posted on: Tuesday, December 26, 2017 1:41:00 AM

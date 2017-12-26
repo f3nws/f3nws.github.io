@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bus driver stabbed & beaten by road-ragers as 10yo passengers look on"
-date: 2017-12-26 00:29:29Z
+date: 2017-12-26 00:29:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The driver of a bus carrying two dozen schoolchildren in St. Petersburg was stab
 
 Full story on F3News: [Bus driver stabbed & beaten by road-ragers as 10yo passengers look on](http://www.f3nws.com/n/fFdPdC)
 
-> Posted on: Tuesday, December 26, 2017 12:29:29 AM
+> Posted on: Tuesday, December 26, 2017 12:29:00 AM
