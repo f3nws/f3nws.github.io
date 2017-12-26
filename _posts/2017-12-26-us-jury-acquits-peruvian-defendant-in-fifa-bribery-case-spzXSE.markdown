@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US jury acquits Peruvian defendant in FIFA bribery case"
-date: 2017-12-26 14:12:00Z
+date: 2017-12-26 16:08:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — A former South American soccer official was acquitted in the F
 
 Full story on F3News: [US jury acquits Peruvian defendant in FIFA bribery case](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Tuesday, December 26, 2017 2:12:00 PM
+> Posted on: Tuesday, December 26, 2017 4:08:00 PM

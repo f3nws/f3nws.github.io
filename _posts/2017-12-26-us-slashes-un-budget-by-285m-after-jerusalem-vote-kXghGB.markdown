@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US slashes UN budget by $285M after Jerusalem vote"
-date: 2017-12-26 16:43:50Z
+date: 2017-12-26 21:15:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US Ambassador to the United Nations Nikki Haley on Sunday touted a quarter billi
 
 Full story on F3News: [US slashes UN budget by $285M after Jerusalem vote](http://www.f3nws.com/n/kXghGB)
 
-> Posted on: Tuesday, December 26, 2017 4:43:50 PM
+> Posted on: Tuesday, December 26, 2017 9:15:16 PM
