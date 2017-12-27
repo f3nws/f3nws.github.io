@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Big win for retail’ as US sales jump 4.9% over holiday, largest increase since 2011"
-date: 2017-12-27 05:16:27Z
+date: 2017-12-27 05:16:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ In a year that saw malls closing their doors across the country, American shoppe
 
 Full story on F3News: [‘Big win for retail’ as US sales jump 4.9% over holiday, largest increase since 2011](http://www.f3nws.com/n/kvkyBB)
 
-> Posted on: Wednesday, December 27, 2017 5:16:27 AM
+> Posted on: Wednesday, December 27, 2017 5:16:00 AM

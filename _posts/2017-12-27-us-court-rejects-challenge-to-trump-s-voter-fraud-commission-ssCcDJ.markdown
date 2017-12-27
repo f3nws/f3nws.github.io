@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US court rejects challenge to Trump’s voter fraud commission"
-date: 2017-12-27 00:44:25Z
+date: 2017-12-27 00:44:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ An electronic privacy advocacy group is “not a voter” and lacks the standing
 
 Full story on F3News: [US court rejects challenge to Trump’s voter fraud commission](http://www.f3nws.com/n/ssCcDJ)
 
-> Posted on: Wednesday, December 27, 2017 12:44:25 AM
+> Posted on: Wednesday, December 27, 2017 12:44:00 AM
