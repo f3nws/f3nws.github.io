@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Biggest celebrity losers of 2017: From Harvey Weinstein to Ben Affleck"
-date: 2017-12-27 05:45:01Z
+date: 2017-12-27 10:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ It’s no secret that 2017 has felt like a divisive year all around. However, so
 
 Full story on F3News: [Biggest celebrity losers of 2017: From Harvey Weinstein to Ben Affleck](http://www.f3nws.com/n/ykBtQH)
 
-> Posted on: Wednesday, December 27, 2017 5:45:01 AM
+> Posted on: Wednesday, December 27, 2017 10:00:00 AM

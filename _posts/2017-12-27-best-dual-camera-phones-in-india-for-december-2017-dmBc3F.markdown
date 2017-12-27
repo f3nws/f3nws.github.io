@@ -7,7 +7,7 @@ categories: techradar
 
 ![Best dual-camera phones in India for December 2017](http://cdn.mos.cms.futurecdn.net/cmVWtuVr6xc9kM5fJbFeyn-1200-80.jpg)
 
-With the market leaning towards dual-camera phones, we decided to take a look at some of the best dual-camera phones available in India right now.
+With the market leaning towards phones with better cameras, we decided to take a look at some of the best dual-camera phones available in India right now.
 
 
 Full story on F3News: [Best dual-camera phones in India for December 2017](http://www.f3nws.com/n/dmBc3F)

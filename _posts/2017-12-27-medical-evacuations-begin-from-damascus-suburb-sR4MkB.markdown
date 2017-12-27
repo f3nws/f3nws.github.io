@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Medical evacuations begin from Damascus suburb"
-date: 2017-12-27 08:20:41Z
+date: 2017-12-27 10:14:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Evacuations of the first critical medical cases from a rebel-held region east of
 
 Full story on F3News: [Medical evacuations begin from Damascus suburb](http://www.f3nws.com/n/sR4MkB)
 
-> Posted on: Wednesday, December 27, 2017 8:20:41 AM
+> Posted on: Wednesday, December 27, 2017 10:14:42 AM
