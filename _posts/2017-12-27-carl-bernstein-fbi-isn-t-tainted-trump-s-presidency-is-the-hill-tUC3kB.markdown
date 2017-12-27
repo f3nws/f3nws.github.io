@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Carl Bernstein: FBI isn't tainted, Trump's presidency is - The Hill](http://thehill.com/sites/default/files/trumpsign3.jpg)
 
-The Hill Carl Bernstein: FBI isn't tainted, Trump's presidency is The Hill Veteran journalist Carl Bernstein tore into President Trump · Donald John TrumpHouse Democrat slams Donald Trump Jr. for 'serious case of amnesia' after testimony Skier Lindsey Vonn: I don't want to represent Trump at Olympics Poll: 4 in 10 Republicans ... Donald Trump really wants you to believe the partially corroborated Steele dossier is 'bogus' ThinkProgress Watergate reporter lambastes GOP's 'deep state' whining: The FBI isn't 'tainted' — Trump is Raw Story Trump claims FBI used 'bogus' dossier to go after his campaign Politico The Hill - Washington Times - Daily Mail all 135 news articles »
+The Hill Carl Bernstein: FBI isn't tainted, Trump's presidency is The Hill Veteran journalist Carl Bernstein tore into President Trump · Donald John TrumpHouse Democrat slams Donald Trump Jr. for 'serious case of amnesia' after testimony Skier Lindsey Vonn: I don't want to represent Trump at Olympics Poll: 4 in 10 Republicans ... Trump slams FBI, Obamacare in post-Christmas tweets The Mercury News Donald Trump really wants you to believe the partially corroborated Steele dossier is 'bogus' ThinkProgress CNN Obsesses Over Trump's Tweet About The Dossier [VIDEO] The Daily Caller Newsmax - Raw Story - Firstpost - Politico all 134 news articles »
 
 
 Full story on F3News: [Carl Bernstein: FBI isn't tainted, Trump's presidency is - The Hill](http://www.f3nws.com/n/tUC3kB)

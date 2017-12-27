@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Little Santas flock onto Aleppo streets at Christmas, 1 year after liberation (PHOTOS)"
-date: 2017-12-27 03:33:40Z
+date: 2017-12-27 03:33:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Dozens of children dressed in red-and-white Santa Claus costumes danced around a
 
 Full story on F3News: [Little Santas flock onto Aleppo streets at Christmas, 1 year after liberation (PHOTOS)](http://www.f3nws.com/n/xK2MQE)
 
-> Posted on: Wednesday, December 27, 2017 3:33:40 AM
+> Posted on: Wednesday, December 27, 2017 3:33:00 AM
