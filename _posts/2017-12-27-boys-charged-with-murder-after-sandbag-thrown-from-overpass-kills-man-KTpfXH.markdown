@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Boys charged with murder after sandbag thrown from overpass kills man"
-date: 2017-12-27 17:29:35Z
+date: 2017-12-27 21:23:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Authorities in Toledo, Ohio, have charged four boys with murder after a sandbag 
 
 Full story on F3News: [Boys charged with murder after sandbag thrown from overpass kills man](http://www.f3nws.com/n/KTpfXH)
 
-> Posted on: Wednesday, December 27, 2017 5:29:35 PM
+> Posted on: Wednesday, December 27, 2017 9:23:57 PM

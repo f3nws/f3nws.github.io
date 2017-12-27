@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump has scored some successes in foreign policy"
-date: 2017-12-27 14:28:57Z
+date: 2017-12-27 21:19:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Some of the most ferocious critics of President Trump's foreign policy are leadi
 
 Full story on F3News: [Trump has scored some successes in foreign policy](http://www.f3nws.com/n/MWh3FD)
 
-> Posted on: Wednesday, December 27, 2017 2:28:57 PM
+> Posted on: Wednesday, December 27, 2017 9:19:01 PM
