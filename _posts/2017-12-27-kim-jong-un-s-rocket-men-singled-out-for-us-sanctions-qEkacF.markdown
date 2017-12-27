@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Kim Jong-un's rocket men singled out for US sanctions](http://www.abc.net.au/news/image/9286524-16x9-700x394.jpg)
 
-Kim Jong-sik and Ri Pyong-chol are frequently seen celebrating test launches with Kom Jong-um — now they have been singled out for US sanctions because of their part in leading North Korea's nuclear missile program.
+Kim Jong-sik and Ri Pyong-chol are frequently seen celebrating test launches with Kim Jong-un — now they have been singled out for US sanctions because of their part in leading North Korea's nuclear missile program.
 
 
 Full story on F3News: [Kim Jong-un's rocket men singled out for US sanctions](http://www.f3nws.com/n/qEkacF)
