@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Sydney grandmother duped in online romance scam escapes death penalty](http://www.abc.net.au/news/image/9287932-16x9-700x394.jpg)
 
-Australian woman, Maria Exposto, was caught with 1.1kg of crystal meth at Malaysia's international airport in 2014, and says she was the victim of an online romance scam. Today a judge found her not guilty of drug trafficking.
+Maria Exposto was caught with 1.1kg of crystal meth at Malaysia's international airport. She's been found not guilty of drug trafficking, but will not be able to return to Australia yet as prosecutors will challenge the ruling.
 
 
 Full story on F3News: [Sydney grandmother duped in online romance scam escapes death penalty](http://www.f3nws.com/n/STpJPE)
