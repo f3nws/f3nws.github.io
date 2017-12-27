@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kennedy Center Honors go on, despite presidential no-show"
-date: 2017-12-27 02:40:26Z
+date: 2017-12-27 12:47:16Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The latest Kennedy Center Honors should be cause for celebration, marking the ev
 
 Full story on F3News: [Kennedy Center Honors go on, despite presidential no-show](http://www.f3nws.com/n/QmhgQG)
 
-> Posted on: Wednesday, December 27, 2017 2:40:26 AM
+> Posted on: Wednesday, December 27, 2017 12:47:16 PM
