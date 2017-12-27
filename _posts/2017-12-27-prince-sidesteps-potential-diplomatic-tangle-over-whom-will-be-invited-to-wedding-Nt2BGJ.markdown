@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prince sidesteps potential diplomatic tangle over whom will be invited to wedding"
-date: 2017-12-27 15:15:06Z
+date: 2017-12-27 19:21:45Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Prince Harry avoided a potential diplomatic tangle over the guest list for his w
 
 Full story on F3News: [Prince sidesteps potential diplomatic tangle over whom will be invited to wedding](http://www.f3nws.com/n/Nt2BGJ)
 
-> Posted on: Wednesday, December 27, 2017 3:15:06 PM
+> Posted on: Wednesday, December 27, 2017 7:21:45 PM
