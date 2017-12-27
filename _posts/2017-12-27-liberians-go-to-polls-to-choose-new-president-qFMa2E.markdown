@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Liberians go to polls to choose new president"
-date: 2017-12-27 02:49:21Z
+date: 2017-12-27 04:40:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Liberians streamed to the polls Tuesday to vote for a new president after a test
 
 Full story on F3News: [Liberians go to polls to choose new president](http://www.f3nws.com/n/qFMa2E)
 
-> Posted on: Wednesday, December 27, 2017 2:49:21 AM
+> Posted on: Wednesday, December 27, 2017 4:40:25 AM
