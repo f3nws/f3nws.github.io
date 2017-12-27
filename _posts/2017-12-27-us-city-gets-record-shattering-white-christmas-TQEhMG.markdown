@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US city gets record-shattering white Christmas"
-date: 2017-12-27 03:37:55Z
+date: 2017-12-27 11:05:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The eastern United States and the Midwest are being clobbered with a brutal cold
 
 Full story on F3News: [US city gets record-shattering white Christmas](http://www.f3nws.com/n/TQEhMG)
 
-> Posted on: Wednesday, December 27, 2017 3:37:55 AM
+> Posted on: Wednesday, December 27, 2017 11:05:27 AM

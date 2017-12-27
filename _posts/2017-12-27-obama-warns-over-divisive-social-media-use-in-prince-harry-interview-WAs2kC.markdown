@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obama warns over divisive social media use in Prince Harry interview"
-date: 2017-12-27 10:04:52Z
+date: 2017-12-27 10:59:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former US President Barack Obama has urged people in leadership positions not to
 
 Full story on F3News: [Obama warns over divisive social media use in Prince Harry interview](http://www.f3nws.com/n/WAs2kC)
 
-> Posted on: Wednesday, December 27, 2017 10:04:52 AM
+> Posted on: Wednesday, December 27, 2017 10:59:43 AM
