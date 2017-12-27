@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US lets militants train, mount attacks from its Syrian bases – chief of Russian General Staff"
-date: 2017-12-27 01:02:52Z
+date: 2017-12-27 01:02:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The US is hosting training camps for militant groups in Syria, including former 
 
 Full story on F3News: [US lets militants train, mount attacks from its Syrian bases – chief of Russian General Staff](http://www.f3nws.com/n/EtTsxB)
 
-> Posted on: Wednesday, December 27, 2017 1:02:52 AM
+> Posted on: Wednesday, December 27, 2017 1:02:00 AM

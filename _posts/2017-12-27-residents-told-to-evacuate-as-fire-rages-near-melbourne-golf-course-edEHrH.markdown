@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Residents told to evacuate as fire rages near Melbourne golf course](http://www.abc.net.au/news/image/9287680-16x9-700x394.jpg)
 
-A fire burns out of control near a golf club and cemetery at Cheltenham, in Melbourne's south-east, as authorities tell residents to evacuate.
+Forty homes are evacuated as a fire burns out of control near a golf club and cemetery at Cheltenham, in Melbourne's south-east.
 
 
 Full story on F3News: [Residents told to evacuate as fire rages near Melbourne golf course](http://www.f3nws.com/n/edEHrH)
