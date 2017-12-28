@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's stock market cheerleading could be a risky bet"
-date: 2017-12-28 06:16:19Z
+date: 2017-12-28 10:22:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump seems determined to ignore the small print disclaimer tha
 
 Full story on F3News: [Trump's stock market cheerleading could be a risky bet](http://www.f3nws.com/n/hpcNNC)
 
-> Posted on: Thursday, December 28, 2017 6:16:19 AM
+> Posted on: Thursday, December 28, 2017 10:22:13 AM

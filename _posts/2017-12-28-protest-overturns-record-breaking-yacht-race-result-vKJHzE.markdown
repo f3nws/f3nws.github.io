@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Protest overturns record-breaking yacht race result"
-date: 2017-12-28 09:34:57Z
+date: 2017-12-28 09:43:59Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ LDV Comanche has been crowned the winner of this year's Rolex Sydney-Hobart Yach
 
 Full story on F3News: [Protest overturns record-breaking yacht race result](http://www.f3nws.com/n/vKJHzE)
 
-> Posted on: Thursday, December 28, 2017 9:34:57 AM
+> Posted on: Thursday, December 28, 2017 9:43:59 AM
