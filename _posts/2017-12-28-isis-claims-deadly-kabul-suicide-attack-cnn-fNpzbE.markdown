@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![ISIS claims deadly Kabul suicide attack - CNN](http://cdn.cnn.com/cnn/.e/img/4.0/logos/cnn_logo_social.jpg)
 
-CNN ISIS claims deadly Kabul suicide attack CNN Kabul, Afghanistan (CNN) ISIS has claimed responsibility for a suicide bomb attack on a Shia cultural center in Afghanistan's capital, Kabul, that left 41 people dead and dozens injured. Two children were among the dead and 84 people were injured in ... Islamic State Claims Deadly Blast at Afghan Shiite Center New York Times Afghanistan suicide bomb attack: Dozens killed in Kabul BBC News The Latest: Attack on Afghan Shiite center kills 41 Washington Post Fox News - The Atlantic - Reuters - CBS News all 354 news articles »
+CNN ISIS claims deadly Kabul suicide attack CNN Kabul, Afghanistan (CNN) ISIS has claimed responsibility for a suicide bomb attack on a Shia cultural center in Afghanistan's capital, Kabul, that left 41 people dead and dozens injured. Two children were among the dead and 84 people were injured in ... Islamic State Claims Deadly Blast at Afghan Shiite Center New York Times The Latest: White House condemns Afghanistan attack Washington Post A look at Islamic State attacks in Afghanistan Fox News The Atlantic - Reuters - CBS News - Newsweek all 371 news articles »
 
 
 Full story on F3News: [ISIS claims deadly Kabul suicide attack - CNN](http://www.f3nws.com/n/fNpzbE)
