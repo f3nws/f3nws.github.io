@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia slams US plan to sell anti-missile system to Japan"
-date: 2017-12-28 20:26:16Z
+date: 2017-12-28 20:50:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russia has accused the United States of violating an arms control treaty by agre
 
 Full story on F3News: [Russia slams US plan to sell anti-missile system to Japan](http://www.f3nws.com/n/H2SJSJ)
 
-> Posted on: Thursday, December 28, 2017 8:26:16 PM
+> Posted on: Thursday, December 28, 2017 8:50:04 PM

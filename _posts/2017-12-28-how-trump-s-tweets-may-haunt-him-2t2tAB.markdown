@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How Trump's tweets may haunt him"
-date: 2017-12-28 12:32:02Z
+date: 2017-12-28 20:47:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's tweet Tuesday morning calling the Russia dossier "bogus
 
 Full story on F3News: [How Trump's tweets may haunt him](http://www.f3nws.com/n/2t2tAB)
 
-> Posted on: Thursday, December 28, 2017 12:32:02 PM
+> Posted on: Thursday, December 28, 2017 8:47:51 PM

@@ -5,7 +5,7 @@ date: 2017-12-28 19:04:00Z
 categories: fox-news
 ---
 
-Alabama Democrat Doug Jones on Thursday will be officially declared the winner of a U.S. Senate race after a judge rejected Republican Roy Moore's last-ditch effort to stop the certification of Jones' historic upset in a deep-red state.
+Democrat Doug Jones was certified Thursday by Alabama’s secretary of state as the winner of the state’s Senate race, less than an hour after a judge rejected Republican nominee Roy Moore’s last-ditch attempt to challenge the election results.
 
 
 Full story on F3News: [Doug Jones certified as winner of Alabama Senate race](http://www.f3nws.com/n/ScYChC)
