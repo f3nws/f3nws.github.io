@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Spanish parents may spy on kids’ WhatsApp chats, court rules"
-date: 2017-12-28 05:38:12Z
+date: 2017-12-28 05:38:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A Spanish court has ruled that not only can parents legally monitor their childr
 
 Full story on F3News: [Spanish parents may spy on kids’ WhatsApp chats, court rules](http://www.f3nws.com/n/raUQSB)
 
-> Posted on: Thursday, December 28, 2017 5:38:12 AM
+> Posted on: Thursday, December 28, 2017 5:38:00 AM
