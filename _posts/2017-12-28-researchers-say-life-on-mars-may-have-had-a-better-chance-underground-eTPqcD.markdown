@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Researchers say life on Mars may have had a better chance underground"
+date: 2017-12-28 03:02:00Z
+categories: engadget
+---
+
+![Researchers say life on Mars may have had a better chance underground](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D4500%252C3000%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1067%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252Fa354889a39ed0f497d92bb0efe331b32%252F205956943%252Fplanet-mars-picture-id613770884%26client%3Da1acac3e1b3290917d92%26signature%3D648713d648decade09915f4ac86bc9bffd047766&client=cbc79c14efcebee57402&signature=beb8361e02258a7c0229e1bd7256acf55ce4a373)
+
+Mars is now a dry, cold planet, but whether it once supported life is still an open question. On Earth, areas that once hosted long dried-up bodies of water have been a rich source of evidence of ancient life and because of that, those sorts of areas have been the target of searches for ancient Martian life . But a paper published recently in Nature Geoscience says that might not be the best place to look. "Given how little we understand about the origin of life on Earth, it makes sense to adopt a broader plan to seek signs of life," say the paper's authors. And they suggest going below the planet's surface, looking in areas that may have hosted hydrothermal systems. "Mars is not Earth," say the researchers, "We must recognize that our entire perspective on how life has evolved and how evidence of life is preserved is coloured by the fact that we live on a planet where photosynthesis evolved." By the time Earth saw photosynthesis, Mars had been a cold, atmosphere-less planet for about a billion years. Because Mars is so much less massive than Earth, its core cooled faster, leading to a loss of the planet's magnetic field. So around four billion years ago, the planet lost most of its atmosphere and, therefore, its protection from radiation and solar winds. Thus, if Mars had developed life on its surface, it needed to have done that about a billion years earlier than Earth, which is unlikely. But subsurface life may have had a chance. "Mars may have been cold, arid, oxidizing and generally inhospitable at the surface for much of its history; however, hydrothermal conditions in the near surface or subsurface might have been considerably more clement," said the researchers. Mars certainly had ancient hydrothermal activity -- the Spirit rover accidentally came across such a system in 2008. And in 2020, NASA plans to send another rover to our red neighbor that will gather, store and eventually ship back to Earth Martian rock samples . John Mustard, a professor at Brown University and an author of the paper, told Space.com that he hopes the rover samples sediment ...
+
+
+Full story on F3News: [Researchers say life on Mars may have had a better chance underground](http://www.f3nws.com/n/eTPqcD)
+
+> Posted on: Thursday, December 28, 2017 3:02:00 AM

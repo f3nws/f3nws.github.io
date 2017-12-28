@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Russia's embarrassing $58 million satellite launch failure 'human error'](http://www.abc.net.au/news/image/9290040-16x9-700x394.jpg)
 
-Russian space agency Roscosmos' failed launch of a $58 million weather satellite was due to an embarrassing programming error, the Deputy Prime Minister says.
+A $58 million Russian weather satellite went missing in space after the rocket which was blasting it into orbit was programmed with the wrong coordinates, the country's Deputy Prime Minister says.
 
 
 Full story on F3News: [Russia's embarrassing $58 million satellite launch failure 'human error'](http://www.f3nws.com/n/DagpWC)

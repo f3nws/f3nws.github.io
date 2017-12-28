@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Arabs won’t be led by Ankara,’ UAE tells Turkey, as Twitter spat blows up"
-date: 2017-12-28 02:41:54Z
+date: 2017-12-28 02:41:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A United Arab Emirates diplomat has lashed out at Turkey, as tensions continue t
 
 Full story on F3News: [‘Arabs won’t be led by Ankara,’ UAE tells Turkey, as Twitter spat blows up](http://www.f3nws.com/n/zDFMXC)
 
-> Posted on: Thursday, December 28, 2017 2:41:54 AM
+> Posted on: Thursday, December 28, 2017 2:41:00 AM
