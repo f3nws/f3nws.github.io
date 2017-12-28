@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Roy Moore tries to block Alabama election result"
-date: 2017-12-28 12:58:33Z
+date: 2017-12-28 14:19:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Roy Moore filed an election complaint on Wednesday, alleging potential voter fra
 
 Full story on F3News: [Roy Moore tries to block Alabama election result](http://www.f3nws.com/n/DDAMhC)
 
-> Posted on: Thursday, December 28, 2017 12:58:33 PM
+> Posted on: Thursday, December 28, 2017 2:19:30 PM

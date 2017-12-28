@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "ISIS claims deadly Kabul suicide attack that killed 41"
-date: 2017-12-28 12:37:18Z
+date: 2017-12-28 13:39:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 40 people were killed Thursday in a suicide bomb attack in Afghanistan'
 
 Full story on F3News: [ISIS claims deadly Kabul suicide attack that killed 41](http://www.f3nws.com/n/fNpzbE)
 
-> Posted on: Thursday, December 28, 2017 12:37:18 PM
+> Posted on: Thursday, December 28, 2017 1:39:33 PM
