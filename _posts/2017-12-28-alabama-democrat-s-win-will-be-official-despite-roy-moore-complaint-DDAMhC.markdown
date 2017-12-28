@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Alabama Democrat's win will be official despite Roy Moore complaint"
-date: 2017-12-28 14:58:54Z
+date: 2017-12-28 19:11:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Roy Moore filed an election complaint on Wednesday, alleging potential voter fra
 
 Full story on F3News: [Alabama Democrat's win will be official despite Roy Moore complaint](http://www.f3nws.com/n/DDAMhC)
 
-> Posted on: Thursday, December 28, 2017 2:58:54 PM
+> Posted on: Thursday, December 28, 2017 7:11:53 PM
