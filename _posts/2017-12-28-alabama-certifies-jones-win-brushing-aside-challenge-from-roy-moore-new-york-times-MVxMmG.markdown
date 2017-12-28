@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Alabama Certifies Jones Win, Brushing Aside Challenge From Roy Moore - New York Times](https://static01.nyt.com/images/2017/12/29/world/29alabama-1/29alabama-1-facebookJumbo.jpg)
 
-New York Times Alabama Certifies Jones Win, Brushing Aside Challenge From Roy Moore New York Times MONTGOMERY, Ala. — Alabama officials on Thursday unhesitatingly pushed aside a legal challenge from Roy S. Moore and certified Doug Jones as the winner of this month's Senate election. The action, during a brief meeting at the State Capitol, was ... Alabama certifies Doug Jones's victory over Roy Moore in Senate election Washington Post FACT CHECK: Where Roy Moore's Voter Fraud Claims Fall Flat NPR Alabama judge denies Roy Moore's complaint CNN Los Angeles Times - The Hill - HuffPost - Politico all 395 news articles »
+New York Times Alabama Certifies Jones Win, Brushing Aside Challenge From Roy Moore New York Times MONTGOMERY, Ala. — Alabama officials on Thursday unhesitatingly pushed aside a legal challenge from Roy S. Moore and certified Doug Jones as the winner of this month's Senate election. The action, during a brief meeting at the State Capitol, was ... FACT CHECK: Where Roy Moore's Voter Fraud Claims Fall Flat NPR Alabama certifies Doug Jones's victory over Roy Moore in Senate election Washington Post Alabama certifies Jones' win over Moore CNN Los Angeles Times - The Hill - HuffPost - Politico all 423 news articles »
 
 
 Full story on F3News: [Alabama Certifies Jones Win, Brushing Aside Challenge From Roy Moore - New York Times](http://www.f3nws.com/n/MVxMmG)
