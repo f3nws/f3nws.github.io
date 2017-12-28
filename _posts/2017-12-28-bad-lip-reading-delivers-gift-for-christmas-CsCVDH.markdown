@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bad Lip Reading delivers gift for Christmas"
-date: 2017-12-28 03:22:56Z
+date: 2017-12-28 02:58:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Joy Reid shares a bit of the latest release from Rachel Maddow favorite, Bad Lip
 
 Full story on F3News: [Bad Lip Reading delivers gift for Christmas](http://www.f3nws.com/n/CsCVDH)
 
-> Posted on: Thursday, December 28, 2017 3:22:56 AM
+> Posted on: Thursday, December 28, 2017 2:58:00 AM
