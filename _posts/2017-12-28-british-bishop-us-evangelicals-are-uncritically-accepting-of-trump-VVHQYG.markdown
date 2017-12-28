@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "British bishop: US evangelicals are 'uncritically accepting' of Trump"
-date: 2017-12-28 14:25:30Z
+date: 2017-12-28 16:40:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A bishop in the Church of England has chastised some American religious leaders 
 
 Full story on F3News: [British bishop: US evangelicals are 'uncritically accepting' of Trump](http://www.f3nws.com/n/VVHQYG)
 
-> Posted on: Thursday, December 28, 2017 2:25:30 PM
+> Posted on: Thursday, December 28, 2017 4:40:15 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2017 was year of (certain) women's voices"
-date: 2017-12-28 12:29:50Z
+date: 2017-12-28 15:49:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [2017 was year of (certain) women's voices](http://www.f3nws.com/n/EnZdXG)
 
-> Posted on: Thursday, December 28, 2017 12:29:50 PM
+> Posted on: Thursday, December 28, 2017 3:49:55 PM
