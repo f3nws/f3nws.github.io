@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hosting Your MVC Application in Cloud with DataBase Migration from Local to Azure"
-date: 2017-12-29 00:34:00Z
+date: 2017-12-29 04:34:00Z
 categories: codeproject
 ---
 
@@ -10,4 +10,4 @@ This article is completely dedicated on deployment of Web Application in Cloud(A
 
 Full story on F3News: [Hosting Your MVC Application in Cloud with DataBase Migration from Local to Azure](http://www.f3nws.com/n/Cu2gxC)
 
-> Posted on: Friday, December 29, 2017 12:34:00 AM
+> Posted on: Friday, December 29, 2017 4:34:00 AM

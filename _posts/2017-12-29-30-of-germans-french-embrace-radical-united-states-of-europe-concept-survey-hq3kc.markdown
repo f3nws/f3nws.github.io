@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "30% of Germans & French embrace ‘radical’ United States of Europe concept – survey"
-date: 2017-12-29 02:45:47Z
+date: 2017-12-29 02:45:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The idea of a federal Europe as touted by the chair of Germany’s SPD party has
 
 Full story on F3News: [30% of Germans & French embrace ‘radical’ United States of Europe concept – survey](http://www.f3nws.com/n/hq3kc)
 
-> Posted on: Friday, December 29, 2017 2:45:47 AM
+> Posted on: Friday, December 29, 2017 2:45:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1,000s join Israeli agriculture minister in mass prayer for rain in Jerusalem (VIDEO)"
-date: 2017-12-29 00:00:53Z
+date: 2017-12-29 00:00:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ At least 2,500 people have turned up at a mass prayer at the Western Wall follow
 
 Full story on F3News: [1,000s join Israeli agriculture minister in mass prayer for rain in Jerusalem (VIDEO)](http://www.f3nws.com/n/4TkvjE)
 
-> Posted on: Friday, December 29, 2017 12:00:53 AM
+> Posted on: Friday, December 29, 2017 12:00:00 AM
