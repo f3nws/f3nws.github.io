@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple apologizes for slowing iPhone, drops battery prices"
-date: 2017-12-29 14:10:40Z
+date: 2017-12-29 18:51:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Apple apologizes for slowing iPhone, drops battery prices](http://www.f3nws.com/n/auFhhD)
 
-> Posted on: Friday, December 29, 2017 2:10:40 PM
+> Posted on: Friday, December 29, 2017 6:51:22 PM
