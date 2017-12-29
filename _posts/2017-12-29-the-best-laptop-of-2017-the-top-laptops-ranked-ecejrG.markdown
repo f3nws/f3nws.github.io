@@ -7,7 +7,7 @@ categories: techradar
 
 ![The best laptop of 2017: the top laptops ranked](http://cdn.mos.cms.futurecdn.net/c229f3c53905e3c0575ef2ca65e07bc9-1200-80.jpg)
 
-In the market for a new laptop? Check these out
+In the market for a new laptop? Check these out.
 
 
 Full story on F3News: [The best laptop of 2017: the top laptops ranked](http://www.f3nws.com/n/ecejrG)
