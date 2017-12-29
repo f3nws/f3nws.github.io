@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump trains crosshairs on favorite target, again - Amazon"
-date: 2017-12-29 14:06:00Z
+date: 2017-12-29 16:20:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ NEW YORK (AP) — President Donald Trump returned to a favorite target Friday, s
 
 Full story on F3News: [Trump trains crosshairs on favorite target, again - Amazon](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Friday, December 29, 2017 2:06:00 PM
+> Posted on: Friday, December 29, 2017 4:20:00 PM
