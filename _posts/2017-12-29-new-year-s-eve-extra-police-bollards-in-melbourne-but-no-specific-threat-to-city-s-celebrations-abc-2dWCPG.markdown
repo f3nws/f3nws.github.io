@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![New Year's Eve: Extra police, bollards in Melbourne but 'no specific threat' to city's celebrations - ABC Online](http://www.abc.net.au/news/image/7033642-16x9-700x394.jpg)
 
-ABC Online New Year's Eve: Extra police, bollards in Melbourne but 'no specific threat' to city's celebrations ABC Online A thousand extra police officers will be deployed around Melbourne on New Year's Eve, but officers say there's no specific threat to the festivities and Melburnians can be confident they will be safe. Extra concrete bollards will be installed in the ... Sydney fortifies against attacks; Melburnians told to behave The Australian Melbourne CBD lockdown for New Year's Eve SBS Police to create a ring of steel for New Year's Eve celebrations in the city Herald Sun The Straits Times - 9news.com.au - Daily Mail - Yahoo7 News all 12 news articles »
+ABC Online New Year's Eve: Extra police, bollards in Melbourne but 'no specific threat' to city's celebrations ABC Online A thousand extra police officers will be deployed around Melbourne on New Year's Eve, but officers say there's no specific threat to the festivities and Melburnians can be confident they will be safe. Extra concrete bollards will be installed in the ... Sydney fortifies against attacks; Melburnians told to behave The Australian Huge New Year's Eve police operation planned for Sydney and Melbourne The Guardian No bollards for site of Melbourne attack NEWS.com.au SBS - 9news.com.au - Herald Sun - The Straits Times all 14 news articles »
 
 
 Full story on F3News: [New Year's Eve: Extra police, bollards in Melbourne but 'no specific threat' to city's celebrations - ABC Online](http://www.f3nws.com/n/2dWCPG)
