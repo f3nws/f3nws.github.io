@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "S. Korea seizes ship it says gave oil to North Korea"
-date: 2017-12-29 10:57:00Z
+date: 2017-12-29 13:40:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korea has seized a Hong Kong-registered ship that allegedly transferred oi
 
 Full story on F3News: [S. Korea seizes ship it says gave oil to North Korea](http://www.f3nws.com/n/C2xtcH)
 
-> Posted on: Friday, December 29, 2017 10:57:00 AM
+> Posted on: Friday, December 29, 2017 1:40:32 PM

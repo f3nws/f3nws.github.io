@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple apologizes for slowing iPhone"
-date: 2017-12-29 00:22:42Z
+date: 2017-12-29 14:10:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Apple apologizes for slowing iPhone](http://www.f3nws.com/n/auFhhD)
 
-> Posted on: Friday, December 29, 2017 12:22:42 AM
+> Posted on: Friday, December 29, 2017 2:10:40 PM
