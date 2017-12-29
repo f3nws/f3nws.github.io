@@ -5,6 +5,8 @@ date: 2017-12-29 06:47:54Z
 categories: breakingnews-ie-world
 ---
 
+![Baby among 12 dead in worst fire tragedy in New York for two decades](http://www.breakingnews.ie/remote/media.central.ie/media/images/n/NewYorkApartmentFire29Dec2017_large.jpg?width=600&s=bn-820555)
+
 At least 12 people, including a one-year-old baby, have died after a fire broke out in an apartment block in the Bronx area of New York.
 
 
