@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Professor resigns amid threats over tweets"
-date: 2017-12-29 14:27:50Z
+date: 2017-12-29 15:02:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Drexel University professor who received death threats after posting several c
 
 Full story on F3News: [Professor resigns amid threats over tweets](http://www.f3nws.com/n/j4pK2F)
 
-> Posted on: Friday, December 29, 2017 2:27:50 PM
+> Posted on: Friday, December 29, 2017 3:02:17 PM
