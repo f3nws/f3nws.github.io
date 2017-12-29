@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![One dead after boat capsize near Kurnell in Sydney's south - ABC Online](http://www.abc.net.au/news/image/9292336-16x9-700x394.jpg)
 
-ABC Online One dead after boat capsize near Kurnell in Sydney's south ABC Online A man has died after a boat carrying three men capsized near Kurnell in Sydney's south this morning. A large marine rescue operation was launched shortly after 10:30am when emergency services received reports of an overturned boat near the Cape ... One dead, two rescued after boat capsizes in Sydney's south The Sydney Morning Herald Man dies after boat capsizes in Sydney Daily Telegraph Man dead after boat capsizes off Sydney coast 9news.com.au Yahoo7 News - The Australian - Illawarra Mercury - Daily Mail all 17 news articles »
+ABC Online One dead after boat capsize near Kurnell in Sydney's south ABC Online A man has died after a boat carrying three men capsized near Kurnell in Sydney's south this morning. A large marine rescue operation was launched shortly after 10:30am when emergency services received reports of an overturned boat near the Cape ... One dead, two rescued after boat capsizes in Sydney's south The Sydney Morning Herald Man dies after boat capsizes in Sydney Daily Telegraph Man dead after boat capsizes off Sydney coast 9news.com.au Yahoo7 News - The Australian - St George and Sutherland Shire Leader - Daily Mail all 18 news articles »
 
 
 Full story on F3News: [One dead after boat capsize near Kurnell in Sydney's south - ABC Online](http://www.f3nws.com/n/ZepAn)

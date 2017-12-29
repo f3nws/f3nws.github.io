@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rose Marie, actress and showbiz legend, dies at 94"
-date: 2017-12-29 02:40:13Z
+date: 2017-12-29 04:36:52Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Broadway and television actress Rose Marie, best known for her role as Sally Rog
 
 Full story on F3News: [Rose Marie, actress and showbiz legend, dies at 94](http://www.f3nws.com/n/PbmVmE)
 
-> Posted on: Friday, December 29, 2017 2:40:13 AM
+> Posted on: Friday, December 29, 2017 4:36:52 AM
