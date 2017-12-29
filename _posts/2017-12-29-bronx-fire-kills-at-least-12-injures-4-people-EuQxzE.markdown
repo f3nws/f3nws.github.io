@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bronx fire kills at least 12, injures 4 people"
-date: 2017-12-29 04:56:00Z
+date: 2017-12-29 06:31:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 12 people, including a child, were killed in a fire Thursday night at a
 
 Full story on F3News: [Bronx fire kills at least 12, injures 4 people](http://www.f3nws.com/n/EuQxzE)
 
-> Posted on: Friday, December 29, 2017 4:56:00 AM
+> Posted on: Friday, December 29, 2017 6:31:09 AM
