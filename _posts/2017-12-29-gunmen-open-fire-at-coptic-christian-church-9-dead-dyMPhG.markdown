@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunmen open fire at Coptic Christian church: 9 dead"
-date: 2017-12-29 15:40:06Z
+date: 2017-12-29 16:30:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Gunmen open fire at Coptic Christian church: 9 dead](http://www.f3nws.com/n/dyMPhG)
 
-> Posted on: Friday, December 29, 2017 3:40:06 PM
+> Posted on: Friday, December 29, 2017 4:30:44 PM
