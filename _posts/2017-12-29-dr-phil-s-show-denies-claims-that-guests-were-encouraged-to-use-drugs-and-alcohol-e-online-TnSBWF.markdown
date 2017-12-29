@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Dr. Phil's Show Denies Claims That Guests Were Encouraged to Use Drugs and Alcohol - E! Online](http://akns-images.eonline.com/eol_images/Entire_Site/20171128/rs_634x1024-171228154832-634-phil-mcgraw-red-carpet.jpg)
 
-E! Online Dr. Phil's Show Denies Claims That Guests Were Encouraged to Use Drugs and Alcohol E! Online STAT and The Boston Globe published an exposé on Thursday, which includes accounts from multiple guests who say their substance addictions were enabled by members of the TV psychiatrist's staff in hopes of boosting ratings. Todd Herzog—who struggled ... 'Dr Phil' guests, including 'Survivor' Todd Herzog, claim show put them at risk USA TODAY Some "Dr. Phil" guests accuse show of enabling addictions CBS News 'Dr. Phil' Guests Accuse Staffers of Aiding in Alcohol and Drug Use Hollywood Reporter Hollywood Life - Page Six - HuffPost - Fox News all 75 news articles »
+E! Online Dr. Phil's Show Denies Claims That Guests Were Encouraged to Use Drugs and Alcohol E! Online STAT and The Boston Globe published an exposé on Thursday, which includes accounts from multiple guests who say their substance addictions were enabled by members of the TV psychiatrist's staff in hopes of boosting ratings. Todd Herzog—who struggled ... 'Dr Phil' guests, including 'Survivor' Todd Herzog, claim show put them at risk USA TODAY Some "Dr. Phil" guests accuse show of enabling addictions CBS News 'Dr. Phil' Guests Accuse Staffers of Aiding in Alcohol and Drug Use Hollywood Reporter Hollywood Life - Page Six - HuffPost - Fox News all 76 news articles »
 
 
 Full story on F3News: [Dr. Phil's Show Denies Claims That Guests Were Encouraged to Use Drugs and Alcohol - E! Online](http://www.f3nws.com/n/TnSBWF)
