@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Worst NYC fire in 25 years kills a dozen people"
-date: 2017-12-29 08:16:58Z
+date: 2017-12-29 10:25:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 12 people, including a child, were killed in a fire Thursday night at a
 
 Full story on F3News: [Worst NYC fire in 25 years kills a dozen people](http://www.f3nws.com/n/EuQxzE)
 
-> Posted on: Friday, December 29, 2017 8:16:58 AM
+> Posted on: Friday, December 29, 2017 10:25:16 AM
