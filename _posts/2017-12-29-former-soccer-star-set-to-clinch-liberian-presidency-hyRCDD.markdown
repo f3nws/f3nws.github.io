@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former soccer star set to clinch Liberian presidency"
-date: 2017-12-29 02:30:06Z
+date: 2017-12-29 02:44:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former soccer star George Weah looked set Thursday to score a victory over incum
 
 Full story on F3News: [Former soccer star set to clinch Liberian presidency](http://www.f3nws.com/n/hyRCDD)
 
-> Posted on: Friday, December 29, 2017 2:30:06 AM
+> Posted on: Friday, December 29, 2017 2:44:12 AM
