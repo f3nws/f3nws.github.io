@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tells NYT Mueller will 'be fair'"
-date: 2017-12-29 02:53:52Z
+date: 2017-12-29 13:24:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump said on Thursday that he thinks special counsel Robert Mu
 
 Full story on F3News: [Trump tells NYT Mueller will 'be fair'](http://www.f3nws.com/n/WNWpJG)
 
-> Posted on: Friday, December 29, 2017 2:53:52 AM
+> Posted on: Friday, December 29, 2017 1:24:01 PM
