@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two are better than one: Phones with dual cameras     - CNET"
-date: 2017-12-29 12:00:10Z
+date: 2017-12-29 17:42:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ From wide-angle shots to artsy bokeh effects, phones with dual cameras raise you
 
 Full story on F3News: [Two are better than one: Phones with dual cameras     - CNET](http://www.f3nws.com/n/HHNxyB)
 
-> Posted on: Friday, December 29, 2017 12:00:10 PM
+> Posted on: Friday, December 29, 2017 5:42:39 PM

@@ -1,0 +1,13 @@
+---
+layout: post
+title:  "Trump trains crosshairs on favorite target, again - Amazon"
+date: 2017-12-29 13:29:00Z
+categories: associated-press-ap-top-headlines
+---
+
+PALM BEACH, Fla. (AP) — President Donald Trump returned to a favorite target Friday, saying that Amazon.com should be charged more by the U.S. Postal Service for the packages it sends around the world.
+
+
+Full story on F3News: [Trump trains crosshairs on favorite target, again - Amazon](http://www.f3nws.com/n/spzXSE)
+
+> Posted on: Friday, December 29, 2017 1:29:00 PM
