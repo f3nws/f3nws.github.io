@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Trump tells NYT he thinks Mueller will 'be fair' - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170613110556-trump-mueller-split-3-super-tease.jpg)
 
-CNN Trump tells NYT he thinks Mueller will 'be fair' CNN Washington (CNN) President Donald Trump said on Thursday that he thinks special counsel Robert Mueller is "going to be fair" in his investigation into possible collusion between Trump's team and Russian officials. Congressional Russia investigators ... Trump: I think Mueller will treat me fairly The Hill (blog) Trump made a revealing, off-the-cuff comment that could explain why he hasn't fired Mueller Business Insider Trump repeats 'no collusion' with Russia, says investigation makes US 'look very bad' USA TODAY CBS News - Politico - U.S. News & World Report - HuffPost all 214 news articles »
+CNN Trump tells NYT he thinks Mueller will 'be fair' CNN Washington (CNN) President Donald Trump said on Thursday that he thinks special counsel Robert Mueller is "going to be fair" in his investigation into possible collusion between Trump's team and Russian officials. Congressional Russia investigators ... Trump: I think Mueller will treat me fairly The Hill (blog) Trump made a revealing, off-the-cuff comment that could explain why he hasn't fired Mueller Business Insider Trump repeats 'no collusion' with Russia, says investigation makes US 'look very bad' USA TODAY CBS News - Politico - U.S. News & World Report - TIME all 217 news articles »
 
 
 Full story on F3News: [Trump tells NYT he thinks Mueller will 'be fair' - CNN](http://www.f3nws.com/n/WNWpJG)

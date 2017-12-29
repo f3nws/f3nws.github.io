@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mumbai fire kills 14 and injures 21"
-date: 2017-12-29 11:25:37Z
+date: 2017-12-29 12:37:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 14 people were killed and 21 injured after a fire broke out at a Mumbai
 
 Full story on F3News: [Mumbai fire kills 14 and injures 21](http://www.f3nws.com/n/eUSfrF)
 
-> Posted on: Friday, December 29, 2017 11:25:37 AM
+> Posted on: Friday, December 29, 2017 12:37:51 PM

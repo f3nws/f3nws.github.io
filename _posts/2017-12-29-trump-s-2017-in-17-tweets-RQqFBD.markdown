@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's 2017, in 17 tweets"
-date: 2017-12-29 10:21:50Z
+date: 2017-12-29 12:04:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Through a little less than a year in office, President Donald Trump has tweeted 
 
 Full story on F3News: [Trump's 2017, in 17 tweets](http://www.f3nws.com/n/RQqFBD)
 
-> Posted on: Friday, December 29, 2017 10:21:50 AM
+> Posted on: Friday, December 29, 2017 12:04:53 PM
