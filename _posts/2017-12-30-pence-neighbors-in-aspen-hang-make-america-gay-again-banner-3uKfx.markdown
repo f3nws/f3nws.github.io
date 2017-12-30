@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pence neighbors in Aspen hang 'Make America Gay Again' banner"
-date: 2017-12-30 13:45:03Z
+date: 2017-12-30 14:45:04Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ It's been said that good fences make good neighbors. But in Aspen, Colo., this w
 
 Full story on F3News: [Pence neighbors in Aspen hang 'Make America Gay Again' banner](http://www.f3nws.com/n/3uKfx)
 
-> Posted on: Saturday, December 30, 2017 1:45:03 PM
+> Posted on: Saturday, December 30, 2017 2:45:04 PM
