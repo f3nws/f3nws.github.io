@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Uncomfortable truth of a Professor's resignation after death threats"
-date: 2017-12-30 02:07:01Z
+date: 2017-12-30 12:42:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Until recently, George Ciccariello-Maher was an anonymous political science prof
 
 Full story on F3News: [Uncomfortable truth of a Professor's resignation after death threats](http://www.f3nws.com/n/hKctbF)
 
-> Posted on: Saturday, December 30, 2017 2:07:01 AM
+> Posted on: Saturday, December 30, 2017 12:42:33 PM

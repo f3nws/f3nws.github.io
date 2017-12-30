@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran hard-liners rally as new protests challenge government"
-date: 2017-12-30 07:07:00Z
+date: 2017-12-30 08:16:00Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ TEHRAN, Iran (AP) — Iranian hard-liners rallied Saturday to support the countr
 
 Full story on F3News: [Iran hard-liners rally as new protests challenge government](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Saturday, December 30, 2017 7:07:00 AM
+> Posted on: Saturday, December 30, 2017 8:16:00 AM
