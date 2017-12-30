@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Child playing with stove burners started deadly NYC blaze, official says"
-date: 2017-12-30 02:59:15Z
+date: 2017-12-30 12:25:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 12 people, including a child, were killed in a fire Thursday night at a
 
 Full story on F3News: [Child playing with stove burners started deadly NYC blaze, official says](http://www.f3nws.com/n/EuQxzE)
 
-> Posted on: Saturday, December 30, 2017 2:59:15 AM
+> Posted on: Saturday, December 30, 2017 12:25:39 PM
