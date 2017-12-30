@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘We live in a new world of sophisticated hacking & cryptojacking’ – McAfee to RT"
-date: 2017-12-30 02:33:26Z
+date: 2017-12-30 02:33:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Cybersecurity guru John McAfee, who courted online ridicule after he was breache
 
 Full story on F3News: [‘We live in a new world of sophisticated hacking & cryptojacking’ – McAfee to RT](http://www.f3nws.com/n/TdA3JB)
 
-> Posted on: Saturday, December 30, 2017 2:33:26 AM
+> Posted on: Saturday, December 30, 2017 2:33:00 AM
