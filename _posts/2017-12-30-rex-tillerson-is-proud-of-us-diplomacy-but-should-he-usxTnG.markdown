@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rex Tillerson is ‘proud’ of US diplomacy, but should he?"
-date: 2017-12-30 02:17:39Z
+date: 2017-12-30 02:17:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ In an op-ed published in the New York Times, the US Secretary of State writes he
 
 Full story on F3News: [Rex Tillerson is ‘proud’ of US diplomacy, but should he?](http://www.f3nws.com/n/usxTnG)
 
-> Posted on: Saturday, December 30, 2017 2:17:39 AM
+> Posted on: Saturday, December 30, 2017 2:17:00 AM

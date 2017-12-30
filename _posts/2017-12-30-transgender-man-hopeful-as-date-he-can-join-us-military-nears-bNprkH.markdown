@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Transgender man hopeful as date he can join US military nears"
-date: 2017-12-30 01:32:50Z
+date: 2017-12-30 03:25:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Nicolas Talbott, a transgender man, is just days away from his dream: trying to 
 
 Full story on F3News: [Transgender man hopeful as date he can join US military nears](http://www.f3nws.com/n/bNprkH)
 
-> Posted on: Saturday, December 30, 2017 1:32:50 AM
+> Posted on: Saturday, December 30, 2017 3:25:11 AM

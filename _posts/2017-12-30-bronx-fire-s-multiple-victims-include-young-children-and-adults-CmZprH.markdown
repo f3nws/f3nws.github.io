@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bronx fire's multiple victims include young children and adults"
-date: 2017-12-30 02:32:00Z
+date: 2017-12-30 03:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ On one of the coldest nights of the year, New York City’s deadliest residentia
 
 Full story on F3News: [Bronx fire's multiple victims include young children and adults](http://www.f3nws.com/n/CmZprH)
 
-> Posted on: Saturday, December 30, 2017 2:32:00 AM
+> Posted on: Saturday, December 30, 2017 3:15:00 AM
