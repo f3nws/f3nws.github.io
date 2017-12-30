@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Experts will use 3D imaging technology to assess art damage"
+date: 2017-12-30 00:46:00Z
+categories: engadget
+---
+
+![Experts will use 3D imaging technology to assess art damage](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D5000%252C3333%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1067%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F2bc6560f514813f85ab32ecf3f442205%252F205989051%252Fmember-of-staff-poses-for-a-photograph-beside-grey-lines-with-black-picture-id544855528%26client%3Da1acac3e1b3290917d92%26signature%3D607529551681b571505c4e2bd96786bac63d72f5&client=cbc79c14efcebee57402&signature=d6a22d776de1a4d25b368b0356d8b751151b5316)
+
+Preserving and restoring art is a very tricky business. Trying to maintain the balance between original work and repairing damage is difficult and oftentimes methods aren't always agreed upon by members of the art community. This has been seen over and over again with works like Leonardo da Vinci's The Last Supper and Michelangelo's Sistine Chapel ceiling work . But sometimes we can catch a break when new technology helps preservers analyze and repair damage with minimal disruption to the work itself. An example of that is taking place right now as experts will soon use 3D imaging technology to assess a certain type of damage being found on a number of Georgia O'Keeffe paintings. As the Associated Press reports, art conservation experts in Santa Fe and Chicago will use this type of technology to detect, track and analyze a particular type of chemical buildup found on many of O'Keeffe's paintings that cause thousands of tiny blisters to form and grow. Canvases used by O'Keeffe and many other 20th century artists were primed with non-drying fats or oils and when they combine with pigments or drying agents, it can lead to a buildup of soap that causes the blisters. "They're a little bit bigger than human hair, and you can see them with the naked eye," Dale Kronkright, an art conservationist at the Georgia O'Keeffe Museum, told the AP . And when enough of those little blisters show up, they can begin to darken a painting. "Left unchecked, they will continue to grow, both grow in number and grow in size — and in damaging effect," Konkright said. During a two-year project funded by the National Endowment for the Humanities, researchers will record paintings under different light frequencies as they look for clues about the paintings' chemical composition. That used to require removing a postage stamp-sized piece from the artwork, but with 3D imaging technology, that sort of damage can be circumvented. The researchers will also develop imaging technology that can assess the blisters' growth. The project aims to better understand what triggers the soap formation, w...
+
+
+Full story on F3News: [Experts will use 3D imaging technology to assess art damage](http://www.f3nws.com/n/3SFpWB)
+
+> Posted on: Saturday, December 30, 2017 12:46:00 AM
