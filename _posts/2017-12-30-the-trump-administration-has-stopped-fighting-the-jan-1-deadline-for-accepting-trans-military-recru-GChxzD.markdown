@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The Trump Administration Has Stopped Fighting The Jan. 1 Deadline For Accepting Trans Military Recruits - BuzzFeed News](https://img.buzzfeed.com/buzzfeed-static/static/2017-12/29/22/campaign_images/buzzfeed-prod-fastlane-03/the-trump-administration-has-stopped-fighting-the-2-12714-1514605167-0_dblbig.jpg)
 
-BuzzFeed News The Trump Administration Has Stopped Fighting The Jan. 1 Deadline For Accepting Trans Military Recruits BuzzFeed News The Justice Department announced Friday night that it will not be asking the Supreme Court to stop the Jan. 1 deadline for allowing transgender military recruits. The department also dropped several appeals over Trump's transgender military service ... Transgender man cautiously hopeful as the date he can join US military nears KPRC Click2Houston DOJ not appealing transgender military ruling, but not abandoning case Fox News all 22 news articles »
+BuzzFeed News The Trump Administration Has Stopped Fighting The Jan. 1 Deadline For Accepting Trans Military Recruits BuzzFeed News The Justice Department announced Friday night that it will not be asking the Supreme Court to stop the Jan. 1 deadline for allowing transgender military recruits. The department also dropped several appeals over Trump's transgender military service ... DOJ not appealing transgender military ruling, but not abandoning case Fox News US Military Set To Allow Recruitment Of Trans People Despite Trump's Wishes HuffPost all 23 news articles »
 
 
 Full story on F3News: [The Trump Administration Has Stopped Fighting The Jan. 1 Deadline For Accepting Trans Military Recruits - BuzzFeed News](http://www.f3nws.com/n/GChxzD)
