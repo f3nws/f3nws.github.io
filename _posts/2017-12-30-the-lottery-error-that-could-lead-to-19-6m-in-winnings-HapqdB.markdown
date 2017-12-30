@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The lottery error that could lead to $19.6M in winnings"
-date: 2017-12-30 00:09:21Z
+date: 2017-12-30 18:07:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Carolina could have made $20 million lottery error The winnings in a compr
 
 Full story on F3News: [The lottery error that could lead to $19.6M in winnings](http://www.f3nws.com/n/HapqdB)
 
-> Posted on: Saturday, December 30, 2017 12:09:21 AM
+> Posted on: Saturday, December 30, 2017 6:07:35 PM

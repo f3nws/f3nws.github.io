@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Police kill a man at his home while responding to a fake call - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171230071401-kansas-swatting-incident-super-tease.jpg)
 
-CNN Police kill a man at his home while responding to a fake call CNN (CNN) A prank call to police led to a man's death at a home in Wichita, Kansas -- and a man in California has been arrested in connection with the crime. It's another example of swatting, or a prank in which people falsely report horrific crimes to ... A look at 'swatting,' the dangerous prank that led police to fatally shoot unsuspecting Kansas man New York Daily News Police shoot dead man after alleged Call of Duty 'swatting' hoax BBC News After “swatting” death in Kansas, 25-year old arrested in Los Angeles Ars Technica Fox News - New York Times - NBCNews.com - Reuters all 250 news articles »
+CNN Police kill a man at his home while responding to a fake call CNN (CNN) A prank call to police led to a man's death at a home in Wichita, Kansas -- and a man in California has been arrested in connection with the crime. It's another example of swatting, or a prank in which people falsely report horrific crimes to ... Serial prankster arrested in 'swatting' trick that led to fatal police shooting of unarmed Kansas man New York Daily News Police shoot dead man after alleged Call of Duty 'swatting' hoax BBC News Summoned by a Prank Call, Police in Wichita Kill a Man at His Front Door New York Times Ars Technica - Reuters - ABC News - Fox News all 273 news articles »
 
 
 Full story on F3News: [Police kill a man at his home while responding to a fake call - CNN](http://www.f3nws.com/n/ATJyQJ)

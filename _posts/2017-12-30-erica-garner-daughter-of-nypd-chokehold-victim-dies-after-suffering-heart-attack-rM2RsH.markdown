@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Erica Garner, daughter of NYPD chokehold victim, dies after suffering heart attack"
-date: 2017-12-30 14:46:00Z
+date: 2017-12-30 17:55:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Erica Garner, whose father Eric became a national symbol of excessive police for
 
 Full story on F3News: [Erica Garner, daughter of NYPD chokehold victim, dies after suffering heart attack](http://www.f3nws.com/n/rM2RsH)
 
-> Posted on: Saturday, December 30, 2017 2:46:00 PM
+> Posted on: Saturday, December 30, 2017 5:55:00 PM
