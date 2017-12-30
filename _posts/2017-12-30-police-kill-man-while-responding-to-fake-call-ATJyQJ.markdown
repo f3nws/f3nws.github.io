@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police kill man while responding to fake call"
-date: 2017-12-30 19:35:59Z
+date: 2017-12-30 22:25:07Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A prank call to police led to a man's death at a home in Wichita, Kansas -- and 
 
 Full story on F3News: [Police kill man while responding to fake call](http://www.f3nws.com/n/ATJyQJ)
 
-> Posted on: Saturday, December 30, 2017 7:35:59 PM
+> Posted on: Saturday, December 30, 2017 10:25:07 PM

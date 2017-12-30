@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man arrested in 'Call of Duty' 'swatting' hoax that led to fatal police shooting"
-date: 2017-12-30 13:00:00Z
+date: 2017-12-30 22:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A 25-year-old California man was arrested in connection to an online quarrel bet
 
 Full story on F3News: [Man arrested in 'Call of Duty' 'swatting' hoax that led to fatal police shooting](http://www.f3nws.com/n/FczhxC)
 
-> Posted on: Saturday, December 30, 2017 1:00:00 PM
+> Posted on: Saturday, December 30, 2017 10:15:00 PM

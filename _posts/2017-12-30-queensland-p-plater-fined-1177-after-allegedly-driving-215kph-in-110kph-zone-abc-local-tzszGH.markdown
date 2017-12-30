@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Queensland P-plater fined $1177 after allegedly driving 215kph in 110kph zone - ABC Local](http://www.abc.net.au/news/image/9294828-16x9-700x394.png)
 
-ABC Local Queensland P-plater fined $1177 after allegedly driving 215kph in 110kph zone ABC Local HIGH SPEED: This P-plater has lost his licence for at least 6 months, been fined $1,177 and had 8 demerit points deducted after allegedly driving 215km/hour on the Flinders Highway west of Townsville. 3.8K. 3.4K · 2.8K · Map: Townsville 4810. Police ... Qld P-Plater nabbed speeding at 215 km/h NEWS.com.au 'This takes the cake': Officer scolds P-plater allegedly driving at speeds of 215km/h Yahoo7 News Christmas Road Safety – Festive Break Day 7 report myPolice (press release) (blog) all 8 news articles »
+ABC Local Queensland P-plater fined $1177 after allegedly driving 215kph in 110kph zone ABC Local Police have released footage of a P-plate driver allegedly travelling more than 100 kilometres over the speed limit on Flinders Highway, west of Townsville, in what has been described as one of the worst speeding incidents in Queensland so far this ... Queensland Police share shocking footage of speeding P-plater 9news.com.au Officer scolds P-plater allegedly driving at speeds of 215km/h Yahoo7 News all 9 news articles »
 
 
 Full story on F3News: [Queensland P-plater fined $1177 after allegedly driving 215kph in 110kph zone - ABC Local](http://www.f3nws.com/n/tzszGH)
