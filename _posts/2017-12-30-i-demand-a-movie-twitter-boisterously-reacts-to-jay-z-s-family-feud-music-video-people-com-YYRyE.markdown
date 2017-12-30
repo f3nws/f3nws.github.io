@@ -5,6 +5,8 @@ date: 2017-12-30 00:11:22Z
 categories: google-news-entertaintment
 ---
 
+!['I DEMAND a Movie!': Twitter Boisterously Reacts to JAY-Z's 'Family Feud' Music Video - PEOPLE.com](https://peopledotcom.files.wordpress.com/2017/10/jay-z-1-2000.jpg?crop=0px%2C0px%2C2000px%2C1050px&resize=1200%2C630)
+
 PEOPLE.com 'I DEMAND a Movie!': Twitter Boisterously Reacts to JAY-Z's 'Family Feud' Music Video PEOPLE.com Tidal subscribers shared their excitement for the rapper's latest music video on Twitter. Directed by A Wrinkle in Time's Ava DuVernay, and starring a slew of celebrities, the “Family Feud” drama focused on women in positions of power – which sat well ... The Transcript Of JAY-Z's "Family Feud" Video Lets Fans Dissect The Whole Mini Movie Bustle JAY-Z Shares Futuristic Star-Studded, Ava DuVernay-Directed 'Family Feud' Video Billboard JAY-Z Drops Star-Studded 'Family Feud' Music Video Directed by Ava DuVernay & Fans Are Freaking Out Entertainment Tonight USA TODAY - Hollywood Life - MTV.com - EW.com (blog) all 180 news articles »
 
 
