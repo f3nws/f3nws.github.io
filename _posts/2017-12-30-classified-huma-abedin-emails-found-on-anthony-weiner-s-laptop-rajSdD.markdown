@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Classified’ Huma Abedin emails found on Anthony Weiner's laptop"
-date: 2017-12-30 03:40:53Z
+date: 2017-12-30 03:40:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ At least five of the 2,800 emails stored on a laptop belonging to former Democra
 
 Full story on F3News: [‘Classified’ Huma Abedin emails found on Anthony Weiner's laptop](http://www.f3nws.com/n/rajSdD)
 
-> Posted on: Saturday, December 30, 2017 3:40:53 AM
+> Posted on: Saturday, December 30, 2017 3:40:00 AM

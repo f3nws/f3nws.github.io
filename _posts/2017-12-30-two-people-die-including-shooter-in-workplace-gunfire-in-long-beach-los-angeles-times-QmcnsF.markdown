@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Two people die, including shooter, in workplace gunfire in Long Beach - Los Angeles Times](http://www.trbimg.com/img-5a46ed00/turbine/la-me-long-beach-shooting-20171229)
 
-Los Angeles Times Two people die, including shooter, in workplace gunfire in Long Beach Los Angeles Times A workplace shooting just before 2:30 p.m. in a quiet neighborhood of Long Beach on Friday left two men dead, including the shooter, officials said. Long Beach police said they went to a law office in the Bixby Knolls neighborhood amid reports of an ... Gunman opens fire at Southern California law firm; at least 2 dead Fox News 1 lawyer killed, another wounded at Bixby Knolls law office; reportedly fired partner takes own life OCRegister The Latest: 2 dead, 1 hurt in shooting at California office Grand Island Independent KTLA - Boston Herald - Business Insider - Philly.com all 328 news articles »
+Los Angeles Times Two people die, including shooter, in workplace gunfire in Long Beach Los Angeles Times A workplace shooting just before 2:30 p.m. in a quiet neighborhood of Long Beach on Friday left two men dead, including the shooter, officials said. Long Beach police said they went to a law office in the Bixby Knolls neighborhood amid reports of an ... Gunman opens fire at Southern California law firm; at least 2 dead Fox News Motive sought in California law firm shooting with 2 dead ABC News 1 lawyer killed, another wounded at Bixby Knolls law office; reportedly fired partner takes own life OCRegister Grand Island Independent - KTLA - fox5sandiego.com - NBC Bay Area all 364 news articles »
 
 
 Full story on F3News: [Two people die, including shooter, in workplace gunfire in Long Beach - Los Angeles Times](http://www.f3nws.com/n/QmcnsF)

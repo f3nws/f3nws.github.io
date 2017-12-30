@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US defense secretary bucks tradition, foregoes visit to frontline troops"
-date: 2017-12-30 03:02:45Z
+date: 2017-12-30 03:02:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Secretary of Defense James Mattis will not be paying a holiday visit to US troop
 
 Full story on F3News: [US defense secretary bucks tradition, foregoes visit to frontline troops](http://www.f3nws.com/n/WVngRG)
 
-> Posted on: Saturday, December 30, 2017 3:02:45 AM
+> Posted on: Saturday, December 30, 2017 3:02:00 AM

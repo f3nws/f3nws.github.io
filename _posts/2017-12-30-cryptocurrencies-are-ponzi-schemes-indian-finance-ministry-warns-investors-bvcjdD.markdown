@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cryptocurrencies are ‘Ponzi schemes,’ Indian finance ministry warns investors"
-date: 2017-12-30 00:31:40Z
+date: 2017-12-30 00:31:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ India’s finance ministry has cautioned investors about the risks of trading in
 
 Full story on F3News: [Cryptocurrencies are ‘Ponzi schemes,’ Indian finance ministry warns investors](http://www.f3nws.com/n/bvcjdD)
 
-> Posted on: Saturday, December 30, 2017 12:31:40 AM
+> Posted on: Saturday, December 30, 2017 12:31:00 AM

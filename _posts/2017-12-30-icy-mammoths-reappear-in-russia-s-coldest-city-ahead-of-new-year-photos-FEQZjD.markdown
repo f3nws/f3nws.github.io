@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Icy mammoths reappear in Russia’s coldest city ahead of New Year (PHOTOS)"
-date: 2017-12-30 03:07:44Z
+date: 2017-12-30 03:07:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Although wooly mammoths have long vanished from Earth, residents of Russia’s Y
 
 Full story on F3News: [Icy mammoths reappear in Russia’s coldest city ahead of New Year (PHOTOS)](http://www.f3nws.com/n/FEQZjD)
 
-> Posted on: Saturday, December 30, 2017 3:07:44 AM
+> Posted on: Saturday, December 30, 2017 3:07:00 AM

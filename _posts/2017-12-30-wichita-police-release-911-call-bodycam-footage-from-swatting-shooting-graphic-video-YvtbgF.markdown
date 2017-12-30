@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Wichita police release 911 call, bodycam footage from ‘swatting’ shooting (GRAPHIC VIDEO)"
-date: 2017-12-30 05:04:41Z
+date: 2017-12-30 05:04:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Wichita police have released both the prank 911 call that led to an officer shoo
 
 Full story on F3News: [Wichita police release 911 call, bodycam footage from ‘swatting’ shooting (GRAPHIC VIDEO)](http://www.f3nws.com/n/YvtbgF)
 
-> Posted on: Saturday, December 30, 2017 5:04:41 AM
+> Posted on: Saturday, December 30, 2017 5:04:00 AM
