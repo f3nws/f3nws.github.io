@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Activist Erica Garner, 27, dies after heart attack - CNN](http://cdn.cnn.com/cnnnext/dam/assets/161028095823-erica-garner-super-tease.jpg)
 
-CNN Activist Erica Garner, 27, dies after heart attack CNN (CNN) Erica Garner -- an activist for social justice and the eldest daughter of the man who died from a police choke hold in New York in 2014 -- died on Saturday morning days after suffering a heart attack, her mother Esaw Snipes said. "She was a ... Erica Garner, Activist and Daughter of Eric Garner, Dies at 27 New York Times Erica Garner, Activist Daughter Of Eric Garner, Dies At 27 BuzzFeed News Erica Garner, activist and daughter of Eric Garner, dead at 27 CBS News New York Daily News - NPR - Reuters - NBCNews.com all 135 news articles »
+CNN Activist Erica Garner, 27, dies after heart attack CNN (CNN) Erica Garner -- an activist for social justice and the eldest daughter of the man who died from a police choke hold in New York in 2014 -- died on Saturday morning days after suffering a heart attack, her mother Esaw Snipes said. "She was a ... Erica Garner, Activist and Daughter of Eric Garner, Dies at 27 New York Times Erica Garner, daughter of police chokehold victim, dies at 27 in Brooklyn New York Daily News Erica Garner, Activist Daughter Of Eric Garner, Dies At 27 BuzzFeed News CBS News - NPR - Atlanta Journal Constitution - NBCNews.com all 143 news articles »
 
 
 Full story on F3News: [Activist Erica Garner, 27, dies after heart attack - CNN](http://www.f3nws.com/n/gfnHuD)
