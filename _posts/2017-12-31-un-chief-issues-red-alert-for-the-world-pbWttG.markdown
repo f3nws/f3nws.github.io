@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UN chief issues 'red alert' for the world"
-date: 2017-12-31 16:46:00Z
+date: 2017-12-31 18:37:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ As the world began to ring in 2018, UN Secretary-General Antonio Guterres called
 
 Full story on F3News: [UN chief issues 'red alert' for the world](http://www.f3nws.com/n/pbWttG)
 
-> Posted on: Sunday, December 31, 2017 4:46:00 PM
+> Posted on: Sunday, December 31, 2017 6:37:18 PM
