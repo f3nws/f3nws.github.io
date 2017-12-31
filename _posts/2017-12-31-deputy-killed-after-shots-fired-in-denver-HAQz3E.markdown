@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Deputy killed after shots fired in Denver"
-date: 2017-12-31 19:01:05Z
+date: 2017-12-31 22:21:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Multiple deputies were injured Sunday after shots were fired following a domesti
 
 Full story on F3News: [Deputy killed after shots fired in Denver](http://www.f3nws.com/n/HAQz3E)
 
-> Posted on: Sunday, December 31, 2017 7:01:05 PM
+> Posted on: Sunday, December 31, 2017 10:21:52 PM
