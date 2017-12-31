@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![New Year's Eve fireworks spectacular wows Sydney crowds](http://www.abc.net.au/news/image/9295710-16x9-700x394.jpg)
 
-With an estimated worldwide audience of 1 billion people the Sydney fireworks display is set to wow the crowds as New Years Eve celebrations heat up around the country.
+With an estimated worldwide audience of 1 billion people the Sydney fireworks display wows the crowds at a packed New Year's Eve celebration as Australia brings in the new year.
 
 
 Full story on F3News: [New Year's Eve fireworks spectacular wows Sydney crowds](http://www.f3nws.com/n/Mzrjx)
