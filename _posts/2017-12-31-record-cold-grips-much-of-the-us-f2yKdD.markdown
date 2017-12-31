@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Record cold grips much of the US"
-date: 2017-12-31 03:45:53Z
+date: 2017-12-31 11:55:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Across the US, temperature records are falling faster than this week's snowflake
 
 Full story on F3News: [Record cold grips much of the US](http://www.f3nws.com/n/f2yKdD)
 
-> Posted on: Sunday, December 31, 2017 3:45:53 AM
+> Posted on: Sunday, December 31, 2017 11:55:26 AM
