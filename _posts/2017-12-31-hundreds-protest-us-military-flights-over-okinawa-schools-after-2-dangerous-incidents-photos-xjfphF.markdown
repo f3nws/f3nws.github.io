@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hundreds protest US military flights over Okinawa schools after 2 dangerous incidents (PHOTOS)"
-date: 2017-12-31 01:41:29Z
+date: 2017-12-31 01:41:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The chain of recent incidents involving US military aircraft has prompted Okinaw
 
 Full story on F3News: [Hundreds protest US military flights over Okinawa schools after 2 dangerous incidents (PHOTOS)](http://www.f3nws.com/n/xjfphF)
 
-> Posted on: Sunday, December 31, 2017 1:41:29 AM
+> Posted on: Sunday, December 31, 2017 1:41:00 AM
