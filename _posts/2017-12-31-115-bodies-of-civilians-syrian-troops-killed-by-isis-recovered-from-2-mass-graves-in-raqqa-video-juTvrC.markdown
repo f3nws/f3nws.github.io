@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "115 bodies of civilians & Syrian troops killed by ISIS recovered from 2 mass graves in Raqqa (VIDEO)"
-date: 2017-12-31 05:05:31Z
+date: 2017-12-31 05:05:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Two mass graves uncovered near the former terrorist stronghold of Raqqa became t
 
 Full story on F3News: [115 bodies of civilians & Syrian troops killed by ISIS recovered from 2 mass graves in Raqqa (VIDEO)](http://www.f3nws.com/n/juTvrC)
 
-> Posted on: Sunday, December 31, 2017 5:05:31 AM
+> Posted on: Sunday, December 31, 2017 5:05:00 AM
