@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Six people killed after seaplane crashes into Hawkesbury River](http://www.abc.net.au/news/image/9295616-16x9-700x394.jpg)
 
-NSW Police confirm six people have died after a seaplane crashed into Jerusalem Bay near the town of Cowan, north of Sydney. Rescuers have recovered three bodies and debris from the aircraft, which crashed into deep water.
+NSW Police confirm the bodies of six people have been recovered after a seaplane crashed into Jerusalem Bay near the town of Cowan, north of Sydney.
 
 
 Full story on F3News: [Six people killed after seaplane crashes into Hawkesbury River](http://www.f3nws.com/n/4NE2rE)
