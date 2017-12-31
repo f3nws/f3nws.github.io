@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Colorado deputy killed, 4 others shot in 'ambush-style' attack outside Denver"
-date: 2017-12-31 19:45:00Z
+date: 2017-12-31 20:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A New Year's Eve domestic disturbance call sparked an "ambush-style" attack that
 
 Full story on F3News: [Colorado deputy killed, 4 others shot in 'ambush-style' attack outside Denver](http://www.f3nws.com/n/jnf2aD)
 
-> Posted on: Sunday, December 31, 2017 7:45:00 PM
+> Posted on: Sunday, December 31, 2017 8:15:00 PM
