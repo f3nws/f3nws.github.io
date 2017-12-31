@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Grief consumes loved ones of Bronx fire"
-date: 2017-12-31 04:48:06Z
+date: 2017-12-31 10:43:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fernando Batiz says he's "just numb" after the deadly fire that claimed the live
 
 Full story on F3News: [Grief consumes loved ones of Bronx fire](http://www.f3nws.com/n/PCS3YH)
 
-> Posted on: Sunday, December 31, 2017 4:48:06 AM
+> Posted on: Sunday, December 31, 2017 10:43:53 AM
