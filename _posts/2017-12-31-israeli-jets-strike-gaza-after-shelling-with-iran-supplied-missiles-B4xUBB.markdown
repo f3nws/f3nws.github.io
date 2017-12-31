@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israeli jets strike Gaza after shelling with ‘Iran-supplied missiles’"
-date: 2017-12-31 01:30:52Z
+date: 2017-12-31 01:30:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israel conducted airstrikes in Gaza for a second straight day after shells repor
 
 Full story on F3News: [Israeli jets strike Gaza after shelling with ‘Iran-supplied missiles’](http://www.f3nws.com/n/B4xUBB)
 
-> Posted on: Sunday, December 31, 2017 1:30:52 AM
+> Posted on: Sunday, December 31, 2017 1:30:00 AM
