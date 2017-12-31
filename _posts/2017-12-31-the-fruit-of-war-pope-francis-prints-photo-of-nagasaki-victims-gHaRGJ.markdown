@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'The fruit of war': Pope Francis prints photo of Nagasaki victims"
-date: 2017-12-31 05:33:12Z
+date: 2017-12-31 06:42:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Pope Francis is having cards printed and distributed showing a 1945 photo of vic
 
 Full story on F3News: ['The fruit of war': Pope Francis prints photo of Nagasaki victims](http://www.f3nws.com/n/gHaRGJ)
 
-> Posted on: Sunday, December 31, 2017 5:33:12 AM
+> Posted on: Sunday, December 31, 2017 6:42:42 AM

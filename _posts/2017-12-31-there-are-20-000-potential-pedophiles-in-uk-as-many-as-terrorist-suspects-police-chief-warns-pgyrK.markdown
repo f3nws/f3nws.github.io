@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "There are 20,000 potential pedophiles in UK, as many as terrorist suspects, police chief warns"
-date: 2017-12-31 02:02:23Z
+date: 2017-12-31 02:02:00Z
 categories: rt-uk
 ---
 
@@ -12,4 +12,4 @@ More than 20,000 British men are “interested” in sexually abusing children, 
 
 Full story on F3News: [There are 20,000 potential pedophiles in UK, as many as terrorist suspects, police chief warns](http://www.f3nws.com/n/pgyrK)
 
-> Posted on: Sunday, December 31, 2017 2:02:23 AM
+> Posted on: Sunday, December 31, 2017 2:02:00 AM
