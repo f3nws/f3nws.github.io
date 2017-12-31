@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea releases stamps marking latest ICMB launch (PHOTOS)"
-date: 2017-12-31 09:06:35Z
+date: 2017-12-31 09:06:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ North Korea has released stamps celebrating the recent launch of the Hwasong-15 
 
 Full story on F3News: [N. Korea releases stamps marking latest ICMB launch (PHOTOS)](http://www.f3nws.com/n/mWCvKC)
 
-> Posted on: Sunday, December 31, 2017 9:06:35 AM
+> Posted on: Sunday, December 31, 2017 9:06:00 AM
