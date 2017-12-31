@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump warns Iran the 'world is watching' protests"
-date: 2017-12-31 00:40:07Z
+date: 2017-12-31 05:38:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House has urged Iran to respect the rights of Iranians who have taken 
 
 Full story on F3News: [Trump warns Iran the 'world is watching' protests](http://www.f3nws.com/n/D424pG)
 
-> Posted on: Sunday, December 31, 2017 12:40:07 AM
+> Posted on: Sunday, December 31, 2017 5:38:02 AM
