@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![I Predict That 2018 Will Either Be a Disaster or It Won't Be - Townhall](https://media.townhall.com/townhall/reu/ha/2017/365/e0d03e79-caca-43ab-a02e-82a9d5715b58.jpg)
 
-Townhall I Predict That 2018 Will Either Be a Disaster or It Won't Be Townhall As Senator Roy Moore is sworn in among the smoking ruins of the failed GOP tax reform bill … wait, neither of those is a thing. But I predicted them both just over a month ago though, pretty much making me Dick Morris – except with a pundit gig and ... Trump: 'Why Would Smart Voters Want to Put Democrats in Congress,' People Much Better Off Now Breitbart News all 105 news articles »
+Townhall I Predict That 2018 Will Either Be a Disaster or It Won't Be Townhall As Senator Roy Moore is sworn in among the smoking ruins of the failed GOP tax reform bill … wait, neither of those is a thing. But I predicted them both just over a month ago though, pretty much making me Dick Morris – except with a pundit gig and ... and more »
 
 
 Full story on F3News: [I Predict That 2018 Will Either Be a Disaster or It Won't Be - Townhall](http://www.f3nws.com/n/CzpCK)
