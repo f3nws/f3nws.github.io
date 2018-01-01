@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's first 2018 tweet takes swipe at Pakistan"
-date: 2018-01-01 15:41:55Z
+date: 2018-01-01 20:47:37Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Washington Post Trump's first 2018 tweet: Pakistan has 'given us nothing but lie
 
 Full story on F3News: [Trump's first 2018 tweet takes swipe at Pakistan](http://www.f3nws.com/n/PgFczB)
 
-> Posted on: Monday, January 1, 2018 3:41:55 PM
+> Posted on: Monday, January 1, 2018 8:47:37 PM
