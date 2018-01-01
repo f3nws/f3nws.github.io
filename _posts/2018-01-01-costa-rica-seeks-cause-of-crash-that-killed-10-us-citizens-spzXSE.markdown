@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Costa Rica seeks cause of crash that killed 10 US citizens"
-date: 2018-01-01 05:42:13Z
+date: 2018-01-01 06:36:42Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SAN JOSE, Costa Rica (AP) — Costa Rican investigators are working into what ca
 
 Full story on F3News: [Costa Rica seeks cause of crash that killed 10 US citizens](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Monday, January 1, 2018 5:42:13 AM
+> Posted on: Monday, January 1, 2018 6:36:42 AM
