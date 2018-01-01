@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Teenager murders his family members on New Year's Eve, officials say"
-date: 2018-01-01 13:25:00Z
+date: 2018-01-01 16:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A 16-year-old boy in New Jersey murdered three of his family members on New Year
 
 Full story on F3News: [Teenager murders his family members on New Year's Eve, officials say](http://www.f3nws.com/n/yNHReF)
 
-> Posted on: Monday, January 1, 2018 1:25:00 PM
+> Posted on: Monday, January 1, 2018 4:45:00 PM

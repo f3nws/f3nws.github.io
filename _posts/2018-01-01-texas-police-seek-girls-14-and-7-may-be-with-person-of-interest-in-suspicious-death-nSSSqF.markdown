@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Texas police seek girls, 14 and 7; may be with person of interest in suspicious death"
-date: 2018-01-01 16:00:00Z
+date: 2018-01-01 17:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Texas police have issued an Amber Alert for two girls, 14 and 7, who may be with
 
 Full story on F3News: [Texas police seek girls, 14 and 7; may be with person of interest in suspicious death](http://www.f3nws.com/n/nSSSqF)
 
-> Posted on: Monday, January 1, 2018 4:00:00 PM
+> Posted on: Monday, January 1, 2018 5:00:00 PM
