@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Catering giant CEO and family killed in New Year's Eve seaplane crash](http://www.abc.net.au/news/image/9296330-16x9-700x394.jpg)
 
-A leading British CEO and his family were killed when a seaplane on a New Year's Eve joyride crashed into the Hawkesbury River, north of Sydney, police confirm.
+A leading British CEO, his two sons, his fiancee and her 11-year-old daughter have been identified as the family who died when a seaplane returning from an upmarket restaurant dived into the Hawkesbury River, north of Sydney, on New Year's Eve.
 
 
 Full story on F3News: [Catering giant CEO and family killed in New Year's Eve seaplane crash](http://www.f3nws.com/n/3UJrQB)

@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Barricaded suspect kills deputy, wounds 6 others in Denver suburb - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171231103327-highland-ranch-colorado-officers-down-super-tease.jpg)
 
-CNN Barricaded suspect kills deputy, wounds 6 others in Denver suburb CNN (CNN) Five law enforcement officers were shot and one of them died after a barricaded suspect opened fire at an apartment complex in a Denver suburb, the Douglas County Sheriff said Sunday. Two civilians also were shot and the suspect was shot and ... In a year of mass shootings, an ambush on police adds one more victim to the toll Los Angeles Times 5 Officers Shot, One Fatally, by Colorado Gunman, Officials Say New York Times Colorado shooting: Suspect identified as Matthew Riehl CBS News Washington Post - KTRK-TV - BuzzFeed News - CBS Local all 470 news articles »
+CNN Barricaded suspect kills deputy, wounds 6 others in Denver suburb CNN (CNN) Five law enforcement officers were shot and one of them died after a barricaded suspect opened fire at an apartment complex in a Denver suburb, the Douglas County Sheriff said Sunday. Two civilians also were shot and the suspect was shot and ... 5 Officers Shot, One Fatally, by Colorado Gunman, Officials Say New York Times In a year of mass shootings, an ambush on police adds one more victim to the toll Los Angeles Times Five Colorado officers shot, one fatally, in 'ambush-style attack,' sheriff says Washington Post CBS News - Fox News - KTRK-TV - CBS Local all 471 news articles »
 
 
 Full story on F3News: [Barricaded suspect kills deputy, wounds 6 others in Denver suburb - CNN](http://www.f3nws.com/n/HAQz3E)

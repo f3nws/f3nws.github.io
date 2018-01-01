@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![What will 2018 bring for the war on wage theft?](https://www.thestar.com/content/dam/thestar/news/queenspark/analysis/2017/12/31/what-will-2018-bring-for-the-war-on-wage-theft/paul_cheungweb_jpg.jpg)
 
-Enforcement system has long relied on workers to come forward as individuals — often without legal support — to pursue complaints against their bosses
+Paul Cheung calls the complaints process to get holiday pay his employer owed him “a long agony.” His case represents something bigger: a system that relies on workers to file and pursue complaints against better-resourced employers, writes Sara Mojtehedzadeh.
 
 
 Full story on F3News: [What will 2018 bring for the war on wage theft?](http://www.f3nws.com/n/DSaAmC)
