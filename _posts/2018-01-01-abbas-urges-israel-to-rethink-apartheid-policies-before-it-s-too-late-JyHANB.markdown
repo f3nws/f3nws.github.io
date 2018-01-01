@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Abbas urges Israel to rethink ‘apartheid’ policies before it’s ‘too late’"
-date: 2018-01-01 01:42:54Z
+date: 2018-01-01 01:42:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Israel must “rethink” its aggressive “apartheid system” and honor the st
 
 Full story on F3News: [Abbas urges Israel to rethink ‘apartheid’ policies before it’s ‘too late’](http://www.f3nws.com/n/JyHANB)
 
-> Posted on: Monday, January 1, 2018 1:42:54 AM
+> Posted on: Monday, January 1, 2018 1:42:00 AM

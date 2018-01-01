@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Kim Jong-un says US 'cannot declare war' on nuclear-armed North Korea](http://www.abc.net.au/news/image/9296532-16x9-700x394.jpg)
 
-The North Korean leader uses a New Year's address to say all of the US is within range of his nuclear missiles— and warns the launch button is "right there on my desk".
+The North Korean leader uses a New Year's address to say all of the US is within range of his nuclear missiles— but says he will only use them if "our security is threatened".
 
 
 Full story on F3News: [Kim Jong-un says US 'cannot declare war' on nuclear-armed North Korea](http://www.f3nws.com/n/nsCKuF)
