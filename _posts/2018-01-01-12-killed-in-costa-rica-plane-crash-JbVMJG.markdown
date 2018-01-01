@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "12 killed in Costa Rica plane crash"
-date: 2018-01-01 02:23:34Z
+date: 2018-01-01 13:56:58Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A plane crash in northwest Costa Rica on Sunday killed all 12 people aboard, off
 
 Full story on F3News: [12 killed in Costa Rica plane crash](http://www.f3nws.com/n/JbVMJG)
 
-> Posted on: Monday, January 1, 2018 2:23:34 AM
+> Posted on: Monday, January 1, 2018 1:56:58 PM

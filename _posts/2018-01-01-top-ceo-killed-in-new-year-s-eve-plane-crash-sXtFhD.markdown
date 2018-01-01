@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top CEO killed in New Year's Eve plane crash"
-date: 2018-01-01 07:55:26Z
+date: 2018-01-01 14:05:33Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Top CEO killed in New Year's Eve plane crash](http://www.f3nws.com/n/sXtFhD)
 
-> Posted on: Monday, January 1, 2018 7:55:26 AM
+> Posted on: Monday, January 1, 2018 2:05:33 PM

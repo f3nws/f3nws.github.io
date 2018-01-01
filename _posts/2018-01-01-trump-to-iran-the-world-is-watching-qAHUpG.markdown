@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump to Iran: 'The world is watching!'"
-date: 2018-01-01 01:43:03Z
+date: 2018-01-01 14:23:43Z
 categories: cnn-com-world
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump warned Sunday that the United States is watching Iran's t
 
 Full story on F3News: [Trump to Iran: 'The world is watching!'](http://www.f3nws.com/n/qAHUpG)
 
-> Posted on: Monday, January 1, 2018 1:43:03 AM
+> Posted on: Monday, January 1, 2018 2:23:43 PM

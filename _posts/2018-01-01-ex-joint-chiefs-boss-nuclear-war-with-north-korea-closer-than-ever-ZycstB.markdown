@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Joint Chiefs boss: Nuclear war with North Korea closer than ever"
-date: 2018-01-01 10:22:41Z
+date: 2018-01-01 14:15:35Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Former Joint Chiefs chairman: Nuclear war with North Korea closer than ever 
 
 Full story on F3News: [Ex-Joint Chiefs boss: Nuclear war with North Korea closer than ever](http://www.f3nws.com/n/ZycstB)
 
-> Posted on: Monday, January 1, 2018 10:22:41 AM
+> Posted on: Monday, January 1, 2018 2:15:35 PM
