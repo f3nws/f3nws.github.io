@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump wishes his enemies & haters ‘happy and healthy’ New Year"
-date: 2018-01-01 01:47:44Z
+date: 2018-01-01 01:47:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Donald Trump has taken time from his busy holiday schedule to wish millions of A
 
 Full story on F3News: [Trump wishes his enemies & haters ‘happy and healthy’ New Year](http://www.f3nws.com/n/BZXsBH)
 
-> Posted on: Monday, January 1, 2018 1:47:44 AM
+> Posted on: Monday, January 1, 2018 1:47:00 AM
