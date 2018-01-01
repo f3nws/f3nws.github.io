@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Twitter pulls conspiracist's verified badge after celebrity outrage"
+date: 2018-01-01 04:11:00Z
+categories: engadget
+---
+
+![Twitter pulls conspiracist's verified badge after celebrity outrage](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D3000%252C1996%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1065%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F11db7628b8f958bac138fcd43697bce%252F205991993%252Fsinger-john-legend-and-wife-model-chrissy-teigen-attend-a-basketball-picture-id876499158%26client%3Da1acac3e1b3290917d92%26signature%3Db099366b616c94cc096d2fad42f0ce9a13380f01&client=cbc79c14efcebee57402&signature=e2b06dc464ebd7f073dbb50dc9f3a19bfa538b64)
+
+Twitter's stricter approach to verification isn't just taking checkmarks away from the leaders of racist groups. The social network has pulled the verified badge from conspiracy peddler Liz Conkin after Chrissy Teigen and her husband John Legend reacted to Conkin's unsupported claims that the two were trafficking their child in a Washington, DC pedophile ring. As Teigen explained, it didn't make sense that Twitter would verify someone who was accusing her of horrific acts, especially not when this person has nearly 50,000 followers. Legend helped elaborate on the concerns. He noted to one of Conkin's supporters that the bogus Pizzagate scandal "almost got someone killed" -- the concern is that a Conkin devotee would believe the unsubstantiated claims at face value and threaten the couple. Legend vowed to sue Conkin if she kept making her claims. The conspiracist deleted her posts and backtracked in a bid to avoid a lawsuit, claiming that Teigen and Legend "run in circle [sic]" with pedophiles and that they "could be victims themselves." However, that didn't help her case -- Teigen said she still had the evidence and vowed that Conkin would be "going to court." We've asked Twitter for its comment. From a cursory glimpse, though, it looks like Conkin was a prime candidate for losing verification: her claims violated rules against "inciting or engaging in harassment." Many of her supporters lapped up the accusations without checking the facts, and both Teigen and Legend have been harassed as a result. Twitter has previously said that it doesn't want verification to serve as a tacit endorsement of vile behavior, and this appears to qualify. With that said, the incident highlights a familiar pattern for Twitter: it tends to respond to an outcry when celebrities or the press draw attention to the issue. There are concerns that others might continue to abuse their verified status unless Twitter is more proactive. YOU POSTED MY DAUGHTER AND HAVE 50,000 PEOPLE ACCUSING ME OF BEING IN A PEDO RING. I don't care HOW you backtrack or WHAT you deleted. I have it ALL. I'm...
+
+
+Full story on F3News: [Twitter pulls conspiracist's verified badge after celebrity outrage](http://www.f3nws.com/n/MCJFPH)
+
+> Posted on: Monday, January 1, 2018 4:11:00 AM
