@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Germany kicks new year off with strict online hate speech law     - CNET"
-date: 2018-01-02 06:15:27Z
+date: 2018-01-02 10:10:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Social media companies failing to remove offending posts in 24 hours risk paying
 
 Full story on F3News: [Germany kicks new year off with strict online hate speech law     - CNET](http://www.f3nws.com/n/vDjvgF)
 
-> Posted on: Tuesday, January 2, 2018 6:15:27 AM
+> Posted on: Tuesday, January 2, 2018 10:10:55 AM

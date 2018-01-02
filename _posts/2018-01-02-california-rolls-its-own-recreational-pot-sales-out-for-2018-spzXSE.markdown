@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California rolls its own recreational pot sales out for 2018"
-date: 2018-01-02 09:35:03Z
+date: 2018-01-02 10:42:13Z
 categories: associated-press-ap-top-headlines
 ---
 
@@ -10,4 +10,4 @@ SACRAMENTO, Calif. (AP) — From a pot shop in Santa Cruz that hung a banner pro
 
 Full story on F3News: [California rolls its own recreational pot sales out for 2018](http://www.f3nws.com/n/spzXSE)
 
-> Posted on: Tuesday, January 2, 2018 9:35:03 AM
+> Posted on: Tuesday, January 2, 2018 10:42:13 AM
