@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Baby scalded by hot wax at Minto Buddhist prayer house](http://www.abc.net.au/news/image/9297936-16x9-700x394.jpg)
 
-A baby girl is being treated after being scalded by hot wax at a makeshift Buddhist prayer house at Minto, in Sydney's south-west.
+A baby girl is being treated after being scalded by hot wax at a makeshift Buddhist prayer house at Minto, in Sydney's south-west — a venue the council says is not approved as a place of public worship.
 
 
 Full story on F3News: [Baby scalded by hot wax at Minto Buddhist prayer house](http://www.f3nws.com/n/upNyQE)
