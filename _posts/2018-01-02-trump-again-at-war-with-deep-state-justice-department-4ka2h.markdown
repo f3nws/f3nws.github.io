@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump again at war with 'deep state' Justice Department"
-date: 2018-01-02 19:30:38Z
+date: 2018-01-02 20:30:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump leveled his latest criticism of the Justice Department on
 
 Full story on F3News: [Trump again at war with 'deep state' Justice Department](http://www.f3nws.com/n/4ka2h)
 
-> Posted on: Tuesday, January 2, 2018 7:30:38 PM
+> Posted on: Tuesday, January 2, 2018 8:30:34 PM
