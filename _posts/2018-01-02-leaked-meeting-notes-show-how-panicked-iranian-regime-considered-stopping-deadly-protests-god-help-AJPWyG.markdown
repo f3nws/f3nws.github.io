@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Leaked meeting notes show how panicked Iranian regime considered stopping deadly protests: 'God help us'"
-date: 2018-01-02 01:30:00Z
+date: 2018-01-02 02:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A leaked report provided to Fox News shows how Iran’s Supreme Leader Ayatollah
 
 Full story on F3News: [Leaked meeting notes show how panicked Iranian regime considered stopping deadly protests: 'God help us'](http://www.f3nws.com/n/AJPWyG)
 
-> Posted on: Tuesday, January 2, 2018 1:30:00 AM
+> Posted on: Tuesday, January 2, 2018 2:45:00 AM

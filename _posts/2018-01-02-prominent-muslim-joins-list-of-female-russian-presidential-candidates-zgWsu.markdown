@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Prominent Muslim joins list of female Russian presidential candidates"
-date: 2018-01-02 03:33:10Z
+date: 2018-01-02 03:33:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The growing list of female Russian presidential hopefuls has received a new addi
 
 Full story on F3News: [Prominent Muslim joins list of female Russian presidential candidates](http://www.f3nws.com/n/zgWsu)
 
-> Posted on: Tuesday, January 2, 2018 3:33:10 AM
+> Posted on: Tuesday, January 2, 2018 3:33:00 AM
