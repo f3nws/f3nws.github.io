@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pakistan defends itself after Trump's tweet"
-date: 2018-01-02 20:00:29Z
+date: 2018-01-02 21:04:55Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Pakistan defends counter-terrorism efforts after Trump's tweet CNN Islamabad
 
 Full story on F3News: [Pakistan defends itself after Trump's tweet](http://www.f3nws.com/n/TZZkzF)
 
-> Posted on: Tuesday, January 2, 2018 8:00:29 PM
+> Posted on: Tuesday, January 2, 2018 9:04:55 PM
