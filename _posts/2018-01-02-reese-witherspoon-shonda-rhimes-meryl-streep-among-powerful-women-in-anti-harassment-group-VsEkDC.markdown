@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Reese Witherspoon, Shonda Rhimes, Meryl Streep among powerful women in anti-harassment group"
-date: 2018-01-02 04:41:22Z
+date: 2018-01-02 06:22:26Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A group of more than 1,000 women in entertainment have detailed a comprehensive 
 
 Full story on F3News: [Reese Witherspoon, Shonda Rhimes, Meryl Streep among powerful women in anti-harassment group](http://www.f3nws.com/n/VsEkDC)
 
-> Posted on: Tuesday, January 2, 2018 4:41:22 AM
+> Posted on: Tuesday, January 2, 2018 6:22:26 AM
