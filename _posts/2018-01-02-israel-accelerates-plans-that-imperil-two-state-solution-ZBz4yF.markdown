@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israel accelerates plans that imperil two-state solution"
-date: 2018-01-02 18:48:07Z
+date: 2018-01-02 20:01:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Energized by American recognition of Jerusalem as the capital of Israel, the cou
 
 Full story on F3News: [Israel accelerates plans that imperil two-state solution](http://www.f3nws.com/n/ZBz4yF)
 
-> Posted on: Tuesday, January 2, 2018 6:48:07 PM
+> Posted on: Tuesday, January 2, 2018 8:01:38 PM
