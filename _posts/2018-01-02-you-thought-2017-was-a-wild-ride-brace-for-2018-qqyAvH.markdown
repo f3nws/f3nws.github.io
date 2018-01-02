@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "You thought 2017 was a wild ride? Brace for 2018"
-date: 2018-01-02 11:49:00Z
+date: 2018-01-02 13:29:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump took America and the world on a wild ride last year.
 
 Full story on F3News: [You thought 2017 was a wild ride? Brace for 2018](http://www.f3nws.com/n/qqyAvH)
 
-> Posted on: Tuesday, January 2, 2018 11:49:00 AM
+> Posted on: Tuesday, January 2, 2018 1:29:12 PM

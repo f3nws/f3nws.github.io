@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hoda Kotb named permanent co-host of NBC's 'Today'"
-date: 2018-01-02 12:37:57Z
+date: 2018-01-02 12:45:06Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The promotion means that Kotb and Savannah Guthrie will co-host the famed mornin
 
 Full story on F3News: [Hoda Kotb named permanent co-host of NBC's 'Today'](http://www.f3nws.com/n/sHrPzH)
 
-> Posted on: Tuesday, January 2, 2018 12:37:57 PM
+> Posted on: Tuesday, January 2, 2018 12:45:06 PM

@@ -7,7 +7,7 @@ categories: techradar
 
 ![Best deals and offers on Xiaomi phones in India](http://cdn.mos.cms.futurecdn.net/NiCPfANkCidkd8AWb5UKdQ-1200-80.jpg)
 
-In this post today we focus on bringing you the best deals on Xiaomi smartphones in India.
+Xiaomi has made a name for selling affordable smartphones that punch above their weight. How can this be better? Good deals, of course!
 
 
 Full story on F3News: [Best deals and offers on Xiaomi phones in India](http://www.f3nws.com/n/cWDTuG)
