@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why we just can't quit Hillary Clinton"
-date: 2018-01-02 10:10:49Z
+date: 2018-01-02 11:20:44Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two seemingly contradictory recent Gallup polls show Clinton as both most admire
 
 Full story on F3News: [Why we just can't quit Hillary Clinton](http://www.f3nws.com/n/mamxM)
 
-> Posted on: Tuesday, January 2, 2018 10:10:49 AM
+> Posted on: Tuesday, January 2, 2018 11:20:44 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mudslide danger replaces fire threat in California"
-date: 2018-01-02 10:10:07Z
+date: 2018-01-02 11:15:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The frightening hiss and crackle of the massive Thomas Fire in Southern Californ
 
 Full story on F3News: [Mudslide danger replaces fire threat in California](http://www.f3nws.com/n/NWtkXB)
 
-> Posted on: Tuesday, January 2, 2018 10:10:07 AM
+> Posted on: Tuesday, January 2, 2018 11:15:55 AM

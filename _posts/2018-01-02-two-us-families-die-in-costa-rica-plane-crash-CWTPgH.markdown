@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two US families die in Costa Rica plane crash"
-date: 2018-01-02 03:55:48Z
+date: 2018-01-02 11:19:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Relatives and friends are mourning the deaths of 10 Americans, including two fam
 
 Full story on F3News: [Two US families die in Costa Rica plane crash](http://www.f3nws.com/n/CWTPgH)
 
-> Posted on: Tuesday, January 2, 2018 3:55:48 AM
+> Posted on: Tuesday, January 2, 2018 11:19:37 AM

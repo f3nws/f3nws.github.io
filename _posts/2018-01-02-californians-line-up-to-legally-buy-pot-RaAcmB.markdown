@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Californians line up to legally buy pot"
-date: 2018-01-02 01:33:43Z
+date: 2018-01-02 11:23:17Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ California began selling recreational marijuana today in what's seen as a milest
 
 Full story on F3News: [Californians line up to legally buy pot](http://www.f3nws.com/n/RaAcmB)
 
-> Posted on: Tuesday, January 2, 2018 1:33:43 AM
+> Posted on: Tuesday, January 2, 2018 11:23:17 AM
