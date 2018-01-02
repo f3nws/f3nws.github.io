@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump will say 2,000 false things in his 1st year in office"
-date: 2018-01-02 15:42:15Z
+date: 2018-01-02 17:32:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump will say 2,000 false things in his 1st year in office](http://www.f3nws.com/n/tHaUzF)
 
-> Posted on: Tuesday, January 2, 2018 3:42:15 PM
+> Posted on: Tuesday, January 2, 2018 5:32:15 PM
