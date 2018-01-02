@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Korea proposes high-level talks with North"
-date: 2018-01-02 12:01:57Z
+date: 2018-01-02 13:49:30Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN South Korean president welcomes North Korean Olympic participation CNN Seoul
 
 Full story on F3News: [South Korea proposes high-level talks with North](http://www.f3nws.com/n/yRKtWB)
 
-> Posted on: Tuesday, January 2, 2018 12:01:57 PM
+> Posted on: Tuesday, January 2, 2018 1:49:30 PM
