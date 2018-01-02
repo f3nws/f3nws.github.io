@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brutal cold across US to get worse"
-date: 2018-01-02 13:54:55Z
+date: 2018-01-02 19:02:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The frigid temperatures that ushered in 2018 across the United States aren't goi
 
 Full story on F3News: [Brutal cold across US to get worse](http://www.f3nws.com/n/N3xS2C)
 
-> Posted on: Tuesday, January 2, 2018 1:54:55 PM
+> Posted on: Tuesday, January 2, 2018 7:02:32 PM

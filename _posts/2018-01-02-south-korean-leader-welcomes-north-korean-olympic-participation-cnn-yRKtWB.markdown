@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![South Korean leader welcomes North Korean Olympic participation - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170914164412-moon-jae-in-0914-01-super-tease.jpg)
 
-CNN South Korean leader welcomes North Korean Olympic participation CNN Seoul, South Korea (CNN) South Korean President Moon Jae-in welcomed Kim Jong Un's apparent willingness to enter into dialogue and called for swift measures to help North Korea participate in the 2018 Winter Olympics in Pyeongchang during a Cabinet ... South Korea Proposes Border Talks With North Korea After Kim's Overture New York Times South Korea welcomes North's offer of talks, proposes to meet next week Washington Post South Korea offers talks with North ahead of Olympics Reuters U.S. News & World Report - The Hill - The Atlantic - NBCNews.com all 1,516 news articles »
+CNN South Korean leader welcomes North Korean Olympic participation CNN Seoul, South Korea (CNN) South Korean President Moon Jae-in welcomed Kim Jong Un's apparent willingness to enter into dialogue and called for swift measures to help North Korea participate in the 2018 Winter Olympics in Pyeongchang during a Cabinet ... South Korea Proposes Border Talks With North Korea After Kim's Overture New York Times South Korea welcomes North's offer of talks, proposes to meet next week Washington Post South Korea offers talks with North ahead of Olympics Reuters CBS News - The Hill - Newsweek - Salon all 1,528 news articles »
 
 
 Full story on F3News: [South Korean leader welcomes North Korean Olympic participation - CNN](http://www.f3nws.com/n/yRKtWB)
