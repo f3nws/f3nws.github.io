@@ -7,7 +7,7 @@ categories: techradar
 
 ![The best Google Pixel 2 and Pixel 2 XL deals in India](http://cdn.mos.cms.futurecdn.net/djEuGMV9WPXo8DJVJi4Se8-1200-80.jpg)
 
-While the new Pixel flagships can seem a little costly this time around, you can end up saving a lot of money via discounts, cashbacks and other offers on the Pixel 2 and Pixel 2 XL in India.
+While the new Pixel flagships are expensive this time around, you can end up saving a lot of money via discounts, cashbacks and other offers on the Pixel 2 and Pixel 2 XL in India.
 
 
 Full story on F3News: [The best Google Pixel 2 and Pixel 2 XL deals in India](http://www.f3nws.com/n/CeTxWD)
