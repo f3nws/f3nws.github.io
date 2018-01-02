@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "YouTube star apologizes for dead body video"
-date: 2018-01-02 17:05:56Z
+date: 2018-01-02 17:59:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An apology from Logan Paul did little to quell the outrage after the social medi
 
 Full story on F3News: [YouTube star apologizes for dead body video](http://www.f3nws.com/n/J3vKyG)
 
-> Posted on: Tuesday, January 2, 2018 5:05:56 PM
+> Posted on: Tuesday, January 2, 2018 5:59:58 PM
