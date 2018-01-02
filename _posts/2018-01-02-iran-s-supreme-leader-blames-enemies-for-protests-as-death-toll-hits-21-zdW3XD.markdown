@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran's Supreme Leader blames 'enemies' for protests as death toll hits 21"
-date: 2018-01-02 11:14:43Z
+date: 2018-01-02 12:22:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iran's Supreme Leader Ayatollah Ali Khamenei blamed Iran's "enemies" on Tuesday 
 
 Full story on F3News: [Iran's Supreme Leader blames 'enemies' for protests as death toll hits 21](http://www.f3nws.com/n/zdW3XD)
 
-> Posted on: Tuesday, January 2, 2018 11:14:43 AM
+> Posted on: Tuesday, January 2, 2018 12:22:38 PM
