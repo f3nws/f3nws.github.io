@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Millions face monster storm moving up North America"
-date: 2018-01-03 10:35:10Z
+date: 2018-01-03 12:21:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Freezing rain, sleet and snow will fall along the Southeast on Wednesday -- and 
 
 Full story on F3News: [Millions face monster storm moving up North America](http://www.f3nws.com/n/Hy3JMD)
 
-> Posted on: Wednesday, January 3, 2018 10:35:10 AM
+> Posted on: Wednesday, January 3, 2018 12:21:26 PM

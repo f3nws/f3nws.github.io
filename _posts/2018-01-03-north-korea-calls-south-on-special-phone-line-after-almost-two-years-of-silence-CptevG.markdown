@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea calls South on special phone line after almost two years of silence"
-date: 2018-01-03 10:59:24Z
+date: 2018-01-03 11:54:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea says it will open its hotline to South Korea for the first time in a
 
 Full story on F3News: [North Korea calls South on special phone line after almost two years of silence](http://www.f3nws.com/n/CptevG)
 
-> Posted on: Wednesday, January 3, 2018 10:59:24 AM
+> Posted on: Wednesday, January 3, 2018 11:54:04 AM

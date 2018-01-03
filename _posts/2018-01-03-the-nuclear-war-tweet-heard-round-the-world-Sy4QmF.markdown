@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The nuclear war tweet heard 'round the world"
-date: 2018-01-03 08:10:49Z
+date: 2018-01-03 12:17:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The world's most powerful man ignited a stunning new showdown with North Korea l
 
 Full story on F3News: [The nuclear war tweet heard 'round the world](http://www.f3nws.com/n/Sy4QmF)
 
-> Posted on: Wednesday, January 3, 2018 8:10:49 AM
+> Posted on: Wednesday, January 3, 2018 12:17:42 PM
