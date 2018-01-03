@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tensions rise as US says it will withhold aid from Pakistan"
-date: 2018-01-03 02:59:46Z
+date: 2018-01-03 08:14:29Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Rhetoric rises as US vows to withhold aid to Pakistan CNN Islamabad, Pakista
 
 Full story on F3News: [Tensions rise as US says it will withhold aid from Pakistan](http://www.f3nws.com/n/TZZkzF)
 
-> Posted on: Wednesday, January 3, 2018 2:59:46 AM
+> Posted on: Wednesday, January 3, 2018 8:14:29 AM
