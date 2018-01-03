@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Sydney man charged with terrorism offenses after allegedly threatening to kill police - ABC Online](http://www.abc.net.au/radionational/image/8473958-16x9-700x394.jpg)
 
-ABC Online Sydney man charged with terrorism offenses after allegedly threatening to kill police ABC Online A man who allegedly threatened to kill police officers in Sydney while armed with a knife and become a martyr has been charged with terrorism offences, police say. Uniformed officers were approached at the intersection of Devonshire and Elizabeth ... 'Fixated' Sydney man charged over plot to carry out Lone Wolf-style terrorist attack NEWS.com.au Man charged with terrorism offences after alleged threat to kill police The Sydney Morning Herald NSW man Blake Pender charged over terror The Australian Daily Telegraph - 9news.com.au - Yahoo7 News - SBS all 9 news articles »
+ABC Online Sydney man charged with terrorism offenses after allegedly threatening to kill police ABC Online A man who allegedly threatened to kill police officers in Sydney while armed with a knife and become a martyr has been charged with terrorism offences, police say. Uniformed officers were approached at the intersection of Devonshire and Elizabeth ... Man charged with terrorism offences after alleged threat to kill police The Sydney Morning Herald 'Fixated' Sydney man charged over plot to carry out Lone Wolf-style terrorist attack NEWS.com.au NSW man Blake Pender charged over terror The Australian Daily Telegraph - Yahoo7 News - 9news.com.au - SBS all 12 news articles »
 
 
 Full story on F3News: [Sydney man charged with terrorism offenses after allegedly threatening to kill police - ABC Online](http://www.f3nws.com/n/zG4DzC)
