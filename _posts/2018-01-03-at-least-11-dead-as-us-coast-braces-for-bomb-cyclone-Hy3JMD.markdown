@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At least 11 dead as US coast braces for 'bomb cyclone'"
-date: 2018-01-03 18:26:38Z
+date: 2018-01-03 19:10:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Freezing rain, sleet and snow will fall along the Southeast on Wednesday -- and 
 
 Full story on F3News: [At least 11 dead as US coast braces for 'bomb cyclone'](http://www.f3nws.com/n/Hy3JMD)
 
-> Posted on: Wednesday, January 3, 2018 6:26:38 PM
+> Posted on: Wednesday, January 3, 2018 7:10:54 PM

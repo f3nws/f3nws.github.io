@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon: 2016 Trump Tower meeting was 'treasonous'"
-date: 2018-01-03 14:33:41Z
+date: 2018-01-03 19:23:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon called the 2016 Trump Tower mee
 
 Full story on F3News: [Bannon: 2016 Trump Tower meeting was 'treasonous'](http://www.f3nws.com/n/HS3gsF)
 
-> Posted on: Wednesday, January 3, 2018 2:33:41 PM
+> Posted on: Wednesday, January 3, 2018 7:23:16 PM
