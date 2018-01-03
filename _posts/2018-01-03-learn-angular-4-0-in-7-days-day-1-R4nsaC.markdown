@@ -5,6 +5,8 @@ date: 2018-01-03 05:33:00Z
 categories: codeproject
 ---
 
+![Learn Angular 4.0 in 7 Days - Day 1](https://codeproject.global.ssl.fastly.net/script/Forums/Images/smiley_wink.gif)
+
 A 7 Days Article Series on Angular 4 - Day 1 basically the beginning part of the Angular 4.0
 
 
