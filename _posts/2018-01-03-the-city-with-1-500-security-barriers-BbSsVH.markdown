@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The city with 1,500 security barriers"
-date: 2018-01-03 00:27:02Z
+date: 2018-01-03 05:50:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ New York City plans to install more than 1,500 protective barriers in high-profi
 
 Full story on F3News: [The city with 1,500 security barriers](http://www.f3nws.com/n/BbSsVH)
 
-> Posted on: Wednesday, January 3, 2018 12:27:02 AM
+> Posted on: Wednesday, January 3, 2018 5:50:27 AM

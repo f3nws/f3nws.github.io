@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump admin abruptly ends AIDS council"
-date: 2018-01-03 04:44:53Z
+date: 2018-01-03 02:47:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Gabriel Maldonado, former member of the Presidential Advisory Council on HIV and
 
 Full story on F3News: [Trump admin abruptly ends AIDS council](http://www.f3nws.com/n/kvhxxE)
 
-> Posted on: Wednesday, January 3, 2018 4:44:53 AM
+> Posted on: Wednesday, January 3, 2018 2:47:00 AM

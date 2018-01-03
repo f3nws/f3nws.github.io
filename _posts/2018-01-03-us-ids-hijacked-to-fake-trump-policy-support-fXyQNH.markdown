@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US IDs hijacked to fake Trump policy support"
-date: 2018-01-03 04:31:46Z
+date: 2018-01-03 02:25:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on an emerging pattern of public feedback on U.S. policy c
 
 Full story on F3News: [US IDs hijacked to fake Trump policy support](http://www.f3nws.com/n/fXyQNH)
 
-> Posted on: Wednesday, January 3, 2018 4:31:46 AM
+> Posted on: Wednesday, January 3, 2018 2:25:00 AM
