@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What are the world's safest airlines this year?"
-date: 2018-01-03 13:01:46Z
+date: 2018-01-03 14:25:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ There's never been a safer time to hop on a plane.
 
 Full story on F3News: [What are the world's safest airlines this year?](http://www.f3nws.com/n/jxekjH)
 
-> Posted on: Wednesday, January 3, 2018 1:01:46 PM
+> Posted on: Wednesday, January 3, 2018 2:25:02 PM
