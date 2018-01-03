@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kim Jong Un orders reopening of special phone line to South Korea that's been dormant for almost two years"
-date: 2018-01-03 08:24:49Z
+date: 2018-01-03 08:55:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea says it will open its hotline to South Korea for the first time in a
 
 Full story on F3News: [Kim Jong Un orders reopening of special phone line to South Korea that's been dormant for almost two years](http://www.f3nws.com/n/CptevG)
 
-> Posted on: Wednesday, January 3, 2018 8:24:49 AM
+> Posted on: Wednesday, January 3, 2018 8:55:11 AM

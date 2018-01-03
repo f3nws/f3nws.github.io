@@ -7,7 +7,7 @@ categories: techradar
 
 ![Xiaomi Redmi Note 5 release date, news and rumors](http://cdn.mos.cms.futurecdn.net/VkjVVwdwQfbHrf7LbcDjPo-1200-80.jpg)
 
-Redmi Note 5 leaks also suggest that Xiaomi may be bringing dual camera setup to the Redmi line-up for the first time.
+Redmi Note 5 leaks suggest that Xiaomi may be adding dual0cameras on this year's phone, along with an 18:9 display and much slimmer bezels.
 
 
 Full story on F3News: [Xiaomi Redmi Note 5 release date, news and rumors](http://www.f3nws.com/n/qKDsVF)

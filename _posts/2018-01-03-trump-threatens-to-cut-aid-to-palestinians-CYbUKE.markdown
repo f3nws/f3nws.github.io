@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump threatens to cut aid to Palestinians"
-date: 2018-01-03 08:13:13Z
+date: 2018-01-03 08:50:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump raised the prospect Tuesday of cutting off aid to the Pal
 
 Full story on F3News: [Trump threatens to cut aid to Palestinians](http://www.f3nws.com/n/CYbUKE)
 
-> Posted on: Wednesday, January 3, 2018 8:13:13 AM
+> Posted on: Wednesday, January 3, 2018 8:50:14 AM
