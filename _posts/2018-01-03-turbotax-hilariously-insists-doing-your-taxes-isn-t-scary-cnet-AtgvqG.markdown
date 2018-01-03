@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "TurboTax hilariously insists doing your taxes isn't scary     - CNET"
-date: 2018-01-03 01:24:47Z
+date: 2018-01-03 02:34:59Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: Intuit's online tax preparation software brand releases an amusing a
 
 Full story on F3News: [TurboTax hilariously insists doing your taxes isn't scary     - CNET](http://www.f3nws.com/n/AtgvqG)
 
-> Posted on: Wednesday, January 3, 2018 1:24:47 AM
+> Posted on: Wednesday, January 3, 2018 2:34:59 AM
