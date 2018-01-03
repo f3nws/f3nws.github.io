@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![Fire crews battle 3-alarm blaze in Brooklyn, 3 firefighters hurt](https://cdni.rt.com/files/static.en/article/breaking.jpg)
 
-Flames shot through windows of three residential buildings in the Crown Heights neighborhood of Brooklyn, as firefighters engaged the three-alarm blaze. Read Full Article at RT.com
+Flames shot through windows of three residential buildings in the Crown Heights neighborhood of Brooklyn, as firefighters engaged a three-alarm blaze. Read Full Article at RT.com
 
 
 Full story on F3News: [Fire crews battle 3-alarm blaze in Brooklyn, 3 firefighters hurt](http://www.f3nws.com/n/rArNjE)
