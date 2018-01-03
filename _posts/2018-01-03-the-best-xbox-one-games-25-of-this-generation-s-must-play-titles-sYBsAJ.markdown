@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best Xbox One games - 25 of this generation's must-play titles"
-date: 2018-01-03 14:36:00Z
+date: 2018-01-03 16:06:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Narrowing the best Xbox One games down wasn't easy, but somebody had to do it.
 
 Full story on F3News: [The best Xbox One games - 25 of this generation's must-play titles](http://www.f3nws.com/n/sYBsAJ)
 
-> Posted on: Wednesday, January 3, 2018 2:36:00 PM
+> Posted on: Wednesday, January 3, 2018 4:06:00 PM

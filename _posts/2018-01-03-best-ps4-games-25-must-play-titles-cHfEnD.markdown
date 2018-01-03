@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Best PS4 games: 25 must-play titles"
-date: 2018-01-03 14:15:00Z
+date: 2018-01-03 15:58:00Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Best PS4 Games: Looking to add some great games to your collection? Here's our l
 
 Full story on F3News: [Best PS4 games: 25 must-play titles](http://www.f3nws.com/n/cHfEnD)
 
-> Posted on: Wednesday, January 3, 2018 2:15:00 PM
+> Posted on: Wednesday, January 3, 2018 3:58:00 PM
