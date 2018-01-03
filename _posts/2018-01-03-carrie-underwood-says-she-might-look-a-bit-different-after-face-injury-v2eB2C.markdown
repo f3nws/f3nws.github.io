@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Carrie Underwood says she 'might look a bit different' after face injury"
-date: 2018-01-03 11:10:05Z
+date: 2018-01-03 14:55:28Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Carrie Underwood says a "gruesome" fall that left her injured last November was 
 
 Full story on F3News: [Carrie Underwood says she 'might look a bit different' after face injury](http://www.f3nws.com/n/v2eB2C)
 
-> Posted on: Wednesday, January 3, 2018 11:10:05 AM
+> Posted on: Wednesday, January 3, 2018 2:55:28 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bomb cyclone' to slam East Coast as winter storm continues to bombard US"
-date: 2018-01-03 13:00:00Z
+date: 2018-01-03 15:45:02Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A "bomb cyclone" is set to dump snow and ice Wednesday across parts of the East 
 
 Full story on F3News: ['Bomb cyclone' to slam East Coast as winter storm continues to bombard US](http://www.f3nws.com/n/xdmm3C)
 
-> Posted on: Wednesday, January 3, 2018 1:00:00 PM
+> Posted on: Wednesday, January 3, 2018 3:45:02 PM
