@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump taunts N Korea: My button is 'much bigger'"
-date: 2018-01-03 03:13:59Z
+date: 2018-01-03 10:38:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Tuesday taunted North Korean leader Kim Jong Un, warni
 
 Full story on F3News: [Trump taunts N Korea: My button is 'much bigger'](http://www.f3nws.com/n/bYSuqG)
 
-> Posted on: Wednesday, January 3, 2018 3:13:59 AM
+> Posted on: Wednesday, January 3, 2018 10:38:16 AM

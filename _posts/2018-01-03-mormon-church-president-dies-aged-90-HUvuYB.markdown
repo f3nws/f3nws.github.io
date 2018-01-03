@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mormon church president dies aged 90"
-date: 2018-01-03 08:45:45Z
+date: 2018-01-03 09:53:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thomas S. Monson, president of The Church of Jesus Christ of Latter-day Saints, 
 
 Full story on F3News: [Mormon church president dies aged 90](http://www.f3nws.com/n/HUvuYB)
 
-> Posted on: Wednesday, January 3, 2018 8:45:45 AM
+> Posted on: Wednesday, January 3, 2018 9:53:22 AM
