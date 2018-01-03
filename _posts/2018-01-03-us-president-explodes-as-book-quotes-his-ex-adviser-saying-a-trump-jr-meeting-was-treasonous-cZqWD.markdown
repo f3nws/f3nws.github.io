@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President explodes as book quotes his ex-adviser saying a Trump Jr. meeting was 'treasonous'"
-date: 2018-01-03 20:25:23Z
+date: 2018-01-03 21:09:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump excoriated his former chief strategist Steve Bannon in a 
 
 Full story on F3News: [US President explodes as book quotes his ex-adviser saying a Trump Jr. meeting was 'treasonous'](http://www.f3nws.com/n/cZqWD)
 
-> Posted on: Wednesday, January 3, 2018 8:25:23 PM
+> Posted on: Wednesday, January 3, 2018 9:09:56 PM
