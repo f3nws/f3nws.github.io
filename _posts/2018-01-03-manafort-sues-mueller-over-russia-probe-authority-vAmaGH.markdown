@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Manafort sues Mueller over Russia probe authority"
-date: 2018-01-03 20:34:26Z
+date: 2018-01-03 21:43:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Paul Manafort, the former Trump campaign chairman indicted on money laundering a
 
 Full story on F3News: [Manafort sues Mueller over Russia probe authority](http://www.f3nws.com/n/vAmaGH)
 
-> Posted on: Wednesday, January 3, 2018 8:34:26 PM
+> Posted on: Wednesday, January 3, 2018 9:43:53 PM
