@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump threatens Palestinian aid, appears to contradict himself on Jerusalem"
-date: 2018-01-03 11:15:29Z
+date: 2018-01-03 13:31:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump raised the prospect Tuesday of cutting off aid to the Pal
 
 Full story on F3News: [Trump threatens Palestinian aid, appears to contradict himself on Jerusalem](http://www.f3nws.com/n/CYbUKE)
 
-> Posted on: Wednesday, January 3, 2018 11:15:29 AM
+> Posted on: Wednesday, January 3, 2018 1:31:13 PM

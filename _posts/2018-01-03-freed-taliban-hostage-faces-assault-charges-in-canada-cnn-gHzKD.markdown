@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Freed Taliban hostage faces assault charges in Canada - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171014015300-taliban-hostage-family-freed-joshua-boyle-speaks-bts-00000606-super-tease.jpg)
 
-CNN Freed Taliban hostage faces assault charges in Canada CNN (CNN) A Canadian man who spent five years with his family in militant captivity in Afghanistan was arrested in Ottawa, his lawyer said. Joshua Boyle and his American wife, Caitlan Coleman, returned to Canada in October with their three children. Now ... Former Taliban Hostage Joshua Boyle Charged With Sexual Assault TIME Former Taliban captive Joshua Boyle arrested and charged with sexual assault, death threats Washington Post Joshua Boyle, held captive by Taliban-linked group for years, arrested in Canada Fox News USA TODAY - BuzzFeed News - International Business Times - Telegraph.co.uk all 93 news articles »
+CNN Freed Taliban hostage faces assault charges in Canada CNN (CNN) A Canadian man who spent five years with his family in militant captivity in Afghanistan was arrested in Ottawa, his lawyer said. Joshua Boyle and his American wife, Caitlan Coleman, returned to Canada in October with their three children. Now ... Former Taliban Hostage Joshua Boyle Charged With Sexual Assault TIME Former Taliban captive Joshua Boyle arrested and charged with sexual assault, death threats Washington Post Joshua Boyle, former Canadian hostage in Afghanistan, faces 15 charges, including sexual assault USA TODAY Fox News - BuzzFeed News - Hollywood Life - International Business Times all 97 news articles »
 
 
 Full story on F3News: [Freed Taliban hostage faces assault charges in Canada - CNN](http://www.f3nws.com/n/gHzKD)
