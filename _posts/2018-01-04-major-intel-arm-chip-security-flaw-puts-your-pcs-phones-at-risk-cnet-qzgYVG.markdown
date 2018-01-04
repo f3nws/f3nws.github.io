@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Major Intel, Arm chip security flaw puts your PCs, phones at risk     - CNET"
-date: 2018-01-04 01:55:39Z
+date: 2018-01-04 03:48:01Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Security researchers say a common processor design used by Intel and mobile chip
 
 Full story on F3News: [Major Intel, Arm chip security flaw puts your PCs, phones at risk     - CNET](http://www.f3nws.com/n/qzgYVG)
 
-> Posted on: Thursday, January 4, 2018 1:55:39 AM
+> Posted on: Thursday, January 4, 2018 3:48:01 AM

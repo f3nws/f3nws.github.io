@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump, husband agreed she'd be the one to run for president, book says"
-date: 2018-01-04 03:23:54Z
+date: 2018-01-04 04:04:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump and her husband, Jared Kushner, made a deal when they came to Washi
 
 Full story on F3News: [Ivanka Trump, husband agreed she'd be the one to run for president, book says](http://www.f3nws.com/n/nUjuNG)
 
-> Posted on: Thursday, January 4, 2018 3:23:54 AM
+> Posted on: Thursday, January 4, 2018 4:04:43 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Woman who set up GoFundMe for slain co-worker's daughter keeps cash, police say"
-date: 2018-01-04 00:00:00Z
+date: 2018-01-04 03:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A woman who set up a GoFundMe account for her slain co-worker's 11-year-old daug
 
 Full story on F3News: [Woman who set up GoFundMe for slain co-worker's daughter keeps cash, police say](http://www.f3nws.com/n/WsWtaF)
 
-> Posted on: Thursday, January 4, 2018 12:00:00 AM
+> Posted on: Thursday, January 4, 2018 3:00:00 AM
