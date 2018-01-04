@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Blumenthal: Make Trump Jr testimony public"
-date: 2018-01-04 04:27:11Z
+date: 2018-01-04 02:26:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Senator Richard Blumenthal talks with Rachel Maddow about the growing pressure o
 
 Full story on F3News: [Blumenthal: Make Trump Jr testimony public](http://www.f3nws.com/n/MemCNE)
 
-> Posted on: Thursday, January 4, 2018 4:27:11 AM
+> Posted on: Thursday, January 4, 2018 2:26:00 AM
