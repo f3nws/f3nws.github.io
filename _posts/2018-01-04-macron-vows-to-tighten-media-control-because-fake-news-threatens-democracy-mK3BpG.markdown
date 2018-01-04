@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Macron vows to tighten media control because 'fake news threatens democracy'"
-date: 2018-01-04 00:51:39Z
+date: 2018-01-04 00:51:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ France's media watchdog will be given broader powers in 2018 to combat the "fake
 
 Full story on F3News: [Macron vows to tighten media control because 'fake news threatens democracy'](http://www.f3nws.com/n/mK3BpG)
 
-> Posted on: Thursday, January 4, 2018 12:51:39 AM
+> Posted on: Thursday, January 4, 2018 12:51:00 AM

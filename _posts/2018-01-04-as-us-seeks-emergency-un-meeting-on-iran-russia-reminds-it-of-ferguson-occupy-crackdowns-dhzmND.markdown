@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "As US seeks emergency UN meeting on Iran, Russia reminds it of Ferguson & Occupy crackdowns"
-date: 2018-01-04 00:33:27Z
+date: 2018-01-04 00:33:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The US has said it will call an emergency UNSC meeting to discuss the unrest in 
 
 Full story on F3News: [As US seeks emergency UN meeting on Iran, Russia reminds it of Ferguson & Occupy crackdowns](http://www.f3nws.com/n/dhzmND)
 
-> Posted on: Thursday, January 4, 2018 12:33:27 AM
+> Posted on: Thursday, January 4, 2018 12:33:00 AM

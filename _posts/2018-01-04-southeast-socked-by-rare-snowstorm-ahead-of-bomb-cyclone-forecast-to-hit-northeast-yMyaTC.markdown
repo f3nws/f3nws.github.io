@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southeast socked by rare snowstorm ahead of 'bomb cyclone' forecast to hit Northeast"
-date: 2018-01-04 00:30:00Z
+date: 2018-01-04 02:40:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Much of the southeastern U.S. was slammed by a brutal winter storm Wednesday, wi
 
 Full story on F3News: [Southeast socked by rare snowstorm ahead of 'bomb cyclone' forecast to hit Northeast](http://www.f3nws.com/n/yMyaTC)
 
-> Posted on: Thursday, January 4, 2018 12:30:00 AM
+> Posted on: Thursday, January 4, 2018 2:40:00 AM
