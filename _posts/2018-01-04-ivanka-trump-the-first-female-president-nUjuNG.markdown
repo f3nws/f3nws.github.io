@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ivanka Trump: The first female President?"
-date: 2018-01-04 06:55:21Z
+date: 2018-01-04 12:52:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Ivanka Trump and her husband, Jared Kushner, made a deal when they came to Washi
 
 Full story on F3News: [Ivanka Trump: The first female President?](http://www.f3nws.com/n/nUjuNG)
 
-> Posted on: Thursday, January 4, 2018 6:55:21 AM
+> Posted on: Thursday, January 4, 2018 12:52:11 PM

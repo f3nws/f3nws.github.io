@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michael Wolff's Trump book hits #1 on Amazon, publisher speeds up rollout plan"
-date: 2018-01-04 00:13:15Z
+date: 2018-01-04 13:09:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Michael Wolff's Trump book hits #1 on Amazon, publisher speeds up rollout plan](http://www.f3nws.com/n/agmFzF)
 
-> Posted on: Thursday, January 4, 2018 12:13:15 AM
+> Posted on: Thursday, January 4, 2018 1:09:49 PM
