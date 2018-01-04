@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump lawyer sends cease-and-desist to Michael Wolff publisher"
-date: 2018-01-04 15:28:38Z
+date: 2018-01-04 16:16:12Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Trump lawyer sends cease-and-desist to Michael Wolff publisher](http://www.f3nws.com/n/sJCtuG)
 
-> Posted on: Thursday, January 4, 2018 3:28:38 PM
+> Posted on: Thursday, January 4, 2018 4:16:12 PM
