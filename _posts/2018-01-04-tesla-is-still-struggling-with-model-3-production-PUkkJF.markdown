@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tesla is still struggling with Model 3 production"
-date: 2018-01-04 00:29:30Z
+date: 2018-01-04 05:43:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Tesla is still struggling with Model 3 production](http://www.f3nws.com/n/PUkkJF)
 
-> Posted on: Thursday, January 4, 2018 12:29:30 AM
+> Posted on: Thursday, January 4, 2018 5:43:51 AM
