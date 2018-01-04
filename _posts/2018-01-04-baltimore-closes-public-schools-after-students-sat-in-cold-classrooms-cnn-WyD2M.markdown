@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Baltimore closes public schools after students sat in cold classrooms - CNN](http://cdn.cnn.com/cnnnext/dam/assets/180104113811-baltimore-students-sat-in-cold-classrooms-amid-heating-problem-super-tease.jpg)
 
-CNN Baltimore closes public schools after students sat in cold classrooms CNN (CNN) As temperatures plunged along the East Coast, photos emerged this week of Baltimore students wearing coats, hats and gloves inside frigid classrooms -- igniting criticism from parents and others who wondered why those classes weren't canceled ... Baltimore teachers call on city to close all schools amid heating issues Baltimore Sun Teacher trying to save freezing Baltimore schoolkids is an ex-Jet New York Post Former NFL player Aaron Maybin is a Baltimore teacher fighting to heat classrooms SB Nation Yahoo Sports - BuzzFeed News - Business Insider - ThinkProgress all 55 news articles »
+CNN Baltimore closes public schools after students sat in cold classrooms CNN (CNN) As temperatures plunged along the East Coast, photos emerged this week of Baltimore students wearing coats, hats and gloves inside frigid classrooms -- igniting criticism from parents and others who wondered why those classes weren't canceled ... Baltimore teachers call on city to close all schools amid heating issues Baltimore Sun Baltimore Schools Closed After Outrage Over Frigid Classrooms NPR Teacher trying to save freezing Baltimore schoolkids is an ex-Jet New York Post SB Nation - Yahoo Sports - BuzzFeed News - ThinkProgress all 58 news articles »
 
 
 Full story on F3News: [Baltimore closes public schools after students sat in cold classrooms - CNN](http://www.f3nws.com/n/WyD2M)
