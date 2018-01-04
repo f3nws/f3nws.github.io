@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Watches From the Sidelines as the Koreas Begin to Talk - New York Times](https://static01.nyt.com/images/2018/01/04/us/04dcPrexy-1/04dcPrexy-1-facebookJumbo.jpg)
 
-New York Times Trump Watches From the Sidelines as the Koreas Begin to Talk New York Times WASHINGTON — While the two Koreas were gingerly reopening a border hotline, President Trump was gleefully taunting Kim Jong-un about the relative size of their nuclear launch buttons. That, in a nutshell, captured the challenge facing the Trump ... Trump's North Korea tweets renew debate over nuclear authority CNN Trump shatters decades-old nuclear taboo Politico A considered response to Trump's critics: Your momma Washington Post The Hill - Bloomberg - Slate Magazine - U.S. News & World Report all 1,689 news articles »
+New York Times Trump Watches From the Sidelines as the Koreas Begin to Talk New York Times WASHINGTON — While the two Koreas were gingerly reopening a border hotline, President Trump was gleefully taunting Kim Jong-un about the relative size of their nuclear launch buttons. That, in a nutshell, captured the challenge facing the Trump ... Trump's North Korea tweets renew debate over nuclear authority CNN White House dismisses criticism of Trump's North Korea 'Nuclear Button' tweet Washington Post US must verify that China doesn't ease off North Korea sanctions The Hill Bloomberg - Slate Magazine - U.S. News & World Report - TIME all 1,760 news articles »
 
 
 Full story on F3News: [Trump Watches From the Sidelines as the Koreas Begin to Talk - New York Times](http://www.f3nws.com/n/kWVnpE)
