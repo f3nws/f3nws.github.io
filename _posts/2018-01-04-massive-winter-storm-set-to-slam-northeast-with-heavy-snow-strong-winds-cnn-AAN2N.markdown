@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![Massive winter storm set to slam Northeast with heavy snow, strong winds - CNN](http://cdn.cnn.com/cnnnext/dam/assets/180103182125-08-winter-weather-0103-super-tease.jpg)
 
-Newsweek Massive winter storm set to slam Northeast with heavy snow, strong winds CNN (CNN) After dumping rare snowfall on parts of the southeastern coast, a powerful winter storm is set to hammer the Northeast with up to 12 inches of snow and strong winds. By the end of this week, parts of the Northeast will be colder than Mars ... Florida sees snowfall as winter weather and cold air grips East Coast NBCNews.com NYC under winter storm warning as heavy snow and strong winds target the city New York Daily News East Coast weather bomb ahead; thaw increasingly likely by mid-January Minneapolis Star Tribune WTOP - CNBC - CBS News - Chattanooga Times Free Press all 790 news articles »
+TIME Massive winter storm set to slam Northeast with heavy snow, strong winds CNN (CNN) After dumping rare snowfall on parts of the southeastern coast, a powerful winter storm is set to hammer the Northeast with up to 12 inches of snow and strong winds. By the end of this week, parts of the Northeast will be colder than Mars ... Massive winter storm heads north after dropping rare snow on South -- live updates CBS News Winter storm slams Southeast, forecast to explode as 'bomb cyclone' in Northeast ABC News Florida sees snowfall as winter weather and cold air grips East Coast NBCNews.com New York Daily News - NJ.com - Minneapolis Star Tribune - Tallahassee.com all 726 news articles »
 
 
 Full story on F3News: [Massive winter storm set to slam Northeast with heavy snow, strong winds - CNN](http://www.f3nws.com/n/AAN2N)

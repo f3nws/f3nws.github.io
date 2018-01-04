@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What it really takes to launch a nuclear strike"
-date: 2018-01-04 00:37:10Z
+date: 2018-01-04 07:51:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump warned North Korean leader Kim Jong Un on Tuesday that he
 
 Full story on F3News: [What it really takes to launch a nuclear strike](http://www.f3nws.com/n/Hc4HzG)
 
-> Posted on: Thursday, January 4, 2018 12:37:10 AM
+> Posted on: Thursday, January 4, 2018 7:51:13 AM
