@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea calls South 3 times in 24 hours"
-date: 2018-01-04 10:08:40Z
+date: 2018-01-04 11:19:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At 3.30 p.m. on Wednesday, a phone rang in a room in an uninhabited village in t
 
 Full story on F3News: [North Korea calls South 3 times in 24 hours](http://www.f3nws.com/n/yvGbdF)
 
-> Posted on: Thursday, January 4, 2018 10:08:40 AM
+> Posted on: Thursday, January 4, 2018 11:19:52 AM

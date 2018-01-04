@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Employees at some Tim Hortons reportedly see benefits cut over minimum wage hike"
-date: 2018-01-04 10:45:04Z
+date: 2018-01-04 11:45:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Employees who work at Tim Hortons locations in Canada owned by the co-foundersâ€
 
 Full story on F3News: [Employees at some Tim Hortons reportedly see benefits cut over minimum wage hike](http://www.f3nws.com/n/VNH4aF)
 
-> Posted on: Thursday, January 4, 2018 10:45:04 AM
+> Posted on: Thursday, January 4, 2018 11:45:01 AM
