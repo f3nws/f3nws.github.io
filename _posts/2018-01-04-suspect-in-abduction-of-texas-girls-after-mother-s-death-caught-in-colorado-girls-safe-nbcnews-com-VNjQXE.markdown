@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Suspect in abduction of Texas girls after mother's death caught in Colorado, girls safe - NBCNews.com](https://media3.s-nbcnews.com/j/newscms/2018_01/2279336/180102-amber-alert-suspect-terry-miles-se-1141a_708253970dff6cefd283acbb6a044149.nbcnews-fp-1200-630.jpg)
 
-NBCNews.com Suspect in abduction of Texas girls after mother's death caught in Colorado, girls safe NBCNews.com A man suspected in the abduction of two girls whose mother may have been murdered in Texas was caught in Colorado and the girls are safe, the Round Rock police chief said. Round Rock Police Department Chief Allen Banks said on Twitter that Terry Allen ... Police: Kidnapping Suspect Had Previous, Disturbing Charges CBS Local Missing Round Rock girls found safe in Colorado; person of interest caught Fort Worth Star Telegram Texas Amber Alert girls found safe in Colorado; suspected kidnapper caught Fox News The Denver Post - FOX31 Denver - KTRK-TV - KSAT San Antonio all 44 news articles »
+NBCNews.com Suspect in abduction of Texas girls after mother's death caught in Colorado, girls safe NBCNews.com A man suspected in the abduction of two girls whose mother may have been murdered in Texas was caught in Colorado and the girls are safe, the Round Rock police chief said. Round Rock Police Department Chief Allen Banks said on Twitter that Terry Allen ... Terry Allen Miles, Accused Of Abducting Texas Girls, Caught In Colorado International Business Times all 60 news articles »
 
 
 Full story on F3News: [Suspect in abduction of Texas girls after mother's death caught in Colorado, girls safe - NBCNews.com](http://www.f3nws.com/n/VNjQXE)
