@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Spectre,' 'Meltdown' chip flaws affect billions of devices"
-date: 2018-01-04 11:47:17Z
+date: 2018-01-04 14:44:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: ['Spectre,' 'Meltdown' chip flaws affect billions of devices](http://www.f3nws.com/n/QyyqpG)
 
-> Posted on: Thursday, January 4, 2018 11:47:17 AM
+> Posted on: Thursday, January 4, 2018 2:44:29 PM

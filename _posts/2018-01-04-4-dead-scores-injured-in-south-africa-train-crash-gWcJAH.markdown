@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "4 dead, scores injured in South Africa train crash"
-date: 2018-01-04 11:50:12Z
+date: 2018-01-04 14:44:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Four people were killed and scores injured Thursday when a train collided with a
 
 Full story on F3News: [4 dead, scores injured in South Africa train crash](http://www.f3nws.com/n/gWcJAH)
 
-> Posted on: Thursday, January 4, 2018 11:50:12 AM
+> Posted on: Thursday, January 4, 2018 2:44:46 PM

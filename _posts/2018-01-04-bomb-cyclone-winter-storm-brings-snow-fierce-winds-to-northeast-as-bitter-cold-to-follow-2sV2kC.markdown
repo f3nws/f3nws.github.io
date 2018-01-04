@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Bomb cyclone' winter storm brings snow, fierce winds to Northeast as bitter cold to follow"
-date: 2018-01-04 13:20:00Z
+date: 2018-01-04 14:16:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A rapidly-intensifying winter storm system known as a "bomb cyclone" targeted th
 
 Full story on F3News: ['Bomb cyclone' winter storm brings snow, fierce winds to Northeast as bitter cold to follow](http://www.f3nws.com/n/2sV2kC)
 
-> Posted on: Thursday, January 4, 2018 1:20:00 PM
+> Posted on: Thursday, January 4, 2018 2:16:00 PM
