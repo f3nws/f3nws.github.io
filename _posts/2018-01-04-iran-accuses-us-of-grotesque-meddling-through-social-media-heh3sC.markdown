@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran accuses US of 'grotesque' meddling through social media"
-date: 2018-01-04 13:48:39Z
+date: 2018-01-04 14:50:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iran has written a letter to the United Nations accusing the US of using Faceboo
 
 Full story on F3News: [Iran accuses US of 'grotesque' meddling through social media](http://www.f3nws.com/n/heh3sC)
 
-> Posted on: Thursday, January 4, 2018 1:48:39 PM
+> Posted on: Thursday, January 4, 2018 2:50:12 PM
