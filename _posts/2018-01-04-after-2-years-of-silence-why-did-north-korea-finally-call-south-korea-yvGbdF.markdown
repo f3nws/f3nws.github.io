@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "After 2 years of silence, why did North Korea finally call South Korea?"
-date: 2018-01-04 08:22:58Z
+date: 2018-01-04 09:08:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At 3.30 p.m. on Wednesday, a phone rang in a room in an uninhabited village in t
 
 Full story on F3News: [After 2 years of silence, why did North Korea finally call South Korea?](http://www.f3nws.com/n/yvGbdF)
 
-> Posted on: Thursday, January 4, 2018 8:22:58 AM
+> Posted on: Thursday, January 4, 2018 9:08:29 AM

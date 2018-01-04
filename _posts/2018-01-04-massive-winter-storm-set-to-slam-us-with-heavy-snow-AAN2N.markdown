@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive winter storm set to slam US with heavy snow"
-date: 2018-01-04 08:01:38Z
+date: 2018-01-04 09:22:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After dumping rare snowfall on parts of the southeastern coast, a powerful winte
 
 Full story on F3News: [Massive winter storm set to slam US with heavy snow](http://www.f3nws.com/n/AAN2N)
 
-> Posted on: Thursday, January 4, 2018 8:01:38 AM
+> Posted on: Thursday, January 4, 2018 9:22:53 AM
