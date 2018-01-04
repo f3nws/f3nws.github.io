@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump lawyer sends cease and desist letter to Steve Bannon"
-date: 2018-01-04 11:56:16Z
+date: 2018-01-04 12:07:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In his first comments after being blasted by President Donald Trump Wednesday, S
 
 Full story on F3News: [Trump lawyer sends cease and desist letter to Steve Bannon](http://www.f3nws.com/n/CTYqGH)
 
-> Posted on: Thursday, January 4, 2018 11:56:16 AM
+> Posted on: Thursday, January 4, 2018 12:07:23 PM

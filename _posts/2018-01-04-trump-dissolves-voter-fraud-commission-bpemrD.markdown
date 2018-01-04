@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump dissolves voter fraud commission"
-date: 2018-01-04 02:55:11Z
+date: 2018-01-04 11:58:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The White House has dissolved President Donald Trump's much-touted commission on
 
 Full story on F3News: [Trump dissolves voter fraud commission](http://www.f3nws.com/n/bpemrD)
 
-> Posted on: Thursday, January 4, 2018 2:55:11 AM
+> Posted on: Thursday, January 4, 2018 11:58:01 AM
