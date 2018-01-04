@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2018 diets ranked: Best to worst"
-date: 2018-01-04 10:44:22Z
+date: 2018-01-04 18:31:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If you're a fan of the "fat-burning" keto diet, you'll be fired up about its ran
 
 Full story on F3News: [2018 diets ranked: Best to worst](http://www.f3nws.com/n/bm4DxE)
 
-> Posted on: Thursday, January 4, 2018 10:44:22 AM
+> Posted on: Thursday, January 4, 2018 6:31:55 PM
