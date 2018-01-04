@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meltdown and Spectre CPU Flaws Affect Intel, ARM, AMD Processors"
-date: 2018-01-04 06:34:12Z
+date: 2018-01-04 06:48:47Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ Unlike the initial reports suggested about Intel chips being vulnerable to some 
 
 Full story on F3News: [Meltdown and Spectre CPU Flaws Affect Intel, ARM, AMD Processors](http://www.f3nws.com/n/WzRV4E)
 
-> Posted on: Thursday, January 4, 2018 6:34:12 AM
+> Posted on: Thursday, January 4, 2018 6:48:47 AM
