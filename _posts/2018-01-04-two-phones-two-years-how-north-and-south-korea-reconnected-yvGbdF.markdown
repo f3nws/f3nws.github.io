@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Two phones, two years: How North and South Korea reconnected"
-date: 2018-01-04 11:49:14Z
+date: 2018-01-04 19:12:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At 3.30 p.m. on Wednesday, a phone rang in a room in an uninhabited village in t
 
 Full story on F3News: [Two phones, two years: How North and South Korea reconnected](http://www.f3nws.com/n/yvGbdF)
 
-> Posted on: Thursday, January 4, 2018 11:49:14 AM
+> Posted on: Thursday, January 4, 2018 7:12:42 PM
