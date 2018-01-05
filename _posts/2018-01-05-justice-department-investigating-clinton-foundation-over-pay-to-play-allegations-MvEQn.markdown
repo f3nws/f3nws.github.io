@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Justice Department investigating Clinton Foundation over 'pay to play' allegations"
-date: 2018-01-05 08:00:03Z
+date: 2018-01-05 08:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The Justice Department has launched a new investigation into allegations the Cli
 
 Full story on F3News: [Justice Department investigating Clinton Foundation over 'pay to play' allegations](http://www.f3nws.com/n/MvEQn)
 
-> Posted on: Friday, January 5, 2018 8:00:03 AM
+> Posted on: Friday, January 5, 2018 8:45:00 AM
