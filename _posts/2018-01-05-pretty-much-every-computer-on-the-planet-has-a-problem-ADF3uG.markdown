@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pretty much every computer on the planet has a problem"
-date: 2018-01-05 04:40:59Z
+date: 2018-01-05 16:37:51Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The security of pretty much every computer on the planet has just gotten a lot w
 
 Full story on F3News: [Pretty much every computer on the planet has a problem](http://www.f3nws.com/n/ADF3uG)
 
-> Posted on: Friday, January 5, 2018 4:40:59 AM
+> Posted on: Friday, January 5, 2018 4:37:51 PM

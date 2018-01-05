@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea accepts offer from South to meet for peace talks"
-date: 2018-01-05 14:54:14Z
+date: 2018-01-05 17:41:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea has accepted South Korea's proposal for official talks, in what will
 
 Full story on F3News: [North Korea accepts offer from South to meet for peace talks](http://www.f3nws.com/n/SVJdyF)
 
-> Posted on: Friday, January 5, 2018 2:54:14 PM
+> Posted on: Friday, January 5, 2018 5:41:46 PM
