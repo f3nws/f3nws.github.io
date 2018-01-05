@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Serena Williams pulls out of Australian Open](http://www.abc.net.au/news/image/8469188-16x9-700x394.jpg)
 
-Seven-times champion Serena Williams withdraws from the Australian Open because of concerns about her fitness after giving birth to her first child late last year.
+Seven-times champion Serena Williams withdraws from the Australian Open because of concerns about her fitness four months after giving birth to her first child.
 
 
 Full story on F3News: [Serena Williams pulls out of Australian Open](http://www.f3nws.com/n/MZtKNG)
