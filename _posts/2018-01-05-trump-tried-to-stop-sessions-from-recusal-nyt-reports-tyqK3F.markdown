@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump tried to stop Sessions from recusal, NYT reports"
-date: 2018-01-05 04:03:41Z
+date: 2018-01-05 05:02:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Special counsel Robert Mueller is aware of an unsuccessful attempt by President 
 
 Full story on F3News: [Trump tried to stop Sessions from recusal, NYT reports](http://www.f3nws.com/n/tyqK3F)
 
-> Posted on: Friday, January 5, 2018 4:03:41 AM
+> Posted on: Friday, January 5, 2018 5:02:04 AM

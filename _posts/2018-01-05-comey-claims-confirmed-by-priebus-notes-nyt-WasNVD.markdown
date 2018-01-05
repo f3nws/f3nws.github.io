@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Comey claims confirmed by Priebus notes: NYT"
-date: 2018-01-05 03:45:58Z
+date: 2018-01-05 02:00:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Michael Schmidt, reporter for The New York Times, talks with Rachel Maddow about
 
 Full story on F3News: [Comey claims confirmed by Priebus notes: NYT](http://www.f3nws.com/n/WasNVD)
 
-> Posted on: Friday, January 5, 2018 3:45:58 AM
+> Posted on: Friday, January 5, 2018 2:00:00 AM
