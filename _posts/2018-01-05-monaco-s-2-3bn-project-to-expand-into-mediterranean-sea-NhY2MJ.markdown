@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Monaco's $2.3bn project to expand into Mediterranean Sea"
-date: 2018-01-05 01:33:41Z
+date: 2018-01-05 04:49:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Monaco may be the second smallest country in the world, but it is also one of th
 
 Full story on F3News: [Monaco's $2.3bn project to expand into Mediterranean Sea](http://www.f3nws.com/n/NhY2MJ)
 
-> Posted on: Friday, January 5, 2018 1:33:41 AM
+> Posted on: Friday, January 5, 2018 4:49:56 AM
