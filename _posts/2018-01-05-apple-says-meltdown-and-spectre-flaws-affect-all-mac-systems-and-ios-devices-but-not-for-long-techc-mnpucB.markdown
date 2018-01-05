@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Apple says Meltdown and Spectre flaws affect 'all Mac systems and iOS devices,' but not for long - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2018/01/meltdown-spectre-newsletter.jpg)
 
-TechCrunch Apple says Meltdown and Spectre flaws affect 'all Mac systems and iOS devices,' but not for long TechCrunch Apple isn't immune to Meltdown and Spectre, the major bugs in basic computing architecture that were announced yesterday to widespread amazement and horror. In an announcement, the company said that “all Mac systems and iOS devices are affected,” which ... Apple Will Issue a Fix for Flawed Chips 'In the Coming Days' Fortune Apple confirms iPhone, Mac affected by Meltdown-Spectre vulnerabilities ZDNet Meltdown and Spectre: All Mac devices affected, says Apple BBC News CNNMoney - CNBC - The Hill - Fast Company all 116 news articles »
+TechCrunch Apple says Meltdown and Spectre flaws affect 'all Mac systems and iOS devices,' but not for long TechCrunch Apple isn't immune to Meltdown and Spectre, the major bugs in basic computing architecture that were announced yesterday to widespread amazement and horror. In an announcement, the company said that “all Mac systems and iOS devices are affected,” which ... Meltdown and Spectre: All Macs, iPhones and iPads affected BBC News Apple: Mac And iOS Vulnerable To Meltdown And Spectre Flaws NPR Own a Mac, PC or smartphone? A major security flaw means you need to do this now KHOU BetaNews - Phys.Org - NBCNews.com - Yahoo Finance all 330 news articles »
 
 
 Full story on F3News: [Apple says Meltdown and Spectre flaws affect 'all Mac systems and iOS devices,' but not for long - TechCrunch](http://www.f3nws.com/n/mnpucB)

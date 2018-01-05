@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mohamed Salah named African Player of the Year"
-date: 2018-01-05 02:27:19Z
+date: 2018-01-05 09:46:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Egypt and Liverpool striker Mohamed Salah has won the CAF African Player of the 
 
 Full story on F3News: [Mohamed Salah named African Player of the Year](http://www.f3nws.com/n/vvZnSC)
 
-> Posted on: Friday, January 5, 2018 2:27:19 AM
+> Posted on: Friday, January 5, 2018 9:46:42 AM
