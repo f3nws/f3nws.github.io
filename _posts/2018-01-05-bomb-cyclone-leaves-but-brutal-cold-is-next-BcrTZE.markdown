@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bomb cyclone leaves, but brutal cold is next"
-date: 2018-01-05 16:22:39Z
+date: 2018-01-05 18:00:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The good news: the major storm that gripped the East Coast is moving away. The b
 
 Full story on F3News: [Bomb cyclone leaves, but brutal cold is next](http://www.f3nws.com/n/BcrTZE)
 
-> Posted on: Friday, January 5, 2018 4:22:39 PM
+> Posted on: Friday, January 5, 2018 6:00:23 PM
