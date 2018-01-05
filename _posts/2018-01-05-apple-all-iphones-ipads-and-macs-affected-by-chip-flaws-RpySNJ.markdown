@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple: All iPhones, iPads and Macs affected by chip flaws"
-date: 2018-01-05 09:46:41Z
+date: 2018-01-05 21:24:03Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Apple: All iPhones, iPads and Macs affected by chip flaws](http://www.f3nws.com/n/RpySNJ)
 
-> Posted on: Friday, January 5, 2018 9:46:41 AM
+> Posted on: Friday, January 5, 2018 9:24:03 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Secretary of State counters accusations in explosive book about White House"
-date: 2018-01-05 19:32:18Z
+date: 2018-01-05 21:28:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Secretary of State Rex Tillerson has never questioned President Donald Trump's "
 
 Full story on F3News: [US Secretary of State counters accusations in explosive book about White House](http://www.f3nws.com/n/TTjdvG)
 
-> Posted on: Friday, January 5, 2018 7:32:18 PM
+> Posted on: Friday, January 5, 2018 9:28:52 PM
