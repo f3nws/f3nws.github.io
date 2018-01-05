@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Car wanted by police found crashed on Forrest Highway with two bodies inside](http://www.abc.net.au/news/image/901530-16x9-700x394.jpg)
 
-A car that police tried to stop in the South West WA town of Busselton in the early hours of Friday morning is found crashed into a tree on a major highway with two people dead inside.
+A car that police tried to stop in the South West WA town of Busselton in the early hours of Friday morning is found crashed into a tree on a major highway with a man and woman dead inside.
 
 
 Full story on F3News: [Car wanted by police found crashed on Forrest Highway with two bodies inside](http://www.f3nws.com/n/gjkbtD)
