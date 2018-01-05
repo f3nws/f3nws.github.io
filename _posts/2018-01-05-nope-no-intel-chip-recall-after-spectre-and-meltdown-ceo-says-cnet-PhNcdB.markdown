@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nope, no Intel chip recall after Spectre and Meltdown, CEO says     - CNET"
-date: 2018-01-05 01:36:54Z
+date: 2018-01-05 02:07:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CEO Brian Krzanich says the new security vulnerabilities may be deep, but they'r
 
 Full story on F3News: [Nope, no Intel chip recall after Spectre and Meltdown, CEO says     - CNET](http://www.f3nws.com/n/PhNcdB)
 
-> Posted on: Friday, January 5, 2018 1:36:54 AM
+> Posted on: Friday, January 5, 2018 2:07:28 AM

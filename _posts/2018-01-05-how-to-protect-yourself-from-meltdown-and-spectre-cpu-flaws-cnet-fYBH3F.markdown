@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "How to protect yourself from Meltdown and Spectre CPU flaws     - CNET"
-date: 2018-01-05 01:23:28Z
+date: 2018-01-05 01:45:58Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Practically every modern processor is vulnerable. We're updating this list of fi
 
 Full story on F3News: [How to protect yourself from Meltdown and Spectre CPU flaws     - CNET](http://www.f3nws.com/n/fYBH3F)
 
-> Posted on: Friday, January 5, 2018 1:23:28 AM
+> Posted on: Friday, January 5, 2018 1:45:58 AM

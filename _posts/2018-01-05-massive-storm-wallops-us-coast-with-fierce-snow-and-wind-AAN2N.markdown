@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Massive storm wallops US coast with fierce snow and wind"
-date: 2018-01-05 00:19:14Z
+date: 2018-01-05 02:08:46Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After dumping rare snowfall on parts of the southeastern coast, a powerful winte
 
 Full story on F3News: [Massive storm wallops US coast with fierce snow and wind](http://www.f3nws.com/n/AAN2N)
 
-> Posted on: Friday, January 5, 2018 12:19:14 AM
+> Posted on: Friday, January 5, 2018 2:08:46 AM
