@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Michael D'Antonio: A Trump biographer reviews 'Fire and Fury'"
-date: 2018-01-06 00:02:43Z
+date: 2018-01-06 02:47:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In "Fire and Fury: Inside the Trump White House," author Michael Wolff offers a 
 
 Full story on F3News: [Michael D'Antonio: A Trump biographer reviews 'Fire and Fury'](http://www.f3nws.com/n/hHJ3KF)
 
-> Posted on: Saturday, January 6, 2018 12:02:43 AM
+> Posted on: Saturday, January 6, 2018 2:47:04 AM

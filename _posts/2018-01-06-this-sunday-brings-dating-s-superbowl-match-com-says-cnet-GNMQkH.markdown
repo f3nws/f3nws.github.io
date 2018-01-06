@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This Sunday brings 'dating's Superbowl,' Match.com says     - CNET"
-date: 2018-01-06 00:11:11Z
+date: 2018-01-06 02:40:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: The dating site estimates a 42 percent spike in searches for love th
 
 Full story on F3News: [This Sunday brings 'dating's Superbowl,' Match.com says     - CNET](http://www.f3nws.com/n/GNMQkH)
 
-> Posted on: Saturday, January 6, 2018 12:11:11 AM
+> Posted on: Saturday, January 6, 2018 2:40:00 AM
