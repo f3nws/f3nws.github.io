@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sessions, other Cabinet members not attending Camp David retreat"
-date: 2018-01-06 03:09:14Z
+date: 2018-01-06 03:49:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump is convening Republican congressional leaders and some me
 
 Full story on F3News: [Sessions, other Cabinet members not attending Camp David retreat](http://www.f3nws.com/n/qbkrmB)
 
-> Posted on: Saturday, January 6, 2018 3:09:14 AM
+> Posted on: Saturday, January 6, 2018 3:49:12 AM

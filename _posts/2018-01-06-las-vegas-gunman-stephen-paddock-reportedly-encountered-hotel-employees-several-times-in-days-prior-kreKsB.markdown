@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas gunman Stephen Paddock reportedly encountered hotel employees several times in days prior to shooting"
-date: 2018-01-06 02:45:00Z
+date: 2018-01-06 03:45:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Las Vegas gunman Stephen Paddock reportedly encountered employees at the Mandala
 
 Full story on F3News: [Las Vegas gunman Stephen Paddock reportedly encountered hotel employees several times in days prior to shooting](http://www.f3nws.com/n/kreKsB)
 
-> Posted on: Saturday, January 6, 2018 2:45:00 AM
+> Posted on: Saturday, January 6, 2018 3:45:00 AM
