@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CES 2018: dates, news, rumors and predictions for tech's biggest show"
-date: 2018-01-06 00:25:31Z
+date: 2018-01-06 19:52:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Google, Samsung, LG and more are headed to Las Vegas. Here's what to expect at t
 
 Full story on F3News: [CES 2018: dates, news, rumors and predictions for tech's biggest show](http://www.f3nws.com/n/geUfsG)
 
-> Posted on: Saturday, January 6, 2018 12:25:31 AM
+> Posted on: Saturday, January 6, 2018 7:52:31 PM
