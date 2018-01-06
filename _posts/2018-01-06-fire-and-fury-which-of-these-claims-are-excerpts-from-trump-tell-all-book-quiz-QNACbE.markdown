@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fire and Fury: Which of these claims are excerpts from Trump ‘tell-all’ book? (QUIZ)"
-date: 2018-01-06 11:34:18Z
+date: 2018-01-06 11:34:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The internet has gone into meltdown over a new ‘tell-all’ book sourced from 
 
 Full story on F3News: [Fire and Fury: Which of these claims are excerpts from Trump ‘tell-all’ book? (QUIZ)](http://www.f3nws.com/n/QNACbE)
 
-> Posted on: Saturday, January 6, 2018 11:34:18 AM
+> Posted on: Saturday, January 6, 2018 11:34:00 AM

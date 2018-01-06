@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Mega Millions announces single winner for $450M jackpot - CBS News](https://cbsnews1.cbsistatic.com/hub/i/r/2018/01/06/f1149e2d-a573-4df2-b3e4-9277ff21199a/thumbnail/1200x630/20c0afe4f30284d1bbe7bd1455495a0e/gettyimages-142148788.jpg)
 
-CBS News Mega Millions announces single winner for $450M jackpot CBS News Last Updated Jan 6, 2018 8:44 AM EST. One lucky Mega Millions ticket holder in Florida has won a $450 million jackpot after matching all six numbers in the prize. Choosing the cash option would bring home $281 million. The Florida Lottery announced ... Winning $450M Mega Millions lottery ticket sold in Florida, official says USA TODAY Mega Millions results for 01/05/18; one winner of $450M jackpot MLive.com Mega Millions announces single winning ticket for $450M jackpot was sold in Florida AOL CNNMoney - New York Daily News - TIME - Newsweek all 235 news articles »
+CBS News Mega Millions announces single winner for $450M jackpot CBS News Last Updated Jan 6, 2018 8:44 AM EST. One lucky Mega Millions ticket holder in Florida has won a $450 million jackpot after matching all six numbers in the prize. Choosing the cash option would bring home $281 million. The Florida Lottery announced ... Mega Millions says one ticket won the $450 million jackpot Washington Post Someone in Florida just won a $450 million jackpot. But you can win even more tonight Miami Herald Winning $450M Mega Millions lottery ticket sold in Florida, official says USA TODAY MLive.com - CNNMoney - AOL - TIME all 234 news articles »
 
 
 Full story on F3News: [Mega Millions announces single winner for $450M jackpot - CBS News](http://www.f3nws.com/n/YAdTkB)

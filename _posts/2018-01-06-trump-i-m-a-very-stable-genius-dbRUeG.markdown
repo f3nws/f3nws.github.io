@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump: I'm a 'very stable genius'"
-date: 2018-01-06 14:03:17Z
+date: 2018-01-06 14:48:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump slammed reports questioning his mental stability in a ser
 
 Full story on F3News: [Trump: I'm a 'very stable genius'](http://www.f3nws.com/n/dbRUeG)
 
-> Posted on: Saturday, January 6, 2018 2:03:17 PM
+> Posted on: Saturday, January 6, 2018 2:48:07 PM
