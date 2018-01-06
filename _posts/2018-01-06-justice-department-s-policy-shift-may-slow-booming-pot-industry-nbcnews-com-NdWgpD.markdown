@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Justice Department's policy shift may slow booming pot industry - NBCNews.com](https://media3.s-nbcnews.com/j/newscms/2018_01/2280946/180103-marijuana-store-ew-424p_69b91d72e4ed55b7dc2131ef506e210d.nbcnews-fp-1200-630.jpg)
 
-NBCNews.com Justice Department's policy shift may slow booming pot industry NBCNews.com America's marijuana industry, already threading a thicket of conflicting state and federal laws, entered a new era of uncertainty this week when the Justice Department scrapped a policy that allowed pot to flourish in states that legalized it. In his ... Attorney General Jeff Session's war on pot may become a war on small business CNBC Marijuana sellers undeterred by threat of federal prosecution USA TODAY Medical marijuana seen at risk following move by Sessions ABC News Washington Post - U.S. News & World Report - SFGate - OregonLive.com all 2,410 news articles »
+NBCNews.com Justice Department's policy shift may slow booming pot industry NBCNews.com America's marijuana industry, already threading a thicket of conflicting state and federal laws, entered a new era of uncertainty this week when the Justice Department scrapped a policy that allowed pot to flourish in states that legalized it. In his ... Marijuana sellers undeterred by threat of federal prosecution USA TODAY Marijuana Industry Not Freaking Out Over Threat Of Federal Crackdown HuffPost Jeff Sessions says there's 'a staggering increase in homicides.' The data disagree. Washington Post CNBC - ABC News - OregonLive.com - Sacramento Bee all 2,451 news articles »
 
 
 Full story on F3News: [Justice Department's policy shift may slow booming pot industry - NBCNews.com](http://www.f3nws.com/n/NdWgpD)

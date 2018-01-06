@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Planes collide at Toronto airport, sparking fire"
-date: 2018-01-06 08:45:30Z
+date: 2018-01-06 18:53:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two commercial airplanes collided on the ground at Toronto Pearson International
 
 Full story on F3News: [Planes collide at Toronto airport, sparking fire](http://www.f3nws.com/n/2zMCZF)
 
-> Posted on: Saturday, January 6, 2018 8:45:30 AM
+> Posted on: Saturday, January 6, 2018 6:53:27 PM
