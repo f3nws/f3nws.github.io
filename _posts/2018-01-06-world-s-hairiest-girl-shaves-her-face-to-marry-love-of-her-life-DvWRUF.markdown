@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘World’s hairiest girl' shaves her face to marry love of her life"
-date: 2018-01-06 01:41:46Z
+date: 2018-01-06 01:41:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A Thai teenager, once crowned the world’s hairiest girl and nicknamed ‘Chewb
 
 Full story on F3News: [‘World’s hairiest girl' shaves her face to marry love of her life](http://www.f3nws.com/n/DvWRUF)
 
-> Posted on: Saturday, January 6, 2018 1:41:46 AM
+> Posted on: Saturday, January 6, 2018 1:41:00 AM

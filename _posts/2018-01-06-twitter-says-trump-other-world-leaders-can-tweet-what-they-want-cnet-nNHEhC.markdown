@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter says Trump, other world leaders can tweet what they want     - CNET"
-date: 2018-01-06 00:50:33Z
+date: 2018-01-06 02:11:39Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social network says blocking or removing officials' tweets would hide inform
 
 Full story on F3News: [Twitter says Trump, other world leaders can tweet what they want     - CNET](http://www.f3nws.com/n/nNHEhC)
 
-> Posted on: Saturday, January 6, 2018 12:50:33 AM
+> Posted on: Saturday, January 6, 2018 2:11:39 AM
