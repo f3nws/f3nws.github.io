@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Others put pressure on Sessions to not recuse"
-date: 2018-01-06 06:31:49Z
+date: 2018-01-06 14:10:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More White House officials were involved in the effort to persuade Attorney Gene
 
 Full story on F3News: [Others put pressure on Sessions to not recuse](http://www.f3nws.com/n/2WbD2E)
 
-> Posted on: Saturday, January 6, 2018 6:31:49 AM
+> Posted on: Saturday, January 6, 2018 2:10:38 PM
