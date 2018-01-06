@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "A Trump biographer reviews 'Fire and Fury'"
-date: 2018-01-06 05:30:14Z
+date: 2018-01-06 10:17:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In "Fire and Fury: Inside the Trump White House," author Michael Wolff offers a 
 
 Full story on F3News: [A Trump biographer reviews 'Fire and Fury'](http://www.f3nws.com/n/hHJ3KF)
 
-> Posted on: Saturday, January 6, 2018 5:30:14 AM
+> Posted on: Saturday, January 6, 2018 10:17:07 AM

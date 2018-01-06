@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![White House Immigration Demands Imperil Bipartisan Talks - New York Times](https://static01.nyt.com/images/2018/01/06/us/politics/06dc-trump1/06dc-trump1-facebookJumbo.jpg)
 
-New York Times White House Immigration Demands Imperil Bipartisan Talks New York Times WASHINGTON — The White House on Friday presented Congress with an expansive list of hard-line immigration measures, including an $18 billion request to build a wall at the Mexican border, that President Trump is demanding in exchange for protecting ... First phase of Trump border wall gets $18 billion price tag, in new request to lawmakers Washington Post Trump asks for $33B for border, including $18B for wall CNN Trump's Demands To Help Dreamers Could Doom Deal, Top Dem Says HuffPost The Hill - USA TODAY - Fox News - NBCNews.com all 155 news articles »
+New York Times White House Immigration Demands Imperil Bipartisan Talks New York Times WASHINGTON — The White House on Friday presented Congress with an expansive list of hard-line immigration measures, including an $18 billion request to build a wall at the Mexican border, that President Trump is demanding in exchange for protecting ... First phase of Trump border wall gets $18 billion price tag, in new request to lawmakers Washington Post Trump asks for $33B for border, including $18B for wall CNN Trump's Demands To Help Dreamers Could Doom Deal, Top Dem Says HuffPost The Hill - USA TODAY - Fox News - NBCNews.com all 115 news articles »
 
 
 Full story on F3News: [White House Immigration Demands Imperil Bipartisan Talks - New York Times](http://www.f3nws.com/n/aPtfmH)
