@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-astronaut John Young, who walked on the moon, dies"
-date: 2018-01-06 20:59:50Z
+date: 2018-01-06 21:51:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former astronaut John Young, a NASA trailblazer whose six journeys into space in
 
 Full story on F3News: [Ex-astronaut John Young, who walked on the moon, dies](http://www.f3nws.com/n/tmakPB)
 
-> Posted on: Saturday, January 6, 2018 8:59:50 PM
+> Posted on: Saturday, January 6, 2018 9:51:21 PM
