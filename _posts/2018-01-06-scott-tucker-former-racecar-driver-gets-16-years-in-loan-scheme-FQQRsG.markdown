@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Scott Tucker, former racecar driver, gets 16 years in loan scheme"
-date: 2018-01-06 15:45:03Z
+date: 2018-01-06 18:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A former professional racecar driver was sentenced Friday to more than a decade 
 
 Full story on F3News: [Scott Tucker, former racecar driver, gets 16 years in loan scheme](http://www.f3nws.com/n/FQQRsG)
 
-> Posted on: Saturday, January 6, 2018 3:45:03 PM
+> Posted on: Saturday, January 6, 2018 6:45:02 PM
