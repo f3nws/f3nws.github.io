@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The anti-harassment accessory you'll see on the red carpet"
-date: 2018-01-06 10:36:33Z
+date: 2018-01-06 16:03:04Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Along with seeing celebrities wearing black at Sunday's Golden Globe Awards, som
 
 Full story on F3News: [The anti-harassment accessory you'll see on the red carpet](http://www.f3nws.com/n/XtgQxG)
 
-> Posted on: Saturday, January 6, 2018 10:36:33 AM
+> Posted on: Saturday, January 6, 2018 4:03:04 PM
