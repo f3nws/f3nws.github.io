@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![OSHA fines 'The Walking Dead' production company in stuntman's death - Los Angeles Times](http://www.trbimg.com/img-5a5018dd/turbine/la-fi-ct-amc-walking-dead-stuntman-fine-20180105)
 
-Los Angeles Times OSHA fines 'The Walking Dead' production company in stuntman's death Los Angeles Times The Occupational Safety and Health Administration has fined the producers of hit AMC television show “The Walking Dead” in the death of a stuntman working on an episode of the show in Georgia last summer. Stalwart Films LLC, the production company, was ... Walking Dead production company fined for stuntman's death EW.com (blog) 'Walking Dead' Production Company Fined for "Serious" Citation Over Stuntman's Death Hollywood Reporter OSHA issues fine over John Bernecker's death Undead Walking WSB Atlanta - Complex - Xinhua - WRIC all 34 news articles »
+Los Angeles Times OSHA fines 'The Walking Dead' production company in stuntman's death Los Angeles Times The Occupational Safety and Health Administration has fined the producers of hit AMC television show “The Walking Dead” in the death of a stuntman working on an episode of the show in Georgia last summer. Stalwart Films LLC, the production company, was ... Walking Dead production company fined for stuntman's death EW.com (blog) Film company fined by OSHA in 'The Walking Dead' stuntman's death NBCNews.com 'The Walking Dead' Setting Up Rick's Death? Comicbook.com Undead Walking - WSB Atlanta - DigitalSpy.com - KTVU San Francisco all 35 news articles »
 
 
 Full story on F3News: [OSHA fines 'The Walking Dead' production company in stuntman's death - Los Angeles Times](http://www.f3nws.com/n/U3ZzUJ)
