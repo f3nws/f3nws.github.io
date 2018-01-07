@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "US border guards searched 60 percent more devices in 2017"
+date: 2018-01-07 00:29:00Z
+categories: engadget
+---
+
+![US border guards searched 60 percent more devices in 2017](https://o.aolcdn.com/images/dims?thumbnail=1200%2C630&quality=80&image_uri=https%3A%2F%2Fo.aolcdn.com%2Fimages%2Fdims%3Fcrop%3D4928%252C3280%252C0%252C0%26quality%3D85%26format%3Djpg%26resize%3D1600%252C1065%26image_uri%3Dhttp%253A%252F%252Fo.aolcdn.com%252Fhss%252Fstorage%252Fmidas%252F8431dd202bea8c7d8946063f724b9eff%252F206003708%252Fyoung-woman-at-airport-picture-id645803146%26client%3Da1acac3e1b3290917d92%26signature%3D707d24572adb0f1a75958014e19859235c904f21&client=cbc79c14efcebee57402&signature=13d0e3de5b0bce947c8361ad2413bd007b28a88b)
+
+In 2017, the US Customs and Border Protection searched 30,200 electronic devices. That's over 60 percent the number of searches its personnel conducted the year before to the dismay of privacy advocates. Some also view the rise in searches as a product of the administration's stance on immigration. "[I]t goes against the very thing the 4th Amendment was designed to protect against, which is arbitrary dragnet surveillance," University of Washington in Seattle law professor Ryan Calo told Los Angeles Times . The agency has revealed those numbers in an announcement, along with changes to its directives that could be both good and bad news for travelers. The good news is that customs agents will now need to have "reasonable suspicion" to perform a thorough search on your phones. Usually, an advanced search on electronic devices in airports means connecting them to an external gizmo that can analyze or copy their contents. Border guards can still manually search your gadget without a warrant, though, since the updated directives now state that you're "obligated to present electronic devices and the information contained therein in a condition that allows inspection of the device and its contents." One possible interpretation for that is you're expected to unlock your phone if an agent asks. It's not clear if you have the choice not to comply, since officers can apparently " detain " a device if they can't complete an inspection. While you can put your phone on airplane mode to prevent an agent from looking through emails, notes, documents and files saved in the cloud, that's definitely not enough for the ACLU. The organization, which filed a lawsuit against Homeland Security over this exact issue last year, said in a statement : "It is positive that CBP's policy would at least require officers to have some level of suspicion before copying and using electronic methods to search a traveler's electronic device. However, this policy still falls far short of what the Constitution requires -- a search warrant based on probable cause. The policy would still enable off...
+
+
+Full story on F3News: [US border guards searched 60 percent more devices in 2017](http://www.f3nws.com/n/CabsqH)
+
+> Posted on: Sunday, January 7, 2018 12:29:00 AM
