@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Navy plane that crashed in Philippine Sea located deep in Pacific"
-date: 2018-01-07 06:00:00Z
+date: 2018-01-07 08:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A U.S. Navy plane that crashed in the Philippine Sea in November, killing three 
 
 Full story on F3News: [Navy plane that crashed in Philippine Sea located deep in Pacific](http://www.f3nws.com/n/4zhXjF)
 
-> Posted on: Sunday, January 7, 2018 6:00:00 AM
+> Posted on: Sunday, January 7, 2018 8:15:00 AM

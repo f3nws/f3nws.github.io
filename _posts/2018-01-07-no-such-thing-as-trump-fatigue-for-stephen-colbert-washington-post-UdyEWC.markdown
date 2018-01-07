@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![No such thing as Trump fatigue for Stephen Colbert - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/Wires/Online/2018-01-07/AP/Images/2018_Winter_TCA_-_Showtime_25552.jpg-c644d.jpg?t=20170517)
 
-Washington Post No such thing as Trump fatigue for Stephen Colbert Washington Post PASADENA, Calif. — Trump fatigue? No such thing in comic Stephen Colbert's world. “He is president of the United States,” Colbert said Saturday. “There is no escaping it. It's like having oxygen fatigue.” Colbert and his CBS “Late Show” vaulted to the ... Stephen Colbert on imagining Trump as 'Our Cartoon President' USA TODAY Showtime Releases the Official Our Cartoon President Trailer ComingSoon.net Stephen Colbert on How 'Our Cartoon President' Differs From 'Late Show' Variety Deadline - Los Angeles Times - Adweek - Yahoo News all 34 news articles »
+Washington Post No such thing as Trump fatigue for Stephen Colbert Washington Post PASADENA, Calif. — Trump fatigue? No such thing in comic Stephen Colbert's world. “He is president of the United States,” Colbert said Saturday. “There is no escaping it. It's like having oxygen fatigue.” Colbert and his CBS “Late Show” vaulted to the ... Stephen Colbert on imagining Trump as 'Our Cartoon President' USA TODAY Showtime Releases the Official Our Cartoon President Trailer ComingSoon.net Stephen Colbert on How 'Our Cartoon President' Differs From 'Late Show' Variety Deadline - Los Angeles Times - Adweek - Yahoo News all 32 news articles »
 
 
 Full story on F3News: [No such thing as Trump fatigue for Stephen Colbert - Washington Post](http://www.f3nws.com/n/UdyEWC)
