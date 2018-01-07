@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Saudi Arabia arrests 11 princes protesting cuts to perks"
-date: 2018-01-07 12:25:33Z
+date: 2018-01-07 16:31:27Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A group of 11 Saudi princes was arrested Thursday after staging a sit-in at a pa
 
 Full story on F3News: [Saudi Arabia arrests 11 princes protesting cuts to perks](http://www.f3nws.com/n/VJXk3D)
 
-> Posted on: Sunday, January 7, 2018 12:25:33 PM
+> Posted on: Sunday, January 7, 2018 4:31:27 PM
