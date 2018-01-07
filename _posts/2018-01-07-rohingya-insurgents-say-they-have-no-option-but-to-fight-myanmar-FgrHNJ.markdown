@@ -5,6 +5,8 @@ date: 2018-01-07 04:26:44Z
 categories: indian-express-world
 ---
 
+![Rohingya insurgents say they have no option but to fight Myanmar](http://images.indianexpress.com/2018/01/rohingya-7591.jpg)
+
 
 
 
