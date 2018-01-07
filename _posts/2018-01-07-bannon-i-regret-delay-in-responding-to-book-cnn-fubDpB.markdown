@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Bannon: 'I regret' delay in responding to book - CNN](http://cdn.cnn.com/cnnnext/dam/assets/171021091732-steve-bannon-anaheim-super-tease.jpg)
 
-CNN Bannon: 'I regret' delay in responding to book CNN Washington (CNN) Former White House chief strategist Steve Bannon said Sunday he regretted not responding sooner to comments attributed to him that were critical of Donald Trump Jr. in an explosive new book on the White House. "Donald Trump, Jr. is ... Meet the Press -January 7, 2018 NBCNews.com Our Narcissist In Chief HuffPost Bannon apologizes for slamming Trump family Politico Business Insider - BBC News - NPR - Chicago Tribune all 6,945 news articles »
+CNN Bannon: 'I regret' delay in responding to book CNN Washington (CNN) Former White House chief strategist Steve Bannon said Sunday he regretted not responding sooner to comments attributed to him that were critical of Donald Trump Jr. in an explosive new book on the White House. "Donald Trump, Jr. is ... Stephen Bannon, under fire after West Wing tell-all, expresses regret over comments attributed to him Washington Post Bannon apologizes over damning portrait in book as White House presses defense of Trump Los Angeles Times Bannon apologizes for slamming Trump family Politico BBC News - The New Yorker - Business Insider - Bloomberg all 918 news articles »
 
 
 Full story on F3News: [Bannon: 'I regret' delay in responding to book - CNN](http://www.f3nws.com/n/fubDpB)
