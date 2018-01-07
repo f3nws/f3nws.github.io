@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fatally ill French baby found 'safe and sound' at uncle's home after being kidnapped by his father"
-date: 2018-01-07 04:56:14Z
+date: 2018-01-07 04:56:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A critically ill French infant kidnapped by his father from a hospital has been 
 
 Full story on F3News: [Fatally ill French baby found 'safe and sound' at uncle's home after being kidnapped by his father](http://www.f3nws.com/n/eJZjrH)
 
-> Posted on: Sunday, January 7, 2018 4:56:14 AM
+> Posted on: Sunday, January 7, 2018 4:56:00 AM

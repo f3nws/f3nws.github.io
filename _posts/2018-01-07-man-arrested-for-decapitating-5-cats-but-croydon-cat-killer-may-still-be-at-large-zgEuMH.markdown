@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Man arrested for decapitating 5 cats, but ‘Croydon cat killer’ may still be at large"
-date: 2018-01-07 01:24:11Z
+date: 2018-01-07 01:24:00Z
 categories: rt-uk
 ---
 
@@ -12,4 +12,4 @@ A 31-year old man has been arrested in Northamptonshire in connection with the m
 
 Full story on F3News: [Man arrested for decapitating 5 cats, but ‘Croydon cat killer’ may still be at large](http://www.f3nws.com/n/zgEuMH)
 
-> Posted on: Sunday, January 7, 2018 1:24:11 AM
+> Posted on: Sunday, January 7, 2018 1:24:00 AM

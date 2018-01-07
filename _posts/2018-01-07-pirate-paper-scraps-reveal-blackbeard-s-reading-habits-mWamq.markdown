@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Pirate paper scraps reveal Blackbeard’s reading habits"
-date: 2018-01-07 00:49:17Z
+date: 2018-01-07 00:49:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Tiny fragments of paper, recovered from the cannon of Blackbeard’s flagship, h
 
 Full story on F3News: [Pirate paper scraps reveal Blackbeard’s reading habits](http://www.f3nws.com/n/mWamq)
 
-> Posted on: Sunday, January 7, 2018 12:49:17 AM
+> Posted on: Sunday, January 7, 2018 12:49:00 AM
