@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump boasts that he's a 'very stable genius' amid questions over his mental fitness - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/06/National-Politics/Images/AFP_VU0B3-4216.jpg?t=20170517)
 
-Washington Post Trump boasts that he's a 'very stable genius' amid questions over his mental fitness Washington Post President Trump lashed out at critics Saturday in defense of his mental fitness for office, calling himself a “very stable genius” in a tweetstorm of boasts. First on Twitter, then at a news conference with Republican leaders at Camp David, Trump ... Trump, Defending His Mental Fitness, Says He's a 'Very Stable Genius' New York Times Trump defends his sanity amid questions about his mental state CNN Trump strikes back at 'Fire and Fury' allegations from Camp David The Hill NPR - NBCNews.com - BBC News - Bloomberg all 6,162 news articles »
+Washington Post Trump boasts that he's a 'very stable genius' amid questions over his mental fitness Washington Post President Trump lashed out at critics Saturday in defense of his mental fitness for office, calling himself a “very stable genius” in a tweetstorm of boasts. First on Twitter, then at a news conference with Republican leaders at Camp David, Trump ... Trump, Defending His Mental Fitness, Says He's a 'Very Stable Genius' New York Times Trump defends his sanity amid questions about his mental state CNN Trump strikes back at 'Fire and Fury' allegations from Camp David The Hill Politico - NPR - NBCNews.com - BBC News all 6,180 news articles »
 
 
 Full story on F3News: [Trump boasts that he's a 'very stable genius' amid questions over his mental fitness - Washington Post](http://www.f3nws.com/n/MUaMFE)
