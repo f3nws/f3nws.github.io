@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Germany coalition: Merkel courts SPD as pivotal talks begin - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05grpfp.jpg)
 
-BBC News Germany coalition: Merkel courts SPD as pivotal talks begin BBC News German Chancellor Angela Merkel has launched a new round of coalition talks in a bid to end the country's political stalemate. More than three months after its election, Germany is still without a new government. The five-day talks will include Mrs ... Merkel Begins Make-or-Break Government Talks With Stability Plea Bloomberg Cornered Merkel Upbeat as Starts Government Talks With Center-Left U.S. News & World Report Merkel optimistic at start of government talks with Social Democrats Reuters Pittsburgh Post-Gazette - Deutsche Welle - Washington Post all 93 news articles »
+BBC News Germany coalition: Merkel courts SPD as pivotal talks begin BBC News German Chancellor Angela Merkel has launched a new round of coalition talks in a bid to end the country's political stalemate. More than three months after its election, Germany is still without a new government. The five-day talks will include Mrs ... Germany's Merkel Embarks on New Talks to Form Government U.S. News & World Report Merkel Begins Make-or-Break Government Talks With Stability Plea Bloomberg Merkel optimistic at start of government talks with Social Democrats Reuters Yahoo News - Pittsburgh Post-Gazette - Washington Post - Deutsche Welle all 260 news articles »
 
 
 Full story on F3News: [Germany coalition: Merkel courts SPD as pivotal talks begin - BBC News](http://www.f3nws.com/n/RJepcH)
