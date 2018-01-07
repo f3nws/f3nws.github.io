@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon backs away from Trump Jr. criticism in tell-all book"
-date: 2018-01-07 19:16:03Z
+date: 2018-01-07 20:54:08Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon said Sunday he regretted not re
 
 Full story on F3News: [Bannon backs away from Trump Jr. criticism in tell-all book](http://www.f3nws.com/n/fubDpB)
 
-> Posted on: Sunday, January 7, 2018 7:16:03 PM
+> Posted on: Sunday, January 7, 2018 8:54:08 PM
