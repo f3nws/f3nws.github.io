@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Winning $570 million Powerball ticket sold in New Hampshire"
-date: 2018-01-07 16:19:56Z
+date: 2018-01-07 18:34:57Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ It's been a billion-dollar lottery weekend after a lone Powerball ticket sold in
 
 Full story on F3News: [Winning $570 million Powerball ticket sold in New Hampshire](http://www.f3nws.com/n/X4nQV)
 
-> Posted on: Sunday, January 7, 2018 4:19:56 PM
+> Posted on: Sunday, January 7, 2018 6:34:57 PM
