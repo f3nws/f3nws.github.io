@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Forced confession expert called to court after gunman's wife said she knew of Pulse attack plan"
-date: 2018-01-07 02:33:14Z
+date: 2018-01-07 02:33:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ The wife of the Pulse nightclub shooter, on trial for aiding and abetting a terr
 
 Full story on F3News: [Forced confession expert called to court after gunman's wife said she knew of Pulse attack plan](http://www.f3nws.com/n/kdpAX)
 
-> Posted on: Sunday, January 7, 2018 2:33:14 AM
+> Posted on: Sunday, January 7, 2018 2:33:00 AM
