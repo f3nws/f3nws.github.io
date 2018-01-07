@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Air raids kill 17 civilians in Syrian rebel-held area, rescuers say"
-date: 2018-01-07 10:43:36Z
+date: 2018-01-07 13:57:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 17 civilians in the Syrian enclave of Eastern Ghouta have been killed i
 
 Full story on F3News: [Air raids kill 17 civilians in Syrian rebel-held area, rescuers say](http://www.f3nws.com/n/SdWmkH)
 
-> Posted on: Sunday, January 7, 2018 10:43:36 AM
+> Posted on: Sunday, January 7, 2018 1:57:07 PM
