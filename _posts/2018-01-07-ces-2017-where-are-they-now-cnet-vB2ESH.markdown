@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CES 2017: Where are they now?     - CNET"
-date: 2018-01-07 00:43:04Z
+date: 2018-01-07 06:03:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Every January, gadget firms make a splash at CES. But what happens to those prod
 
 Full story on F3News: [CES 2017: Where are they now?     - CNET](http://www.f3nws.com/n/vB2ESH)
 
-> Posted on: Sunday, January 7, 2018 12:43:04 AM
+> Posted on: Sunday, January 7, 2018 6:03:05 AM
