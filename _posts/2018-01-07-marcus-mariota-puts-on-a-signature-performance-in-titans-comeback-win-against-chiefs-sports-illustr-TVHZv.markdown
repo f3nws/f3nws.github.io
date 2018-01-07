@@ -5,6 +5,8 @@ date: 2018-01-07 02:33:38Z
 categories: google-news-top-stories
 ---
 
+![Marcus Mariota Puts on a Signature Performance in Titans' Comeback Win Against Chiefs - Sports Illustrated](https://imagesvc.timeincapp.com/v3/mm/image?url=https://cdn-s3.si.com/images/marcus-mariota-tennessee-titans-kansas-city-chiefs.jpg&w=1200&h=628&c=sc&poi=face&q=85)
+
 Sports Illustrated Marcus Mariota Puts on a Signature Performance in Titans' Comeback Win Against Chiefs Sports Illustrated A touchdown pass to himself, a threading-the-needle go-ahead touchdown pass to Eric Decker, a crucial block for Derrick Henry ... In the most important moment of this game, Tennessee's QB reminded us why he was the second overall pick in the 2018 NFL ... Officiating in Titans-Chiefs was 'horrible,' but it didn't decide the game ESPN (blog) Chiefs add to long history of playoff heartbreak with loss to Titans USA TODAY Chiefs' home playoff curse continues in embarrassing loss to Titans Chicago Tribune Washington Post - Yahoo Sports - Kansas City Star - CBSSports.com all 677 news articles »
 
 
