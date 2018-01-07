@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The Bentway, the public space beneath the Gardiner, is 'for residents who don't have a front yard or backyard to play'"
-date: 2018-01-07 03:11:31Z
+date: 2018-01-07 03:11:00Z
 categories: toronto-star
 ---
 
@@ -12,4 +12,4 @@ Judy Matthews said she wanted to create a place “that encourages people to con
 
 Full story on F3News: [The Bentway, the public space beneath the Gardiner, is 'for residents who don't have a front yard or backyard to play'](http://www.f3nws.com/n/F3KUCC)
 
-> Posted on: Sunday, January 7, 2018 3:11:31 AM
+> Posted on: Sunday, January 7, 2018 3:11:00 AM
