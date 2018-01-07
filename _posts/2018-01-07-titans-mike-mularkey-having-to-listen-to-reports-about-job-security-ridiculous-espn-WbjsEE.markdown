@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Titans' Mike Mularkey: Having to listen to reports about job security 'ridiculous' - ESPN](http://a2.espncdn.com/combiner/i?img=%2Fphoto%2F2018%2F0106%2Fr311084_1296x729_16%2D9.jpg)
 
-ESPN Titans' Mike Mularkey: Having to listen to reports about job security 'ridiculous' ESPN KANSAS CITY, Mo. -- The Tennessee Titans' first playoff win since 2003 erased lingering questions about coach Mike Mularkey being fired after the season, but after the game, he was upset that it had come to this. For the second consecutive week ... Mike Mularkey's coaching fate looms over Titans' comeback win NFL.com Titans-Chiefs Postgame Quotes Titansonline.com Mike Mularkey says 'ridiculous' rumors weren't fair to his family Sporting News AL.com - Yahoo Sports - New York Times - CBSSports.com all 800 news articles »
+ESPN Titans' Mike Mularkey: Having to listen to reports about job security 'ridiculous' ESPN KANSAS CITY, Mo. -- The Tennessee Titans' first playoff win since 2003 erased lingering questions about coach Mike Mularkey being fired after the season, but after the game, he was upset that it had come to this. For the second consecutive week ... Mike Pereira rips Jeff Triplette and crew for “horrible” performance NBCSports.com Mike Mularkey's coaching fate looms over Titans' comeback win NFL.com Titans, Mularkey not feeling much support in playoff push FOXSports.com New York Times - Titansonline.com - Yahoo Sports - CBSSports.com all 759 news articles »
 
 
 Full story on F3News: [Titans' Mike Mularkey: Having to listen to reports about job security 'ridiculous' - ESPN](http://www.f3nws.com/n/WbjsEE)
