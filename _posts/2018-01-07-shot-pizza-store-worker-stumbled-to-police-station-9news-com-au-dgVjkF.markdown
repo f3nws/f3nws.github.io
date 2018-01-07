@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Shot pizza store worker stumbled to police station - 9news.com.au](http://prod.static9.net.au/_/media/2018/01/07/14/04/singhfeed1.jpg)
 
-9news.com.au Shot pizza store worker stumbled to police station 9news.com.au A pizza restaurant employee who was shot in the chest and hand during an armed hold-up in Sydney's west can be seen on CCTV staggering to a nearby police station for help. Anand Singh, 21, was shot during the robbery of a Domino's restaurant where he ... Man shot in chest at Sydney pizza restaurant feared for his life Brisbane Times Man shot in chest and hand at Sydney pizza restaurant Ten Eyewitness News Pizza worker shot in Sydney a 'brave' man 10,000 Couples all 15 news articles »
+9news.com.au Shot pizza store worker stumbled to police station 9news.com.au A pizza restaurant employee who was shot in the chest and hand during an armed hold-up in Sydney's west can be seen on CCTV staggering to a nearby police station for help. Anand Singh, 21, was shot during the robbery of a Domino's restaurant where he ... Man shot in chest at Sydney pizza restaurant feared for his life Brisbane Times Domino's Pizza worker shot in armed robbery in Wentworthville ABC Online Man shot in chest and hand at Sydney pizza restaurant Ten Eyewitness News 10,000 Couples - Daily Mail all 15 news articles »
 
 
 Full story on F3News: [Shot pizza store worker stumbled to police station - 9news.com.au](http://www.f3nws.com/n/dgVjkF)
