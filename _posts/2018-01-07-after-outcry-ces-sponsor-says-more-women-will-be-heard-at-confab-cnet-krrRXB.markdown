@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "After outcry, CES sponsor says more women will be heard at confab     - CNET"
-date: 2018-01-07 00:15:31Z
+date: 2018-01-07 01:17:16Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Consumer Technology Association says it wants to "expand women's voices" at 
 
 Full story on F3News: [After outcry, CES sponsor says more women will be heard at confab     - CNET](http://www.f3nws.com/n/krrRXB)
 
-> Posted on: Sunday, January 7, 2018 12:15:31 AM
+> Posted on: Sunday, January 7, 2018 1:17:16 AM
