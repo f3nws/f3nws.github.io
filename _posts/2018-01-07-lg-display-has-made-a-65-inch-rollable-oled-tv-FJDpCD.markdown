@@ -7,7 +7,7 @@ categories: the-verge
 
 ![LG Display has made a 65-inch rollable OLED TV](https://cdn.vox-cdn.com/thumbor/W0siuYZKuaFVOp8BZ4CU5K06DQA=/0x19:2797x1483/fit-in/1200x630/cdn.vox-cdn.com/uploads/chorus_asset/file/9989441/LGD_65_inch_UHD_rollable_OLED_display_1.jpg)
 
-
+The Verge LG Display has made a 65-inch rollable OLED TV The Verge A couple of years ago, LG Display showed off an intensely futuristic 18-inch OLED display that could be bent and rolled up just like a newspaper. Today, that prototype has grown to 65 inches in size, with the company announcing that it's managed to ... LG Display delivers a 65-inch rollable OLED Engadget LG's 65-Inch OLED TV Can Be Rolled Up, Hidden Away PCMag LG Unveils 65-inch UHD Rollable OLED Display Ubergizmo CNET - I4U News - The Korea Herald - Mighty Gadget (press release) (blog) all 31 news articles »
 
 
 Full story on F3News: [LG Display has made a 65-inch rollable OLED TV](http://www.f3nws.com/n/FJDpCD)
