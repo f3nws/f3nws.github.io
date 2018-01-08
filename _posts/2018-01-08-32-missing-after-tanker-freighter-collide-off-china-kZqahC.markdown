@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "32 missing after tanker, freighter collide off China"
-date: 2018-01-08 04:16:24Z
+date: 2018-01-08 07:26:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thirty-two sailors are missing after an oil tanker and freight ship collided off
 
 Full story on F3News: [32 missing after tanker, freighter collide off China](http://www.f3nws.com/n/kZqahC)
 
-> Posted on: Monday, January 8, 2018 4:16:24 AM
+> Posted on: Monday, January 8, 2018 7:26:17 AM

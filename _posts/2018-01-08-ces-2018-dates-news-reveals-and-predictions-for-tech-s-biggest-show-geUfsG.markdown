@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CES 2018: dates, news, reveals and predictions for tech's biggest show"
-date: 2018-01-08 05:06:31Z
+date: 2018-01-08 07:23:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Google, Samsung, LG and more have gathered at the greatest gadget show on Earth.
 
 Full story on F3News: [CES 2018: dates, news, reveals and predictions for tech's biggest show](http://www.f3nws.com/n/geUfsG)
 
-> Posted on: Monday, January 8, 2018 5:06:31 AM
+> Posted on: Monday, January 8, 2018 7:23:31 AM
