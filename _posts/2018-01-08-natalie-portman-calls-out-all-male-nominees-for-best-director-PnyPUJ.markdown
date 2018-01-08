@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Natalie Portman calls out 'all male nominees' for Best Director"
-date: 2018-01-08 11:03:56Z
+date: 2018-01-08 11:46:30Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ While presenting the Best Director award alongside Ron Howard, Natalie Portman t
 
 Full story on F3News: [Natalie Portman calls out 'all male nominees' for Best Director](http://www.f3nws.com/n/PnyPUJ)
 
-> Posted on: Monday, January 8, 2018 11:03:56 AM
+> Posted on: Monday, January 8, 2018 11:46:30 AM
