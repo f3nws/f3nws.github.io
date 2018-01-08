@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![SpaceX Launches Secret Zuma Mission for US Government, Lands Rocket - Space.com](https://img.purch.com/h/1000/aHR0cDovL3d3dy5zcGFjZS5jb20vaW1hZ2VzL2kvMDAwLzA3My8yMTQvb3JpZ2luYWwvc3BhY2V4LWxhdW5jaGVzLXp1bWEtcGF5bG9hZC5qcGc=)
 
-Space.com SpaceX Launches Secret Zuma Mission for US Government, Lands Rocket Space.com SpaceX lofted the super-secret Zuma spacecraft for the U.S. government tonight (Jan. 8), successfully executing a mission that also featured yet another landing by the first stage of the company's Falcon 9 rocket. The Falcon 9 lifted off at 8 p.m. EST ... SpaceX kicks off 2018 with launch of mysterious Zuma mission, Falcon landing USA TODAY SpaceX kicks off ambitious 2018 schedule with launch for US government Spaceflight Now SpaceX Rocket Launches Secret Government Payload Into Orbit NPR TIME - Phys.Org - Gizmodo - NBCNews.com all 128 news articles »
+Space.com SpaceX Launches Secret Zuma Mission for US Government, Lands Rocket Space.com SpaceX lofted the super-secret Zuma spacecraft for the U.S. government tonight (Jan. 8), successfully executing a mission that also featured yet another landing by the first stage of the company's Falcon 9 rocket. The Falcon 9 lifted off at 8 p.m. EST ... SpaceX kicks off 2018 with launch of mysterious Zuma mission, Falcon landing Florida Today SpaceX kicks off ambitious 2018 schedule with launch for US government Spaceflight Now SpaceX Has Launched the US Government's Secretive 'Zuma' Spacecraft Into Orbit TIME CBS News - NPR - Gizmodo - NBCNews.com all 133 news articles »
 
 
 Full story on F3News: [SpaceX Launches Secret Zuma Mission for US Government, Lands Rocket - Space.com](http://www.f3nws.com/n/TSRJ4G)
