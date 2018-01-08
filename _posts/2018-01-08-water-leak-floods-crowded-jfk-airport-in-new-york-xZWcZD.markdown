@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Water leak floods crowded JFK airport in New York"
-date: 2018-01-08 01:07:07Z
+date: 2018-01-08 02:21:07Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ A water leak flooded a baggage claim area at JFK International Airport in New Yo
 
 Full story on F3News: [Water leak floods crowded JFK airport in New York](http://www.f3nws.com/n/xZWcZD)
 
-> Posted on: Monday, January 8, 2018 1:07:07 AM
+> Posted on: Monday, January 8, 2018 2:21:07 AM

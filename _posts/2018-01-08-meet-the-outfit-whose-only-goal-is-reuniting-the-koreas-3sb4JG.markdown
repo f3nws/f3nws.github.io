@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meet the outfit whose only goal is reuniting the Koreas"
-date: 2018-01-08 00:24:53Z
+date: 2018-01-08 02:04:45Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On Tuesday, in a building along the border between North and South Korea, negoti
 
 Full story on F3News: [Meet the outfit whose only goal is reuniting the Koreas](http://www.f3nws.com/n/3sb4JG)
 
-> Posted on: Monday, January 8, 2018 12:24:53 AM
+> Posted on: Monday, January 8, 2018 2:04:45 AM

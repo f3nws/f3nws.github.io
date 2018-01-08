@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "D-Link's McAfee-powered router makes security a top priority     - CNET"
-date: 2018-01-08 01:29:25Z
+date: 2018-01-08 01:34:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The D-Link AC2600 Wi-Fi router powered by McAfee has parental controls, antiviru
 
 Full story on F3News: [D-Link's McAfee-powered router makes security a top priority     - CNET](http://www.f3nws.com/n/gJXYcH)
 
-> Posted on: Monday, January 8, 2018 1:29:25 AM
+> Posted on: Monday, January 8, 2018 1:34:55 AM

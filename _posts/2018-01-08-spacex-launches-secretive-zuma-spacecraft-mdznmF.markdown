@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SpaceX launches secretive Zuma spacecraft"
-date: 2018-01-08 01:20:36Z
+date: 2018-01-08 01:56:31Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [SpaceX launches secretive Zuma spacecraft](http://www.f3nws.com/n/mdznmF)
 
-> Posted on: Monday, January 8, 2018 1:20:36 AM
+> Posted on: Monday, January 8, 2018 1:56:31 AM
