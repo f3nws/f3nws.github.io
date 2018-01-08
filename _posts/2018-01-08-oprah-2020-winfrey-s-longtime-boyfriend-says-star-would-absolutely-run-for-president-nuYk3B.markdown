@@ -5,6 +5,8 @@ date: 2018-01-08 16:15:00Z
 categories: fox-news
 ---
 
+!['Oprah 2020': Winfrey's longtime boyfriend says star 'would absolutely' run for president](http://a57.foxnews.com/images.foxnews.com/content/fox-news/entertainment/2018/01/08/oprah-2020-nbc-and-celebs-dub-oprah-winfrey-our-future-president-after-golden-globes/_jcr_content/image.img.jpg/0/0/1515428841322.jpg?ve=1)
+
 NBC network and celebrities dubbed Oprah Winfrey “our future president” following the appearance at Sunday night’s Golden Globe Awards and her moving speech referencing civil rights and Me Too campaign that highlighted rampant sexual harassment.
 
 
