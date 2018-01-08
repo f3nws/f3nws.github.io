@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US gives 200,000 Salvadorans deadline to leave country"
-date: 2018-01-08 17:28:59Z
+date: 2018-01-08 21:59:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Trump administration will end protections for certain nationals of El Salvad
 
 Full story on F3News: [US gives 200,000 Salvadorans deadline to leave country](http://www.f3nws.com/n/zDbGbD)
 
-> Posted on: Monday, January 8, 2018 5:28:59 PM
+> Posted on: Monday, January 8, 2018 9:59:12 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "H&M sorry for using black child to sell 'coolest monkey' top"
-date: 2018-01-08 17:43:46Z
+date: 2018-01-08 21:48:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [H&M sorry for using black child to sell 'coolest monkey' top](http://www.f3nws.com/n/QGHDPD)
 
-> Posted on: Monday, January 8, 2018 5:43:46 PM
+> Posted on: Monday, January 8, 2018 9:48:22 PM
