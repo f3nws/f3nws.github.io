@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gallery: Stars wear black on the red carpet"
-date: 2018-01-08 01:27:42Z
+date: 2018-01-08 04:46:35Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ See photos of celebrities at the Golden Globe Awards in Beverly Hills, Californi
 
 Full story on F3News: [Gallery: Stars wear black on the red carpet](http://www.f3nws.com/n/VUuGvC)
 
-> Posted on: Monday, January 8, 2018 1:27:42 AM
+> Posted on: Monday, January 8, 2018 4:46:35 AM

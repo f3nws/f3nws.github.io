@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Re-live the major moments with our Globes blog"
-date: 2018-01-08 00:20:52Z
+date: 2018-01-08 05:28:39Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Seth Meyers will host the 75th Annual Golden Globe Awards, starting at 8 p.m. ET
 
 Full story on F3News: [Re-live the major moments with our Globes blog](http://www.f3nws.com/n/uPmvvE)
 
-> Posted on: Monday, January 8, 2018 12:20:52 AM
+> Posted on: Monday, January 8, 2018 5:28:39 AM

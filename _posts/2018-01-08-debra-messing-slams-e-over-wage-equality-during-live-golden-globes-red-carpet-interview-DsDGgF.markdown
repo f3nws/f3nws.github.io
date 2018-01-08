@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Debra Messing slams E! over wage equality during live Golden Globes red carpet interview"
-date: 2018-01-08 00:52:00Z
+date: 2018-01-08 03:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Debra Messing wasted no time taking a swipe at E! for allegedly not paying its f
 
 Full story on F3News: [Debra Messing slams E! over wage equality during live Golden Globes red carpet interview](http://www.f3nws.com/n/DsDGgF)
 
-> Posted on: Monday, January 8, 2018 12:52:00 AM
+> Posted on: Monday, January 8, 2018 3:00:00 AM
