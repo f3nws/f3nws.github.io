@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parts of US brace for more brutal cold"
-date: 2018-01-08 06:55:13Z
+date: 2018-01-08 08:31:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ More than 20 million Midwesterners are under a winter weather advisory through M
 
 Full story on F3News: [Parts of US brace for more brutal cold](http://www.f3nws.com/n/FT2EkG)
 
-> Posted on: Monday, January 8, 2018 6:55:13 AM
+> Posted on: Monday, January 8, 2018 8:31:50 AM

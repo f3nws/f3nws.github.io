@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Recap: Women win big at Golden Globes"
-date: 2018-01-08 06:03:19Z
+date: 2018-01-08 08:17:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The Golden Globes delivered a powerful, concerted message about and from women, 
 
 Full story on F3News: [Recap: Women win big at Golden Globes](http://www.f3nws.com/n/mbNGu)
 
-> Posted on: Monday, January 8, 2018 6:03:19 AM
+> Posted on: Monday, January 8, 2018 8:17:29 AM

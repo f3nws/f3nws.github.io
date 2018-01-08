@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Tommy Wiseau reveals what he would have said on stage at the Golden Globes - Los Angeles Times](http://www.trbimg.com/img-5a531a79/turbine/la-et-mn-golden-globes-breakout-tommy-wiseau-20180107)
 
-Los Angeles Times Tommy Wiseau reveals what he would have said on stage at the Golden Globes Los Angeles Times On a night that will be remembered mostly for its somber attire, sober attitude and that rousing speech from Oprah Winfrey, there was at least one glimmer of the classic, madcap unpredictability of the Golden Globes. That was provided, appropriately ... Who Is Tommy Wiseau? All About the Man James Franco Won a Golden Globe for Playing PEOPLE.com James Franco Wins Golden Globe for Best Actor, Brings Up Tommy Wiseau During Speech E! Online Franco turns bad into gold with Globe for 'Disaster Artist' ABC News Vanity Fair - EW.com (blog) - Us Weekly - Vulture all 105 news articles »
+Los Angeles Times Tommy Wiseau reveals what he would have said on stage at the Golden Globes Los Angeles Times On a night that will be remembered mostly for its somber attire, sober attitude and that rousing speech from Oprah Winfrey, there was at least one glimmer of the classic, madcap unpredictability of the Golden Globes. That was provided, appropriately ... Franco turns bad into gold with Globe for 'Disaster Artist' ABC News Why Did Ally Sheedy Call out Golden Globe Winner James Franco on Twitter? Vanity Fair James Franco's Past Scrutinized on Twitter After Golden Globes Win Vulture E! Online - Us Weekly - Daily Beast - New York Post all 108 news articles »
 
 
 Full story on F3News: [Tommy Wiseau reveals what he would have said on stage at the Golden Globes - Los Angeles Times](http://www.f3nws.com/n/fFuVeG)
