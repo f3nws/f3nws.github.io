@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sources: Oprah Winfrey is 'actively thinking' about running for president"
-date: 2018-01-08 15:11:26Z
+date: 2018-01-08 19:20:32Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Sources: Oprah Winfrey is 'actively thinking' about running for president](http://www.f3nws.com/n/Pr2BJH)
 
-> Posted on: Monday, January 8, 2018 3:11:26 PM
+> Posted on: Monday, January 8, 2018 7:20:32 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The complete winners list"
-date: 2018-01-08 04:36:12Z
+date: 2018-01-08 18:48:38Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ The 75th Golden Globe Awards were held Sunday.
 
 Full story on F3News: [The complete winners list](http://www.f3nws.com/n/vjmAMD)
 
-> Posted on: Monday, January 8, 2018 4:36:12 AM
+> Posted on: Monday, January 8, 2018 6:48:38 PM

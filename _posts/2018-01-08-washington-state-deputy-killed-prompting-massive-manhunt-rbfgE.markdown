@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Washington state deputy killed, prompting massive manhunt"
-date: 2018-01-08 16:23:00Z
+date: 2018-01-08 19:17:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Authorities launched a dragnet after a Washington state sheriff's deputy was sho
 
 Full story on F3News: [Washington state deputy killed, prompting massive manhunt](http://www.f3nws.com/n/rbfgE)
 
-> Posted on: Monday, January 8, 2018 4:23:00 PM
+> Posted on: Monday, January 8, 2018 7:17:00 PM
