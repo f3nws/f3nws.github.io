@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Start-up Byton wows CES with tech-laden electric concept car video     - Roadshow"
-date: 2018-01-08 02:37:05Z
+date: 2018-01-08 04:06:54Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Sporting a must-have list of the next decade's technologies, Byton's first conce
 
 Full story on F3News: [Start-up Byton wows CES with tech-laden electric concept car video     - Roadshow](http://www.f3nws.com/n/rZVzYH)
 
-> Posted on: Monday, January 8, 2018 2:37:05 AM
+> Posted on: Monday, January 8, 2018 4:06:54 AM
