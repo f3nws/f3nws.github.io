@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oprah Winfrey: 'For too long women have not been heard or believe'"
-date: 2018-01-08 03:43:09Z
+date: 2018-01-08 04:31:02Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Oprah Winfrey accepted her Cecil B. DeMille Award on Sunday night at the Golden 
 
 Full story on F3News: [Oprah Winfrey: 'For too long women have not been heard or believe'](http://www.f3nws.com/n/DNXT2E)
 
-> Posted on: Monday, January 8, 2018 3:43:09 AM
+> Posted on: Monday, January 8, 2018 4:31:02 AM

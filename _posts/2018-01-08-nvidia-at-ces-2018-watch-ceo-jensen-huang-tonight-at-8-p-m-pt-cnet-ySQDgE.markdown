@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nvidia at CES 2018: Watch CEO Jensen Huang tonight at 8 p.m. PT     - CNET"
-date: 2018-01-08 02:11:53Z
+date: 2018-01-08 03:53:04Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Nvidia's founder and CEO delivers the first major press conference of 2018's big
 
 Full story on F3News: [Nvidia at CES 2018: Watch CEO Jensen Huang tonight at 8 p.m. PT     - CNET](http://www.f3nws.com/n/ySQDgE)
 
-> Posted on: Monday, January 8, 2018 2:11:53 AM
+> Posted on: Monday, January 8, 2018 3:53:04 AM
