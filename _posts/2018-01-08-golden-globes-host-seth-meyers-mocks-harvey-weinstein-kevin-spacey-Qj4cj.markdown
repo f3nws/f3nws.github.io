@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Golden Globes host Seth Meyers mocks Harvey Weinstein, Kevin Spacey"
-date: 2018-01-08 02:32:00Z
+date: 2018-01-08 03:22:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The 75th annual Golden Globe Awards kicked off with a red carpet and opening mon
 
 Full story on F3News: [Golden Globes host Seth Meyers mocks Harvey Weinstein, Kevin Spacey](http://www.f3nws.com/n/Qj4cj)
 
-> Posted on: Monday, January 8, 2018 2:32:00 AM
+> Posted on: Monday, January 8, 2018 3:22:00 AM
