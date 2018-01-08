@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sterling, Oprah, Aziz: Golden Globes is a night of many firsts"
-date: 2018-01-08 09:11:21Z
+date: 2018-01-08 13:25:15Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ All eyes will be on Hollywood Sunday night, and not just for stargazing.
 
 Full story on F3News: [Sterling, Oprah, Aziz: Golden Globes is a night of many firsts](http://www.f3nws.com/n/JpNaFC)
 
-> Posted on: Monday, January 8, 2018 9:11:21 AM
+> Posted on: Monday, January 8, 2018 1:25:15 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oprah Winfrey electrifies Golden Globes with inspiring speech"
-date: 2018-01-08 12:23:19Z
+date: 2018-01-08 12:50:27Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Oprah Winfrey accepted her Cecil B. DeMille Award on Sunday night at the Golden 
 
 Full story on F3News: [Oprah Winfrey electrifies Golden Globes with inspiring speech](http://www.f3nws.com/n/DNXT2E)
 
-> Posted on: Monday, January 8, 2018 12:23:19 PM
+> Posted on: Monday, January 8, 2018 12:50:27 PM

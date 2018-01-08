@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Read the full text of Oprah's speech"
-date: 2018-01-08 06:25:45Z
+date: 2018-01-08 13:12:54Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Oprah Winfrey accepted the Cecil B. DeMille Award for lifetime achievement at th
 
 Full story on F3News: [Read the full text of Oprah's speech](http://www.f3nws.com/n/BzrCBD)
 
-> Posted on: Monday, January 8, 2018 6:25:45 AM
+> Posted on: Monday, January 8, 2018 1:12:54 PM
