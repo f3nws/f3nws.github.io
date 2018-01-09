@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![The Outrage Should Not Stop With H&M, It Should Extend To Everyone Involved. - HuffPost](https://img.huffingtonpost.com/asset/5a540bf71c0000150068f4db.jpg?ops=1910_1000)
 
-HuffPost The Outrage Should Not Stop With H&M, It Should Extend To Everyone Involved. HuffPost I woke up this morning, and the first thing I saw was a picture of a black child in a hoodie with the words “Coolest Monkey in the Jungle.” My initial reaction was one of shocked and then things got even more upsetting when I realize it was an ad for a ... H&M apologizes for showing black child wearing a 'monkey in the jungle' sweatshirt Chicago Tribune H&M Apologizes After Using Black Child in 'Monkey' Hoodie Ad Bloomberg H&M Apologizes for 'Monkey' Image Featuring Black Child New York Times The Root - EW.com - Billboard - PEOPLE.com all 305 news articles »
+HuffPost The Outrage Should Not Stop With H&M, It Should Extend To Everyone Involved. HuffPost I woke up this morning, and the first thing I saw was a picture of a black child in a hoodie with the words “Coolest Monkey in the Jungle.” My initial reaction was one of shocked and then things got even more upsetting when I realize it was an ad for a ... H&M apologizes for showing black child wearing a 'monkey in the jungle' sweatshirt Chicago Tribune H&M Apologizes for 'Monkey' Image Featuring Black Child New York Times H&M Apologizes After Using Black Child in 'Monkey' Hoodie Ad Bloomberg Daily Beast - Billboard - Daily Mail - Variety all 328 news articles »
 
 
 Full story on F3News: [The Outrage Should Not Stop With H&M, It Should Extend To Everyone Involved. - HuffPost](http://www.f3nws.com/n/BWvKqB)
