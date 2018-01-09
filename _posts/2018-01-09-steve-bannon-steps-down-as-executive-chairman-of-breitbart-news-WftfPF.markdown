@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steve Bannon steps down as executive chairman of Breitbart News"
-date: 2018-01-09 21:15:00Z
+date: 2018-01-09 21:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Stephen Bannon has stepped down as executive chairman of the pro-Trump, populist
 
 Full story on F3News: [Steve Bannon steps down as executive chairman of Breitbart News](http://www.f3nws.com/n/WftfPF)
 
-> Posted on: Tuesday, January 9, 2018 9:15:00 PM
+> Posted on: Tuesday, January 9, 2018 9:45:00 PM

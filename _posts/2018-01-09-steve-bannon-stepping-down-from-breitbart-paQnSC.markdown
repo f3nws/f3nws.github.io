@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Steve Bannon stepping down from Breitbart"
-date: 2018-01-09 21:41:14Z
+date: 2018-01-09 22:29:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Steve Bannon stepping down from Breitbart](http://www.f3nws.com/n/paQnSC)
 
-> Posted on: Tuesday, January 9, 2018 9:41:14 PM
+> Posted on: Tuesday, January 9, 2018 10:29:15 PM
