@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Accused killers sought death benefits weeks after killing, court told](https://www.thestar.com/content/dam/thestar/news/crime/2018/01/08/accused-killers-sought-death-benefits-weeks-after-killing-court-told/allan_lanteigne_edit_jpg.jpg)
 
-Crown witnesses testify that U of T accountant Allan Lanteigne’s estranged husband arranged for his lover to collect death benefits.
+Crown witnesses testify that victim’s estranged husband arranged for his lover to collect death benefits.
 
 
 Full story on F3News: [Accused killers sought death benefits weeks after killing, court told](http://www.f3nws.com/n/N4SBdD)

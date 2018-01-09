@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Google engineer fired for ‘diversity memo’ sues over anti-white male discrimination"
-date: 2018-01-09 00:44:43Z
+date: 2018-01-09 00:44:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Former Google engineer James Damore has filed a class action lawsuit against Goo
 
 Full story on F3News: [Ex-Google engineer fired for ‘diversity memo’ sues over anti-white male discrimination](http://www.f3nws.com/n/ybNq3D)
 
-> Posted on: Tuesday, January 9, 2018 12:44:43 AM
+> Posted on: Tuesday, January 9, 2018 12:44:00 AM

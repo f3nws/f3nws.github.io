@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sony CES 2018 live blog"
-date: 2018-01-09 00:30:58Z
+date: 2018-01-09 00:56:58Z
 categories: techcrunch
 ---
 
@@ -12,4 +12,4 @@ For Sony, CES is a show of sheer, brute force. It’s all about a big, flashy sh
 
 Full story on F3News: [Sony CES 2018 live blog](http://www.f3nws.com/n/kSUuaH)
 
-> Posted on: Tuesday, January 9, 2018 12:30:58 AM
+> Posted on: Tuesday, January 9, 2018 12:56:58 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WikiLeaks tweets then deletes link to text of new Trump book"
-date: 2018-01-09 00:45:03Z
+date: 2018-01-09 01:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The website WikiLeaks on Sunday tweeted a link to the text of the new book criti
 
 Full story on F3News: [WikiLeaks tweets then deletes link to text of new Trump book](http://www.f3nws.com/n/J3yVtG)
 
-> Posted on: Tuesday, January 9, 2018 12:45:03 AM
+> Posted on: Tuesday, January 9, 2018 1:45:02 AM
