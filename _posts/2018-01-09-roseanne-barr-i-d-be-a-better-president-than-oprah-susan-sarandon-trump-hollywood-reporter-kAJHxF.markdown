@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Roseanne Barr: "I'd Be a Better President" Than Oprah, Susan Sarandon, Trump - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2018/01/roseanne_s01_still.jpg)
 
-Hollywood Reporter Roseanne Barr: "I'd Be a Better President" Than Oprah, Susan Sarandon, Trump Hollywood Reporter "It was time for us as a country to shake things up and, you know, try something different," the actress tells reporters of her support of Trump at TCA. It didn't take long before the subject of Donald Trump arose during a panel Monday previewing the ... Roseanne thinks she'd make a better president than Oprah EW.com Roseanne Barr: Her TV Character's a Trump Fan, as Should Be U.S. News & World Report Roseanne Barr on the Politics on Her 'Roseanne Revival': 'It's Just Realistic' Variety USA TODAY - Deadline - Paste Magazine - Pittsburgh Post-Gazette all 54 news articles »
+Hollywood Reporter Roseanne Barr: "I'd Be a Better President" Than Oprah, Susan Sarandon, Trump Hollywood Reporter "It was time for us as a country to shake things up and, you know, try something different," the actress tells reporters of her support of Trump at TCA. It didn't take long before the subject of Donald Trump arose during a panel Monday previewing the ... John Goodman Didn't Really Care How Roseanne Resurrected Dan Conner for ABC's Revival E! Online 'Roseanne' revival upsets some fans with 9-year-old boy character that dresses like a girl Fox News What to Expect From the 'Roseanne' Reboot Entertainment Tonight HuffPost - Variety - Jezebel - USA TODAY all 92 news articles »
 
 
 Full story on F3News: [Roseanne Barr: "I'd Be a Better President" Than Oprah, Susan Sarandon, Trump - Hollywood Reporter](http://www.f3nws.com/n/kAJHxF)

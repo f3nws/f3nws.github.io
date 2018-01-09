@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CES 2018: dates, news and all the big reveals at the Las Vegas tech show"
-date: 2018-01-09 03:31:31Z
+date: 2018-01-09 15:32:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Google, Samsung, Nvidia and more have gathered at the greatest gadget show on Ea
 
 Full story on F3News: [CES 2018: dates, news and all the big reveals at the Las Vegas tech show](http://www.f3nws.com/n/geUfsG)
 
-> Posted on: Tuesday, January 9, 2018 3:31:31 AM
+> Posted on: Tuesday, January 9, 2018 3:32:31 PM
