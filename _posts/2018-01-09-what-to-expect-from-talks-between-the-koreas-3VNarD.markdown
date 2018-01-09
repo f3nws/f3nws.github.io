@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What to expect from talks between the Koreas"
-date: 2018-01-09 02:04:18Z
+date: 2018-01-09 03:22:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After more than a year of mounting tensions on the Korean Peninsula, we might fi
 
 Full story on F3News: [What to expect from talks between the Koreas](http://www.f3nws.com/n/3VNarD)
 
-> Posted on: Tuesday, January 9, 2018 2:04:18 AM
+> Posted on: Tuesday, January 9, 2018 3:22:08 AM
