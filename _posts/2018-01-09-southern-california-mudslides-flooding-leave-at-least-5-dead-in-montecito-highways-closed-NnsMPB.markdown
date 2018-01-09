@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Southern California mudslides, flooding leave at least 5 dead in Montecito, highways closed"
-date: 2018-01-09 17:30:00Z
+date: 2018-01-09 19:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ At least five people were killed Tuesday after a powerful winter storm drenching
 
 Full story on F3News: [Southern California mudslides, flooding leave at least 5 dead in Montecito, highways closed](http://www.f3nws.com/n/NnsMPB)
 
-> Posted on: Tuesday, January 9, 2018 5:30:00 PM
+> Posted on: Tuesday, January 9, 2018 7:15:00 PM
