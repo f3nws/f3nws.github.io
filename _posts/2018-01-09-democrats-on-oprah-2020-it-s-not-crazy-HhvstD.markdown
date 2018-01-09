@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Democrats on Oprah 2020: It's not crazy"
-date: 2018-01-09 12:09:45Z
+date: 2018-01-09 19:12:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The day after Oprah Winfrey delivered a speech that thrust her into the conversa
 
 Full story on F3News: [Democrats on Oprah 2020: It's not crazy](http://www.f3nws.com/n/HhvstD)
 
-> Posted on: Tuesday, January 9, 2018 12:09:45 PM
+> Posted on: Tuesday, January 9, 2018 7:12:11 PM
