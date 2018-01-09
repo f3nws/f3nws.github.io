@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Radical move could make transcript public"
-date: 2018-01-09 03:10:52Z
+date: 2018-01-09 02:07:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks back at the unusual Congressional trick used by then-Senator
 
 Full story on F3News: [Radical move could make transcript public](http://www.f3nws.com/n/PKgmsG)
 
-> Posted on: Tuesday, January 9, 2018 3:10:52 AM
+> Posted on: Tuesday, January 9, 2018 2:07:00 AM

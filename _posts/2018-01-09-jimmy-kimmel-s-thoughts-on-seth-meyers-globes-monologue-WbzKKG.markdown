@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jimmy Kimmel's thoughts on Seth Meyers' Globes monologue"
-date: 2018-01-09 01:33:53Z
+date: 2018-01-09 06:33:29Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ With nearly two months to go until the Academy Awards, host Jimmy Kimmel is in n
 
 Full story on F3News: [Jimmy Kimmel's thoughts on Seth Meyers' Globes monologue](http://www.f3nws.com/n/WbzKKG)
 
-> Posted on: Tuesday, January 9, 2018 1:33:53 AM
+> Posted on: Tuesday, January 9, 2018 6:33:29 AM

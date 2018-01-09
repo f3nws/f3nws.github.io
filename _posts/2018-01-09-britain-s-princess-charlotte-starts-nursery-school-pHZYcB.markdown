@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Britain's Princess Charlotte starts nursery school"
-date: 2018-01-09 00:32:28Z
+date: 2018-01-09 06:31:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Britain's Princess Charlotte, youngest child of the Duke and Duchess of Cambridg
 
 Full story on F3News: [Britain's Princess Charlotte starts nursery school](http://www.f3nws.com/n/pHZYcB)
 
-> Posted on: Tuesday, January 9, 2018 12:32:28 AM
+> Posted on: Tuesday, January 9, 2018 6:31:26 AM
