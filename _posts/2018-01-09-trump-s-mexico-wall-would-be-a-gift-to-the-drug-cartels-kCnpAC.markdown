@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump's Mexico wall would be a gift to the drug cartels"
-date: 2018-01-09 09:14:09Z
+date: 2018-01-09 11:23:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The tricks of the multibillion-dollar drug business include using drones, submar
 
 Full story on F3News: [Trump's Mexico wall would be a gift to the drug cartels](http://www.f3nws.com/n/kCnpAC)
 
-> Posted on: Tuesday, January 9, 2018 9:14:09 AM
+> Posted on: Tuesday, January 9, 2018 11:23:16 AM
