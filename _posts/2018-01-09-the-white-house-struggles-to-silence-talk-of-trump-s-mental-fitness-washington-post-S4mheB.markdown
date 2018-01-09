@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![The White House struggles to silence talk of Trump's mental fitness - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/04/National-Politics/Images/Botsford180104Trump23279.JPG?t=20170517)
 
-Washington Post The White House struggles to silence talk of Trump's mental fitness Washington Post The White House is struggling to contain the national discussion about President Trump's mental acuity and fitness for the job, which has overshadowed the administration's agenda for the past week. Trump publicly waded into the debate spawned by a new ... With nuclear codes in hands, why doesn't the president get a thorough mental check? CNN From 'Fire and Fury' to Political Firestorm New York Times Is Trump mentally fit? Don't count on his physical to tell you Politico The Hill - BBC News - Los Angeles Times - The Atlantic all 2,389 news articles »
+Washington Post The White House struggles to silence talk of Trump's mental fitness Washington Post The White House is struggling to contain the national discussion about President Trump's mental acuity and fitness for the job, which has overshadowed the administration's agenda for the past week. Trump publicly waded into the debate spawned by a new ... From 'Fire and Fury' to Political Firestorm New York Times Fact-checking Michael Wolff CNN Is Trump mentally fit? Don't count on his physical to tell you Politico The Hill - HuffPost - Los Angeles Times - BBC News all 2,462 news articles »
 
 
 Full story on F3News: [The White House struggles to silence talk of Trump's mental fitness - Washington Post](http://www.f3nws.com/n/S4mheB)
