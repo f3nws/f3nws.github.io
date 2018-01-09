@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US has to buy Russian natural gas as consumer prices soar"
-date: 2018-01-09 11:17:28Z
+date: 2018-01-09 11:17:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Russia will deliver liquefied natural gas (LNG) to the US, Kommersant daily repo
 
 Full story on F3News: [US has to buy Russian natural gas as consumer prices soar](http://www.f3nws.com/n/WDqrvD)
 
-> Posted on: Tuesday, January 9, 2018 11:17:28 AM
+> Posted on: Tuesday, January 9, 2018 11:17:00 AM

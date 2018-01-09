@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Winter Olympics 2018: 'A tension reducer' for North and South Korea"
-date: 2018-01-09 10:46:54Z
+date: 2018-01-09 14:03:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It was a brief moment of unity. A picture which was shared around the world.
 
 Full story on F3News: [Winter Olympics 2018: 'A tension reducer' for North and South Korea](http://www.f3nws.com/n/hkT2kH)
 
-> Posted on: Tuesday, January 9, 2018 10:46:54 AM
+> Posted on: Tuesday, January 9, 2018 2:03:52 PM
