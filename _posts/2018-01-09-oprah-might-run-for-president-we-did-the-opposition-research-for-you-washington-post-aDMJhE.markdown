@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Oprah might run for president. We did the opposition research for you. - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/08/Style/Images/Oprah_scandal_04.jpg?t=20170517)
 
-New York Times Oprah might run for president. We did the opposition research for you. Washington Post Since everyone's suddenly talking about Oprah 2020, let's talk about what her campaign might look like — or more specifically, what her opponents might do to it. There's no reason to think politics will become any less brutal in the next two years ... Trump says he would beat Oprah in 2020 CNN Oprah Winfrey "Intrigued" by 2020 Presidential Run, Gayle King Says E! Online 5 Tips to Create and Deliver Your Own Perfect Oprah Speech HuffPost National Review - The New Yorker - RollingStone.com - Hollywood Reporter all 2,454 news articles »
+Los Angeles Times Oprah might run for president. We did the opposition research for you. Washington Post Since everyone's suddenly talking about Oprah 2020, let's talk about what her campaign might look like — or more specifically, what her opponents might do to it. There's no reason to think politics will become any less brutal in the next two years ... Ivanka tries to have it both ways: Trump's daughter and #MeToo supporter Politico Will President Oprah bring her quacks with her to the White House? Los Angeles Times Trump says he would beat Oprah in 2020 CNN BBC News - Deadline - New York Magazine - Chicago Tribune all 2,451 news articles »
 
 
 Full story on F3News: [Oprah might run for president. We did the opposition research for you. - Washington Post](http://www.f3nws.com/n/aDMJhE)

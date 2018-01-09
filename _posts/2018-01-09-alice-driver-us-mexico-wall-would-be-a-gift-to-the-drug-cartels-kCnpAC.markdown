@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Alice Driver: US-Mexico wall would be a gift to the drug cartels"
+date: 2018-01-09 17:29:07Z
+categories: cnn-com-top-stories
+---
+
+![Alice Driver: US-Mexico wall would be a gift to the drug cartels](http://cdn.cnn.com/cnnnext/dam/assets/171026160157-wall-prototypes-super-tease.jpg)
+
+The tricks of the multibillion-dollar drug business include using drones, submarines, ultralight planes and even frozen sharks to transport product across the US-Mexico border. Just consider that in 2016, US Customs and Border Protection Air and Marine Operations agents attempted to seize a submarine in the Pacific Ocean with nearly $194 million worth of cocaine.
+
+
+Full story on F3News: [Alice Driver: US-Mexico wall would be a gift to the drug cartels](http://www.f3nws.com/n/kCnpAC)
+
+> Posted on: Tuesday, January 9, 2018 5:29:07 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea to send athletes to Olympics"
-date: 2018-01-09 18:08:06Z
+date: 2018-01-09 21:33:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North Korea has agreed to send a delegation to next month's Winter Olympics in S
 
 Full story on F3News: [North Korea to send athletes to Olympics](http://www.f3nws.com/n/bVkYRE)
 
-> Posted on: Tuesday, January 9, 2018 6:08:06 PM
+> Posted on: Tuesday, January 9, 2018 9:33:28 PM
