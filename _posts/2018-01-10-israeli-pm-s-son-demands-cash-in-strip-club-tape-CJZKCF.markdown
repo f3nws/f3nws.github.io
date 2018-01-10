@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Israeli PM's son demands cash in strip club tape"
-date: 2018-01-10 09:45:34Z
+date: 2018-01-10 13:19:52Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Benjamin Netanyahu has been forced to defend his elder son, Yair, and his own re
 
 Full story on F3News: [Israeli PM's son demands cash in strip club tape](http://www.f3nws.com/n/CJZKCF)
 
-> Posted on: Wednesday, January 10, 2018 9:45:34 AM
+> Posted on: Wednesday, January 10, 2018 1:19:52 PM
