@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California mudslides: 15 dead as hundreds still await rescue"
-date: 2018-01-10 18:11:13Z
+date: 2018-01-10 19:37:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A day after mudslides crushed several Southern California homes and left at leas
 
 Full story on F3News: [California mudslides: 15 dead as hundreds still await rescue](http://www.f3nws.com/n/pTtvAJ)
 
-> Posted on: Wednesday, January 10, 2018 6:11:13 PM
+> Posted on: Wednesday, January 10, 2018 7:37:30 PM
