@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump struggles to fill West Wing"
-date: 2018-01-10 11:51:42Z
+date: 2018-01-10 17:13:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ White House aides have been told to decide before the end of January whether the
 
 Full story on F3News: [Trump struggles to fill West Wing](http://www.f3nws.com/n/ZFsXPG)
 
-> Posted on: Wednesday, January 10, 2018 11:51:42 AM
+> Posted on: Wednesday, January 10, 2018 5:13:39 PM
