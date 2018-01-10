@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Stephen Colbert Presses James Franco on Sexual Harassment Claims - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2018/01/screen_shot_2018-01-09_at_9.08.48_pm.png)
 
-U.S. News & World Report Stephen Colbert Presses James Franco on Sexual Harassment Claims Hollywood Reporter "The things I heard are not accurate, but I completely support people coming out because they didn't have a voice for so long," the actor and director said on the 'Late Show' Tuesday night. Just hours after the New York Times canceled a scheduled ... James Franco Tells Colbert Sexual Harassment Accusations “Are Not Accurate” Deadline James Franco Denies Sexual Harassment Allegations, Says Has No Idea Why Ally Sheedy 'Was Upset' PEOPLE.com James Franco Denies Sexual Misconduct Accusations in Colbert Interview New York Times ABC News - IndieWire - Vulture - Hollywood Life all 133 news articles »
+NBCNews.com Stephen Colbert Presses James Franco on Sexual Harassment Claims Hollywood Reporter "The things I heard are not accurate, but I completely support people coming out because they didn't have a voice for so long," the actor and director said on the 'Late Show' Tuesday night. Just hours after the New York Times canceled a scheduled ... James Franco Tells Colbert Sexual Harassment Accusations “Are Not Accurate” Deadline James Franco Denies Sexual Harassment Allegations, Says Has No Idea Why Ally Sheedy 'Was Upset' PEOPLE.com James Franco Denies Sexual Misconduct Accusations in Colbert Interview New York Times ABC News - BBC News - IndieWire - Vulture all 145 news articles »
 
 
 Full story on F3News: [Stephen Colbert Presses James Franco on Sexual Harassment Claims - Hollywood Reporter](http://www.f3nws.com/n/nBbDd)

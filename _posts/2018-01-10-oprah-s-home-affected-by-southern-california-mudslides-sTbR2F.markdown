@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oprah's home affected by Southern California mudslides"
-date: 2018-01-10 10:00:41Z
+date: 2018-01-10 10:58:58Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Two days after the Golden Globes and a speech that had everyone talking, the Opr
 
 Full story on F3News: [Oprah's home affected by Southern California mudslides](http://www.f3nws.com/n/sTbR2F)
 
-> Posted on: Wednesday, January 10, 2018 10:00:41 AM
+> Posted on: Wednesday, January 10, 2018 10:58:58 AM
