@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump deserves 'big credit' for sparking North Korea talks, South Korea's president says"
-date: 2018-01-10 05:03:00Z
+date: 2018-01-10 14:33:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump deserves “big credit” for kicking off the first talks betwee
 
 Full story on F3News: [Trump deserves 'big credit' for sparking North Korea talks, South Korea's president says](http://www.f3nws.com/n/dhcugE)
 
-> Posted on: Wednesday, January 10, 2018 5:03:00 AM
+> Posted on: Wednesday, January 10, 2018 2:33:00 PM
