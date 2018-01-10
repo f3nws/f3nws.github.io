@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump Appears to Endorse Path to Citizenship for Millions of Immigrants - New York Times](https://static01.nyt.com/images/2018/01/10/us/politics/10dc-trump1/10dc-trump1-facebookJumbo.jpg)
 
-New York Times Trump Appears to Endorse Path to Citizenship for Millions of Immigrants New York Times WASHINGTON — President Trump on Tuesday appeared open to negotiating a sweeping immigration deal that would eventually grant millions of undocumented immigrants a pathway to citizenship, declaring that he was willing to “take the heat” politically for ... After White House meeting, negotiations on DACA continue on the Hill CNN 55 minutes at the table: Trump tries to negotiate and prove stability Washington Post Trump says he'll take heat for immigration deal The Hill Politico - HuffPost - USA TODAY - Business Insider all 672 news articles »
+New York Times Trump Appears to Endorse Path to Citizenship for Millions of Immigrants New York Times WASHINGTON — President Trump on Tuesday appeared open to negotiating a sweeping immigration deal that would eventually grant millions of undocumented immigrants a pathway to citizenship, declaring that he was willing to “take the heat” politically for ... After White House meeting, negotiations on DACA continue on the Hill CNN Trump offers to 'take all the heat' on immigration, but also appears to contradict himself Washington Post Trump says he'll take heat for immigration deal The Hill Politico - HuffPost - Fox News - U.S. News & World Report all 661 news articles »
 
 
 Full story on F3News: [Trump Appears to Endorse Path to Citizenship for Millions of Immigrants - New York Times](http://www.f3nws.com/n/XKyzQE)
