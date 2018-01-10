@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Samsung's slimline speakers come with a magnetic remote video     - CNET"
-date: 2018-01-10 02:28:35Z
+date: 2018-01-10 05:30:22Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Samsung VL3 and VL5 speakers offer beautiful design and big sound.
 
 Full story on F3News: [Samsung's slimline speakers come with a magnetic remote video     - CNET](http://www.f3nws.com/n/nGnzYH)
 
-> Posted on: Wednesday, January 10, 2018 2:28:35 AM
+> Posted on: Wednesday, January 10, 2018 5:30:22 AM
