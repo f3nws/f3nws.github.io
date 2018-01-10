@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Confounding’ release of Fusion GPS transcript sparks rift in Senate Russia probe"
-date: 2018-01-10 01:30:34Z
+date: 2018-01-10 01:30:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ categories: rt-daily-news
 
 Full story on F3News: [‘Confounding’ release of Fusion GPS transcript sparks rift in Senate Russia probe](http://www.f3nws.com/n/JjT2v)
 
-> Posted on: Wednesday, January 10, 2018 1:30:34 AM
+> Posted on: Wednesday, January 10, 2018 1:30:00 AM
