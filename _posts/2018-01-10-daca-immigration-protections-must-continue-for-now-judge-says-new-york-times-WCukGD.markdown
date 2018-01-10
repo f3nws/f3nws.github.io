@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![DACA Immigration Protections Must Continue for Now, Judge Says - New York Times](https://static01.nyt.com/images/2018/01/10/us/10dc-daca1/10dc-daca1-facebookJumbo.jpg)
 
-New York Times DACA Immigration Protections Must Continue for Now, Judge Says New York Times WASHINGTON — In the middle of an intense political fight about the program that shields from deportation young immigrants who were brought illegally to the United States as children, a federal judge in California issued a nationwide injunction late ... Judge blocks Trump administration plan to roll back DACA CNN Judge blocks Trump move to end DACA The Hill Judge blocks Trump wind-down of Dreamers program Politico Fox News - Washington Post - NPR - NBCNews.com all 699 news articles »
+New York Times DACA Immigration Protections Must Continue for Now, Judge Says New York Times WASHINGTON — In the middle of an intense political fight about the program that shields from deportation young immigrants who were brought illegally to the United States as children, a federal judge in California issued a nationwide injunction late ... Judge blocks Trump administration plan to roll back DACA CNN Trump's Willingness to Deal on Immigration Gives Talks Urgency Bloomberg Judge blocks Trump move to end DACA The Hill Politico - Fox News - Washington Post - NBCNews.com all 668 news articles »
 
 
 Full story on F3News: [DACA Immigration Protections Must Continue for Now, Judge Says - New York Times](http://www.f3nws.com/n/WCukGD)
