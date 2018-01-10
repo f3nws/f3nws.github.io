@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mark Wahlberg reportedly paid way more than Michelle Williams for 'All The Money' reshoot"
-date: 2018-01-10 21:30:27Z
+date: 2018-01-10 22:20:14Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Mark Wahlberg reportedly paid way more than Michelle Williams for 'All The Money' reshoot](http://www.f3nws.com/n/yuBB4B)
 
-> Posted on: Wednesday, January 10, 2018 9:30:27 PM
+> Posted on: Wednesday, January 10, 2018 10:20:14 PM
