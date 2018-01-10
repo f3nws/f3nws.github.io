@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Feinstein publishes Fusion GPS transcript"
-date: 2018-01-10 04:52:06Z
+date: 2018-01-10 02:11:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on the release by Senator Diane Feinstein of the transcrip
 
 Full story on F3News: [Feinstein publishes Fusion GPS transcript](http://www.f3nws.com/n/ebpXHB)
 
-> Posted on: Wednesday, January 10, 2018 4:52:06 AM
+> Posted on: Wednesday, January 10, 2018 2:11:00 AM

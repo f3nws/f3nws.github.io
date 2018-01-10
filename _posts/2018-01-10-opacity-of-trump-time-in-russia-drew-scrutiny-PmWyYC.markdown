@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Opacity of Trump time in Russia drew scrutiny"
-date: 2018-01-10 04:49:40Z
+date: 2018-01-10 02:23:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reads highlights from the Fusion GPS Senate Judiciary transcript i
 
 Full story on F3News: [Opacity of Trump time in Russia drew scrutiny](http://www.f3nws.com/n/PmWyYC)
 
-> Posted on: Wednesday, January 10, 2018 4:49:40 AM
+> Posted on: Wednesday, January 10, 2018 2:23:00 AM

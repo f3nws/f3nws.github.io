@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge blocks Trump admin plan to roll back DACA"
-date: 2018-01-10 06:52:57Z
+date: 2018-01-10 08:40:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A federal judge in California late Tuesday temporarily blocked the Trump adminis
 
 Full story on F3News: [Judge blocks Trump admin plan to roll back DACA](http://www.f3nws.com/n/MWkncG)
 
-> Posted on: Wednesday, January 10, 2018 6:52:57 AM
+> Posted on: Wednesday, January 10, 2018 8:40:20 AM
