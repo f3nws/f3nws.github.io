@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Trump lawyer files lawsuits against BuzzFeed, Fusion GPS over dossier - CNN](http://cdn.cnn.com/cnnnext/dam/assets/170816163314-michael-cohen-12-16-2016-super-tease.jpg)
 
-CNN Trump lawyer files lawsuits against BuzzFeed, Fusion GPS over dossier CNN (CNN) Nearly one year to the day after the Russia dossier's publication, President Donald Trump's personal lawyer hit both the research firm that produced it and the news organization that released it with lawsuits, saying its allegations about him are ... Democratic Senator Releases Transcript of Interview with Dossier Firm New York Times Feud over Trump dossier intensifies with release of interview transcript Washington Post Trump lawyer Cohen sues Fusion GPS, BuzzFeed over Steele dossier Politico The Hill - Bloomberg - New York Daily News - USA TODAY all 493 news articles »
+CNN Trump lawyer files lawsuits against BuzzFeed, Fusion GPS over dossier CNN (CNN) Nearly one year to the day after the Russia dossier's publication, President Donald Trump's personal lawyer hit both the research firm that produced it and the news organization that released it with lawsuits, saying its allegations about him are ... Democratic Senator Releases Transcript of Interview with Dossier Firm New York Times Feud over Trump dossier intensifies with release of interview transcript Washington Post Trump lawyer Cohen sues Fusion GPS, BuzzFeed over Steele dossier Politico The Hill - ABC News - New York Daily News - Bloomberg all 507 news articles »
 
 
 Full story on F3News: [Trump lawyer files lawsuits against BuzzFeed, Fusion GPS over dossier - CNN](http://www.f3nws.com/n/XdMKqF)

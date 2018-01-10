@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dossier author feared Trump was being blackmailed, testimony reveals"
-date: 2018-01-10 01:09:17Z
+date: 2018-01-10 08:43:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Fusion GPS co-founder Glenn Simpson told the Senate Judiciary Committee that the
 
 Full story on F3News: [Dossier author feared Trump was being blackmailed, testimony reveals](http://www.f3nws.com/n/RtfXkB)
 
-> Posted on: Wednesday, January 10, 2018 1:09:17 AM
+> Posted on: Wednesday, January 10, 2018 8:43:09 AM

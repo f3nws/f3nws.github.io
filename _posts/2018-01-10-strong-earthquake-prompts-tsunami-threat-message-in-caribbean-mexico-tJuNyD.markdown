@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Strong earthquake prompts tsunami threat message in Caribbean, Mexico"
-date: 2018-01-10 06:18:56Z
+date: 2018-01-10 09:34:43Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US Pacific Tsunami Warning Center said tsunami waves were possible for sever
 
 Full story on F3News: [Strong earthquake prompts tsunami threat message in Caribbean, Mexico](http://www.f3nws.com/n/tJuNyD)
 
-> Posted on: Wednesday, January 10, 2018 6:18:56 AM
+> Posted on: Wednesday, January 10, 2018 9:34:43 AM
