@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best iPhone 8 deals in January 2018"
-date: 2018-01-10 09:00:31Z
+date: 2018-01-10 15:00:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ We've chosen the best value iPhone 8 deals currently available in the UK - we'll
 
 Full story on F3News: [The best iPhone 8 deals in January 2018](http://www.f3nws.com/n/3UjubB)
 
-> Posted on: Wednesday, January 10, 2018 9:00:31 AM
+> Posted on: Wednesday, January 10, 2018 3:00:31 PM
