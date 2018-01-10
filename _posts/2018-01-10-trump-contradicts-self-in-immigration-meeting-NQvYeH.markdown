@@ -7,7 +7,7 @@ categories: msnbc
 
 ![Trump contradicts self in immigration meeting](https://media1.s-nbcnews.com/j/MSNBC/Components/Video/201801/n_hardball_belcher_180109_1920x1080.video_1067x600.jpg)
 
-In an moment at the Trump White House, the press was able to attend a 55 minute discussion on immigration between the President and Congress.
+In a rare moment at the Trump White House, the press was able to attend a 55 minute discussion on immigration between the President and Congress.
 
 
 Full story on F3News: [Trump contradicts self in immigration meeting](http://www.f3nws.com/n/NQvYeH)

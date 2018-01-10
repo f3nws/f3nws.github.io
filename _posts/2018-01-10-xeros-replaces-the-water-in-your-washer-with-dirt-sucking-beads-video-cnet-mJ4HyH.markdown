@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Xeros replaces the water in your washer with dirt-sucking beads video     - CNET"
-date: 2018-01-10 00:50:42Z
+date: 2018-01-10 02:02:37Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Xeros wants its dirt-sucking reusable XOrb Polymer Beads to replace (most of the
 
 Full story on F3News: [Xeros replaces the water in your washer with dirt-sucking beads video     - CNET](http://www.f3nws.com/n/mJ4HyH)
 
-> Posted on: Wednesday, January 10, 2018 12:50:42 AM
+> Posted on: Wednesday, January 10, 2018 2:02:37 AM
