@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Catherine Deneuve denounces #MeToo in open letter"
-date: 2018-01-10 12:23:56Z
+date: 2018-01-10 15:40:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A collective of 100 French women including film star Catherine Deneuve have sign
 
 Full story on F3News: [Catherine Deneuve denounces #MeToo in open letter](http://www.f3nws.com/n/WDb4GD)
 
-> Posted on: Wednesday, January 10, 2018 12:23:56 PM
+> Posted on: Wednesday, January 10, 2018 3:40:37 PM
