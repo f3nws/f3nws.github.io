@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge rules against Trump administration on rescinding DACA"
-date: 2018-01-10 11:45:03Z
+date: 2018-01-10 12:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A federal judge in San Francisco on Tuesday barred the Trump administration from
 
 Full story on F3News: [Judge rules against Trump administration on rescinding DACA](http://www.f3nws.com/n/MrXKaD)
 
-> Posted on: Wednesday, January 10, 2018 11:45:03 AM
+> Posted on: Wednesday, January 10, 2018 12:45:02 PM
