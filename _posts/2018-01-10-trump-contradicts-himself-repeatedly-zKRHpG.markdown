@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump contradicts himself repeatedly"
-date: 2018-01-10 12:50:52Z
+date: 2018-01-10 14:10:08Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump appeared to contradict himself multiple times in a meetin
 
 Full story on F3News: [Trump contradicts himself repeatedly](http://www.f3nws.com/n/zKRHpG)
 
-> Posted on: Wednesday, January 10, 2018 12:50:52 PM
+> Posted on: Wednesday, January 10, 2018 2:10:08 PM
