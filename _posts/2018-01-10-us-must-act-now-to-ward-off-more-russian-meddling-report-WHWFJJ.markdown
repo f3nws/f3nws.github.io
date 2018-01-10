@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US must act now to ward off more Russian meddling -- report"
-date: 2018-01-10 16:41:18Z
+date: 2018-01-10 21:32:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US will not be prepared to defend against possible Russian meddling in the 2
 
 Full story on F3News: [US must act now to ward off more Russian meddling -- report](http://www.f3nws.com/n/WHWFJJ)
 
-> Posted on: Wednesday, January 10, 2018 4:41:18 PM
+> Posted on: Wednesday, January 10, 2018 9:32:29 PM
