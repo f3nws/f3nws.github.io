@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'White racism': Police guard university class"
-date: 2018-01-11 05:21:34Z
+date: 2018-01-11 17:25:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A Florida university posted campus police outside a sociology class titled "Whit
 
 Full story on F3News: ['White racism': Police guard university class](http://www.f3nws.com/n/SVnpTB)
 
-> Posted on: Thursday, January 11, 2018 5:21:34 AM
+> Posted on: Thursday, January 11, 2018 5:25:42 PM
