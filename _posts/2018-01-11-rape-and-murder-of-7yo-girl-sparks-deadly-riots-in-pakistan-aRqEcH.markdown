@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Rape and murder of 7yo girl sparks deadly riots in Pakistan](http://www.abc.net.au/news/image/9320510-16x9-700x394.jpg)
 
-Two protesters are killed in angry rioting over the rape and murder of a seven-year-old Pakistani girl, whose body was found dumped in a garbage bin four days after she went missing.
+Two protesters are killed in angry rioting over the rape and murder of a seven-year-old Pakistani girl, whose body was found dumped in a garbage bin four days after she went missing in the latest of a spate of abductions and killings.
 
 
 Full story on F3News: [Rape and murder of 7yo girl sparks deadly riots in Pakistan](http://www.f3nws.com/n/aRqEcH)

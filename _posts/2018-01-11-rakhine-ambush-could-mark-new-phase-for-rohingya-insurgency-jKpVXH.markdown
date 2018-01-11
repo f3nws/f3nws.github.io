@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Rakhine ambush could mark new phase for Rohingya insurgency"
-date: 2018-01-11 02:23:17Z
+date: 2018-01-11 06:21:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Rohingya militants have claimed responsibility for an ambush on Myanmar security
 
 Full story on F3News: [Rakhine ambush could mark new phase for Rohingya insurgency](http://www.f3nws.com/n/jKpVXH)
 
-> Posted on: Thursday, January 11, 2018 2:23:17 AM
+> Posted on: Thursday, January 11, 2018 6:21:16 AM
