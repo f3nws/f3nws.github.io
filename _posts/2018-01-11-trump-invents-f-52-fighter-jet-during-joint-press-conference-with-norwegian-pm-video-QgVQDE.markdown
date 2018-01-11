@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump ‘invents’ F-52 fighter jet during joint press conference with Norwegian PM (VIDEO)"
-date: 2018-01-11 01:39:07Z
+date: 2018-01-11 01:39:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump touted the sale of non-existent “F-52” jet fighters t
 
 Full story on F3News: [Trump ‘invents’ F-52 fighter jet during joint press conference with Norwegian PM (VIDEO)](http://www.f3nws.com/n/QgVQDE)
 
-> Posted on: Thursday, January 11, 2018 1:39:07 AM
+> Posted on: Thursday, January 11, 2018 1:39:00 AM
