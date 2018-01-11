@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "TVs of CES 2018     - CNET"
-date: 2018-01-11 00:29:09Z
+date: 2018-01-11 01:32:03Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Roll up one and all, to 2018's generation of TVs, including the world's first bi
 
 Full story on F3News: [TVs of CES 2018     - CNET](http://www.f3nws.com/n/ESjac)
 
-> Posted on: Thursday, January 11, 2018 12:29:09 AM
+> Posted on: Thursday, January 11, 2018 1:32:03 AM

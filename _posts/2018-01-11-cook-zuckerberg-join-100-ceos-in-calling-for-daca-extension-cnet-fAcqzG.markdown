@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cook, Zuckerberg join 100 CEOs in calling for DACA extension     - CNET"
-date: 2018-01-11 00:25:00Z
+date: 2018-01-11 00:48:59Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Tech leaders urge congressional leaders to pass legislation protecting undocumen
 
 Full story on F3News: [Cook, Zuckerberg join 100 CEOs in calling for DACA extension     - CNET](http://www.f3nws.com/n/fAcqzG)
 
-> Posted on: Thursday, January 11, 2018 12:25:00 AM
+> Posted on: Thursday, January 11, 2018 12:48:59 AM

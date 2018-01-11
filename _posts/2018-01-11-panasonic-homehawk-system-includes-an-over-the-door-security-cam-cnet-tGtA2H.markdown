@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Panasonic HomeHawk system includes an over-the-door security cam     - CNET"
-date: 2018-01-11 00:30:30Z
+date: 2018-01-11 00:37:23Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The company's new connected security system includes a full-color HD camera that
 
 Full story on F3News: [Panasonic HomeHawk system includes an over-the-door security cam     - CNET](http://www.f3nws.com/n/tGtA2H)
 
-> Posted on: Thursday, January 11, 2018 12:30:30 AM
+> Posted on: Thursday, January 11, 2018 12:37:23 AM
