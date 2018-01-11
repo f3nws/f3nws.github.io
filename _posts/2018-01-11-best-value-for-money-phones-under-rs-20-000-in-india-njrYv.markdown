@@ -7,7 +7,7 @@ categories: techradar
 
 ![Best value for money phones under Rs 20,000 in India](http://cdn.mos.cms.futurecdn.net/b4ASvwPmSTvyXDXHgjsyWL-1200-80.jpg)
 
-Some companies can have the best specs on paper in a given price range, the lack of software optimisation can make those phones a poor option compared to others.
+Some companies can have the best specs on paper in a given price range, but the lack of software optimisation can make those phones a poor option compared to others
 
 
 Full story on F3News: [Best value for money phones under Rs 20,000 in India](http://www.f3nws.com/n/njrYv)
