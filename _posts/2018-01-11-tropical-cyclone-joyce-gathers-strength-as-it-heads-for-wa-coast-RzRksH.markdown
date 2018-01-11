@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Tropical Cyclone Joyce gathers strength as it heads for WA coast](http://www.abc.net.au/news/image/9319910-16x9-700x394.jpg)
 
-A red alert is set to be issued after Tropical Cyclone Joyce forms off WA's northern coast, the second cyclone in two weeks to hit the region with strong winds and heavy rain.
+A red alert is issued after Tropical Cyclone Joyce forms off WA's northern coast, the second cyclone in two weeks to hit the region with strong winds and heavy rain.
 
 
 Full story on F3News: [Tropical Cyclone Joyce gathers strength as it heads for WA coast](http://www.f3nws.com/n/RzRksH)
