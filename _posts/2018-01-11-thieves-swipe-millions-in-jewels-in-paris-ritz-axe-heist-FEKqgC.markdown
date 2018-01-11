@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Thieves swipe millions in jewels in Paris' Ritz axe heist"
-date: 2018-01-11 14:37:33Z
+date: 2018-01-11 14:42:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Thieves reportedly armed with axes made off with an estimated €4.5 million ($5
 
 Full story on F3News: [Thieves swipe millions in jewels in Paris' Ritz axe heist](http://www.f3nws.com/n/FEKqgC)
 
-> Posted on: Thursday, January 11, 2018 2:37:33 PM
+> Posted on: Thursday, January 11, 2018 2:42:10 PM

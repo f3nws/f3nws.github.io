@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "After Serena Williams gave birth, 'Everything went bad'"
-date: 2018-01-11 14:38:16Z
+date: 2018-01-11 15:05:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In January 2017, two months into her pregnancy, tennis superstar Serena Williams
 
 Full story on F3News: [After Serena Williams gave birth, 'Everything went bad'](http://www.f3nws.com/n/d3Bev)
 
-> Posted on: Thursday, January 11, 2018 2:38:16 PM
+> Posted on: Thursday, January 11, 2018 3:05:12 PM
