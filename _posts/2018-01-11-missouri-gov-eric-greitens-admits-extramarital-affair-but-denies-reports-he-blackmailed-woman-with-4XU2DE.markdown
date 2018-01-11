@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Missouri Gov. Eric Greitens admits extramarital affair but denies reports he blackmailed woman with nude photo - Washington Post"
-date: 2018-01-11 11:26:15Z
+date: 2018-01-11 11:30:51Z
 categories: google-news-top-stories
 ---
 
 ![Missouri Gov. Eric Greitens admits extramarital affair but denies reports he blackmailed woman with nude photo - Washington Post](https://www.washingtonpost.com/pbox.php?url=http://www.washingtonpost.com/news/morning-mix/wp-content/uploads/sites/21/2018/01/Missouri_Legislature_58820-e73e2.jpg&w=1484&op=resize&opt=1&filter=antialias&t=20170517)
 
-Washington Post Missouri Gov. Eric Greitens admits extramarital affair but denies reports he blackmailed woman with nude photo Washington Post Missouri Gov. Eric Greitens (R), responding to media reports, acknowledged Wednesday night that he was unfaithful to his wife “a few years ago” before being elected. But his lawyer denied sensational allegations aired by a local TV station that ... Missouri Gov. Eric Greitens admits to affair but denies blackmail allegation CNN Missouri Gov. Eric Greitens acknowledges affair, denies blackmail allegations Chicago Tribune Missouri Gov. Eric Greitens: I cheated on my wife in 2015 ABC News Fox News - Business Insider - New York Magazine - New York Post all 68 news articles »
+Washington Post Missouri Gov. Eric Greitens admits extramarital affair but denies reports he blackmailed woman with nude photo Washington Post Missouri Gov. Eric Greitens (R), responding to media reports, acknowledged Wednesday night that he was unfaithful to his wife “a few years ago” before being elected. But his lawyer denied sensational allegations aired by a local TV station that ... Missouri Gov. Greitens Acknowledges Affair, Denies Blackmail U.S. News & World Report Missouri Gov. Eric Greitens admits to affair but denies blackmail allegation CNN Missouri Gov. Eric Greitens: I cheated on my wife in 2015 ABC News The Hill - BuzzFeed News - Business Insider - Fox News all 82 news articles »
 
 
 Full story on F3News: [Missouri Gov. Eric Greitens admits extramarital affair but denies reports he blackmailed woman with nude photo - Washington Post](http://www.f3nws.com/n/4XU2DE)
 
-> Posted on: Thursday, January 11, 2018 11:26:15 AM
+> Posted on: Thursday, January 11, 2018 11:30:51 AM
