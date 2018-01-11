@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Seal calls out Oprah Winfrey for hypocrisy, calls her 'part of the problem'"
-date: 2018-01-11 13:45:01Z
+date: 2018-01-11 13:30:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Internationally renowned musician Seal trashed Oprah Winfrey days after her wide
 
 Full story on F3News: [Seal calls out Oprah Winfrey for hypocrisy, calls her 'part of the problem'](http://www.f3nws.com/n/znjQhG)
 
-> Posted on: Thursday, January 11, 2018 1:45:01 PM
+> Posted on: Thursday, January 11, 2018 1:30:00 PM
