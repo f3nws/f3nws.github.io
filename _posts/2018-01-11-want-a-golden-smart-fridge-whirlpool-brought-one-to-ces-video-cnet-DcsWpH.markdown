@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Want a golden smart fridge? Whirlpool brought one to CES video     - CNET"
-date: 2018-01-11 01:13:36Z
+date: 2018-01-11 01:40:52Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ This "sunset bronze"-colored smart fridge has a tiny touchscreen packed with use
 
 Full story on F3News: [Want a golden smart fridge? Whirlpool brought one to CES video     - CNET](http://www.f3nws.com/n/DcsWpH)
 
-> Posted on: Thursday, January 11, 2018 1:13:36 AM
+> Posted on: Thursday, January 11, 2018 1:40:52 AM

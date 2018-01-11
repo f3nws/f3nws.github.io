@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Male Rocky Horror crew member alleges McLachlan indecently assaulted him](http://www.abc.net.au/news/image/9320282-16x9-700x394.jpg)
 
-A male crew member on the 2014 tour of the Rocky Horror Show tells police that the show's star, Craig McLachlan, indecently assaulted him.
+A male crew member on the 2014 tour of the Rocky Horror Show tells police that the show's star, Craig McLachlan, indecently assaulted him backstage and groped a female crew member several times.
 
 
 Full story on F3News: [Male Rocky Horror crew member alleges McLachlan indecently assaulted him](http://www.f3nws.com/n/4gFnPG)

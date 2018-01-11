@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "At CES 2018, Hulu says Netflix isn’t the high roller you think     - CNET"
-date: 2018-01-11 01:06:26Z
+date: 2018-01-11 02:12:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Netflix’s $8 billion to spend on shows? In Vegas for CES, Hulu says: I see you
 
 Full story on F3News: [At CES 2018, Hulu says Netflix isn’t the high roller you think     - CNET](http://www.f3nws.com/n/bqZKmF)
 
-> Posted on: Thursday, January 11, 2018 1:06:26 AM
+> Posted on: Thursday, January 11, 2018 2:12:43 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Whill's smart mobility chair takes you where you want to go video     - CNET"
-date: 2018-01-11 01:31:11Z
+date: 2018-01-11 02:15:21Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Whill Model Ci personal electric vehicle can traverse gravel and wood chips,
 
 Full story on F3News: [Whill's smart mobility chair takes you where you want to go video     - CNET](http://www.f3nws.com/n/kzRyMF)
 
-> Posted on: Thursday, January 11, 2018 1:31:11 AM
+> Posted on: Thursday, January 11, 2018 2:15:21 AM
