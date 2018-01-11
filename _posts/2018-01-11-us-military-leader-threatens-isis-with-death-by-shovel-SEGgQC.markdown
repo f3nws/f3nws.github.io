@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US military leader threatens ISIS with death by shovel"
-date: 2018-01-11 10:10:04Z
+date: 2018-01-11 12:27:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The top enlisted leader in the US military has issued a stark and graphic warnin
 
 Full story on F3News: [US military leader threatens ISIS with death by shovel](http://www.f3nws.com/n/SEGgQC)
 
-> Posted on: Thursday, January 11, 2018 10:10:04 AM
+> Posted on: Thursday, January 11, 2018 12:27:29 PM
