@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Lead detective in San Francisco Zodiac killer case dies"
-date: 2018-01-11 02:04:36Z
+date: 2018-01-11 03:42:31Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Dave Toschi, the San Francisco police detective who led the unsuccessful investi
 
 Full story on F3News: [Lead detective in San Francisco Zodiac killer case dies](http://www.f3nws.com/n/YzfWTH)
 
-> Posted on: Thursday, January 11, 2018 2:04:36 AM
+> Posted on: Thursday, January 11, 2018 3:42:31 AM
