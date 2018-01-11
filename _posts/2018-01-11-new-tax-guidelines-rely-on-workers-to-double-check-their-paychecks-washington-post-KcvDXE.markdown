@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![New tax guidelines rely on workers to double-check their paychecks - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/11/National-Economy/Images/322312878_0-6.jpg?t=20170517)
 
-Washington Post New tax guidelines rely on workers to double-check their paychecks Washington Post Millions of Americans will need to use a new Internal Revenue Service online calculator to ensure their new paychecks are accurate, Trump administration officials said Thursday as they issued guidelines for implementing the recently passed tax law. The ... Treasury and IRS release new guidance on tax withholding The Hill What the new tax withholding tables mean for your take-home pay CNBC US Budget Deficit Is Widening Even Before Tax Cuts Factored In Bloomberg Patch.com - Mother Jones - Washington Examiner - Forbes all 92 news articles »
+Washington Post New tax guidelines rely on workers to double-check their paychecks Washington Post Millions of Americans will need to use a new Internal Revenue Service online calculator to ensure their new paychecks are accurate, Trump administration officials said Thursday as they issued guidelines for implementing the recently passed tax law. The ... Mnuchin: GOP tax law's 'whole purpose' was giving companies more money to compete The Hill IRS Rolls Out New Tax Tables for Promised Bigger Paychecks U.S. News & World Report IRS Sets Withholding Tables as GOP Pledges Paycheck Increase Bloomberg CNBC - Patch.com - Mother Jones - Washington Examiner all 93 news articles »
 
 
 Full story on F3News: [New tax guidelines rely on workers to double-check their paychecks - Washington Post](http://www.f3nws.com/n/KcvDXE)
