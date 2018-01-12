@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump won't say whether he has talked to Kim Jong Un"
-date: 2018-01-12 00:38:11Z
+date: 2018-01-12 01:29:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump would not say whether he has talked with North Korean lea
 
 Full story on F3News: [Trump won't say whether he has talked to Kim Jong Un](http://www.f3nws.com/n/Rpgqf)
 
-> Posted on: Friday, January 12, 2018 12:38:11 AM
+> Posted on: Friday, January 12, 2018 1:29:50 AM
