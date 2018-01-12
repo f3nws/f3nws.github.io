@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Illinois AG candidate robbed at gunpoint in Chicago during campaign photoshoot - Fox News"
-date: 2018-01-12 18:04:24Z
+date: 2018-01-12 18:04:47Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Fox News Illinois AG candidate robbed at gunpoint in Chicago during campaign pho
 
 Full story on F3News: [Illinois AG candidate robbed at gunpoint in Chicago during campaign photoshoot - Fox News](http://www.f3nws.com/n/NYATxG)
 
-> Posted on: Friday, January 12, 2018 6:04:24 PM
+> Posted on: Friday, January 12, 2018 6:04:47 PM
