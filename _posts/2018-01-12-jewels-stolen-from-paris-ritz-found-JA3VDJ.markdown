@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jewels stolen from Paris' Ritz found"
-date: 2018-01-12 05:59:14Z
+date: 2018-01-12 07:26:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Oh look, what's this?
 
 Full story on F3News: [Jewels stolen from Paris' Ritz found](http://www.f3nws.com/n/JA3VDJ)
 
-> Posted on: Friday, January 12, 2018 5:59:14 AM
+> Posted on: Friday, January 12, 2018 7:26:40 AM
