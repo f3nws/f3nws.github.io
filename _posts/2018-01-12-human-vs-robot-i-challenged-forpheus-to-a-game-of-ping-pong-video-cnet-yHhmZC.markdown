@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Human vs. robot: I challenged Forpheus to a game of ping-pong video     - CNET"
-date: 2018-01-12 00:00:16Z
+date: 2018-01-12 03:00:05Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Omron's Forpheus robot learns from your every move and expression, and plays har
 
 Full story on F3News: [Human vs. robot: I challenged Forpheus to a game of ping-pong video     - CNET](http://www.f3nws.com/n/yHhmZC)
 
-> Posted on: Friday, January 12, 2018 12:00:16 AM
+> Posted on: Friday, January 12, 2018 3:00:05 AM

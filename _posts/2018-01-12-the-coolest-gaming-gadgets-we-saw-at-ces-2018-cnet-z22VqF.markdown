@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The coolest gaming gadgets we saw at CES 2018     - CNET"
-date: 2018-01-12 00:18:21Z
+date: 2018-01-12 03:35:41Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ CES is no E3, but there was plenty of hardware and virtual reality to be discove
 
 Full story on F3News: [The coolest gaming gadgets we saw at CES 2018     - CNET](http://www.f3nws.com/n/z22VqF)
 
-> Posted on: Friday, January 12, 2018 12:18:21 AM
+> Posted on: Friday, January 12, 2018 3:35:41 AM

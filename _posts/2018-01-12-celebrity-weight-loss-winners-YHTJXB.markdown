@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Celebrity weight loss winners"
-date: 2018-01-12 02:45:01Z
+date: 2018-01-12 05:00:03Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Because there is no motivation like celebrity motivation.
 
 Full story on F3News: [Celebrity weight loss winners](http://www.f3nws.com/n/YHTJXB)
 
-> Posted on: Friday, January 12, 2018 2:45:01 AM
+> Posted on: Friday, January 12, 2018 5:00:03 AM
