@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump cancels London visit over 'bad' embassy deal"
-date: 2018-01-12 10:07:15Z
+date: 2018-01-12 11:38:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump won't be paying a visit to London to open his country'
 
 Full story on F3News: [Trump cancels London visit over 'bad' embassy deal](http://www.f3nws.com/n/2VVGQG)
 
-> Posted on: Friday, January 12, 2018 10:07:15 AM
+> Posted on: Friday, January 12, 2018 11:38:29 AM
