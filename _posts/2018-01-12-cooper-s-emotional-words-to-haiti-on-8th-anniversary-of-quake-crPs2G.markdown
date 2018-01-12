@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cooper's emotional words to Haiti on 8th anniversary of quake"
-date: 2018-01-12 02:45:11Z
+date: 2018-01-12 14:43:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Anderson Cooper reflects on his relationship with Haiti and its people on the ei
 
 Full story on F3News: [Cooper's emotional words to Haiti on 8th anniversary of quake](http://www.f3nws.com/n/crPs2G)
 
-> Posted on: Friday, January 12, 2018 2:45:11 AM
+> Posted on: Friday, January 12, 2018 2:43:14 PM

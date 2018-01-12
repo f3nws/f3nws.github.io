@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Did Trump speak with Kim Jong Un?"
-date: 2018-01-12 02:35:25Z
+date: 2018-01-12 13:53:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump would not say whether he has talked with North Korean lea
 
 Full story on F3News: [Did Trump speak with Kim Jong Un?](http://www.f3nws.com/n/Rpgqf)
 
-> Posted on: Friday, January 12, 2018 2:35:25 AM
+> Posted on: Friday, January 12, 2018 1:53:57 PM
