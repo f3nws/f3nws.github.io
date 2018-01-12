@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President touts sale of nonexistent fighter jet"
-date: 2018-01-12 11:56:20Z
+date: 2018-01-12 15:35:04Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump announced on Wednesday that the first of 52 "F-52 and F-3
 
 Full story on F3News: [US President touts sale of nonexistent fighter jet](http://www.f3nws.com/n/PHpxhF)
 
-> Posted on: Friday, January 12, 2018 11:56:20 AM
+> Posted on: Friday, January 12, 2018 3:35:04 PM
