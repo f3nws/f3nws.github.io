@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Norwegians unlikely to move to US - even if they're welcome"
-date: 2018-01-12 14:16:36Z
+date: 2018-01-12 16:07:15Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ During a meeting in the Oval Office on Thursday, US President Donald Trump repor
 
 Full story on F3News: [Norwegians unlikely to move to US - even if they're welcome](http://www.f3nws.com/n/sPrxCC)
 
-> Posted on: Friday, January 12, 2018 2:16:36 PM
+> Posted on: Friday, January 12, 2018 4:07:15 PM
