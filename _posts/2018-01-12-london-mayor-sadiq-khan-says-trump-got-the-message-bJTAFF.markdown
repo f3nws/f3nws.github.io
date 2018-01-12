@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "London Mayor Sadiq Khan says Trump 'got the message'"
-date: 2018-01-12 12:06:10Z
+date: 2018-01-12 12:51:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ London Mayor Sadiq Khan said Friday that US President Donald Trump had "got the 
 
 Full story on F3News: [London Mayor Sadiq Khan says Trump 'got the message'](http://www.f3nws.com/n/bJTAFF)
 
-> Posted on: Friday, January 12, 2018 12:06:10 PM
+> Posted on: Friday, January 12, 2018 12:51:36 PM
