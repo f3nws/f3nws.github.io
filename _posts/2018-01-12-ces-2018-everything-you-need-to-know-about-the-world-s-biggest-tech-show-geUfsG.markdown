@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "CES 2018: everything you need to know about the world's biggest tech show"
-date: 2018-01-12 15:48:31Z
+date: 2018-01-12 19:20:31Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Google, Samsung, Nvidia and more gathered at the greatest gadget show on Earth. 
 
 Full story on F3News: [CES 2018: everything you need to know about the world's biggest tech show](http://www.f3nws.com/n/geUfsG)
 
-> Posted on: Friday, January 12, 2018 3:48:31 PM
+> Posted on: Friday, January 12, 2018 7:20:31 PM
