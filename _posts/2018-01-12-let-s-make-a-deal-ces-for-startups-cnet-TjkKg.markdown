@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Let's make a deal: CES for startups     - CNET"
-date: 2018-01-12 00:33:30Z
+date: 2018-01-12 01:40:43Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Startups from around the world, including several from the UK, flock to CES not 
 
 Full story on F3News: [Let's make a deal: CES for startups     - CNET](http://www.f3nws.com/n/TjkKg)
 
-> Posted on: Friday, January 12, 2018 12:33:30 AM
+> Posted on: Friday, January 12, 2018 1:40:43 AM

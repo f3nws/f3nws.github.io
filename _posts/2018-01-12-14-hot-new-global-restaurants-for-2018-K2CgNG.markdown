@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "14 hot new global restaurants for 2018"
-date: 2018-01-12 01:22:36Z
+date: 2018-01-12 02:25:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ French haute cuisine in Macau, Mediterranean mezze in New York, European classic
 
 Full story on F3News: [14 hot new global restaurants for 2018](http://www.f3nws.com/n/K2CgNG)
 
-> Posted on: Friday, January 12, 2018 1:22:36 AM
+> Posted on: Friday, January 12, 2018 2:25:23 AM

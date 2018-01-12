@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fisker EMotion electric car builds on many lessons learned     - Roadshow"
-date: 2018-01-12 01:20:04Z
+date: 2018-01-12 01:37:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Henrik Fisker has a troubled past with his previous company, Fisker Automotive. 
 
 Full story on F3News: [Fisker EMotion electric car builds on many lessons learned     - Roadshow](http://www.f3nws.com/n/bTdtPE)
 
-> Posted on: Friday, January 12, 2018 1:20:04 AM
+> Posted on: Friday, January 12, 2018 1:37:35 AM

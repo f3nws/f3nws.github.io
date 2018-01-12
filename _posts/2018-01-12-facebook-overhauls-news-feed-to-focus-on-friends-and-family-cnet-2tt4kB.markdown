@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook overhauls news feed to focus on friends and family     - CNET"
-date: 2018-01-12 01:22:23Z
+date: 2018-01-12 01:51:34Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Fewer news articles. More baby photos.
 
 Full story on F3News: [Facebook overhauls news feed to focus on friends and family     - CNET](http://www.f3nws.com/n/2tt4kB)
 
-> Posted on: Friday, January 12, 2018 1:22:23 AM
+> Posted on: Friday, January 12, 2018 1:51:34 AM
