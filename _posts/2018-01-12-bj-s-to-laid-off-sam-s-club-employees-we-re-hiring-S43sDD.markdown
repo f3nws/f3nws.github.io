@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "BJ's to laid off Sam's Club employees: We're hiring"
-date: 2018-01-12 00:38:55Z
+date: 2018-01-12 02:56:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [BJ's to laid off Sam's Club employees: We're hiring](http://www.f3nws.com/n/S43sDD)
 
-> Posted on: Friday, January 12, 2018 12:38:55 AM
+> Posted on: Friday, January 12, 2018 2:56:28 AM
