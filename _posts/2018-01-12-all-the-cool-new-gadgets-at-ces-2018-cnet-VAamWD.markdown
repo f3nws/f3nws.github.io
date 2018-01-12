@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All the cool new gadgets at CES 2018     - CNET"
-date: 2018-01-12 15:19:11Z
+date: 2018-01-12 16:33:15Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Our guide to the most amazing and lust-worthy gadgets that debuted at the show.
 
 Full story on F3News: [All the cool new gadgets at CES 2018     - CNET](http://www.f3nws.com/n/VAamWD)
 
-> Posted on: Friday, January 12, 2018 3:19:11 PM
+> Posted on: Friday, January 12, 2018 4:33:15 PM
