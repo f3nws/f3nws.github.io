@@ -7,7 +7,7 @@ categories: google-news-technology
 
 ![House Extends Surveillance Law, Rejecting New Privacy Safeguards - New York Times](https://static01.nyt.com/images/2018/01/12/us/12surveillence-alpha/12surveillence-alpha-facebookJumbo.jpg)
 
-New York Times House Extends Surveillance Law, Rejecting New Privacy Safeguards New York Times WASHINGTON — The House of Representatives voted on Thursday to extend the National Security Agency's warrantless surveillance program for six years with minimal changes, rejecting a push by a bipartisan group of lawmakers to impose significant privacy ... Trump's 'ping-pong' on surveillance law sets off a 101-minute scramble Washington Post What is Section 702 of FISA, anyway? CNN Surveillance bill clears key hurdle amid confusion over Trump tweets Politico USA TODAY - Los Angeles Times - ABC News - The Hill all 559 news articles »
+New York Times House Extends Surveillance Law, Rejecting New Privacy Safeguards New York Times WASHINGTON — The House of Representatives voted on Thursday to extend the National Security Agency's warrantless surveillance program for six years with minimal changes, rejecting a push by a bipartisan group of lawmakers to impose significant privacy ... Trump's 'ping-pong' on surveillance law sets off a 101-minute scramble Washington Post What is Section 702 of FISA, anyway? CNN Trump FISA tweet puts Capitol Hill in a tizzy The Hill Politico - ABC News - USA TODAY - Daily Beast all 555 news articles »
 
 
 Full story on F3News: [House Extends Surveillance Law, Rejecting New Privacy Safeguards - New York Times](http://www.f3nws.com/n/Q2gkXH)
