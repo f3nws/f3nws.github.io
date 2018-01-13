@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump set for first doctor's exam in office"
-date: 2018-01-13 01:33:04Z
+date: 2018-01-13 05:24:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Doctors and nurses will poke and prod President Donald Trump on Friday during hi
 
 Full story on F3News: [Trump set for first doctor's exam in office](http://www.f3nws.com/n/jTyFBD)
 
-> Posted on: Saturday, January 13, 2018 1:33:04 AM
+> Posted on: Saturday, January 13, 2018 5:24:57 AM
