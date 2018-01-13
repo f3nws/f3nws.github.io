@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Chelsea Manning files to run for US Senate in Maryland - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/09/26/Editorial-Opinion/Images/Chelsea_Manning_50306-b1d7f-2429.jpg?t=20170517)
 
-Washington Post Chelsea Manning files to run for US Senate in Maryland Washington Post Chelsea Manning, the transgender former Army private who was convicted of passing sensitive government documents to Wikileaks, has filed to run for the U.S. Senate in Maryland, according to federal election filings. Manning, who did not immediately ... Chelsea Manning files for Senate run in Maryland The Hill (blog) Chelsea Manning, convicted of leaking military documents, files candidacy to challenge Sen. Ben Cardin Baltimore Sun Chelsea Manning is running for US Senate New York Post The Guardian - NBC4 Washington all 36 news articles »
+Washington Post Chelsea Manning files to run for US Senate in Maryland Washington Post Chelsea E. Manning, the transgender former Army private who was convicted of passing sensitive government documents to Wikileaks, has filed to run for the U.S. Senate in Maryland, according to federal election filings. Manning, who did not immediately ... Chelsea Manning Files for Senate Run in Maryland New York Times Chelsea Manning files for US Senate run in Maryland CNN Chelsea Manning, convicted of giving military documents to Wikileaks, files candidacy to challenge Sen. Cardin Baltimore Sun ABC News - Fox News - U.S. News & World Report - CBS News all 68 news articles »
 
 
 Full story on F3News: [Chelsea Manning files to run for US Senate in Maryland - Washington Post](http://www.f3nws.com/n/b2FAPC)
