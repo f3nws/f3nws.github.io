@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Porn Star Was Reportedly Paid to Stay Quiet About Trump - New York Times"
-date: 2018-01-13 01:49:03Z
+date: 2018-01-13 00:51:44Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ New York Times Porn Star Was Reportedly Paid to Stay Quiet About Trump New York 
 
 Full story on F3News: [Porn Star Was Reportedly Paid to Stay Quiet About Trump - New York Times](http://www.f3nws.com/n/yQemMH)
 
-> Posted on: Saturday, January 13, 2018 1:49:03 AM
+> Posted on: Saturday, January 13, 2018 12:51:44 AM

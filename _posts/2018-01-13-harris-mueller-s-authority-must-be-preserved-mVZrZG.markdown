@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Harris: Mueller's authority must be preserved"
-date: 2018-01-13 04:31:56Z
+date: 2018-01-13 02:33:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Senator Kamala Harris talks with Rachel Maddow about the Trump Russia investigat
 
 Full story on F3News: [Harris: Mueller's authority must be preserved](http://www.f3nws.com/n/mVZrZG)
 
-> Posted on: Saturday, January 13, 2018 4:31:56 AM
+> Posted on: Saturday, January 13, 2018 2:33:00 AM
