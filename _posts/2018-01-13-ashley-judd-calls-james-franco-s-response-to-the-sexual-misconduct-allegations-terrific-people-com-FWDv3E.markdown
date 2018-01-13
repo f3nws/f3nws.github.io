@@ -5,6 +5,8 @@ date: 2018-01-13 01:55:21Z
 categories: google-news-entertaintment
 ---
 
+![Ashley Judd Calls James Franco's Response to the Sexual Misconduct Allegations 'Terrific' - PEOPLE.com](https://peopledotcom.files.wordpress.com/2018/01/ashley-judd-1-2000.jpg?crop=0px%2C0px%2C1333px%2C699.825px&resize=1200%2C630)
+
 PEOPLE.com Ashley Judd Calls James Franco's Response to the Sexual Misconduct Allegations 'Terrific' PEOPLE.com James Franco's response to the sexual assault and harassment allegations against him is earning praise from one of the leaders of the #MeToo movement. Ashley Judd, a longtime advocate for women's rights and sexual assault survivor, told HARDtalk's ... Ashley Judd Thinks James Franco's Response to Sexual Misconduct Claims Is "Terrific" E! Online Some Oscar voters are having a case of James Franco remorse Los Angeles Times Ashley Judd Gives James Franco Some Credit Vanity Fair CNN - PerezHilton.com - Slate Magazine - TMZ.com all 625 news articles »
 
 
