@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Police official sorry for helping discredit 1994 rape victim"
-date: 2018-01-13 02:34:44Z
+date: 2018-01-13 03:54:35Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A New York Police Department official has apologized to a rape victim he helped 
 
 Full story on F3News: [Police official sorry for helping discredit 1994 rape victim](http://www.f3nws.com/n/edEtKH)
 
-> Posted on: Saturday, January 13, 2018 2:34:44 AM
+> Posted on: Saturday, January 13, 2018 3:54:35 AM

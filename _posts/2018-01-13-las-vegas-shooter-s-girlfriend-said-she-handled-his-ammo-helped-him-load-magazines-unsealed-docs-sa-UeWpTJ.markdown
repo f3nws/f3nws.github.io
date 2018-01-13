@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Las Vegas shooter's girlfriend said she handled his ammo, helped him load magazines, unsealed docs say"
-date: 2018-01-13 03:15:00Z
+date: 2018-01-13 03:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Information about the Oct. 1 Las Vegas shooting was unveiled on Friday in newly 
 
 Full story on F3News: [Las Vegas shooter's girlfriend said she handled his ammo, helped him load magazines, unsealed docs say](http://www.f3nws.com/n/UeWpTJ)
 
-> Posted on: Saturday, January 13, 2018 3:15:00 AM
+> Posted on: Saturday, January 13, 2018 3:45:00 AM

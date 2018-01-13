@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Kylie Jenner's Pregnancy — Everything We Know So Far! - PerezHilton.com](http://i.perezhilton.com/wp-content/uploads/2018/01/screen-shot-2018-01-12-at-309__oPt.jpg)
 
-PerezHilton.com Kylie Jenner's Pregnancy — Everything We Know So Far! PerezHilton.com Maybe not today — but the Kylie Jenner baby is coming soon! Although the Life of Kylie star *still* hasn't confirmed the news, everyone is convinced she and boyfriend Travis Scott are going to be parents in the very near future. Here is what we know ... Is Kylie Jenner In Labor? Fans Are Tweeting Rumors About Her Being In The Hospital Bustle Kylie Jenner Not in Labor Despite Online Rumors TMZ.com Everyone Can Relax, Kylie Jenner Is Apparently *Not* in Labor Right Now In Touch Weekly Gossip Cop - The Hollywood Gossip - Just Jared - Elite Daily all 146 news articles »
+PerezHilton.com Kylie Jenner's Pregnancy — Everything We Know So Far! PerezHilton.com Maybe not today — but the Kylie Jenner baby is coming soon! Although the Life of Kylie star *still* hasn't confirmed the news, everyone is convinced she and boyfriend Travis Scott are going to be parents in the very near future. Here is what we know ... Is Kylie Jenner In Labor? Fans Are Tweeting Rumors About Her Being In The Hospital Bustle Is Kylie Jenner In Labor?: Fans Lose It On Twitter Over Rumor She's About To Give Birth Hollywood Life Is Kylie Jenner in Labor? Fans Are Convinced She Is! Us Weekly TMZ.com - Gossip Cop - In Touch Weekly - The Hollywood Gossip all 134 news articles »
 
 
 Full story on F3News: [Kylie Jenner's Pregnancy — Everything We Know So Far! - PerezHilton.com](http://www.f3nws.com/n/dJCft)
