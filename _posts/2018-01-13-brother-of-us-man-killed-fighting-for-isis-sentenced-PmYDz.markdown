@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Brother of US man killed fighting for ISIS sentenced"
-date: 2018-01-13 00:34:37Z
+date: 2018-01-13 00:43:51Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The brother of a San Diego man believed to be the first American citizen killed 
 
 Full story on F3News: [Brother of US man killed fighting for ISIS sentenced](http://www.f3nws.com/n/PmYDz)
 
-> Posted on: Saturday, January 13, 2018 12:34:37 AM
+> Posted on: Saturday, January 13, 2018 12:43:51 AM

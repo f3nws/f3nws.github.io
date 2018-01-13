@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Of course Samsung is studying ways to copy the iPhone X's design - BGR"
+date: 2018-01-13 00:56:52Z
+categories: bgr
+---
+
+![Of course Samsung is studying ways to copy the iPhone X's design - BGR](https://boygeniusreport.files.wordpress.com/2017/11/iphone-x-z5.jpg?quality=98&strip=all)
+
+BGR Of course Samsung is studying ways to copy the iPhone X's design BGR The iPhone X's ugly notch is a necessary compromise between design and functionality. Until Apple finds a way to hide all the front-facing cameras, speakers, and sensors under the screen, the notch will be found on all iPhones going forward — it's ... Android Circuit: Samsung Confirms Galaxy S9 Launch Date, Huawei Fights USA, Radical Galaxy X Cancelled Forbes Samsung Galaxy S9 box leak hints at variable aperture camera Engadget 'Galaxy S9' packaging leak hints at single rear camera sensor with variable aperture AppleInsider (press release) (blog) CNET - Droid Life - 9to5Google - Ars Technica all 181 news articles »
+
+
+Full story on F3News: [Of course Samsung is studying ways to copy the iPhone X's design - BGR](http://www.f3nws.com/n/qvHAPJ)
+
+> Posted on: Saturday, January 13, 2018 12:56:52 AM

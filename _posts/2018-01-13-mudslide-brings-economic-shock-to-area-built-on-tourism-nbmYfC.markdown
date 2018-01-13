@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mudslide brings economic shock to area built on tourism"
-date: 2018-01-13 00:29:10Z
+date: 2018-01-13 01:07:40Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The California mudslide that killed at least 18 people is causing distress miles
 
 Full story on F3News: [Mudslide brings economic shock to area built on tourism](http://www.f3nws.com/n/nbmYfC)
 
-> Posted on: Saturday, January 13, 2018 12:29:10 AM
+> Posted on: Saturday, January 13, 2018 1:07:40 AM
