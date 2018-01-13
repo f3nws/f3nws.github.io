@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Dr. Marc Siegel: Smartphones really are dangerous for our kids (they put them at risk for suicide and more)"
-date: 2018-01-13 12:45:01Z
+date: 2018-01-13 13:15:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Alarming new reports that should concern every parent link heavy smartphone use 
 
 Full story on F3News: [Dr. Marc Siegel: Smartphones really are dangerous for our kids (they put them at risk for suicide and more)](http://www.f3nws.com/n/WaMhsF)
 
-> Posted on: Saturday, January 13, 2018 12:45:01 PM
+> Posted on: Saturday, January 13, 2018 1:15:00 PM
