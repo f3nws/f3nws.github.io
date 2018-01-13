@@ -5,6 +5,8 @@ date: 2018-01-13 18:32:00Z
 categories: codeproject
 ---
 
+![Diligent Engine: A Modern Cross-Platform Graphics API](https://www.codeproject.com/script/Forums/Images/thumbs_up.gif)
+
 This article introduces Diligent Engine, a modern cross-platform graphics API abstraction library
 
 
