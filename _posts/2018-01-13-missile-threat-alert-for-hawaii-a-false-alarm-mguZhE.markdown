@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Missile threat alert for Hawaii a false alarm"
-date: 2018-01-13 21:36:14Z
+date: 2018-01-13 21:49:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An emergency alert notification sent out on Saturday claiming a "ballistic missi
 
 Full story on F3News: [Missile threat alert for Hawaii a false alarm](http://www.f3nws.com/n/mguZhE)
 
-> Posted on: Saturday, January 13, 2018 9:36:14 PM
+> Posted on: Saturday, January 13, 2018 9:49:19 PM
