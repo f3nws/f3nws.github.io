@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Over 700 arrested over Tunisia protests"
-date: 2018-01-13 10:02:37Z
+date: 2018-01-13 14:59:56Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 773 people have been arrested since anti-austerity protests broke out i
 
 Full story on F3News: [Over 700 arrested over Tunisia protests](http://www.f3nws.com/n/3YDrH)
 
-> Posted on: Saturday, January 13, 2018 10:02:37 AM
+> Posted on: Saturday, January 13, 2018 2:59:56 PM
