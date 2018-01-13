@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Another balloon flight cancelled before four passengers injured in Hunter hot air crash](http://www.abc.net.au/news/image/9326802-16x9-700x394.jpg)
 
-Four passengers injured in a hot air balloon crash are stable, as a man says a different flight scheduled nearby was cancelled this morning because it was "too windy".
+Four passengers injured in a hot air balloon crash are stable, as it emerges a different flight scheduled nearby was cancelled because it was "too windy".
 
 
 Full story on F3News: [Another balloon flight cancelled before four passengers injured in Hunter hot air crash](http://www.f3nws.com/n/pKyEQE)

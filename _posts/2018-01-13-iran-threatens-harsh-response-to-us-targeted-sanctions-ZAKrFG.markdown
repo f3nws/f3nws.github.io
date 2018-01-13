@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran threatens harsh response to US targeted sanctions"
-date: 2018-01-13 10:17:56Z
+date: 2018-01-13 13:08:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iran slammed US President Donald Trump's decision to target the head of its judi
 
 Full story on F3News: [Iran threatens harsh response to US targeted sanctions](http://www.f3nws.com/n/ZAKrFG)
 
-> Posted on: Saturday, January 13, 2018 10:17:56 AM
+> Posted on: Saturday, January 13, 2018 1:08:52 PM
