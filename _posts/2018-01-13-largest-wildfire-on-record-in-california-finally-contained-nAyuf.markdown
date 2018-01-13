@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Largest wildfire on record in California finally contained"
-date: 2018-01-13 00:40:34Z
+date: 2018-01-13 03:10:44Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The largest wildfire on record in California was declared contained on Friday, d
 
 Full story on F3News: [Largest wildfire on record in California finally contained](http://www.f3nws.com/n/nAyuf)
 
-> Posted on: Saturday, January 13, 2018 12:40:34 AM
+> Posted on: Saturday, January 13, 2018 3:10:44 AM
