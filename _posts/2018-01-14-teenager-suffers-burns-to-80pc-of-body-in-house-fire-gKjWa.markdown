@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Teenager suffers burns to 80pc of body in house fire](http://www.abc.net.au/news/image/9327758-16x9-700x394.jpg)
 
-A teenager dragged from a burning home by his neighbour is fighting for his life in hospital.
+A disabled teenager who was dragged from a burning home by his neighbour and carer is fighting for his life in hospital.
 
 
 Full story on F3News: [Teenager suffers burns to 80pc of body in house fire](http://www.f3nws.com/n/gKjWa)
