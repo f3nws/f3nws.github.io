@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2019 Chevrolet Silverado Release Date, Price and Specs     - Roadshow"
-date: 2018-01-14 00:56:01Z
+date: 2018-01-14 01:51:55Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The Big Bowtie goes on a 450-pound diet, can run on just one cylinder, and still
 
 Full story on F3News: [2019 Chevrolet Silverado Release Date, Price and Specs     - Roadshow](http://www.f3nws.com/n/PDy3GC)
 
-> Posted on: Sunday, January 14, 2018 12:56:01 AM
+> Posted on: Sunday, January 14, 2018 1:51:55 AM
