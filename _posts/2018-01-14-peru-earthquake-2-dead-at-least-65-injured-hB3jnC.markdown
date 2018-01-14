@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Peru earthquake: 2 dead, at least 65 injured"
-date: 2018-01-14 13:17:52Z
+date: 2018-01-14 17:32:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two people were killed when a 7.1-magnitude earthquake shook Peru on Sunday, acc
 
 Full story on F3News: [Peru earthquake: 2 dead, at least 65 injured](http://www.f3nws.com/n/hB3jnC)
 
-> Posted on: Sunday, January 14, 2018 1:17:52 PM
+> Posted on: Sunday, January 14, 2018 5:32:37 PM

@@ -7,7 +7,7 @@ categories: cnn-com-top-stories
 
 ![From paradise to panic: Hawaii residents and vacationers run for cover, fearing missile attack - CNN](http://cdn.cnn.com/cnnnext/dam/assets/180113134649-hawaii-missile-alert-false-alarm-nr-00000000-super-tease.jpg)
 
-CNN From paradise to panic: Hawaii residents and vacationers run for cover, fearing missile attack CNN (CNN) Jocelyn Azbell had just woken up in her Maui hotel Saturday when she was hurried into the hotel's basement to take shelter from an incoming ballistic missile. "You're thinking, 'Oh my gosh, are we going to die? Is it really a missile (headed) our ... A bomb is just minutes from destroying your world. Now what? Washington Post False Missile Warning in Hawaii Adds to Scrutiny of Emergency Alert System New York Times Hawaii missile false alarm triggers shock, blame and apologies BBC News ABC News - Chicago Tribune - NBCNews.com - Politico all 961 news articles »
+CNN From paradise to panic: Hawaii residents and vacationers run for cover, fearing missile attack CNN (CNN) Jocelyn Azbell had just woken up in her Maui hotel Saturday when she was hurried into the hotel's basement to take shelter from an incoming ballistic missile. "You're thinking, 'Oh my gosh, are we going to die? Is it really a missile (headed) our ... A bomb is just minutes from destroying your world. Now what? Washington Post Hawaii told to fix its alert system after false missile alarm BBC News Pandemonium and Rage in Hawaii The Atlantic Bloomberg - New York Times - CBS Local - NBCNews.com all 990 news articles »
 
 
 Full story on F3News: [From paradise to panic: Hawaii residents and vacationers run for cover, fearing missile attack - CNN](http://www.f3nws.com/n/VSVMeC)

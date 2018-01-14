@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "UK politician's model girlfriend suspended after reported 'vile' Meghan Markle remarks"
-date: 2018-01-14 14:08:00Z
+date: 2018-01-14 19:14:00Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ The model girlfriend of a United Kingdom Independent Party leader was suspended 
 
 Full story on F3News: [UK politician's model girlfriend suspended after reported 'vile' Meghan Markle remarks](http://www.f3nws.com/n/s2uyuB)
 
-> Posted on: Sunday, January 14, 2018 2:08:00 PM
+> Posted on: Sunday, January 14, 2018 7:14:00 PM
