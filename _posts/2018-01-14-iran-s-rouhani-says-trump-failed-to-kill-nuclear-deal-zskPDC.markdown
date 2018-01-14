@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iran's Rouhani says Trump failed to kill nuclear deal"
-date: 2018-01-14 12:18:38Z
+date: 2018-01-14 13:53:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Iranian President Hassan Rouhani mocked Donald Trump for failing to kill off the
 
 Full story on F3News: [Iran's Rouhani says Trump failed to kill nuclear deal](http://www.f3nws.com/n/zskPDC)
 
-> Posted on: Sunday, January 14, 2018 12:18:38 PM
+> Posted on: Sunday, January 14, 2018 1:53:38 PM
