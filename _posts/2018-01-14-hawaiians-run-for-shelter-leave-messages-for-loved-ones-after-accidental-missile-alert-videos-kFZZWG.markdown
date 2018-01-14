@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaiians run for shelter, leave messages for loved ones after ‘accidental’ missile alert (VIDEOS)"
-date: 2018-01-14 04:02:59Z
+date: 2018-01-14 04:02:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ People in Hawaii and their friends and relatives across the US endured 38 minute
 
 Full story on F3News: [Hawaiians run for shelter, leave messages for loved ones after ‘accidental’ missile alert (VIDEOS)](http://www.f3nws.com/n/kFZZWG)
 
-> Posted on: Sunday, January 14, 2018 4:02:59 AM
+> Posted on: Sunday, January 14, 2018 4:02:00 AM

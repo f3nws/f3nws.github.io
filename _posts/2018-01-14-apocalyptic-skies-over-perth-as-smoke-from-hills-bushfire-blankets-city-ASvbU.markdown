@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Apocalyptic skies over Perth as smoke from Hills bushfire blankets city](http://www.abc.net.au/news/image/9327980-16x9-700x394.jpg)
 
-Fire crews and water-bombing aircraft are working to contain an out of control bushfire burning 12km south east of Mundaring in the Perth Hills
+Authorities are treating an out of control bushfire in the Perth Hills, which has blanketed the city with smoke, as suspicious.
 
 
 Full story on F3News: [Apocalyptic skies over Perth as smoke from Hills bushfire blankets city](http://www.f3nws.com/n/ASvbU)
