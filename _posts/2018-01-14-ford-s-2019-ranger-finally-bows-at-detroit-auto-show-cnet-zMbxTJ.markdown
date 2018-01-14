@@ -7,7 +7,7 @@ categories: cnet
 
 ![Ford's 2019 Ranger finally bows at Detroit Auto Show - CNET](https://cnet3.cbsistatic.com/img/zSESFFzdP3TXj4ePrHUbsYmFkJQ=/770x433/2018/01/12/814ba6a7-60cc-446a-be15-bfaae8b32e28/2019-ford-ranger-1.jpg)
 
-CNET Ford's 2019 Ranger finally bows at Detroit Auto Show CNET Ford announced last year that it was bringing the Ford Ranger back to the US, but now at the 2018 Detroit Auto Show, it's actually showing us the truck. Not surprisingly, it doesn't look too different from the Ranger model that is already being sold in ... 2019 Ford Ranger: The Return of a Beloved Pickup Car and Driver 2019 Ford Ranger marks Ford's return to mid-size pickup market Motor Authority Reinvented Ranger pickups will move Ford into midsize truck market Los Angeles Times The Detroit News - Digital Trends - Motor Trend - Detroit Free Press all 54 news articles »
+CNET Ford's 2019 Ranger finally bows at Detroit Auto Show CNET Ford announced last year that it was bringing the Ford Ranger back to the US, but now at the 2018 Detroit Auto Show, it's actually showing us the truck. Not surprisingly, it doesn't look too different from the Ranger model that is already being sold in ... 2019 Ford Ranger: The Return of a Beloved Pickup Car and Driver Reinvented Ranger pickups will move Ford into midsize truck market Los Angeles Times All-new Ford Ranger debuts The Detroit News Digital Trends - Motor Trend - Motor Authority - Detroit Free Press all 56 news articles »
 
 
 Full story on F3News: [Ford's 2019 Ranger finally bows at Detroit Auto Show - CNET](http://www.f3nws.com/n/zMbxTJ)
