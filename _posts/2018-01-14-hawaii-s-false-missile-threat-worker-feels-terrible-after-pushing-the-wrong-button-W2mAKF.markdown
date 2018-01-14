@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaii's false missile threat: Worker 'feels terrible' after pushing the wrong button"
-date: 2018-01-14 15:14:00Z
+date: 2018-01-14 20:45:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Hawaii emergency officials confirmed Saturday evening that an alert about an inb
 
 Full story on F3News: [Hawaii's false missile threat: Worker 'feels terrible' after pushing the wrong button](http://www.f3nws.com/n/W2mAKF)
 
-> Posted on: Sunday, January 14, 2018 3:14:00 PM
+> Posted on: Sunday, January 14, 2018 8:45:00 PM

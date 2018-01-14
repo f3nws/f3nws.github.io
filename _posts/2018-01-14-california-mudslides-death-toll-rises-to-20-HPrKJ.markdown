@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California mudslides: Death toll rises to 20"
-date: 2018-01-14 19:14:35Z
+date: 2018-01-14 21:00:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 20 people have died as a result of the mudslides that devastated Montec
 
 Full story on F3News: [California mudslides: Death toll rises to 20](http://www.f3nws.com/n/HPrKJ)
 
-> Posted on: Sunday, January 14, 2018 7:14:35 PM
+> Posted on: Sunday, January 14, 2018 9:00:05 PM
