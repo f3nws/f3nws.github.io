@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Hopes for immigration deal fade as lawmakers trade barbs and Trump declares dreamer program 'probably dead' - Washington Post"
-date: 2018-01-14 16:06:46Z
+date: 2018-01-14 15:59:49Z
 categories: google-news-top-stories
 ---
 
 ![Hopes for immigration deal fade as lawmakers trade barbs and Trump declares dreamer program 'probably dead' - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/12/Editorial-Opinion/Images/Trump_Immigration_60860-1ee2f-2427.jpg?t=20170517)
 
-Washington Post Hopes for immigration deal fade as lawmakers trade barbs and Trump declares dreamer program 'probably dead' Washington Post Prospects for a bipartisan agreement to protect young immigrants from deportation and prevent a government shutdown later this week faded Sunday as key lawmakers traded sharp accusations and President Trump said hopes for a deal were “probably dead ... Five hurdles to a big DACA and border deal The Hill Trump tweets DACA 'probably dead' CNN Trump Immigration Line Hardens, Says DACA `Probably Dead' Bloomberg Business Insider - Voice of America - CNBC - New York Post all 336 news articles »
+Washington Post Hopes for immigration deal fade as lawmakers trade barbs and Trump declares dreamer program 'probably dead' Washington Post Prospects for a bipartisan agreement to protect young immigrants from deportation and prevent a government shutdown later this week faded Sunday as key lawmakers traded sharp accusations and President Trump said hopes for a deal were “probably dead ... Five hurdles to a big DACA and border deal The Hill Trump tweets DACA 'probably dead' CNN Republicans See Possible DACA Deal Despite Trump's Twitter Posts Bloomberg Los Angeles Times - Business Insider - Newsday - Voice of America all 367 news articles »
 
 
 Full story on F3News: [Hopes for immigration deal fade as lawmakers trade barbs and Trump declares dreamer program 'probably dead' - Washington Post](http://www.f3nws.com/n/TBShZG)
 
-> Posted on: Sunday, January 14, 2018 4:06:46 PM
+> Posted on: Sunday, January 14, 2018 3:59:49 PM
