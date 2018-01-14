@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![How emergency alerts are supposed to happen; what went wrong in Hawaii - CNN](http://cdn.cnn.com/cnnnext/dam/assets/180113154055-hawaii-false-missle-alert-highway-super-tease.jpg)
 
-CNN How emergency alerts are supposed to happen; what went wrong in Hawaii CNN (CNN) Human error is blamed for a false alarm of a missile heading for Hawaii, but the scare left Americans wondering how the missile detection and emergency messaging systems are supposed to work -- and what went wrong. The US military is in charge of ... 'Is this the end of my life?': False alert of missile attack sends Hawaii scrambling Washington Post Causes of False Missile Alerts: The Sun, the Moon and a 46-Cent Chip New York Times What If Hawaii's False Missile Alert Had Been Real? Here's What Would Happen Next TIME Chicago Tribune - Washington Examiner - New York Daily News - Reuters all 729 news articles »
+CNN How emergency alerts are supposed to happen; what went wrong in Hawaii CNN (CNN) Human error is blamed for a false alarm of a missile heading for Hawaii, but the scare left Americans wondering how the missile detection and emergency messaging systems are supposed to work -- and what went wrong. The US military is in charge of ... What If Hawaii's False Missile Alert Had Been Real? Here's What Would Happen Next TIME 'We made a mistake': Hawaii officials apologize after false emergency missile alert Chicago Tribune Obama-era Pentagon official knocks Trump for golfing during Hawaii false alarm Fox News The Hill - HuffPost - Washington Examiner - Reuters all 759 news articles »
 
 
 Full story on F3News: [How emergency alerts are supposed to happen; what went wrong in Hawaii - CNN](http://www.f3nws.com/n/2qV2nF)
