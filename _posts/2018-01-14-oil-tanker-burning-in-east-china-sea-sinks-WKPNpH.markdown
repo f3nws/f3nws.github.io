@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oil tanker burning in East China Sea sinks"
-date: 2018-01-14 11:27:21Z
+date: 2018-01-14 15:20:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An oil tanker burning in the East China Sea has sunk after an explosion, accordi
 
 Full story on F3News: [Oil tanker burning in East China Sea sinks](http://www.f3nws.com/n/WKPNpH)
 
-> Posted on: Sunday, January 14, 2018 11:27:21 AM
+> Posted on: Sunday, January 14, 2018 3:20:07 PM
