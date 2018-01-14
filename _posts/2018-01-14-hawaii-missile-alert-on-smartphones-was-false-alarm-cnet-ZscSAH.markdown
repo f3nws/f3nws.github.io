@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Hawaii missile alert on smartphones was false alarm     - CNET"
-date: 2018-01-14 15:52:58Z
+date: 2018-01-14 17:45:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Hawaiians got a terrifying alert on their phones and TVs Saturday. Lucky for the
 
 Full story on F3News: [Hawaii missile alert on smartphones was false alarm     - CNET](http://www.f3nws.com/n/ZscSAH)
 
-> Posted on: Sunday, January 14, 2018 3:52:58 PM
+> Posted on: Sunday, January 14, 2018 5:45:27 PM

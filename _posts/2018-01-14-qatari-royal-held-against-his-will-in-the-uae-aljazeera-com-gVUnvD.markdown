@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Qatari royal 'held against his will in the UAE' - Aljazeera.com](http://www.aljazeera.com/mritems/Images/2018/1/14/785ed5fd1e254a87be9391effb122ac2_18.jpg)
 
-Aljazeera.com Qatari royal 'held against his will in the UAE' Aljazeera.com A member of the Qatari royal family says he is being held against his will in the United Arab Emirates (UAE). Sheikh Abdullah bin Ali Al Thani released on Sunday a video statement saying that he was "a prisoner" in the UAE capital, Abu Dhabi, and that ... Qatari sheikh says being 'detained' in UAE The Straits Times all 18 news articles »
+Aljazeera.com Qatari royal 'held against his will in the UAE' Aljazeera.com A member of the Qatari royal family says he is being held against his will in the United Arab Emirates (UAE). Sheikh Abdullah bin Ali Al Thani released on Sunday a video statement saying he was "a prisoner" in the UAE capital, Abu Dhabi, and that if ... 'Afraid Something Could Happen': Qatari Sheikh Allegedly Detained In UAE NDTV all 21 news articles »
 
 
 Full story on F3News: [Qatari royal 'held against his will in the UAE' - Aljazeera.com](http://www.f3nws.com/n/gVUnvD)
