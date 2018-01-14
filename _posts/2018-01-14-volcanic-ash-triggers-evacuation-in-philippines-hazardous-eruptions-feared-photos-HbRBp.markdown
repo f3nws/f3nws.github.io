@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Volcanic ash triggers evacuation in Philippines, ‘hazardous eruptions’ feared (PHOTOS)"
-date: 2018-01-14 03:00:42Z
+date: 2018-01-14 03:00:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ The Mayon volcano in the Philippines has spewed ash several times over the weeke
 
 Full story on F3News: [Volcanic ash triggers evacuation in Philippines, ‘hazardous eruptions’ feared (PHOTOS)](http://www.f3nws.com/n/HbRBp)
 
-> Posted on: Sunday, January 14, 2018 3:00:42 AM
+> Posted on: Sunday, January 14, 2018 3:00:00 AM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Death toll in Montecito mudslide rises to 19, while 101 Freeway will remain closed indefinitely - Los Angeles Times](http://www.trbimg.com/img-5a5abf61/turbine/la-me-montecito-mudsides-101)
 
-Los Angeles Times Death toll in Montecito mudslide rises to 19, while 101 Freeway will remain closed indefinitely Los Angeles Times As the death toll in the Montecito mudslides increased to 19 on Saturday, officials announced that the 101 Freeway would remain closed indefinitely. Search and rescue crews recovered the body of Morgan Corey, 25, who was found in debris near Olive Mill ... Death toll rises to 19 in Montecito mudslides CBS News Mudslides, wildfires, earthquakes and flu. 2018's off to a rough start in California CNN California mudslides: Where and why they happen Fox News USA TODAY - Chicago Tribune - Reuters - NPR all 1,042 news articles »
+Los Angeles Times Death toll in Montecito mudslide rises to 19, while 101 Freeway will remain closed indefinitely Los Angeles Times As the death toll in the Montecito mudslides increased to 19 on Saturday, officials announced that the 101 Freeway would remain closed indefinitely. Search and rescue crews recovered the body of Morgan Corey, 25, who was found in debris near Olive Mill ... Death toll rises to 19 in Montecito mudslides CBS News Mudslides, wildfires, earthquakes and flu. 2018's off to a rough start in California CNN California mudslides: Where and why they happen Fox News USA TODAY - Chicago Tribune - NPR - Reuters all 1,055 news articles »
 
 
 Full story on F3News: [Death toll in Montecito mudslide rises to 19, while 101 Freeway will remain closed indefinitely - Los Angeles Times](http://www.f3nws.com/n/XASdCG)

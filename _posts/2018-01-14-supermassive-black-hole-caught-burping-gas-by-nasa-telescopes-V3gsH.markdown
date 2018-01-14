@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Supermassive black hole caught ‘burping’ gas by NASA telescopes"
-date: 2018-01-14 04:31:26Z
+date: 2018-01-14 04:31:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ NASA astronomers caught a supermassive black hole “snacking on gas and then bu
 
 Full story on F3News: [Supermassive black hole caught ‘burping’ gas by NASA telescopes](http://www.f3nws.com/n/V3gsH)
 
-> Posted on: Sunday, January 14, 2018 4:31:26 AM
+> Posted on: Sunday, January 14, 2018 4:31:00 AM
