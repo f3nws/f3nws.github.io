@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Burning Iranian oil tanker has sunk after January 6 accident: Chinese state TV - Reuters](https://s3.reutersmedia.net/resources/r/?m=02&d=20180114&t=2&i=1221878541&w=1200&r=LYNXMPEE0D066)
 
-Reuters Burning Iranian oil tanker has sunk after January 6 accident: Chinese state TV Reuters BEIJING (Reuters) - An Iranian oil tanker has sunk after burning for more than a week following a collision on Jan. 6 in the East China Sea, Chinese state media said on Sunday, adding that large amounts of oil are burning in the surrounding waters ... Oil tanker burning in the East China Sea sinks CNN 'No hope' for sailors as burning oil tanker sinks, says Iran official Los Angeles Times Burning oil tanker sinks off China after one week BBC News Wall Street Journal - Bloomberg - The Guardian - Deutsche Welle all 129 news articles »
+Reuters Burning Iranian oil tanker has sunk after January 6 accident: Chinese state TV Reuters BEIJING (Reuters) - An Iranian oil tanker has sunk after burning for more than a week following a collision on Jan. 6 in the East China Sea, Chinese state media said on Sunday, adding that large amounts of oil are burning in the surrounding waters ... Hope Fades for Missing Crew Members as Iranian Oil Tanker Sinks New York Times Oil tanker burning in the East China Sea sinks CNN Iranian Tanker Sinks Off China After Collision Wall Street Journal Voice of America - The Guardian - Los Angeles Times - Deutsche Welle all 134 news articles »
 
 
 Full story on F3News: [Burning Iranian oil tanker has sunk after January 6 accident: Chinese state TV - Reuters](http://www.f3nws.com/n/At3JRF)

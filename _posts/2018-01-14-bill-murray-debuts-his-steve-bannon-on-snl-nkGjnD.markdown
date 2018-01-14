@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bill Murray debuts his Steve Bannon on 'SNL'"
-date: 2018-01-14 06:08:20Z
+date: 2018-01-14 12:58:14Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Bill Murray debuts his Steve Bannon on 'SNL'](http://www.f3nws.com/n/nkGjnD)
 
-> Posted on: Sunday, January 14, 2018 6:08:20 AM
+> Posted on: Sunday, January 14, 2018 12:58:14 PM

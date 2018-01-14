@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Turkey plane: Panic as jet skids off runway at Trabzon - BBC News](https://ichef.bbci.co.uk/images/ic/1024x576/p05ttxd2.jpg)
 
-BBC News Turkey plane: Panic as jet skids off runway at Trabzon BBC News Panic broke out on a passenger jet when it skidded off the runway at a Turkish airport and plunged down the side of a cliff overlooking the sea. The Pegasus Airlines Boeing 737-800 with 168 passengers and crew had flown from Ankara and landed at ... Plane Nearly Falls into Black Sea with 168 People on Board Before Getting Stuck in Mud Newsweek Plane skids off Turkish runway on Black Sea coast, passengers unhurt Reuters Plane skids off runway on Black Sea coast in Turkey The Guardian The Independent - Daily Star - Telegraph.co.uk - NDTV all 51 news articles »
+BBC News Turkey plane: Panic as jet skids off runway at Trabzon BBC News Panic broke out on a passenger jet when it skidded off the runway at a Turkish airport and plunged down the side of a cliff overlooking the sea. The Pegasus Airlines Boeing 737-800 with 168 passengers and crew had flown from Ankara and landed at ... Plane Nearly Falls into Black Sea with 168 People on Board Before Getting Stuck in Mud Newsweek Plane Skids off Turkish Runway on Black Sea Coast, Passengers Unhurt U.S. News & World Report Plane skids off runway on Black Sea coast in Turkey The Guardian The Independent - Daily Star - Financial Express - Daily Sabah all 77 news articles »
 
 
 Full story on F3News: [Turkey plane: Panic as jet skids off runway at Trabzon - BBC News](http://www.f3nws.com/n/ZVnDBG)
