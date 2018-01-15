@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Mirai Okiru Botnet targets devices running widely-used ARC Processors"
-date: 2018-01-15 12:11:13Z
+date: 2018-01-15 18:15:10Z
 categories: the-hacker-news
 ---
 
@@ -12,4 +12,4 @@ The cybersecurity threat landscape has never been more extensive and is most lik
 
 Full story on F3News: [New Mirai Okiru Botnet targets devices running widely-used ARC Processors](http://www.f3nws.com/n/gcRbnF)
 
-> Posted on: Monday, January 15, 2018 12:11:13 PM
+> Posted on: Monday, January 15, 2018 6:15:10 PM
