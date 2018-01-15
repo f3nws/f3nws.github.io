@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Floor collapses at Jakarta stock exchange"
-date: 2018-01-15 08:46:55Z
+date: 2018-01-15 10:20:50Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One of the floors at the Jakarta stock exchange building collapsed Monday, accor
 
 Full story on F3News: [Floor collapses at Jakarta stock exchange](http://www.f3nws.com/n/DntnB)
 
-> Posted on: Monday, January 15, 2018 8:46:55 AM
+> Posted on: Monday, January 15, 2018 10:20:50 AM

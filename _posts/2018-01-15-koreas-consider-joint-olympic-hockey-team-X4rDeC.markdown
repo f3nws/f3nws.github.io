@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Koreas consider joint Olympic hockey team"
-date: 2018-01-15 09:09:09Z
+date: 2018-01-15 10:14:02Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North and South Korea are discussing fielding a joint ice hockey team in next mo
 
 Full story on F3News: [Koreas consider joint Olympic hockey team](http://www.f3nws.com/n/X4rDeC)
 
-> Posted on: Monday, January 15, 2018 9:09:09 AM
+> Posted on: Monday, January 15, 2018 10:14:02 AM
