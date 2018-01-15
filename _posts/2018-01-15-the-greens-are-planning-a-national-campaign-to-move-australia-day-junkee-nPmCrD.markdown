@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![The Greens Are Planning A National Campaign To Move Australia Day - Junkee](http://junkee.com/wp-content/uploads/2018/01/changethedate.png)
 
-Junkee The Greens Are Planning A National Campaign To Move Australia Day Junkee Much to the federal government's frustration, the campaign to change the date of Australia Day just keeps gathering steam. In the last few months we've seen multiple local councils vote to ditch their January 26 celebrations, as well as a growing ... and more »
+Junkee The Greens Are Planning A National Campaign To Move Australia Day Junkee Much to the federal government's frustration, the campaign to change the date of Australia Day just keeps gathering steam. In the last few months we've seen multiple local councils vote to ditch their January 26 celebrations, as well as a growing ... Greens push for Australia Day date change rejected The Advertiser all 34 news articles »
 
 
 Full story on F3News: [The Greens Are Planning A National Campaign To Move Australia Day - Junkee](http://www.f3nws.com/n/nPmCrD)
