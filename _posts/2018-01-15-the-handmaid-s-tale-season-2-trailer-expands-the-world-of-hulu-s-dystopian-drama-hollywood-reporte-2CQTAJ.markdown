@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['The Handmaid's Tale' Season 2 Trailer Expands the World of Hulu's Dystopian Drama - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2018/01/rw_colour_20171218rt2_-_h_2018.jpg)
 
-Hollywood Reporter 'The Handmaid's Tale' Season 2 Trailer Expands the World of Hulu's Dystopian Drama Hollywood Reporter The award-winning series will return for its second season on April 25 with two new episodes. This April, June returns. Hulu has released the first official trailer for The Handmaid's Tale season two, which is set to premiere April 25 on the streaming ... 'The Handmaid's Tale' Season 2 Changes Include Following June On The Run Bustle Offred is on the run as 'Handmaid's Tale' returns in April New York Daily News 'The Handmaid's Tale' Season 2 to Explore Origins of Gilead, Offred's Pregnancy Variety Deadline - CNET - UPROXX - Mashable all 168 news articles »
+Hollywood Reporter 'The Handmaid's Tale' Season 2 Trailer Expands the World of Hulu's Dystopian Drama Hollywood Reporter The award-winning series will return for its second season on April 25 with two new episodes. This April, June returns. Hulu has released the first official trailer for The Handmaid's Tale season two, which is set to premiere April 25 on the streaming ... 9 Things to Know About The Handmaid's Tale Season Two ELLE.com 'The Handmaid's Tale' Season 2 Changes Include Following June On The Run Bustle 'The Handmaid's Tale' Season 2 to Explore Origins of Gilead, Offred's Pregnancy Variety Screen Rant - Deadline - CNET - UPROXX all 179 news articles »
 
 
 Full story on F3News: ['The Handmaid's Tale' Season 2 Trailer Expands the World of Hulu's Dystopian Drama - Hollywood Reporter](http://www.f3nws.com/n/2CQTAJ)

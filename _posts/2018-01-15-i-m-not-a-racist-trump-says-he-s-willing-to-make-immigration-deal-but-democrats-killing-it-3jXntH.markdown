@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘I’m not a racist’: Trump says he’s willing to make immigration deal, but Democrats killing it"
-date: 2018-01-15 02:54:13Z
+date: 2018-01-15 02:54:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ US President Donald Trump has denied being “racist” in the wake of a scandal
 
 Full story on F3News: [‘I’m not a racist’: Trump says he’s willing to make immigration deal, but Democrats killing it](http://www.f3nws.com/n/3jXntH)
 
-> Posted on: Monday, January 15, 2018 2:54:13 AM
+> Posted on: Monday, January 15, 2018 2:54:00 AM

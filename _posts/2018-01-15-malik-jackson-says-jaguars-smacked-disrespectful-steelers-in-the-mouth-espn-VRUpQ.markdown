@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Malik Jackson says Jaguars smacked 'disrespectful' Steelers in the mouth - ESPN](http://a3.espncdn.com/combiner/i?img=%2Fphoto%2F2017%2F1227%2Fr307428_1296x729_16%2D9.jpg)
 
-ESPN Malik Jackson says Jaguars smacked 'disrespectful' Steelers in the mouth ESPN PITTSBURGH -- The Jacksonville Jaguars are headed to the AFC Championship game, but nobody wanted to talk about that after they beat the Pittsburgh Steelers 45-42 on Sunday at Heinz Field. Jaguars players instead wanted everyone to know that they were ... Blake Bortles' breakthrough game helps Jaguars stun Steelers NFL.com Has Pittsburgh Steelers' Super Bowl Window Come to a Close? Bleacher Report Showdowns set: Jags-Patriots in AFC, Vikings-Eagles in NFC USA TODAY FOXSports.com - Sports Illustrated - Washington Post - New York Times all 1,063 news articles »
+ESPN Malik Jackson says Jaguars smacked 'disrespectful' Steelers in the mouth ESPN PITTSBURGH -- The Jacksonville Jaguars are headed to the AFC Championship game, but nobody wanted to talk about that after they beat the Pittsburgh Steelers 45-42 on Sunday at Heinz Field. Jaguars players instead wanted everyone to know that they were ... After Beating Up the Steelers, No One Can Overlook the Sacksonville Jaguars Bleacher Report Twelve things we learned from Divisional Round games NFL.com Showdowns set: Jags-Patriots in AFC, Vikings-Eagles in NFC USA TODAY FOXSports.com - Sports Illustrated - CBSSports.com - New York Times all 1,072 news articles »
 
 
 Full story on F3News: [Malik Jackson says Jaguars smacked 'disrespectful' Steelers in the mouth - ESPN](http://www.f3nws.com/n/VRUpQ)
