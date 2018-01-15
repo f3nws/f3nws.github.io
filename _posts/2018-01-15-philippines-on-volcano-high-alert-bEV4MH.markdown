@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Philippines on volcano high alert"
-date: 2018-01-15 08:01:33Z
+date: 2018-01-15 14:22:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Philippines' most active volcano has shown signs of imminent eruption, forci
 
 Full story on F3News: [Philippines on volcano high alert](http://www.f3nws.com/n/bEV4MH)
 
-> Posted on: Monday, January 15, 2018 8:01:33 AM
+> Posted on: Monday, January 15, 2018 2:22:49 PM
