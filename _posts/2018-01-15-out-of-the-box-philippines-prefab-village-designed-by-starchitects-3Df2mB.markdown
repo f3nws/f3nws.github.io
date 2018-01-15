@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Out of the box: Philippines' prefab village designed by starchitects"
-date: 2018-01-15 03:38:50Z
+date: 2018-01-15 04:51:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On a building site about 50 miles outside the Philippine capital of Manil
 
 Full story on F3News: [Out of the box: Philippines' prefab village designed by starchitects](http://www.f3nws.com/n/3Df2mB)
 
-> Posted on: Monday, January 15, 2018 3:38:50 AM
+> Posted on: Monday, January 15, 2018 4:51:29 AM
