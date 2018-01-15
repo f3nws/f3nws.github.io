@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Burning tanker sinks; crew presumed dead"
-date: 2018-01-15 14:05:08Z
+date: 2018-01-15 16:45:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An oil tanker burning in the East China Sea has sunk after an explosion, accordi
 
 Full story on F3News: [Burning tanker sinks; crew presumed dead](http://www.f3nws.com/n/WKPNpH)
 
-> Posted on: Monday, January 15, 2018 2:05:08 PM
+> Posted on: Monday, January 15, 2018 4:45:39 PM

@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Inside the play that saved the Vikings' season -- and crushed the Saints - ESPN](http://a4.espncdn.com/combiner/i?img=%2Fphoto%2F2018%2F0114%2Fr314467_1296x729_16%2D9.jpg)
 
-ESPN Inside the play that saved the Vikings' season -- and crushed the Saints ESPN MINNEAPOLIS -- The "Minnesota Miracle" happened on a play called "Seven Heaven." Why do the Minnesota Vikings use that name? Because if the quarterback hits the seven route, a deep corner in this case, well, something heavenly happens. 2017 NFL ... Vikings win epic battle with Saints on insane walk-off FOXSports.com Monday Hot Clicks: Jessika Villegas; Let's Relive the Bonkers Ending to Saints-Vikings Sports Illustrated Oddsmakers say Vikings' shaky second half vs. Saints altered opening line for NFC Championship Game USA TODAY New York Times - NFL.com - NOLA.com - New York Post all 1,047 news articles »
+ESPN Inside the play that saved the Vikings' season -- and crushed the Saints ESPN MINNEAPOLIS -- The "Minnesota Miracle" happened on a play called "Seven Heaven." Why do the Minnesota Vikings use that name? Because if the quarterback hits the seven route, a deep corner in this case, well, something heavenly happens. 2017 NFL ... Vikings win epic battle with Saints on insane walk-off FOXSports.com 2018 NFL Draft: New Orleans Saints team needs, draft picks, prospects to watch CBSSports.com Oddsmakers say Vikings' shaky second half vs. Saints altered opening line for NFC Championship Game USA TODAY Sports Illustrated - New York Times - NFL.com - NOLA.com all 1,056 news articles »
 
 
 Full story on F3News: [Inside the play that saved the Vikings' season -- and crushed the Saints - ESPN](http://www.f3nws.com/n/euMZvH)
