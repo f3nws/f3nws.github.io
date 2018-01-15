@@ -7,7 +7,7 @@ categories: toronto-star
 
 ![Hijab scissor attack against 11-year-old did not occur: Police](https://www.thestar.com/content/dam/thestar/news/gta/2018/01/15/hijab-scissor-attack-against-11-year-old-did-not-occur-police/pauline_johnson_school_exterior.jpg)
 
-Police say the events described did not occur.
+Police had been investigating the alleged incident as a hate crime and now say their investigation is concluded.
 
 
 Full story on F3News: [Hijab scissor attack against 11-year-old did not occur: Police](http://www.f3nws.com/n/CqvkrF)
