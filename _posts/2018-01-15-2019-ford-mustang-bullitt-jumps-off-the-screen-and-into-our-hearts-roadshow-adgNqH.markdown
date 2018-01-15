@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2019 Ford Mustang Bullitt jumps off the screen and into our hearts     - Roadshow"
-date: 2018-01-15 01:31:44Z
+date: 2018-01-15 02:09:19Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The third generation of Bullitt Mustang tributes brings us more power, cleaner l
 
 Full story on F3News: [2019 Ford Mustang Bullitt jumps off the screen and into our hearts     - Roadshow](http://www.f3nws.com/n/adgNqH)
 
-> Posted on: Monday, January 15, 2018 1:31:44 AM
+> Posted on: Monday, January 15, 2018 2:09:19 AM
