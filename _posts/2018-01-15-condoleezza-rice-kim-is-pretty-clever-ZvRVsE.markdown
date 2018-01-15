@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Condoleezza Rice: Kim is 'pretty clever'"
-date: 2018-01-15 10:37:10Z
+date: 2018-01-15 11:31:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former Secretary of State Condoleezza Rice says she thinks North Korean leader K
 
 Full story on F3News: [Condoleezza Rice: Kim is 'pretty clever'](http://www.f3nws.com/n/ZvRVsE)
 
-> Posted on: Monday, January 15, 2018 10:37:10 AM
+> Posted on: Monday, January 15, 2018 11:31:30 AM
