@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The exhausting first year of Donald Trump's presidency"
-date: 2018-01-15 11:25:01Z
+date: 2018-01-15 12:20:36Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It will be impossible to adequately explain in decades to come just what it was 
 
 Full story on F3News: [The exhausting first year of Donald Trump's presidency](http://www.f3nws.com/n/aUTD4B)
 
-> Posted on: Monday, January 15, 2018 11:25:01 AM
+> Posted on: Monday, January 15, 2018 12:20:36 PM
