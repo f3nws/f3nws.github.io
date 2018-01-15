@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Cranberries singer Dolores O'Riordan dies at 46"
-date: 2018-01-15 20:42:20Z
+date: 2018-01-15 22:24:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Dolores O'Riordan, the lead singer of the Irish band The Cranberries, died in Lo
 
 Full story on F3News: [Cranberries singer Dolores O'Riordan dies at 46](http://www.f3nws.com/n/kJGrtE)
 
-> Posted on: Monday, January 15, 2018 8:42:20 PM
+> Posted on: Monday, January 15, 2018 10:24:38 PM

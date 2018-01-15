@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aziz Ansari responds to sexual assault allegation: 'I was surprised and concerned'"
-date: 2018-01-15 20:38:57Z
+date: 2018-01-15 22:16:53Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [Aziz Ansari responds to sexual assault allegation: 'I was surprised and concerned'](http://www.f3nws.com/n/vtrMDD)
 
-> Posted on: Monday, January 15, 2018 8:38:57 PM
+> Posted on: Monday, January 15, 2018 10:16:53 PM
