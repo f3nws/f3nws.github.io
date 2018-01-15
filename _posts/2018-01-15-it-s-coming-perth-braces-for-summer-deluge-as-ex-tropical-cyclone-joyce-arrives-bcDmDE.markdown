@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![It's coming: Perth braces for summer deluge as ex-tropical Cyclone Joyce arrives](http://www.abc.net.au/news/image/9329164-16x9-700x394.jpg)
 
-The remnants of a cyclone that crossed the coast on Saturday could dump three months' worth of rain on Perth today, lending a helping hand to firefighters containing a blaze in Mundaring that yesterday blanketed the city in smoke.
+The remnants of a cyclone that crossed the coast on Saturday could dump three months' worth of rain on Perth today, helping firefighters to contain a blaze in Mundaring that yesterday blanketed the city in smoke.
 
 
 Full story on F3News: [It's coming: Perth braces for summer deluge as ex-tropical Cyclone Joyce arrives](http://www.f3nws.com/n/bcDmDE)
