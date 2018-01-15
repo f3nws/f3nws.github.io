@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "South Africa to formally protest Trump's 'shithole countries' remarks"
-date: 2018-01-15 11:21:27Z
+date: 2018-01-15 19:51:57Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Africa will issue a diplomatic protest to the United States Monday over US
 
 Full story on F3News: [South Africa to formally protest Trump's 'shithole countries' remarks](http://www.f3nws.com/n/GPEBrG)
 
-> Posted on: Monday, January 15, 2018 11:21:27 AM
+> Posted on: Monday, January 15, 2018 7:51:57 PM
