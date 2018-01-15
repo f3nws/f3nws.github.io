@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "‘Slap in the face’: Abbas condemns Trump’s ‘deal of the century,’ Israel’s ‘killing’ of Oslo Accords"
-date: 2018-01-15 00:55:49Z
+date: 2018-01-15 00:55:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Palestinian President Mahmoud Abbas has stated he will never agree to the US-cha
 
 Full story on F3News: [‘Slap in the face’: Abbas condemns Trump’s ‘deal of the century,’ Israel’s ‘killing’ of Oslo Accords](http://www.f3nws.com/n/FXbXzC)
 
-> Posted on: Monday, January 15, 2018 12:55:49 AM
+> Posted on: Monday, January 15, 2018 12:55:00 AM

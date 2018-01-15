@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Truck carrying hundreds of chickens crashes off overpass](http://www.abc.net.au/news/image/9329138-16x9-700x394.jpg)
 
-A truck carrying live chickens crashes over the side of a Geelong overpass, killing many of the animals.
+A truck carrying live poultry crashes over the side of a Geelong overpass, scattering crates of chickens all over the embankment below and killing many of the animals.
 
 
 Full story on F3News: [Truck carrying hundreds of chickens crashes off overpass](http://www.f3nws.com/n/bZxFJF)

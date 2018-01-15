@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US President defends himself after several days of controversy over his remarks about African countries"
-date: 2018-01-15 01:32:49Z
+date: 2018-01-15 01:43:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump defended himself Sunday night after several days of contr
 
 Full story on F3News: [US President defends himself after several days of controversy over his remarks about African countries](http://www.f3nws.com/n/CAqzbF)
 
-> Posted on: Monday, January 15, 2018 1:32:49 AM
+> Posted on: Monday, January 15, 2018 1:43:55 AM
