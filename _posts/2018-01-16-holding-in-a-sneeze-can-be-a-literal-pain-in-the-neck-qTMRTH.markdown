@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Holding in a sneeze can be a literal pain in the neck"
-date: 2018-01-16 01:03:10Z
+date: 2018-01-16 03:14:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ If you are about to sneeze -- even if you are in a quiet place -- doctors would 
 
 Full story on F3News: [Holding in a sneeze can be a literal pain in the neck](http://www.f3nws.com/n/qTMRTH)
 
-> Posted on: Tuesday, January 16, 2018 1:03:10 AM
+> Posted on: Tuesday, January 16, 2018 3:14:34 AM
