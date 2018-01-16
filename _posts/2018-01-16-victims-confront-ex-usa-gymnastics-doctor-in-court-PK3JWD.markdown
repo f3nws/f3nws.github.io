@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Victims confront ex-USA Gymnastics doctor in court"
-date: 2018-01-16 19:30:18Z
+date: 2018-01-16 21:21:39Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Kyle Stephens said she had her first sexual experience when she was 6 years old.
 
 Full story on F3News: [Victims confront ex-USA Gymnastics doctor in court](http://www.f3nws.com/n/PK3JWD)
 
-> Posted on: Tuesday, January 16, 2018 7:30:18 PM
+> Posted on: Tuesday, January 16, 2018 9:21:39 PM

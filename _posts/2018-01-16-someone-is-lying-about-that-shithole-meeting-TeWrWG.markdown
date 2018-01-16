@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Someone is lying about that 'shithole' meeting"
-date: 2018-01-16 19:35:20Z
+date: 2018-01-16 21:30:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five days ago, President Donald Trump and a handful of congressional leaders got
 
 Full story on F3News: [Someone is lying about that 'shithole' meeting](http://www.f3nws.com/n/TeWrWG)
 
-> Posted on: Tuesday, January 16, 2018 7:35:20 PM
+> Posted on: Tuesday, January 16, 2018 9:30:43 PM
