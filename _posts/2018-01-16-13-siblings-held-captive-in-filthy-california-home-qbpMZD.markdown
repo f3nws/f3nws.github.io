@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "13 siblings held captive in filthy California home"
-date: 2018-01-16 08:09:29Z
+date: 2018-01-16 10:08:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two California parents were arrested malnourished children and adults shackled t
 
 Full story on F3News: [13 siblings held captive in filthy California home](http://www.f3nws.com/n/qbpMZD)
 
-> Posted on: Tuesday, January 16, 2018 8:09:29 AM
+> Posted on: Tuesday, January 16, 2018 10:08:11 AM
