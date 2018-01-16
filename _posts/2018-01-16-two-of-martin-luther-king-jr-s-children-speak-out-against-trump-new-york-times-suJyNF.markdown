@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Two of Martin Luther King Jr.'s Children Speak Out Against Trump - New York Times](https://static01.nyt.com/images/2018/01/16/us/16ATLANTA/16ATLANTA-facebookJumbo.jpg)
 
-New York Times Two of Martin Luther King Jr.'s Children Speak Out Against Trump New York Times ATLANTA — As the nation paid tribute to the Rev. Dr. Martin Luther King Jr., some of his relatives sharply criticized President Trump on Monday over his outlook on race and its effect on the country nearly half a century after Dr. King's death. “Our ... On King day, Trump mentioned as much as civil rights leader SFGate President Trump, Dr. King, and Sh**holegate National Review Melania Trump's Martin Luther King Day Message Did Not Go Down Well Newsweek TIME - ABC News - The Denver Post - Fox News all 4,091 news articles »
+New York Times Two of Martin Luther King Jr.'s Children Speak Out Against Trump New York Times ATLANTA — As the nation paid tribute to the Rev. Dr. Martin Luther King Jr., some of his relatives sharply criticized President Trump on Monday over his outlook on race and its effect on the country nearly half a century after Dr. King's death. “Our ... President Trump, Dr. King, and Sh**holegate National Review Trump mocked for golfing in lieu of volunteering on Martin Luther King Jr. Day ABC News Watch: People Think Donald Trump and Martin Luther King Had a Twitter Feud—But MLK's Been Dead 50 Years Newsweek The Denver Post - Fox News - Voice of America - Syracuse.com all 4,355 news articles »
 
 
 Full story on F3News: [Two of Martin Luther King Jr.'s Children Speak Out Against Trump - New York Times](http://www.f3nws.com/n/suJyNF)
