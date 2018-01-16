@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![4 South Carolina officers shot after domestic violence call - CNN](http://cdn.cnn.com/cnnnext/dam/assets/150325082152-social-gfx-cnn-logo-super-tease.jpg)
 
-CNN 4 South Carolina officers shot after domestic violence call CNN (CNN) A man shot and injured four law enforcement officers early Tuesday near a South Carolina home, a sheriff's spokesman said, after deputies initially were called there for a complaint of domestic violence. The man suspected of firing the shots ... 4 police officers shot responding to domestic violence call in South Carolina Washington Post Four cops shot in South Carolina, suspect in custody Fox News 4 South Carolina police officers shot after responding to domestic violence call ABC News NBCNews.com - CBS News - New York Post - The State all 76 news articles »
+CNN 4 South Carolina officers shot after domestic violence call CNN (CNN) A man shot and injured four law enforcement officers early Tuesday near a South Carolina home, a sheriff's spokesman said, after deputies initially were called there for a complaint of domestic violence. The man suspected of firing the shots ... Police name suspect in wounding of 4 South Carolina officers ABC News 4 police officers shot responding to domestic violence call in South Carolina Washington Post Four cops shot in South Carolina, suspect in custody Fox News USA TODAY - New York Post - Syracuse.com - WSOC Charlotte all 79 news articles »
 
 
 Full story on F3News: [4 South Carolina officers shot after domestic violence call - CNN](http://www.f3nws.com/n/CUxhrD)

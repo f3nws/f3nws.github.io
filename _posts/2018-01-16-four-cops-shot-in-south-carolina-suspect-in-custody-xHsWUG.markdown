@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Four cops shot in South Carolina, suspect in custody"
-date: 2018-01-16 13:50:00Z
+date: 2018-01-16 15:34:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ The suspected shooter was in custody early Tuesday morning after a gunman opened
 
 Full story on F3News: [Four cops shot in South Carolina, suspect in custody](http://www.f3nws.com/n/xHsWUG)
 
-> Posted on: Tuesday, January 16, 2018 1:50:00 PM
+> Posted on: Tuesday, January 16, 2018 3:34:00 PM
