@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kushner was warned on Murdoch ex-wife, WSJ reports"
-date: 2018-01-16 10:05:13Z
+date: 2018-01-16 12:27:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Counterintelligence officials warned Jared Kushner in early 2017 that Wendi Deng
 
 Full story on F3News: [Kushner was warned on Murdoch ex-wife, WSJ reports](http://www.f3nws.com/n/YGv2hH)
 
-> Posted on: Tuesday, January 16, 2018 10:05:13 AM
+> Posted on: Tuesday, January 16, 2018 12:27:12 PM
