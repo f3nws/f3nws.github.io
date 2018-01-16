@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Simone Biles says former USA team doctor abused her"
-date: 2018-01-16 03:41:06Z
+date: 2018-01-16 06:34:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ On the eve of former USA Gymnastics team doctor Larry Nassar's sentencing for se
 
 Full story on F3News: [Simone Biles says former USA team doctor abused her](http://www.f3nws.com/n/tTBfC)
 
-> Posted on: Tuesday, January 16, 2018 3:41:06 AM
+> Posted on: Tuesday, January 16, 2018 6:34:28 AM
