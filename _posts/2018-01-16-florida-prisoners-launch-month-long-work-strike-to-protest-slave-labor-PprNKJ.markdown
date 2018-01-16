@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Florida prisoners launch month-long work strike to protest ‘slave labor’"
-date: 2018-01-16 03:20:22Z
+date: 2018-01-16 03:20:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Inmates across Florida have begun striking over work conditions they say amount 
 
 Full story on F3News: [Florida prisoners launch month-long work strike to protest ‘slave labor’](http://www.f3nws.com/n/PprNKJ)
 
-> Posted on: Tuesday, January 16, 2018 3:20:22 AM
+> Posted on: Tuesday, January 16, 2018 3:20:00 AM

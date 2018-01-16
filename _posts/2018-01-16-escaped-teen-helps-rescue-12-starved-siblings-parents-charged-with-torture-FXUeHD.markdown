@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Escaped teen helps rescue 12 starved siblings, parents charged with torture"
-date: 2018-01-16 03:11:49Z
+date: 2018-01-16 03:11:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Some of the 13 victims, aged 2 to 29, were starving, chained and bound in their 
 
 Full story on F3News: [Escaped teen helps rescue 12 starved siblings, parents charged with torture](http://www.f3nws.com/n/FXUeHD)
 
-> Posted on: Tuesday, January 16, 2018 3:11:49 AM
+> Posted on: Tuesday, January 16, 2018 3:11:00 AM

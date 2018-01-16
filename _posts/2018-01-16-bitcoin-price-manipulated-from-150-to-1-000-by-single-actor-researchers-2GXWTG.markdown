@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bitcoin price manipulated from $150 to $1,000 by single actor – researchers"
-date: 2018-01-16 02:22:59Z
+date: 2018-01-16 02:22:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Researchers found that a single actor was “likely” behind several accounts t
 
 Full story on F3News: [Bitcoin price manipulated from $150 to $1,000 by single actor – researchers](http://www.f3nws.com/n/2GXWTG)
 
-> Posted on: Tuesday, January 16, 2018 2:22:59 AM
+> Posted on: Tuesday, January 16, 2018 2:22:00 AM
