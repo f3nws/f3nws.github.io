@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "California torture suspects projected perfect image on social media"
-date: 2018-01-16 16:28:19Z
+date: 2018-01-16 19:25:56Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ David and Louise Turpin projected an image of a picture perfect family on social
 
 Full story on F3News: [California torture suspects projected perfect image on social media](http://www.f3nws.com/n/RSrWpB)
 
-> Posted on: Tuesday, January 16, 2018 4:28:19 PM
+> Posted on: Tuesday, January 16, 2018 7:25:56 PM
