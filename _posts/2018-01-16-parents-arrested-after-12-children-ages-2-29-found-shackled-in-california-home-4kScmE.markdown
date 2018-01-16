@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parents arrested after 12 children, ages 2-29, found shackled in California home"
-date: 2018-01-16 00:15:00Z
+date: 2018-01-16 01:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ A Southern California couple is in custody on suspicion of torture and child end
 
 Full story on F3News: [Parents arrested after 12 children, ages 2-29, found shackled in California home](http://www.f3nws.com/n/4kScmE)
 
-> Posted on: Tuesday, January 16, 2018 12:15:00 AM
+> Posted on: Tuesday, January 16, 2018 1:30:00 AM

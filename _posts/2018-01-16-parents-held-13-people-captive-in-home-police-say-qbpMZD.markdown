@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Parents held 13 people captive in home, police say"
-date: 2018-01-16 00:33:10Z
+date: 2018-01-16 01:40:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Two California parents were arrested are more than a dozen of their children wer
 
 Full story on F3News: [Parents held 13 people captive in home, police say](http://www.f3nws.com/n/qbpMZD)
 
-> Posted on: Tuesday, January 16, 2018 12:33:10 AM
+> Posted on: Tuesday, January 16, 2018 1:40:07 AM
