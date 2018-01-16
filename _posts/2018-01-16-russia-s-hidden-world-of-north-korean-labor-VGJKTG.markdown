@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Russia's hidden world of North Korean labor"
-date: 2018-01-16 06:35:45Z
+date: 2018-01-16 08:14:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In pre-fabricated buildings, down a muddy track on the outskirts of St. Petersbu
 
 Full story on F3News: [Russia's hidden world of North Korean labor](http://www.f3nws.com/n/VGJKTG)
 
-> Posted on: Tuesday, January 16, 2018 6:35:45 AM
+> Posted on: Tuesday, January 16, 2018 8:14:48 AM
