@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US destroyer commanders face negligent homicide charges over deadly collisions"
-date: 2018-01-17 02:24:18Z
+date: 2018-01-17 04:40:28Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The US Navy announced Tuesday that the former commanding officers of the USS Fit
 
 Full story on F3News: [US destroyer commanders face negligent homicide charges over deadly collisions](http://www.f3nws.com/n/KYgK2E)
 
-> Posted on: Wednesday, January 17, 2018 2:24:18 AM
+> Posted on: Wednesday, January 17, 2018 4:40:28 AM

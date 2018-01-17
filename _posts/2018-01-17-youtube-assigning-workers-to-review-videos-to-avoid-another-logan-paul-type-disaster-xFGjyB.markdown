@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "YouTube assigning workers to review videos to avoid another Logan Paul-type disaster"
-date: 2018-01-17 02:48:38Z
+date: 2018-01-17 04:17:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [YouTube assigning workers to review videos to avoid another Logan Paul-type disaster](http://www.f3nws.com/n/xFGjyB)
 
-> Posted on: Wednesday, January 17, 2018 2:48:38 AM
+> Posted on: Wednesday, January 17, 2018 4:17:49 AM

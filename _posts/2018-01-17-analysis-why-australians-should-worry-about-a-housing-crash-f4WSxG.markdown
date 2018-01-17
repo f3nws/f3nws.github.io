@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Analysis: Why Australians should worry about a housing crash](http://www.abc.net.au/news/image/8680774-16x9-700x394.jpg)
 
-History shows it's misguided to predict an imminent Australian housing crash, but also that it's sheer folly to write-off the possibility.
+History shows it's misguided to predict an imminent Australian housing crash, but also that it's sheer folly to write off the possibility.
 
 
 Full story on F3News: [Analysis: Why Australians should worry about a housing crash](http://www.f3nws.com/n/f4WSxG)
