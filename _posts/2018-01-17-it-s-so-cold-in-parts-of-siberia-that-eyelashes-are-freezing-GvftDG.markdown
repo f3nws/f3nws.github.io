@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "It's so cold in parts of Siberia that eyelashes are freezing"
-date: 2018-01-17 17:52:10Z
+date: 2018-01-17 21:36:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Temperatures in parts of the Siberian region of Yakutia have dropped to minus 67
 
 Full story on F3News: [It's so cold in parts of Siberia that eyelashes are freezing](http://www.f3nws.com/n/GvftDG)
 
-> Posted on: Wednesday, January 17, 2018 5:52:10 PM
+> Posted on: Wednesday, January 17, 2018 9:36:43 PM
