@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korea rips 'lunatic' Trump as US moves bombers"
-date: 2018-01-17 00:10:39Z
+date: 2018-01-17 02:26:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [North Korea rips 'lunatic' Trump as US moves bombers](http://www.f3nws.com/n/PDzGgB)
 
-> Posted on: Wednesday, January 17, 2018 12:10:39 AM
+> Posted on: Wednesday, January 17, 2018 2:26:11 AM
