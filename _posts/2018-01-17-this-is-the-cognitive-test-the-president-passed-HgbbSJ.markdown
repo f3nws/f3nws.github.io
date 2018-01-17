@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This is the cognitive test the president passed"
-date: 2018-01-17 00:02:54Z
+date: 2018-01-17 16:43:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Before President Donald Trump's physical examination on Friday, Dr. Ronny Jackso
 
 Full story on F3News: [This is the cognitive test the president passed](http://www.f3nws.com/n/HgbbSJ)
 
-> Posted on: Wednesday, January 17, 2018 12:02:54 AM
+> Posted on: Wednesday, January 17, 2018 4:43:00 PM
