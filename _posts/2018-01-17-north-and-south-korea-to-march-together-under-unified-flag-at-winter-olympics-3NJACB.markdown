@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North and South Korea to march together under unified flag at Winter Olympics"
-date: 2018-01-17 13:39:26Z
+date: 2018-01-17 13:40:12Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North and South Korean athletes will march together at the Winter Olympics openi
 
 Full story on F3News: [North and South Korea to march together under unified flag at Winter Olympics](http://www.f3nws.com/n/3NJACB)
 
-> Posted on: Wednesday, January 17, 2018 1:39:26 PM
+> Posted on: Wednesday, January 17, 2018 1:40:12 PM

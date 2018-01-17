@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Why women hesitate to report sexual misconduct"
-date: 2018-01-17 03:40:18Z
+date: 2018-01-17 13:46:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The news has been filled with stories of prominent men accused of sexual miscond
 
 Full story on F3News: [Why women hesitate to report sexual misconduct](http://www.f3nws.com/n/3KgJBB)
 
-> Posted on: Wednesday, January 17, 2018 3:40:18 AM
+> Posted on: Wednesday, January 17, 2018 1:46:52 PM
