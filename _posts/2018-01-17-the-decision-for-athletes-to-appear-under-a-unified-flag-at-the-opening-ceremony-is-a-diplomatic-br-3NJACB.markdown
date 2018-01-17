@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The decision for athletes to appear under a unified flag at the opening ceremony is a diplomatic breakthrough"
-date: 2018-01-17 15:10:26Z
+date: 2018-01-17 18:53:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ North and South Korean athletes will march together at the Winter Olympics openi
 
 Full story on F3News: [The decision for athletes to appear under a unified flag at the opening ceremony is a diplomatic breakthrough](http://www.f3nws.com/n/3NJACB)
 
-> Posted on: Wednesday, January 17, 2018 3:10:26 PM
+> Posted on: Wednesday, January 17, 2018 6:53:29 PM

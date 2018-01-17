@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon will do interview with special counsel, avoiding grand jury for now"
-date: 2018-01-17 17:18:00Z
+date: 2018-01-17 19:04:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Steve Bannon has struck a deal with special counsel Robert Mueller's team and wi
 
 Full story on F3News: [Bannon will do interview with special counsel, avoiding grand jury for now](http://www.f3nws.com/n/kTZvVF)
 
-> Posted on: Wednesday, January 17, 2018 5:18:00 PM
+> Posted on: Wednesday, January 17, 2018 7:04:06 PM

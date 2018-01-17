@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republican Senator: Trump's media attacks inspire dictators"
-date: 2018-01-17 18:04:36Z
+date: 2018-01-17 18:58:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Republican Sen. Jeff Flake, a frequent critic of President Donald Trump, took to
 
 Full story on F3News: [Republican Senator: Trump's media attacks inspire dictators](http://www.f3nws.com/n/kAJPc)
 
-> Posted on: Wednesday, January 17, 2018 6:04:36 PM
+> Posted on: Wednesday, January 17, 2018 6:58:13 PM
