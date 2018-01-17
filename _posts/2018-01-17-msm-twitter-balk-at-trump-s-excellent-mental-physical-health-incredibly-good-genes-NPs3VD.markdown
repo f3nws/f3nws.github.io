@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "MSM, Twitter balk at Trump’s ‘excellent’ mental & physical health, ‘incredibly good genes’"
-date: 2018-01-17 01:30:03Z
+date: 2018-01-17 01:30:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump did “exceedingly well” on a cognitive screening and i
 
 Full story on F3News: [MSM, Twitter balk at Trump’s ‘excellent’ mental & physical health, ‘incredibly good genes’](http://www.f3nws.com/n/NPs3VD)
 
-> Posted on: Wednesday, January 17, 2018 1:30:03 AM
+> Posted on: Wednesday, January 17, 2018 1:30:00 AM

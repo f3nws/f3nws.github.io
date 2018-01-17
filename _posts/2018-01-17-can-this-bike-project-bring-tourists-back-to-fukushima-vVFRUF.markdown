@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Can this bike project bring tourists back to Fukushima?"
-date: 2018-01-17 00:15:28Z
+date: 2018-01-17 02:58:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's been over six years since the northeast coast of Japan's Honshu island was 
 
 Full story on F3News: [Can this bike project bring tourists back to Fukushima?](http://www.f3nws.com/n/vVFRUF)
 
-> Posted on: Wednesday, January 17, 2018 12:15:28 AM
+> Posted on: Wednesday, January 17, 2018 2:58:22 AM

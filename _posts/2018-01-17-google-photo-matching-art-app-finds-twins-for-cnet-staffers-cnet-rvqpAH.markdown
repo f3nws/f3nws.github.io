@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Google photo-matching art app finds twins for CNET staffers     - CNET"
-date: 2018-01-17 01:07:23Z
+date: 2018-01-17 03:21:36Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The latest viral craze matches your photo to works from museums and galleries fr
 
 Full story on F3News: [Google photo-matching art app finds twins for CNET staffers     - CNET](http://www.f3nws.com/n/rvqpAH)
 
-> Posted on: Wednesday, January 17, 2018 1:07:23 AM
+> Posted on: Wednesday, January 17, 2018 3:21:36 AM
