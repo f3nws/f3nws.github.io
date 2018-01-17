@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Japan: North Korea 'buying time'"
-date: 2018-01-17 07:25:55Z
+date: 2018-01-17 12:16:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korea pressed ahead with talks to include its northern neighbor in next mo
 
 Full story on F3News: [Japan: North Korea 'buying time'](http://www.f3nws.com/n/DzqRWG)
 
-> Posted on: Wednesday, January 17, 2018 7:25:55 AM
+> Posted on: Wednesday, January 17, 2018 12:16:07 PM
