@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Let's be honest about Aziz Ansari"
-date: 2018-01-17 18:49:57Z
+date: 2018-01-17 22:33:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ This week, an anonymous accuser's account of regretting what appears to be conse
 
 Full story on F3News: [Let's be honest about Aziz Ansari](http://www.f3nws.com/n/vrRPTJ)
 
-> Posted on: Wednesday, January 17, 2018 6:49:57 PM
+> Posted on: Wednesday, January 17, 2018 10:33:14 PM
