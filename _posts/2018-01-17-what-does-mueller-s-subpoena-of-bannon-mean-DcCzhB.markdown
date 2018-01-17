@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What does Mueller's subpoena of Bannon mean?"
-date: 2018-01-17 04:03:59Z
+date: 2018-01-17 02:25:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Chuck Rosenberg, former federal prosecutor, talks with Rachel Maddow about what 
 
 Full story on F3News: [What does Mueller's subpoena of Bannon mean?](http://www.f3nws.com/n/DcCzhB)
 
-> Posted on: Wednesday, January 17, 2018 4:03:59 AM
+> Posted on: Wednesday, January 17, 2018 2:25:00 AM

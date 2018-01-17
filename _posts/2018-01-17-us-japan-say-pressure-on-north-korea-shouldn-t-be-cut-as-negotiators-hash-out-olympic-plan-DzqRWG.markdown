@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US, Japan say pressure on North Korea shouldn't be cut as negotiators hash out Olympic plan"
-date: 2018-01-17 03:53:27Z
+date: 2018-01-17 05:12:55Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ South Korea pressed ahead with talks to include its northern neighbor in next mo
 
 Full story on F3News: [US, Japan say pressure on North Korea shouldn't be cut as negotiators hash out Olympic plan](http://www.f3nws.com/n/DzqRWG)
 
-> Posted on: Wednesday, January 17, 2018 3:53:27 AM
+> Posted on: Wednesday, January 17, 2018 5:12:55 AM

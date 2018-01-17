@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Mueller, House Intel subpoena Steve Bannon"
-date: 2018-01-17 03:54:25Z
+date: 2018-01-17 02:04:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reports on the subpoenas served to Steve Bannon by Robert Mueller 
 
 Full story on F3News: [Mueller, House Intel subpoena Steve Bannon](http://www.f3nws.com/n/yAAEpD)
 
-> Posted on: Wednesday, January 17, 2018 3:54:25 AM
+> Posted on: Wednesday, January 17, 2018 2:04:00 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US South hunkers down for snow, ice"
-date: 2018-01-17 01:52:53Z
+date: 2018-01-17 04:42:27Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ Snow, ice and bitter cold are hitting Southern states unaccustomed to such frost
 
 Full story on F3News: [US South hunkers down for snow, ice](http://www.f3nws.com/n/2RdTj)
 
-> Posted on: Wednesday, January 17, 2018 1:52:53 AM
+> Posted on: Wednesday, January 17, 2018 4:42:27 AM

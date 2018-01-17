@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Bannon will 'tell all' to Mueller: report"
-date: 2018-01-17 03:44:15Z
+date: 2018-01-17 02:52:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Betsy Woodruff, political reporter for The Daily Beast, talks with Rachel Maddow
 
 Full story on F3News: [Bannon will 'tell all' to Mueller: report](http://www.f3nws.com/n/PYjmMC)
 
-> Posted on: Wednesday, January 17, 2018 3:44:15 AM
+> Posted on: Wednesday, January 17, 2018 2:52:00 AM
