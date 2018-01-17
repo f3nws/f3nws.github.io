@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meteor lights up night sky, rattles Michigan with ‘loud boom’ (VIDEOS)"
-date: 2018-01-17 03:01:56Z
+date: 2018-01-17 03:01:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Residents in several cities across Michigan reported seeing a bright and colorfu
 
 Full story on F3News: [Meteor lights up night sky, rattles Michigan with ‘loud boom’ (VIDEOS)](http://www.f3nws.com/n/NtKEg)
 
-> Posted on: Wednesday, January 17, 2018 3:01:56 AM
+> Posted on: Wednesday, January 17, 2018 3:01:00 AM
