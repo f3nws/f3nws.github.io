@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump overweight, doesn't exercise, like most Americans"
-date: 2018-01-17 14:44:09Z
+date: 2018-01-17 16:27:13Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump's doctor, Dr. Ronny Jackson, characterized the president'
 
 Full story on F3News: [Trump overweight, doesn't exercise, like most Americans](http://www.f3nws.com/n/eUcSGB)
 
-> Posted on: Wednesday, January 17, 2018 2:44:09 PM
+> Posted on: Wednesday, January 17, 2018 4:27:13 PM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ex-Trump administration adviser Steve Bannon agrees to meet with Robert Mueller"
-date: 2018-01-17 15:23:23Z
+date: 2018-01-17 15:23:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ Steve Bannon, who served as President Trump’s campaign manager and senior poli
 
 Full story on F3News: [Ex-Trump administration adviser Steve Bannon agrees to meet with Robert Mueller](http://www.f3nws.com/n/pkmjE)
 
-> Posted on: Wednesday, January 17, 2018 3:23:23 PM
+> Posted on: Wednesday, January 17, 2018 3:23:00 PM
