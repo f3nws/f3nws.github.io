@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Former CIA agent arrested over notepad of secret code names"
-date: 2018-01-17 02:11:05Z
+date: 2018-01-17 11:26:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A former CIA officer who allegedly kept small notebooks with handwritten lists o
 
 Full story on F3News: [Former CIA agent arrested over notepad of secret code names](http://www.f3nws.com/n/bxVZkH)
 
-> Posted on: Wednesday, January 17, 2018 2:11:05 AM
+> Posted on: Wednesday, January 17, 2018 11:26:09 AM
