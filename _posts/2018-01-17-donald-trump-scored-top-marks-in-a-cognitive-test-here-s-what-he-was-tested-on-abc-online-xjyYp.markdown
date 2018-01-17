@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Donald Trump scored top marks in a cognitive test, here's what he was tested on - ABC Online](http://www.abc.net.au/news/image/9337140-16x9-700x394.jpg)
 
-ABC Online Donald Trump scored top marks in a cognitive test, here's what he was tested on ABC Online White House doctor Ronny Jackson said Mr Trump did "exceedingly well" in the Montreal Cognitive Assessment (MoCA). But what did the President have to do? What's a MoCA? It's a relatively simple test that helps health professionals tell whether someone ... White House doctor has 'no concerns' over President Trump's mental health NEWS.com.au Trump sails through cognitive test. Can you? The Australian Trump warns of immigration threat to national security Yahoo7 News The New Daily - The Guardian - TIME - SBS all 429 news articles »
+ABC Online Donald Trump scored top marks in a cognitive test, here's what he was tested on ABC Online White House doctor Ronny Jackson said Mr Trump did "exceedingly well" in the Montreal Cognitive Assessment (MoCA). But what did the President have to do? What's a MoCA? It's a relatively simple test that helps health professionals tell whether someone ... White House doctor has 'no concerns' over President Trump's mental health NEWS.com.au Donald Trump is 'fit for duty, says White House doctor The Australian Financial Review Donald Trump's medical exam – full transcript The Guardian The Australian - New York Times - Independent.ie - The New Daily all 457 news articles »
 
 
 Full story on F3News: [Donald Trump scored top marks in a cognitive test, here's what he was tested on - ABC Online](http://www.f3nws.com/n/xjyYp)
