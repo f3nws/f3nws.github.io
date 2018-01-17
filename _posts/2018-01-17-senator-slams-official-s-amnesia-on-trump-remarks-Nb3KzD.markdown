@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Senator slams official's 'amnesia' on Trump remarks"
-date: 2018-01-17 03:24:33Z
+date: 2018-01-17 13:04:35Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Cory Booker slammed the homeland security secretary in a speech Tuesday mor
 
 Full story on F3News: [Senator slams official's 'amnesia' on Trump remarks](http://www.f3nws.com/n/Nb3KzD)
 
-> Posted on: Wednesday, January 17, 2018 3:24:33 AM
+> Posted on: Wednesday, January 17, 2018 1:04:35 PM
