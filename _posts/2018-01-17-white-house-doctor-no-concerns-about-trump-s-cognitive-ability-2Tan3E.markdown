@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "White House doctor: 'No concerns' about Trump's cognitive ability"
-date: 2018-01-17 00:18:04Z
+date: 2018-01-17 01:04:52Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump asked the White House doctor to perform a cognitive exam 
 
 Full story on F3News: [White House doctor: 'No concerns' about Trump's cognitive ability](http://www.f3nws.com/n/2Tan3E)
 
-> Posted on: Wednesday, January 17, 2018 12:18:04 AM
+> Posted on: Wednesday, January 17, 2018 1:04:52 AM
