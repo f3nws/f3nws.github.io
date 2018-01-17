@@ -1,15 +1,15 @@
 ---
 layout: post
 title:  "Ann Curry 'not surprised' by Matt Lauer allegations, says harassment was pervasive at NBC - CBS News"
-date: 2018-01-17 13:52:54Z
+date: 2018-01-17 13:24:48Z
 categories: google-news-entertaintment
 ---
 
 ![Ann Curry "not surprised" by Matt Lauer allegations, says harassment was pervasive at NBC - CBS News](https://cbsnews1.cbsistatic.com/hub/i/r/2018/01/17/477c4e84-16dc-4159-b571-0b967eb050df/thumbnail/1200x630/083c2855d29dad36d0d252bcf05cb52e/0117-ctm-anncurry-qa-1483629-640x360.jpg)
 
-CBS News Ann Curry "not surprised" by Matt Lauer allegations, says harassment was pervasive at NBC CBS News Last Updated Jan 17, 2018 8:40 AM EST. In her first television interview since leaving NBC, former "Today" show host Ann Curry is speaking out about the firing of her former co-host Matt Lauer and the pervasive "verbal sexual" harassment during her ... Ann Curry 'not surprised' by Matt Lauer allegations: 'Climate of verbal harassment' existed at NBC Fox News Ann Curry on Her Reaction to the Matt Lauer Scandal: I Was 'Outraged' PEOPLE.com Ann Curry breaks silence on Matt Lauer: 'I'm not surprised by the allegations' USA TODAY Deadline - ABC News - Page Six - RollingStone.com all 60 news articles »
+CBS News Ann Curry "not surprised" by Matt Lauer allegations, says harassment was pervasive at NBC CBS News Last Updated Jan 17, 2018 8:40 AM EST. In her first television interview since leaving NBC, former "Today" show host Ann Curry is speaking out about the firing of her former co-host Matt Lauer and the pervasive "verbal sexual" harassment during her ... Ann Curry 'not surprised' by Matt Lauer scandal, says NBC had a 'climate of verbal harassment' Washington Post Ann Curry Breaks Her Silence on Matt Lauer's Sexual Misconduct Allegations and Leaving Today E! Online Former 'Today' Co-Host Ann Curry Not Surprised At Matt Lauer's Ouster Deadline PEOPLE.com - HuffPost - Page Six - USA TODAY all 92 news articles »
 
 
 Full story on F3News: [Ann Curry "not surprised" by Matt Lauer allegations, says harassment was pervasive at NBC - CBS News](http://www.f3nws.com/n/4uuGrE)
 
-> Posted on: Wednesday, January 17, 2018 1:52:54 PM
+> Posted on: Wednesday, January 17, 2018 1:24:48 PM
