@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says 'Russia is not helping' with North Korea"
-date: 2018-01-18 05:57:13Z
+date: 2018-01-18 07:55:38Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump on Wednesday accused Russia of helping North Korea skirt 
 
 Full story on F3News: [Trump says 'Russia is not helping' with North Korea](http://www.f3nws.com/n/QZphZB)
 
-> Posted on: Thursday, January 18, 2018 5:57:13 AM
+> Posted on: Thursday, January 18, 2018 7:55:38 AM
