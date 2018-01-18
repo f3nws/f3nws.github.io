@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon names 20 finalists for its second headquarters"
-date: 2018-01-18 14:44:29Z
+date: 2018-01-18 15:44:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Amazon names 20 finalists for its second headquarters](http://www.f3nws.com/n/dpkXbD)
 
-> Posted on: Thursday, January 18, 2018 2:44:29 PM
+> Posted on: Thursday, January 18, 2018 3:44:21 PM

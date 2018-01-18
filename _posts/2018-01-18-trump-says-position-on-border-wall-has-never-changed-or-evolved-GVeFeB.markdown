@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump says position on border wall 'has never changed or evolved'"
-date: 2018-01-18 14:27:07Z
+date: 2018-01-18 16:03:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump insisted Thursday that he has remained consistent in his 
 
 Full story on F3News: [Trump says position on border wall 'has never changed or evolved'](http://www.f3nws.com/n/GVeFeB)
 
-> Posted on: Thursday, January 18, 2018 2:27:07 PM
+> Posted on: Thursday, January 18, 2018 4:03:37 PM

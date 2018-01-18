@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "India tests-fires nuclear-capable long-range missile"
-date: 2018-01-18 15:21:01Z
+date: 2018-01-18 16:21:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ India has successfully test-fired its Agni-V long-range intercontinental ballist
 
 Full story on F3News: [India tests-fires nuclear-capable long-range missile](http://www.f3nws.com/n/n32yk)
 
-> Posted on: Thursday, January 18, 2018 3:21:01 PM
+> Posted on: Thursday, January 18, 2018 4:21:07 PM
