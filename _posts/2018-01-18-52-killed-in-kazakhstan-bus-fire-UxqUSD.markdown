@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "52 killed in Kazakhstan bus fire"
-date: 2018-01-18 09:12:04Z
+date: 2018-01-18 10:45:00Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 52 people have been killed in a passenger bus fire in the central Asian
 
 Full story on F3News: [52 killed in Kazakhstan bus fire](http://www.f3nws.com/n/UxqUSD)
 
-> Posted on: Thursday, January 18, 2018 9:12:04 AM
+> Posted on: Thursday, January 18, 2018 10:45:00 AM
