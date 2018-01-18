@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Bannon had 'slip-up' during hearing"
-date: 2018-01-18 00:34:06Z
+date: 2018-01-18 01:27:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Former White House chief strategist Steve Bannon refused to tell the House Intel
 
 Full story on F3News: [Report: Bannon had 'slip-up' during hearing](http://www.f3nws.com/n/GZEjtH)
 
-> Posted on: Thursday, January 18, 2018 12:34:06 AM
+> Posted on: Thursday, January 18, 2018 1:27:30 AM
