@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Oil spill from exploded tanker now the size of Paris"
-date: 2018-01-18 10:21:48Z
+date: 2018-01-18 12:21:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An oil spill from an Iranian oil tanker that sank in the East China Sea is now t
 
 Full story on F3News: [Oil spill from exploded tanker now the size of Paris](http://www.f3nws.com/n/zEZPUJ)
 
-> Posted on: Thursday, January 18, 2018 10:21:48 AM
+> Posted on: Thursday, January 18, 2018 12:21:34 PM

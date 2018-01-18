@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "LAPD spent millions on 'green' electric BMWs used for joyrides to nail salons, day lunches: report"
-date: 2018-01-18 11:45:01Z
+date: 2018-01-18 12:45:01Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ Two years after the LAPD touted a multimillion-dollar purchase a fleet of eco-fr
 
 Full story on F3News: [LAPD spent millions on 'green' electric BMWs used for joyrides to nail salons, day lunches: report](http://www.f3nws.com/n/BxJJcG)
 
-> Posted on: Thursday, January 18, 2018 11:45:01 AM
+> Posted on: Thursday, January 18, 2018 12:45:01 PM

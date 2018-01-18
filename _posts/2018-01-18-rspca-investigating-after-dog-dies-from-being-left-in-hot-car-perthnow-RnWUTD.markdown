@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![RSPCA investigating after dog dies from being left in hot car - PerthNow](https://images.perthnow.com.au/publication/B88718038Z/1516249302333_GOL1DT45T.1-2.jpg?imwidth=1024)
 
-PerthNow RSPCA investigating after dog dies from being left in hot car PerthNow THE RSPCA is investigating the death of a dog which was trapped in a car for two hours as Perth's temperature nudged 30 degrees Celcius yesterday. The male mastiff was left inside a Holden Astra on Fletching Street in Balga in the afternoon. Facebook ... Dog dies in hot car, two others rescued as RSPCA lashes out at 'stupid' owners ABC Online Have-a-go heroes couldn't save dog left inside hot car NEWS.com.au Balga neighbours fail to save dog left to cook in hot car WAtoday SBS - 9news.com.au - Community Newspaper Group - Daily Mail all 10 news articles »
+PerthNow RSPCA investigating after dog dies from being left in hot car PerthNow THE RSPCA is investigating the death of a dog which was trapped in a car for two hours as Perth's temperature nudged 30 degrees Celcius yesterday. The male mastiff was left inside a Holden Astra on Fletching Street in Balga in the afternoon. Facebook ... and more »
 
 
 Full story on F3News: [RSPCA investigating after dog dies from being left in hot car - PerthNow](http://www.f3nws.com/n/RnWUTD)
