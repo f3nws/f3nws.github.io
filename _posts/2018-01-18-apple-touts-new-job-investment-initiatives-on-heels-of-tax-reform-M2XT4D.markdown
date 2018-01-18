@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Apple touts new job & investment initiatives on heels of tax reform"
-date: 2018-01-18 02:44:27Z
+date: 2018-01-18 02:44:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Apple has announced a “commitment” to create more than 20,000 new jobs in th
 
 Full story on F3News: [Apple touts new job & investment initiatives on heels of tax reform](http://www.f3nws.com/n/M2XT4D)
 
-> Posted on: Thursday, January 18, 2018 2:44:27 AM
+> Posted on: Thursday, January 18, 2018 2:44:00 AM
