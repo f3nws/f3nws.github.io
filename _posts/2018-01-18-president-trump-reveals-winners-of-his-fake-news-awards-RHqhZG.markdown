@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "President Trump reveals winners of his ‘Fake News’ awards"
-date: 2018-01-18 03:15:00Z
+date: 2018-01-18 03:30:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ President Trump revealed the winners of his self-proclaimed ‘Fake News’ awar
 
 Full story on F3News: [President Trump reveals winners of his ‘Fake News’ awards](http://www.f3nws.com/n/RHqhZG)
 
-> Posted on: Thursday, January 18, 2018 3:15:00 AM
+> Posted on: Thursday, January 18, 2018 3:30:00 AM
