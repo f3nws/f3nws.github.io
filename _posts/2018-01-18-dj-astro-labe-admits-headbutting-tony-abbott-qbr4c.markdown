@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![DJ Astro Labe admits headbutting Tony Abbott](http://www.abc.net.au/news/image/9076980-16x9-700x394.jpg)
 
-Tasmanian DJ Astro Labe pleads guilty to causing harm to a Commonwealth public official after headbutting former prime minister Tony Abbot last year.
+Tasmanian DJ Astro Labe pleads guilty to causing harm by headbutting former prime minister Tony Abbott last year as prosecutor questions remorse.
 
 
 Full story on F3News: [DJ Astro Labe admits headbutting Tony Abbott](http://www.f3nws.com/n/qbr4c)

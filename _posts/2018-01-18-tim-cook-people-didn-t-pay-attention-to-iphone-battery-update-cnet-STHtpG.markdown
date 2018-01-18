@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tim Cook: People didn't pay attention to iPhone battery update     - CNET"
-date: 2018-01-18 01:13:11Z
+date: 2018-01-18 02:23:27Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Commentary: In an interview with ABC News, Apple's CEO concedes the company coul
 
 Full story on F3News: [Tim Cook: People didn't pay attention to iPhone battery update     - CNET](http://www.f3nws.com/n/STHtpG)
 
-> Posted on: Thursday, January 18, 2018 1:13:11 AM
+> Posted on: Thursday, January 18, 2018 2:23:27 AM

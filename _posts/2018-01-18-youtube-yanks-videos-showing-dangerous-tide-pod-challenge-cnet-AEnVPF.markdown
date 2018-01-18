@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "YouTube yanks videos showing dangerous 'Tide Pod challenge'     - CNET"
-date: 2018-01-18 01:20:00Z
+date: 2018-01-18 01:24:28Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Video site is working to combat what health officials describe as a spike in tee
 
 Full story on F3News: [YouTube yanks videos showing dangerous 'Tide Pod challenge'     - CNET](http://www.f3nws.com/n/AEnVPF)
 
-> Posted on: Thursday, January 18, 2018 1:20:00 AM
+> Posted on: Thursday, January 18, 2018 1:24:28 AM
