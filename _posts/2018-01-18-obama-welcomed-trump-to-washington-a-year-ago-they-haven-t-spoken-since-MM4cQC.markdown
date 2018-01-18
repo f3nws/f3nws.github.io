@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Obama welcomed Trump to Washington a year ago. They haven't spoken since."
-date: 2018-01-18 11:00:49Z
+date: 2018-01-18 13:01:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A year since they last met, President Donald Trump and his predecessor Barack Ob
 
 Full story on F3News: [Obama welcomed Trump to Washington a year ago. They haven't spoken since.](http://www.f3nws.com/n/MM4cQC)
 
-> Posted on: Thursday, January 18, 2018 11:00:49 AM
+> Posted on: Thursday, January 18, 2018 1:01:06 PM
