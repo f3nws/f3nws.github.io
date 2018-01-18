@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Aunts of 13 captive siblings reveal decades of secrecy"
-date: 2018-01-18 05:26:00Z
+date: 2018-01-18 17:47:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ For decades, Elizabeth Flores begged to see her nieces and nephews. Even Skype w
 
 Full story on F3News: [Aunts of 13 captive siblings reveal decades of secrecy](http://www.f3nws.com/n/hjYVDD)
 
-> Posted on: Thursday, January 18, 2018 5:26:00 AM
+> Posted on: Thursday, January 18, 2018 5:47:41 PM

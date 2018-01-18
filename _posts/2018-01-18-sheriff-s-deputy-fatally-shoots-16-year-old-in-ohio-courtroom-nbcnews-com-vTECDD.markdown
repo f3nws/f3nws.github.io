@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Sheriff's deputy fatally shoots 16-year-old in Ohio courtroom - NBCNews.com](https://media4.s-nbcnews.com/j/newscms/2018_03/2296111/180117-wcmh-juvenile-courtroom-ew-653p_29257d08784c57539512b8dfcd0ad8b5.nbcnews-fp-1200-630.jpg)
 
-NBCNews.com Sheriff's deputy fatally shoots 16-year-old in Ohio courtroom NBCNews.com An Ohio sheriff's deputy fatally shot a 16-year-old boy at a court appearance Wednesday during an altercation involving the teen and family members, officials said. Joseph Haynes, 16, was struck by a single shot in a courtroom at a Franklin County ... Deputy Kills 16-Year-Old in Juvenile Court Daily Beast Deputy staffing at juvenile court under scrutiny after tragedy The Columbus Dispatch Deputy Fatally Shoots Teenager After Altercation Inside Ohio Courtroom International Business Times all 53 news articles »
+NBCNews.com Sheriff's deputy fatally shoots 16-year-old in Ohio courtroom NBCNews.com An Ohio sheriff's deputy fatally shot a 16-year-old boy at a court appearance Wednesday during an altercation involving the teen and family members, officials said. Joseph Haynes, 16, was struck by a single shot in a courtroom at a Franklin County ... One killed during Ohio courthouse shooting CNN Deputy shoots, kills 16-year-old boy during scuffle at courthouse The Columbus Dispatch 16-year-old killed by deputy in courtroom shooting New York Post Daily Beast - International Business Times all 54 news articles »
 
 
 Full story on F3News: [Sheriff's deputy fatally shoots 16-year-old in Ohio courtroom - NBCNews.com](http://www.f3nws.com/n/vTECDD)
