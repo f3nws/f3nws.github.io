@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Fact-checking President Trump's 'Fake News Awards' - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/10/27/National-Politics/Images/Botsford171024Trump21500.JPG?t=20170517)
 
-Washington Post Fact-checking President Trump's 'Fake News Awards' Washington Post The “Fake News Awards” announced on the Republican National Committee website and touted by President Trump pose a conundrum: Does it really count if the news organization admits error? Regular readers of The Fact Checker know that we do not award ... Trump gives out 'Fake News Awards' to CNN, NY Times, Wash Post Politico In The Category Of 'Fake News,' The Award Winner Is... NPR Trump announces fake news winners on Twitter, but link stops working soon after CBS News Breitbart News - Slate Magazine - Deadline - Fox News all 327 news articles »
+Washington Post Fact-checking President Trump's 'Fake News Awards' Washington Post The “Fake News Awards” announced on the Republican National Committee website and touted by President Trump pose a conundrum: Does it really count if the news organization admits error? Regular readers of The Fact Checker know that we do not award ... FOX NEWS FIRST: Countdown to government shutdown as lawmakers play blame game; Trump unveils 'Fake News ... Fox News In The Category Of 'Fake News,' The Award Winner Is... NPR Trump gives out 'Fake News Awards' to CNN, NY Times, Wash Post Politico CBS News - AOL - Slate Magazine - Deadline all 341 news articles »
 
 
 Full story on F3News: [Fact-checking President Trump's 'Fake News Awards' - Washington Post](http://www.f3nws.com/n/kTmxUJ)
