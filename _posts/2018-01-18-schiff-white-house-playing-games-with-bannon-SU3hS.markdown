@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Schiff: White House playing games with Bannon"
-date: 2018-01-18 03:58:24Z
+date: 2018-01-18 02:25:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Representative Adam Schiff talks with Rachel Maddow about the different treatmen
 
 Full story on F3News: [Schiff: White House playing games with Bannon](http://www.f3nws.com/n/SU3hS)
 
-> Posted on: Thursday, January 18, 2018 3:58:24 AM
+> Posted on: Thursday, January 18, 2018 2:25:00 AM
