@@ -5,6 +5,8 @@ date: 2018-01-19 01:54:08Z
 categories: google-news-entertaintment
 ---
 
+![Kim Kardashian Says Son Saint Is a 'Genius': 'Had to Brag For a Sec!' - PEOPLE.com](https://peopledotcom.files.wordpress.com/2017/01/sain-west.jpg?crop=0px%2C270px%2C1500px%2C1126px&resize=1200%2C630)
+
 PEOPLE.com Kim Kardashian Says Son Saint Is a 'Genius': 'Had to Brag For a Sec!' PEOPLE.com Saint West may be just a toddler but he already is shaping up to be quite the intellectual, according to his mother, Kim Kardashian West. The Keeping Up with the Kardashians reality star, 37, proudly tweeted about her son on Thursday to boast about his ... How Kim Kardashian and Kanye West Are Helping North and Saint Adjust to Baby No. 3 E! Online Kim Kardashian Reflects on Surrogacy Decision Following Birth of Daughter Entertainment Tonight Kim Kardashian's Baby Name Isn't Louis Vuitton, But That Won't Stop Fans' Speculation Bustle Hollywood Life - Complex - TMZ.com - HuffPost all 77 news articles »
 
 
