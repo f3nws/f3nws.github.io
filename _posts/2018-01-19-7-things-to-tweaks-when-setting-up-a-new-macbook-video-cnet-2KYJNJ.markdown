@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "7 things to tweaks when setting up a new MacBook video     - CNET"
-date: 2018-01-19 00:15:01Z
+date: 2018-01-19 01:29:14Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Just bought a new MacBook? Start setting it up by doing these things first.
 
 Full story on F3News: [7 things to tweaks when setting up a new MacBook video     - CNET](http://www.f3nws.com/n/2KYJNJ)
 
-> Posted on: Friday, January 19, 2018 12:15:01 AM
+> Posted on: Friday, January 19, 2018 1:29:14 AM

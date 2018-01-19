@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Car plows into crowd in Rio de Janeiro, Brazil, injuring at least 15](https://cdni.rt.com/files/2018.01/article/5a613f52fc7e93a35f8b4567.jpg)
 
-At least 15 people have been injured after a car was rammed into a crowd in Rio de Janeiro near Copacabana beach. It's unclear if the incident is a terrorist act. Read Full Article at RT.com
+An eight-month-old girl was killed when a car slammed into a crowd in Rio de Janeiro near Copacabana beach. Dozens others were injured. Authorities believe the driver had an epileptic seizure and lost control of his vehicle. Read Full Article at RT.com
 
 
 Full story on F3News: [Car plows into crowd in Rio de Janeiro, Brazil, injuring at least 15](http://www.f3nws.com/n/CZYrk)

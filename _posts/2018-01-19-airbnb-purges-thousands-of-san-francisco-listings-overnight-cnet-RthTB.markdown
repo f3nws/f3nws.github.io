@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Airbnb purges thousands of San Francisco listings overnight     - CNET"
-date: 2018-01-19 00:54:53Z
+date: 2018-01-19 01:42:00Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ As a new law goes into effect, the short-term rental site is required to deactiv
 
 Full story on F3News: [Airbnb purges thousands of San Francisco listings overnight     - CNET](http://www.f3nws.com/n/RthTB)
 
-> Posted on: Friday, January 19, 2018 12:54:53 AM
+> Posted on: Friday, January 19, 2018 1:42:00 AM
