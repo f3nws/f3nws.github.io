@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "WSJ: Trump lawyer paid porn star through private company"
-date: 2018-01-19 04:46:23Z
+date: 2018-01-19 16:23:52Z
 categories: google-news-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN WSJ: Cohen paid porn star through private LLC created just weeks before elec
 
 Full story on F3News: [WSJ: Trump lawyer paid porn star through private company](http://www.f3nws.com/n/zPMhMG)
 
-> Posted on: Friday, January 19, 2018 4:46:23 AM
+> Posted on: Friday, January 19, 2018 4:23:52 PM
