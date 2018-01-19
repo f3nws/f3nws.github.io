@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "¯\_(ツ)_/¯ Why no one knows anything"
-date: 2018-01-19 19:18:28Z
+date: 2018-01-19 19:57:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The federal government will run out of money and shut down at midnight. And, rig
 
 Full story on F3News: [¯\_(ツ)_/¯ Why no one knows anything](http://www.f3nws.com/n/QxDegC)
 
-> Posted on: Friday, January 19, 2018 7:18:28 PM
+> Posted on: Friday, January 19, 2018 7:57:17 PM
