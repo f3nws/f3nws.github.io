@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Marvel's 'Cloak & Dagger' Sneak Peek Trailer Released - Comicbook.com](http://media.comicbook.com/2018/01/cloak-dagger-logo-1076264-640x320.jpeg)
 
-Variety Marvel's 'Cloak & Dagger' Sneak Peek Trailer Released Comicbook.com Marvel has debuted an extended sneak peek look at Marvel Television and ABC Signature Studios' Cloak & Dagger. Marvel's Cloak & Dagger is the story of Tandy Bowen (Olivia Holt) and Tyrone Johnson (Aubrey Joseph) – two teenagers from very different ... 'Marvel's Cloak & Dagger': Freeform Releases Footage, Sets Premiere Date Deadline Freeform Sets Premiere Dates for 'Cloak & Dagger,' 'Bold Type' Season 2 Variety Watch the meet-cute on 'Marvel's Cloak and Dagger,' an interracial romance on Freeform USA TODAY EW.com (blog) - Screen Rant - The Outhouse - UPI.com all 28 news articles »
+EW.com Marvel's 'Cloak & Dagger' Sneak Peek Trailer Released Comicbook.com Marvel has debuted an extended sneak peek look at Marvel Television and ABC Signature Studios' Cloak & Dagger. Marvel's Cloak & Dagger is the story of Tandy Bowen (Olivia Holt) and Tyrone Johnson (Aubrey Joseph) – two teenagers from very different ... Freeform Sets Premiere Dates for 'Cloak & Dagger,' 'Bold Type' Season 2 Variety Watch the meet-cute on 'Marvel's Cloak and Dagger,' an interracial romance on Freeform USA TODAY Marvel's Cloak & Dagger Sneak Peek – Exclusively on Freeform YouTube all 30 news articles »
 
 
 Full story on F3News: [Marvel's 'Cloak & Dagger' Sneak Peek Trailer Released - Comicbook.com](http://www.f3nws.com/n/BnchzE)
