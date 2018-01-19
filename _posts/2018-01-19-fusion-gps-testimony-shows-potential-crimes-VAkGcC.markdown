@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Fusion GPS testimony shows potential crimes"
-date: 2018-01-19 03:37:24Z
+date: 2018-01-19 02:03:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow reads some of the highlights of the newly released transcript of t
 
 Full story on F3News: [Fusion GPS testimony shows potential crimes](http://www.f3nws.com/n/VAkGcC)
 
-> Posted on: Friday, January 19, 2018 3:37:24 AM
+> Posted on: Friday, January 19, 2018 2:03:00 AM
