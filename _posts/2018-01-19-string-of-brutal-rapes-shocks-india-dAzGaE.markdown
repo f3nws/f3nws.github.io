@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "String of brutal rapes shocks India"
-date: 2018-01-19 08:34:52Z
+date: 2018-01-19 08:53:09Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Five alleged rapes, mostly of minors, within five days in the northern Indian st
 
 Full story on F3News: [String of brutal rapes shocks India](http://www.f3nws.com/n/dAzGaE)
 
-> Posted on: Friday, January 19, 2018 8:34:52 AM
+> Posted on: Friday, January 19, 2018 8:53:09 AM

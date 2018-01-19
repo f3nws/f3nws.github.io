@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Fatberg' found under London"
-date: 2018-01-19 02:42:03Z
+date: 2018-01-19 09:24:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ What used to be a disgusting subterranean mass of congealed waste -- also known 
 
 Full story on F3News: ['Fatberg' found under London](http://www.f3nws.com/n/CtfNdH)
 
-> Posted on: Friday, January 19, 2018 2:42:03 AM
+> Posted on: Friday, January 19, 2018 9:24:47 AM

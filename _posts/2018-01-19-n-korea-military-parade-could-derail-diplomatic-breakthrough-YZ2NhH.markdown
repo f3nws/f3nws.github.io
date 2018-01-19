@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "N. Korea military parade could derail diplomatic breakthrough"
-date: 2018-01-19 07:54:12Z
+date: 2018-01-19 08:48:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The Winter Olympics opening ceremony may not be the only parade North Korea is p
 
 Full story on F3News: [N. Korea military parade could derail diplomatic breakthrough](http://www.f3nws.com/n/YZ2NhH)
 
-> Posted on: Friday, January 19, 2018 7:54:12 AM
+> Posted on: Friday, January 19, 2018 8:48:40 AM
