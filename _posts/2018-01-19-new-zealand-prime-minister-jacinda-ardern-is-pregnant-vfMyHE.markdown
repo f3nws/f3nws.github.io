@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Zealand Prime Minister Jacinda Ardern is pregnant"
-date: 2018-01-19 02:23:45Z
+date: 2018-01-19 03:40:16Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ New Zealand Prime Minister Jacinda Ardern announced Friday that she and her part
 
 Full story on F3News: [New Zealand Prime Minister Jacinda Ardern is pregnant](http://www.f3nws.com/n/vfMyHE)
 
-> Posted on: Friday, January 19, 2018 2:23:45 AM
+> Posted on: Friday, January 19, 2018 3:40:16 AM

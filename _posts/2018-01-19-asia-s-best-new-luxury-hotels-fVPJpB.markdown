@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Asia's best new luxury hotels"
-date: 2018-01-19 01:03:18Z
+date: 2018-01-19 02:44:01Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It seems a new hotel opens up every day in Asia, where a tourism boom is expecte
 
 Full story on F3News: [Asia's best new luxury hotels](http://www.f3nws.com/n/fVPJpB)
 
-> Posted on: Friday, January 19, 2018 1:03:18 AM
+> Posted on: Friday, January 19, 2018 2:44:01 AM
