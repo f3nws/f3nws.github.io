@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Passenger on Chicago train gets doused with chemicals, man arrested"
-date: 2018-01-19 10:45:08Z
+date: 2018-01-19 12:45:02Z
 categories: fox-news
 ---
 
@@ -10,4 +10,4 @@ A man riding a Chicago Transit Authority train late Thursday afternoon reportedl
 
 Full story on F3News: [Passenger on Chicago train gets doused with chemicals, man arrested](http://www.f3nws.com/n/XjskqG)
 
-> Posted on: Friday, January 19, 2018 10:45:08 AM
+> Posted on: Friday, January 19, 2018 12:45:02 PM

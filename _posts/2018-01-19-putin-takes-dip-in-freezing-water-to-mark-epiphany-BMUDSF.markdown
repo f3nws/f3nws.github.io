@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Putin takes dip in freezing water to mark Epiphany"
-date: 2018-01-19 11:06:42Z
+date: 2018-01-19 12:06:06Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Russian President Vladimir Putin stripped down to his bathing trunks in freezing
 
 Full story on F3News: [Putin takes dip in freezing water to mark Epiphany](http://www.f3nws.com/n/BMUDSF)
 
-> Posted on: Friday, January 19, 2018 11:06:42 AM
+> Posted on: Friday, January 19, 2018 12:06:06 PM
