@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Southern states swelter as power supply struggles - ABC Local](http://www.abc.net.au/news/image/9341520-16x9-700x394.jpg)
 
-ABC Local Southern states swelter as power supply struggles ABC Local The power supply in Victoria and South Australia is being put to the test as five of the states and territories face an extreme heatwave, with temperatures in some areas already hitting 40 degrees Celsius. The extreme weather is forcing a tight power ... Melbourne weather: Several deaths from heat, Avalon Airport hits 42 degrees Brisbane Times Cool change sweeps across southern Victoria but leaves northern regions still sweltering The New Daily Melbourne weather: Summer scorcher as mercury tipped to hit 42 degrees The Age The Guardian - Best in Australia all 12 news articles »
+ABC Local Southern states swelter as power supply struggles ABC Local The power supply in Victoria and South Australia is being put to the test as five of the states and territories face an extreme heatwave, with temperatures in some areas already hitting 40 degrees Celsius. The extreme weather is forcing a tight power ... Victoria welcomes cool change but other states face more extreme heat The New Daily Melbourne weather: Summer scorcher as mercury tipped to hit 42 degrees The Age Victoria faces another scorching day SBS Brisbane Times - The Guardian - Best in Australia all 12 news articles »
 
 
 Full story on F3News: [Southern states swelter as power supply struggles - ABC Local](http://www.f3nws.com/n/MpUBW)
