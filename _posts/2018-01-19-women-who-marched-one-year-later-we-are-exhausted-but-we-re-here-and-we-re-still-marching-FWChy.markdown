@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Women who marched, one year later: 'We are exhausted but we're here and we're still marching'"
-date: 2018-01-19 13:29:59Z
+date: 2018-01-19 18:05:29Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ One year ago, Allison Busch-Vogel of South Orange, New Jersey rented four buses 
 
 Full story on F3News: [Women who marched, one year later: 'We are exhausted but we're here and we're still marching'](http://www.f3nws.com/n/FWChy)
 
-> Posted on: Friday, January 19, 2018 1:29:59 PM
+> Posted on: Friday, January 19, 2018 6:05:29 PM
