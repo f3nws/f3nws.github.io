@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Phelps: 'Thankful I did not take my life'"
-date: 2018-01-20 02:47:56Z
+date: 2018-01-20 07:42:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Far from the familiar waters of an Olympic pool, swimmer Michael Phelps shared t
 
 Full story on F3News: [Phelps: 'Thankful I did not take my life'](http://www.f3nws.com/n/ehWRgB)
 
-> Posted on: Saturday, January 20, 2018 2:47:56 AM
+> Posted on: Saturday, January 20, 2018 7:42:19 AM
