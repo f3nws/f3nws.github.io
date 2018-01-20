@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 !['Star Wars' and 'Hunger Games' Producer Allison Shearmur Dies at 54 - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2018/01/allison_shearmur_.jpg)
 
-Hollywood Reporter 'Star Wars' and 'Hunger Games' Producer Allison Shearmur Dies at 54 Hollywood Reporter Allison Shearmur, who produced the Hunger Games films, Rogue One: A Star Wars Story and the upcoming Solo: A Star Wars Story, died unexpectedly Friday at UCLA Medical Center in Los Angeles after a battle with lung cancer. She was 54. Shearmur was an ... Allison Shearmur Dies: Tastemaking Studio Executive & Producer Was 54 Deadline Allison Shearmur, 'Rogue One,' 'Hunger Games' Producer, Dies at 54 Variety What Is Allison Shearmur's Cause Of Death? 'Hunger Games' Producer Dead At 54 International Business Times TheWrap - DigitalSpy.com - The New Indian Express - Business Standard all 17 news articles »
+New York Daily News 'Star Wars' and 'Hunger Games' Producer Allison Shearmur Dies at 54 Hollywood Reporter Allison Shearmur, who produced the Hunger Games films, Rogue One: A Star Wars Story and the upcoming Solo: A Star Wars Story, died unexpectedly Friday at UCLA Medical Center in Los Angeles after a battle with lung cancer. She was 54. Shearmur was an ... Allison Shearmur Dies: Tastemaking Studio Executive & Producer Was 54 Deadline Allison Shearmur, 'Rogue One,' 'Hunger Games' Producer, Dies at 54 Variety Ron Howard leads tributes after 'Star Wars' producer Allison Shearmur dies, aged 54 NME.com International Business Times - TheWrap - NEWS.com.au - DigitalSpy.com all 20 news articles »
 
 
 Full story on F3News: ['Star Wars' and 'Hunger Games' Producer Allison Shearmur Dies at 54 - Hollywood Reporter](http://www.f3nws.com/n/JGuHB)
