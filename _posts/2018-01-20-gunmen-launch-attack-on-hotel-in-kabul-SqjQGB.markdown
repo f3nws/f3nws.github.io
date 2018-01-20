@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunmen launch attack on hotel in Kabul"
-date: 2018-01-20 18:13:11Z
+date: 2018-01-20 19:50:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Gunmen launch attack on hotel in Kabul](http://www.f3nws.com/n/SqjQGB)
 
-> Posted on: Saturday, January 20, 2018 6:13:11 PM
+> Posted on: Saturday, January 20, 2018 7:50:34 PM
