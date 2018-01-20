@@ -7,7 +7,7 @@ categories: msnbc
 
 ![Meacham on govt. shutdown: We lack presidential leadership](https://media1.s-nbcnews.com/j/MSNBC/Components/Video/201801/n_bwms_meacham_171020_1920x1080.video_1067x600.jpg)
 
-With the beginning of Trump's second year in office starting under a government shutdown, author & presidential historian says America lacks presidential leadership right now.
+With the beginning of Trump's second year in office starting under a government shutdown, author & presidential historian Jon Meacham says America lacks presidential leadership right now.
 
 
 Full story on F3News: [Meacham on govt. shutdown: We lack presidential leadership](http://www.f3nws.com/n/ARXUWF)
