@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Facebook to favor ‘trustworthy’ news sources – Zuckerberg"
-date: 2018-01-20 01:51:44Z
+date: 2018-01-20 01:51:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Feeling the pressure from Congress to ‘fix’ his social media platform, Faceb
 
 Full story on F3News: [Facebook to favor ‘trustworthy’ news sources – Zuckerberg](http://www.f3nws.com/n/gBJFYC)
 
-> Posted on: Saturday, January 20, 2018 1:51:44 AM
+> Posted on: Saturday, January 20, 2018 1:51:00 AM
