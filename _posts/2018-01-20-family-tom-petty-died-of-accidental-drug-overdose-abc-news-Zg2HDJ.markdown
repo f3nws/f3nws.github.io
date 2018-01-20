@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Family: Tom Petty died of accidental drug overdose - ABC News](http://a.abcnews.com/images/Entertainment/tom-petty-gty-jpo-171004_16x9_992.jpg)
 
-Washington Times Family: Tom Petty died of accidental drug overdose ABC News Tom Petty died last year because of an accidental drug overdose that his family said occurred on the same day he found out his hip was broken after performing dozens of shows with a less serious injury. His wife and daughter released the results of ... Tom Petty's Daughter Insists Her Father Wasn't a Drug Addict Despite Accidental Overdose PEOPLE.com Tom Petty Died Of Accidental Overdose: Coroner WebMD Tom Petty died from an accidental drug overdose Salon Omaha World-Herald - Cinema Blend - MovieWeb - WDRB all 60 news articles »
+Salon Family: Tom Petty died of accidental drug overdose ABC News Tom Petty died last year because of an accidental drug overdose that his family said occurred on the same day he found out his hip was broken after performing dozens of shows with a less serious injury. His wife and daughter released the results of ... Tom Petty's Daughter Insists Her Father Wasn't a Drug Addict Despite Accidental Overdose PEOPLE.com Tom Petty Died Of Accidental Overdose: Coroner WebMD Tom Petty died from an accidental drug overdose Salon Omaha World-Herald - Cinema Blend - WDRB - MovieWeb all 66 news articles »
 
 
 Full story on F3News: [Family: Tom Petty died of accidental drug overdose - ABC News](http://www.f3nws.com/n/Zg2HDJ)
