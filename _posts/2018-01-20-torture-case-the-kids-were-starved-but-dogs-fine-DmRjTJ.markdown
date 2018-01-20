@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Torture case: The kids were starved, but dogs fine"
-date: 2018-01-20 01:28:23Z
+date: 2018-01-20 03:51:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ When authorities arrived Sunday night to a home in the California town of Perris
 
 Full story on F3News: [Torture case: The kids were starved, but dogs fine](http://www.f3nws.com/n/DmRjTJ)
 
-> Posted on: Saturday, January 20, 2018 1:28:23 AM
+> Posted on: Saturday, January 20, 2018 3:51:14 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "TV crew arrested smuggling fake bomb past TSA in Newark"
-date: 2018-01-20 01:14:40Z
+date: 2018-01-20 01:14:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Several television crew members were arrested after attempting to sneak a fake e
 
 Full story on F3News: [TV crew arrested smuggling fake bomb past TSA in Newark](http://www.f3nws.com/n/v4CsxD)
 
-> Posted on: Saturday, January 20, 2018 1:14:40 AM
+> Posted on: Saturday, January 20, 2018 1:14:00 AM
