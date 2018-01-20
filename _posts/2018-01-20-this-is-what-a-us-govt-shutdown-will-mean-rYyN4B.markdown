@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "This is what a US govt shutdown will mean"
-date: 2018-01-20 06:44:18Z
+date: 2018-01-20 15:36:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the final moments leading up to Friday's midnight deadline, Senate Republican
 
 Full story on F3News: [This is what a US govt shutdown will mean](http://www.f3nws.com/n/rYyN4B)
 
-> Posted on: Saturday, January 20, 2018 6:44:18 AM
+> Posted on: Saturday, January 20, 2018 3:36:10 PM
