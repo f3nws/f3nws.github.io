@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Refugees found frozen near Lebanon border"
-date: 2018-01-20 01:23:40Z
+date: 2018-01-20 21:43:11Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The bodies of 12 Syrian refugees who crossed into Lebanon were found frozen Frid
 
 Full story on F3News: [Refugees found frozen near Lebanon border](http://www.f3nws.com/n/daBkX)
 
-> Posted on: Saturday, January 20, 2018 1:23:40 AM
+> Posted on: Saturday, January 20, 2018 9:43:11 PM

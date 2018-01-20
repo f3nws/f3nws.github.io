@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "What the US government closure means for Americans"
-date: 2018-01-20 16:16:12Z
+date: 2018-01-20 21:33:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ In the final moments leading up to Friday's midnight deadline, Senate Republican
 
 Full story on F3News: [What the US government closure means for Americans](http://www.f3nws.com/n/rYyN4B)
 
-> Posted on: Saturday, January 20, 2018 4:16:12 PM
+> Posted on: Saturday, January 20, 2018 9:33:07 PM
