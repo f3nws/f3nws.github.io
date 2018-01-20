@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Man charged with murder after 22yo found shot dead in Merrylands - ABC Online"
+date: 2018-01-20 00:53:00Z
+categories: google-news-australia
+---
+
+![Man charged with murder after 22yo found shot dead in Merrylands - ABC Online](http://www.abc.net.au/news/image/9345686-16x9-700x394.jpg)
+
+ABC Online Man charged with murder after 22yo found shot dead in Merrylands ABC Online A man who allegedly fled the scene of a fatal shooting has been charged with the murder of a 22-year-old in Merrylands, west of Sydney last night. The man's body was found inside an apartment on Eddy Street by police about 9:30pm. With the assistance ... Man, 22, shot dead at Merrylands apartment complex Daily Telegraph Man, 22, dies after shooting in Merrylands The Sydney Morning Herald Sydney man charged with shooting murder The Australian Mirage News - Daily Mail all 10 news articles »
+
+
+Full story on F3News: [Man charged with murder after 22yo found shot dead in Merrylands - ABC Online](http://www.f3nws.com/n/CqfJX)
+
+> Posted on: Saturday, January 20, 2018 12:53:00 AM
