@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump and Schumer came close to a deal. Then it fell apart"
-date: 2018-01-20 06:53:51Z
+date: 2018-01-20 13:28:08Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ After his morning television shows had ended and as the deadline to fund the gov
 
 Full story on F3News: [Trump and Schumer came close to a deal. Then it fell apart](http://www.f3nws.com/n/ZXThaH)
 
-> Posted on: Saturday, January 20, 2018 6:53:51 AM
+> Posted on: Saturday, January 20, 2018 1:28:08 PM
