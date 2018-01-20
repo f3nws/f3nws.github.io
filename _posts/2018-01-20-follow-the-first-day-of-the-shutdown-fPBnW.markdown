@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Follow the first day of the shutdown"
-date: 2018-01-20 14:13:00Z
+date: 2018-01-20 17:19:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Follow the first day of the shutdown](http://www.f3nws.com/n/fPBnW)
 
-> Posted on: Saturday, January 20, 2018 2:13:00 PM
+> Posted on: Saturday, January 20, 2018 5:19:42 PM
