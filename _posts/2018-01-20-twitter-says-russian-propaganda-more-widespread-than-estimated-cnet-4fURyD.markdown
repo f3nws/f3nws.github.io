@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Twitter says Russian propaganda more widespread than estimated     - CNET"
-date: 2018-01-20 00:11:29Z
+date: 2018-01-20 00:32:35Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ The social network will email more than 600,000 users in the US who saw tweets f
 
 Full story on F3News: [Twitter says Russian propaganda more widespread than estimated     - CNET](http://www.f3nws.com/n/4fURyD)
 
-> Posted on: Saturday, January 20, 2018 12:11:29 AM
+> Posted on: Saturday, January 20, 2018 12:32:35 AM
