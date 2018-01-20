@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "NSA surveillance programs live on, in case you hadn't noticed     - CNET"
-date: 2018-01-20 00:48:49Z
+date: 2018-01-20 01:12:58Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Lawmakers renew spy programs that collect massive amounts of global communicatio
 
 Full story on F3News: [NSA surveillance programs live on, in case you hadn't noticed     - CNET](http://www.f3nws.com/n/SnGnS)
 
-> Posted on: Saturday, January 20, 2018 12:48:49 AM
+> Posted on: Saturday, January 20, 2018 1:12:58 AM
