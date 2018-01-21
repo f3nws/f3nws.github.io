@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kabul Intercontinental Hotel siege leaves more than 40 dead, Afghanistan official says"
-date: 2018-01-21 15:20:00Z
+date: 2018-01-21 16:00:00Z
 categories: fox-news
 ---
 
@@ -12,4 +12,4 @@ More than 40 people were killed after Taliban gunmen stormed the Intercontinenta
 
 Full story on F3News: [Kabul Intercontinental Hotel siege leaves more than 40 dead, Afghanistan official says](http://www.f3nws.com/n/xDs3vE)
 
-> Posted on: Sunday, January 21, 2018 3:20:00 PM
+> Posted on: Sunday, January 21, 2018 4:00:00 PM

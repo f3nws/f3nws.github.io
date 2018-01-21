@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sanders: Trump's new ad 'is really sad'"
-date: 2018-01-21 16:27:44Z
+date: 2018-01-21 19:12:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Bernie Sanders denounced a web ad recently put out by President Donald Trum
 
 Full story on F3News: [Sanders: Trump's new ad 'is really sad'](http://www.f3nws.com/n/ucsZPH)
 
-> Posted on: Sunday, January 21, 2018 4:27:44 PM
+> Posted on: Sunday, January 21, 2018 7:12:47 PM

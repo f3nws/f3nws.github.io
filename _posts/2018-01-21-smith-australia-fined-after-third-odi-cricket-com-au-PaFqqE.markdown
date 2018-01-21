@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Smith, Australia fined after third ODI - cricket.com.au](https://www.cricket.com.au/-/media/News/2018/01/22Smith-fined.ashx)
 
-cricket.com.au Smith, Australia fined after third ODI cricket.com.au Steve Smith will part with close to half his match fee after the International Cricket Council deemed Australia to have committed an over-rate offence on Sunday. Match referee Ranjan Madugalle imposed the fines after finding that Australia had not ... Steve Smith calls for change to video rulings for catches The Sydney Morning Herald Australia v England ODI: Jos Buttler leads tourists to series win The Australian Australia v England: Hosts crash to ODI series defeat at SCG after England clinches 16-run win ABC Online Daily Telegraph - SBS - BBC Sport - The Roar all 147 news articles »
+cricket.com.au Smith, Australia fined after third ODI cricket.com.au Steve Smith will part with close to half his match fee after the International Cricket Council deemed Australia to have committed an over-rate offence on Sunday. Match referee Ranjan Madugalle imposed the fines after finding that Australia had not ... Skipper Smith denies ball-tampering claims SBS Cricket: Buttler serves up series success for England against Australia Yahoo7 News Steve Smith denies ball-tampering after Australia captain is seen wiping lip The Guardian The Sydney Morning Herald - Irish Times - The Times - The Australian all 183 news articles »
 
 
 Full story on F3News: [Smith, Australia fined after third ODI - cricket.com.au](http://www.f3nws.com/n/PaFqqE)
