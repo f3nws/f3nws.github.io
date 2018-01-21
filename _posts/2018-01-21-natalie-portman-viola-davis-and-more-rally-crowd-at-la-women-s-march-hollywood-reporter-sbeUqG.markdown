@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Natalie Portman, Viola Davis and More Rally Crowd at LA Women's March - Hollywood Reporter](https://cdn1.thr.com/sites/default/files/2018/01/natalie.jpg)
 
-Hollywood Reporter Natalie Portman, Viola Davis and More Rally Crowd at LA Women's March Hollywood Reporter Scarlett Johansson, Constance Wu, Olivia Wilde, Ted Danson and many others also spoke at the event. Surrounded by chants of “Hey, hey, ho, ho, Donald Trump has got to go” and signs declaring “Girls Just Want to Have Fun-damental Rights” and “F—k ... Natalie Portman, Alfre Woodard, Olivia Munn and more bring Time's Up fire to Women's March in LA Los Angeles Times Viola Davis, Scarlett Johansson, Others Rally Thousands at Los Angeles Women's March Variety 2018 Women's March Latest News, Photos, and Videos Just Jared ABC News - Minneapolis Star Tribune - Boston Herald - Hollywood Life all 954 news articles »
+Hollywood Reporter Natalie Portman, Viola Davis and More Rally Crowd at LA Women's March Hollywood Reporter Scarlett Johansson, Constance Wu, Olivia Wilde, Ted Danson and many others also spoke at the event. Surrounded by chants of “Hey, hey, ho, ho, Donald Trump has got to go” and signs declaring “Girls Just Want to Have Fun-damental Rights” and “F—k ... Natalie Portman, Alfre Woodard, Olivia Munn and more bring Time's Up fire to Women's March in LA Los Angeles Times Natalie Portman, at 13, experienced 'sexual terrorism' CNN Natalie Portman opens up about experiencing 'sexual terrorism' at age 13 ABC News Us Weekly - Boston Herald - Hollywood Life - Austin American-Statesman all 919 news articles »
 
 
 Full story on F3News: [Natalie Portman, Viola Davis and More Rally Crowd at LA Women's March - Hollywood Reporter](http://www.f3nws.com/n/sbeUqG)
