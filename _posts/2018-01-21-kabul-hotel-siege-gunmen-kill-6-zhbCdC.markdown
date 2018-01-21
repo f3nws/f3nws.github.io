@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kabul hotel siege: Gunmen kill 6"
-date: 2018-01-21 07:15:29Z
+date: 2018-01-21 08:22:53Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Gunmen killed six people during a 12-hour siege at the Intercontinental Hotel in
 
 Full story on F3News: [Kabul hotel siege: Gunmen kill 6](http://www.f3nws.com/n/zhbCdC)
 
-> Posted on: Sunday, January 21, 2018 7:15:29 AM
+> Posted on: Sunday, January 21, 2018 8:22:53 AM

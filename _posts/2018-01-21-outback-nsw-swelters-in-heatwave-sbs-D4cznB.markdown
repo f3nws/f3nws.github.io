@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Outback NSW swelters in heatwave - SBS](https://sl.sbs.com.au/public/image/file/a5881514-cb46-4b40-8ef3-4ef1d6c0dd23/crop/16x9)
 
-SBS Outback NSW swelters in heatwave SBS It seems there's no end in sight for NSW's heatwave, with parts of Sydney expected to reach 40C. (AAP). NSW has experienced hot temperatures over the weekend with parts of the outback reaching above 45C but the severe heatwave conditions are set to ... No relief from heat in sight for NSW Daily Mail NSW set to sizzle over the weekend The West Australian all 7 news articles »
+SBS Outback NSW swelters in heatwave SBS It seems there's no end in sight for NSW's heatwave, with parts of Sydney expected to reach 40C. (AAP). NSW has experienced hot temperatures over the weekend with parts of the outback reaching above 45C but the severe heatwave conditions are set to ... and more »
 
 
 Full story on F3News: [Outback NSW swelters in heatwave - SBS](http://www.f3nws.com/n/D4cznB)
