@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Trump asks Republicans to change Senate rules as government closure enters second day"
-date: 2018-01-21 19:31:53Z
+date: 2018-01-21 20:39:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Trump asks Republicans to change Senate rules as government closure enters second day](http://www.f3nws.com/n/SSJdW)
 
-> Posted on: Sunday, January 21, 2018 7:31:53 PM
+> Posted on: Sunday, January 21, 2018 8:39:40 PM
