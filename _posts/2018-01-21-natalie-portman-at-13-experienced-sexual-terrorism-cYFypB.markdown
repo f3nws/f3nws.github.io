@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Natalie Portman, at 13, experienced 'sexual terrorism'"
-date: 2018-01-21 01:32:55Z
+date: 2018-01-21 19:23:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Natalie Portman said experiencing "sexual terrorism" at the age of 13 made her f
 
 Full story on F3News: [Natalie Portman, at 13, experienced 'sexual terrorism'](http://www.f3nws.com/n/cYFypB)
 
-> Posted on: Sunday, January 21, 2018 1:32:55 AM
+> Posted on: Sunday, January 21, 2018 7:23:17 PM

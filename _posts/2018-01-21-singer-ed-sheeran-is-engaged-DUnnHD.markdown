@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Singer Ed Sheeran is engaged"
-date: 2018-01-21 08:03:39Z
+date: 2018-01-21 19:20:36Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Countless newlyweds have chosen Ed Sheeran's ballad, "Thinking Out Loud," to pla
 
 Full story on F3News: [Singer Ed Sheeran is engaged](http://www.f3nws.com/n/DUnnHD)
 
-> Posted on: Sunday, January 21, 2018 8:03:39 AM
+> Posted on: Sunday, January 21, 2018 7:20:36 PM
