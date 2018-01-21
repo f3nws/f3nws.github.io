@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkey launches ground operation in Syria's Afrin region"
-date: 2018-01-21 14:55:48Z
+date: 2018-01-21 15:48:21Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Turkey launched a ground operation across the border into northern Syria on Sund
 
 Full story on F3News: [Turkey launches ground operation in Syria's Afrin region](http://www.f3nws.com/n/j3pgjF)
 
-> Posted on: Sunday, January 21, 2018 2:55:48 PM
+> Posted on: Sunday, January 21, 2018 3:48:21 PM
