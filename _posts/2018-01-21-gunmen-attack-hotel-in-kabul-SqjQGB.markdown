@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Gunmen attack hotel in Kabul"
-date: 2018-01-21 01:16:04Z
+date: 2018-01-21 04:43:37Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ CNN Gunmen launch siege at Intercontinental Hotel in Kabul CNN Kabul, Afghanista
 
 Full story on F3News: [Gunmen attack hotel in Kabul](http://www.f3nws.com/n/SqjQGB)
 
-> Posted on: Sunday, January 21, 2018 1:16:04 AM
+> Posted on: Sunday, January 21, 2018 4:43:37 AM
