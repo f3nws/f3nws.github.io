@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Ground phase of Turkish attack on Afrin will start on Sunday – PM"
-date: 2018-01-21 02:26:03Z
+date: 2018-01-21 02:26:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Following an intense shelling and bombing attack on Kurdish positions in Afrin S
 
 Full story on F3News: [Ground phase of Turkish attack on Afrin will start on Sunday – PM](http://www.f3nws.com/n/ZZne4H)
 
-> Posted on: Sunday, January 21, 2018 2:26:03 AM
+> Posted on: Sunday, January 21, 2018 2:26:00 AM

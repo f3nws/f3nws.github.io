@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Below the belt: 6 most personal attacks on Trump during his first year in White House"
-date: 2018-01-21 02:03:15Z
+date: 2018-01-21 02:03:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Attacks on Donald Trump have been fast and furious, but some appeared to be so c
 
 Full story on F3News: [Below the belt: 6 most personal attacks on Trump during his first year in White House](http://www.f3nws.com/n/4eDQRB)
 
-> Posted on: Sunday, January 21, 2018 2:03:15 AM
+> Posted on: Sunday, January 21, 2018 2:03:00 AM
