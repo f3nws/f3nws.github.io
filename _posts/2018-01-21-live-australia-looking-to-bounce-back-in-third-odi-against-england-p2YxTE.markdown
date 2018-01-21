@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Live: Australia looking to bounce back in third ODI against England](http://www.abc.net.au/news/image/9344144-16x9-700x394.jpg)
 
-Australia is desperately chasing victory in the third one-day international against England at the SCG, as the world champions look to stay alive in the five-match series. Follow the live scores, stats and commentary.
+England is batting first in the third one-day international at the SCG, with Australia needing victory to stay alive in the five-match series. Follow the live scores, stats and commentary.
 
 
 Full story on F3News: [Live: Australia looking to bounce back in third ODI against England](http://www.f3nws.com/n/p2YxTE)
