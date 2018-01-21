@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish jets hit Kurdish positions in northern Syria"
-date: 2018-01-21 00:57:57Z
+date: 2018-01-21 10:02:10Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Turkish jets struck Kurdish militia observation posts Saturday in the Syrian tow
 
 Full story on F3News: [Turkish jets hit Kurdish positions in northern Syria](http://www.f3nws.com/n/dTYXyG)
 
-> Posted on: Sunday, January 21, 2018 12:57:57 AM
+> Posted on: Sunday, January 21, 2018 10:02:10 AM

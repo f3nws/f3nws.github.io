@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Top Democrat: Trump talks like 'negotiating with Jell-O'"
-date: 2018-01-21 02:41:51Z
+date: 2018-01-21 10:38:23Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Chuck Schumer jabbed President Donald Trump on Saturday in his most sensiti
 
 Full story on F3News: [Top Democrat: Trump talks like 'negotiating with Jell-O'](http://www.f3nws.com/n/bSUWxD)
 
-> Posted on: Sunday, January 21, 2018 2:41:51 AM
+> Posted on: Sunday, January 21, 2018 10:38:23 AM
