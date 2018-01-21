@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Congressional leaders refuse to budge on shutdown's first day, but negotiations continue - Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2018/01/20/Others/Images/2018-01-20/ShutGov07.jpg?t=20170517)
 
-Washington Post Congressional leaders refuse to budge on shutdown's first day, but negotiations continue Washington Post Congressional leaders in both parties refused to budge publicly from their political corners Saturday on the first day of the government shutdown, avoiding direct negotiations and bitterly blaming each other for the impasse in speeches. President Trump ... After Vowing to Fix Washington, Trump Is Mired in a Familiar Crisis New York Times Acrimony deepens after government shutdown's first day CNN Schumer, White House Respond To Shutdown By Pointing Fingers NPR Bloomberg - The Hill - Politico - Fox News all 5,177 news articles »
+Washington Post Congressional leaders refuse to budge on shutdown's first day, but negotiations continue Washington Post Congressional leaders in both parties refused to budge publicly from their political corners Saturday on the first day of the government shutdown, avoiding direct negotiations and bitterly blaming each other for the impasse in speeches. President Trump ... Bitter Bickering Muddies the Path to Ending the Government Shutdown New York Times McConnell Threatens Early Monday Morning Vote: Shutdown Update Bloomberg Nerves fray as shutdown talks at impasse The Hill Politico - ABC News - Fox News - CNN all 5,452 news articles »
 
 
 Full story on F3News: [Congressional leaders refuse to budge on shutdown's first day, but negotiations continue - Washington Post](http://www.f3nws.com/n/ZgzpsB)
