@@ -5,6 +5,8 @@ date: 2018-01-21 00:09:13Z
 categories: google-news-entertaintment
 ---
 
+![Peter Dinklage on Why It's 'the Perfect Time' to End 'Game of Thrones' - Variety](https://pmcvariety.files.wordpress.com/2018/01/peter-dinklage.jpg?w=700&h=393&crop=1)
+
 Variety Peter Dinklage on Why It's 'the Perfect Time' to End 'Game of Thrones' Variety “Game of Thrones” star Peter Dinklage thinks the show is coming to an end at the perfect time. “It's time,” the actor said at Variety's Sundance Film Festival studio. “Storywise, not just for all our lives. It's the perfect time to end it. Sometimes ... Peter Dinklage is happy to see Game of Thrones end Last Night On 'Game of Thrones' Season 8 Wiki News: Duration, Episodes and Release Date Reporter Times all 13 news articles »
 
 
