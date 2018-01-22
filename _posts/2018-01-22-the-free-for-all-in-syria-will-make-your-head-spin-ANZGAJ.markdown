@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The free-for-all in Syria will make your head spin"
-date: 2018-01-22 14:56:19Z
+date: 2018-01-22 17:26:19Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The free-for-all in Syria will make your head spin](http://www.f3nws.com/n/ANZGAJ)
 
-> Posted on: Monday, January 22, 2018 2:56:19 PM
+> Posted on: Monday, January 22, 2018 5:26:19 PM
