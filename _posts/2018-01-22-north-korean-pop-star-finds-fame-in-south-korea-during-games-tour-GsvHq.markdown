@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "North Korean pop star finds fame in South Korea during Games tour"
-date: 2018-01-22 09:33:16Z
+date: 2018-01-22 12:48:30Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The lead singer of Kim Jong Un's favorite girl band toured Seoul Monday to scout
 
 Full story on F3News: [North Korean pop star finds fame in South Korea during Games tour](http://www.f3nws.com/n/GsvHq)
 
-> Posted on: Monday, January 22, 2018 9:33:16 AM
+> Posted on: Monday, January 22, 2018 12:48:30 PM
