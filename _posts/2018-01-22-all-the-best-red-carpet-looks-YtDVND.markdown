@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "All the best red carpet looks"
-date: 2018-01-22 03:49:52Z
+date: 2018-01-22 05:01:56Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [All the best red carpet looks](http://www.f3nws.com/n/YtDVND)
 
-> Posted on: Monday, January 22, 2018 3:49:52 AM
+> Posted on: Monday, January 22, 2018 5:01:56 AM

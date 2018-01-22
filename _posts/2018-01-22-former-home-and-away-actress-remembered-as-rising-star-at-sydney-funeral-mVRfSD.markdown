@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Former Home and Away actress remembered as 'rising star' at Sydney funeral](http://www.abc.net.au/news/image/9336402-16x9-700x394.jpg)
 
-A week after the funeral of her mother, father and younger sister, friends and family gather to remember 29-year-old Jessica Falkholt who died last week from injuries she suffered in a fiery Boxing Day car crash.
+Twelve days after the funeral of her mother, father and younger sister, friends and family gather to remember 29-year-old Jessica Falkholt who died last week from injuries she suffered in a fiery Boxing Day car crash.
 
 
 Full story on F3News: [Former Home and Away actress remembered as 'rising star' at Sydney funeral](http://www.f3nws.com/n/mVRfSD)

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nicole Kidman's inspiring speech: Women over 40 are 'powerful and viable'"
-date: 2018-01-22 04:39:33Z
+date: 2018-01-22 05:05:42Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ A flu-stricken Nicole Kidman had tears in her eyes as she accepted her first Scr
 
 Full story on F3News: [Nicole Kidman's inspiring speech: Women over 40 are 'powerful and viable'](http://www.f3nws.com/n/kzGApE)
 
-> Posted on: Monday, January 22, 2018 4:39:33 AM
+> Posted on: Monday, January 22, 2018 5:05:42 AM
