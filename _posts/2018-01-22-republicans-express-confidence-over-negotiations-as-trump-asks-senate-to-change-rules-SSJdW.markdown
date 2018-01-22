@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Republicans express confidence over negotiations as Trump asks Senate to change rules"
-date: 2018-01-22 00:46:25Z
+date: 2018-01-22 02:36:54Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Republicans express confidence over negotiations as Trump asks Senate to change rules](http://www.f3nws.com/n/SSJdW)
 
-> Posted on: Monday, January 22, 2018 12:46:25 AM
+> Posted on: Monday, January 22, 2018 2:36:54 AM
