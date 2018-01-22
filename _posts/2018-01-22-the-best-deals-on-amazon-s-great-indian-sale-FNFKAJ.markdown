@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The best deals on Amazon's Great Indian Sale"
-date: 2018-01-22 06:18:22Z
+date: 2018-01-22 10:53:22Z
 categories: techradar
 ---
 
@@ -12,4 +12,4 @@ Amazon's Great Indian Sale has become a yearly affair now, and here's a list of 
 
 Full story on F3News: [The best deals on Amazon's Great Indian Sale](http://www.f3nws.com/n/FNFKAJ)
 
-> Posted on: Monday, January 22, 2018 6:18:22 AM
+> Posted on: Monday, January 22, 2018 10:53:22 AM

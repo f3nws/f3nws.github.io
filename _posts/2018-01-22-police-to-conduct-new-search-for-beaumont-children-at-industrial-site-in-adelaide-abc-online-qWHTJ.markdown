@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Police to conduct new search for Beaumont children at industrial site in Adelaide - ABC Online](http://www.abc.net.au/news/image/2533746-16x9-700x394.jpg)
 
-ABC Online Police to conduct new search for Beaumont children at industrial site in Adelaide ABC Online A new police search will be made for the Beaumont children at an Adelaide factory site once owned by a man police have investigated as part of the case. Key points: Police will excavate a new area of the Castalloy factory in search of the Beaumont ... New lead in Beaumont case 52 years after disappearance 9news.com.au New dig site in relation to missing Beaumont children to be excavated within weeks NEWS.com.au New lead in SA's Beaumont cold case SBS The Australian - PerthNow - Triple M - Yahoo7 News all 12 news articles »
+ABC Online Police to conduct new search for Beaumont children at industrial site in Adelaide ABC Online A new police search will be made for the Beaumont children at an Adelaide factory site once owned by a man police have investigated as part of the case. Key points: Police will excavate a new area of the Castalloy factory in search of the Beaumont ... New lead in Beaumont case 52 years after disappearance 9news.com.au New dig site in relation to missing Beaumont children to be excavated within weeks NEWS.com.au Beaumont children: Harry Phipps named as person of interest as investigation uncovers possible burial ground PerthNow The Australian - SBS - Triple M - Coventry Telegraph all 13 news articles »
 
 
 Full story on F3News: [Police to conduct new search for Beaumont children at industrial site in Adelaide - ABC Online](http://www.f3nws.com/n/qWHTJ)

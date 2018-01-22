@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![16 people injured after train smashes into barricade at Richmond station - 9news.com.au](http://prod.static9.net.au/_/media/2018/01/22/14/16/traincrashfeed3.jpg)
 
-9news.com.au 16 people injured after train smashes into barricade at Richmond station 9news.com.au Chaotic scenes have been captured at Richmond station in Sydney's west after passengers were flung from their seats when a train crashed into a barricade this morning. Sixteen people were injured in the accident, including three Sydney Trains staff ... 'Chaotic': Multiple injuries as train crashes in northwest Sydney SBS Sydney train smashes into buffer stop at the end of the line. But what is a buffer stop? The Sydney Morning Herald Train hits barricade at Richmond, passengers injured NEWS.com.au Yahoo7 News - The New Daily - Daily Mail - Hawkesbury Gazette all 90 news articles »
+9news.com.au 16 people injured after train smashes into barricade at Richmond station 9news.com.au Chaotic scenes have been captured at Richmond station in Sydney's west after passengers were flung from their seats when a train crashed into a barricade this morning. Sixteen people were injured in the accident, including three Sydney Trains staff ... Sydney train drivers 'still miles away' from resolving pay dispute The Sydney Morning Herald Train hits barricade at Richmond, passengers injured NEWS.com.au CCTV shows train speeding into Sydney station moments before crash Yahoo7 News PerthNow - Hawkesbury Gazette - Sky News - The Australian all 91 news articles »
 
 
 Full story on F3News: [16 people injured after train smashes into barricade at Richmond station - 9news.com.au](http://www.f3nws.com/n/EpdXnH)
