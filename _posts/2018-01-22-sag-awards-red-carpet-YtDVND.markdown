@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SAG awards red carpet"
-date: 2018-01-22 00:42:18Z
+date: 2018-01-22 01:24:44Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: [SAG awards red carpet](http://www.f3nws.com/n/YtDVND)
 
-> Posted on: Monday, January 22, 2018 12:42:18 AM
+> Posted on: Monday, January 22, 2018 1:24:44 AM
