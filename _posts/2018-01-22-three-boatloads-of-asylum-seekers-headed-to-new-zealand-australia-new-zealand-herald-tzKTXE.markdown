@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Three boatloads of asylum seekers headed to New Zealand: Australia - New Zealand Herald](http://media.nzherald.co.nz/webcontent/image/jpg/201718/matilda_s_graduation_1024x768.jpg)
 
-Newshub Three boatloads of asylum seekers headed to New Zealand: Australia New Zealand Herald Sri Lankan asylum seekers hold signs and plead for assistance as they seek asylum to New Zealand in 2011. Photo / Getty Images. NZ Herald. Share via email Share on Facebook Share on Twitter Show more Bookmark this article. Share on Facebook facebook ... NZ sold as a backdoor into Australia by people smugglers Newstalk ZB all 6 news articles »
+New Zealand Herald Three boatloads of asylum seekers headed to New Zealand: Australia New Zealand Herald The Labour-led Government's offer to take 150 asylum seekers is being blamed for an escalation in people-smuggling operations with New Zealand being marketed as a "back door" into Australia. The Australian is reporting fears the latest Manus Island ... and more »
 
 
 Full story on F3News: [Three boatloads of asylum seekers headed to New Zealand: Australia - New Zealand Herald](http://www.f3nws.com/n/tzKTXE)
