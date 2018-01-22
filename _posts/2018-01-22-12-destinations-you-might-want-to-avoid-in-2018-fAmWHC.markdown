@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "12 destinations you might want to avoid in 2018"
-date: 2018-01-22 10:33:38Z
+date: 2018-01-22 14:52:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tourism backlash has been in full affect over the last 12 months, with several d
 
 Full story on F3News: [12 destinations you might want to avoid in 2018](http://www.f3nws.com/n/fAmWHC)
 
-> Posted on: Monday, January 22, 2018 10:33:38 AM
+> Posted on: Monday, January 22, 2018 2:52:05 PM

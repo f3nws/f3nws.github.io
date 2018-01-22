@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The 1% grabbed 82% of all wealth created in 2017"
-date: 2018-01-22 00:04:42Z
+date: 2018-01-22 15:42:49Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [The 1% grabbed 82% of all wealth created in 2017](http://www.f3nws.com/n/tTbfpB)
 
-> Posted on: Monday, January 22, 2018 12:04:42 AM
+> Posted on: Monday, January 22, 2018 3:42:49 PM
