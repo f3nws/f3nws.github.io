@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "SAG awards host jabs at Melania Trump"
-date: 2018-01-22 18:08:08Z
+date: 2018-01-22 21:49:08Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Kristen Bell did not hold back when she took the stage as the first-ever host of
 
 Full story on F3News: [SAG awards host jabs at Melania Trump](http://www.f3nws.com/n/fmEdkH)
 
-> Posted on: Monday, January 22, 2018 6:08:08 PM
+> Posted on: Monday, January 22, 2018 9:49:08 PM
