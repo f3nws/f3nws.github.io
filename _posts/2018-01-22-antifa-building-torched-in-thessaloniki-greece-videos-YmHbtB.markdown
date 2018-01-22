@@ -7,7 +7,7 @@ categories: rt-news
 
 ![Antifa building torched in Thessaloniki, Greece (VIDEOS)](https://cdni.rt.com/files/2018.01/article/5a651f58fc7e9349778b4567.jpg)
 
-A building occupied by left-wing Antifa activists in Thessaloniki has been torched by reported right-wing nationalists during a massive rally in the Greek port city demanding neighboring Macedonia change its name. Read Full Article at RT.com
+A building occupied by left-wing Antifa activists in Thessaloniki was torched by reported right-wing nationalists during a massive rally in the Greek port city demanding the neighboring Republic of Macedonia change its name. Read Full Article at RT.com
 
 
 Full story on F3News: [Antifa building torched in Thessaloniki, Greece (VIDEOS)](http://www.f3nws.com/n/YmHbtB)
