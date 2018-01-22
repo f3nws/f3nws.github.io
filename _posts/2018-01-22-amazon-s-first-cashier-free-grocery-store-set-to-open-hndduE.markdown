@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Amazon's first cashier-free grocery store set to open"
-date: 2018-01-22 13:25:57Z
+date: 2018-01-22 15:11:47Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Amazon's first cashier-free grocery store set to open](http://www.f3nws.com/n/hndduE)
 
-> Posted on: Monday, January 22, 2018 1:25:57 PM
+> Posted on: Monday, January 22, 2018 3:11:47 PM
