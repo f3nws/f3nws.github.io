@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'This Is Us' scores big win"
-date: 2018-01-22 04:17:32Z
+date: 2018-01-22 17:58:25Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-entertainment
 
 Full story on F3News: ['This Is Us' scores big win](http://www.f3nws.com/n/uZnDGD)
 
-> Posted on: Monday, January 22, 2018 4:17:32 AM
+> Posted on: Monday, January 22, 2018 5:58:25 PM
