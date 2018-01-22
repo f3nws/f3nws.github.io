@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tokyo stages missile drill as fears linger of North Korean attack"
-date: 2018-01-22 09:19:26Z
+date: 2018-01-22 10:20:07Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Hundreds of Tokyo residents wearing gray bibs took part in the city's first simu
 
 Full story on F3News: [Tokyo stages missile drill as fears linger of North Korean attack](http://www.f3nws.com/n/QauDgF)
 
-> Posted on: Monday, January 22, 2018 9:19:26 AM
+> Posted on: Monday, January 22, 2018 10:20:07 AM

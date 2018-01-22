@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Turkish attack in Syria brings threat of broader conflict"
-date: 2018-01-22 06:36:07Z
+date: 2018-01-22 10:09:58Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [Turkish attack in Syria brings threat of broader conflict](http://www.f3nws.com/n/BxYuNF)
 
-> Posted on: Monday, January 22, 2018 6:36:07 AM
+> Posted on: Monday, January 22, 2018 10:09:58 AM
