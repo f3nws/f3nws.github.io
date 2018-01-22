@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kristen Bell's best lines as 'first lady' of the SAG Awards"
-date: 2018-01-22 05:19:47Z
+date: 2018-01-22 07:42:56Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Kristen Bell did not hold back when she took the stage as the first-ever host of
 
 Full story on F3News: [Kristen Bell's best lines as 'first lady' of the SAG Awards](http://www.f3nws.com/n/fmEdkH)
 
-> Posted on: Monday, January 22, 2018 5:19:47 AM
+> Posted on: Monday, January 22, 2018 7:42:56 AM

@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "'Dealmaker in chief': Trump largely absent from negotiations"
-date: 2018-01-22 01:08:19Z
+date: 2018-01-22 07:32:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ President Donald Trump may be presiding over the first government shutdown ever 
 
 Full story on F3News: ['Dealmaker in chief': Trump largely absent from negotiations](http://www.f3nws.com/n/JvbmE)
 
-> Posted on: Monday, January 22, 2018 1:08:19 AM
+> Posted on: Monday, January 22, 2018 7:32:25 AM
