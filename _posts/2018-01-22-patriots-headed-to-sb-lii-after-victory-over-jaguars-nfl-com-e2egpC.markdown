@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Patriots headed to SB LII after victory over Jaguars - NFL.com](http://static.nfl.com/static/content/public/photo/2018/01/21/0ap3000000908969_thumbnail_200_150.jpg)
 
-NFL.com Patriots headed to SB LII after victory over Jaguars NFL.com Tom Brady connected with Danny Amendola on a toe-tapping touchdown late in the fourth quarter, leading New England to yet another electrifying comeback in the postseason. Here's what we learned as Brady embarks on his eighth Super Bowl appearance ... Jon Rahm wins CareerBuilder, jumps to No. 2 in world FOXSports.com The Latest: Foles stretches Eagles lead to 31-7 USA TODAY The Jaguars made 3 errors at the end of the 1st half to spoil a big lead vs. the Patriots SB Nation CBSSports.com - Boston.com - Sports Illustrated - Sporting News all 3,590 news articles »
+NFL.com Patriots headed to SB LII after victory over Jaguars NFL.com Tom Brady connected with Danny Amendola on a toe-tapping touchdown late in the fourth quarter, leading New England to yet another electrifying comeback in the postseason. Here's what we learned as Brady embarks on his eighth Super Bowl appearance ... The Latest: Celebrity Eagles fans go wild in Philadelphia USA TODAY Jaguars not alone in noticing the Patriots had just one penalty in AFC championship game Washington Post 'All Three Phases of the Game': Patriots' Emphasis on Special Teams Shows in AFC Championship Win Sports Illustrated Patriots.com - New York Times - New York Post - Boston Herald all 3,564 news articles »
 
 
 Full story on F3News: [Patriots headed to SB LII after victory over Jaguars - NFL.com](http://www.f3nws.com/n/e2egpC)

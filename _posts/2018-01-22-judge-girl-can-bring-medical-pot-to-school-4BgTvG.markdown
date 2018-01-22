@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Judge: Girl can bring medical pot to school"
-date: 2018-01-22 05:38:49Z
+date: 2018-01-22 07:03:48Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ A little girl was back in a school she loves in Schaumburg, Illinois, last week,
 
 Full story on F3News: [Judge: Girl can bring medical pot to school](http://www.f3nws.com/n/4BgTvG)
 
-> Posted on: Monday, January 22, 2018 5:38:49 AM
+> Posted on: Monday, January 22, 2018 7:03:48 AM

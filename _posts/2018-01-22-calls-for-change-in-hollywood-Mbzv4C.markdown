@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Calls for change in Hollywood"
-date: 2018-01-22 05:12:31Z
+date: 2018-01-22 07:03:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The #MeToo and Time's Up movements will remain a central focus of Hollywood's aw
 
 Full story on F3News: [Calls for change in Hollywood](http://www.f3nws.com/n/Mbzv4C)
 
-> Posted on: Monday, January 22, 2018 5:12:31 AM
+> Posted on: Monday, January 22, 2018 7:03:05 AM
