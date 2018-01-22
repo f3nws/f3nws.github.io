@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tom Brady's giant coat is heading back to the Super Bowl     - CNET"
-date: 2018-01-22 00:21:01Z
+date: 2018-01-22 02:39:26Z
 categories: cnet
 ---
 
@@ -12,4 +12,4 @@ Blake Bortles and his awesomely alliterative name had no shot against Brady and 
 
 Full story on F3News: [Tom Brady's giant coat is heading back to the Super Bowl     - CNET](http://www.f3nws.com/n/GMpWkC)
 
-> Posted on: Monday, January 22, 2018 12:21:01 AM
+> Posted on: Monday, January 22, 2018 2:39:26 AM

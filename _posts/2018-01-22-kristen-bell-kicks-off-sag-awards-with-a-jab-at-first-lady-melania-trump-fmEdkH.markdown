@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Kristen Bell kicks off SAG Awards with a jab at First Lady Melania Trump"
-date: 2018-01-22 02:36:49Z
+date: 2018-01-22 04:02:55Z
 categories: cnn-com-entertainment
 ---
 
@@ -12,4 +12,4 @@ Kristen Bell did not hold back when she took the stage as the first-ever host of
 
 Full story on F3News: [Kristen Bell kicks off SAG Awards with a jab at First Lady Melania Trump](http://www.f3nws.com/n/fmEdkH)
 
-> Posted on: Monday, January 22, 2018 2:36:49 AM
+> Posted on: Monday, January 22, 2018 4:02:55 AM

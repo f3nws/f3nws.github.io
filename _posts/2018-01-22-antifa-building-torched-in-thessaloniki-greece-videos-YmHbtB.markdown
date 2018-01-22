@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Antifa building torched in Thessaloniki, Greece (VIDEOS)"
-date: 2018-01-22 00:56:22Z
+date: 2018-01-22 00:56:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ A building occupied by left-wing Antifa activists in Thessaloniki has been torch
 
 Full story on F3News: [Antifa building torched in Thessaloniki, Greece (VIDEOS)](http://www.f3nws.com/n/YmHbtB)
 
-> Posted on: Monday, January 22, 2018 12:56:22 AM
+> Posted on: Monday, January 22, 2018 12:56:00 AM
