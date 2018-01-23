@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Iraqi Kurds ready to support ‘sacred resistance’ against Turkey if ‘allowed’"
-date: 2018-01-23 02:30:41Z
+date: 2018-01-23 02:30:00Z
 categories: rt-news
 ---
 
@@ -12,4 +12,4 @@ Iraqi Peshmerga forces are ready to assist Syrian Kurds in their “sacred resis
 
 Full story on F3News: [Iraqi Kurds ready to support ‘sacred resistance’ against Turkey if ‘allowed’](http://www.f3nws.com/n/WWJZK)
 
-> Posted on: Tuesday, January 23, 2018 2:30:41 AM
+> Posted on: Tuesday, January 23, 2018 2:30:00 AM
