@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The real Rosie the Riveter dies at 96"
-date: 2018-01-23 10:57:31Z
+date: 2018-01-23 17:26:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ The woman believed to be the "real" Rosie the Riveter died Saturday at age 96, a
 
 Full story on F3News: [The real Rosie the Riveter dies at 96](http://www.f3nws.com/n/hAUtgE)
 
-> Posted on: Tuesday, January 23, 2018 10:57:31 AM
+> Posted on: Tuesday, January 23, 2018 5:26:34 PM
