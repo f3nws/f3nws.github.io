@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Earthquake Shakes Alaska and Sends a Shudder of Alarm Along the Coast - New York Times](https://static01.nyt.com/images/2018/01/24/world/24Alaska/24Alaska-facebookJumbo-v2.jpg)
 
-New York Times Earthquake Shakes Alaska and Sends a Shudder of Alarm Along the Coast New York Times ANCHORAGE — The Alaskans, roused by a major earthquake and threatened by the specter of a tsunami, moved in the middle of the night. They shuffled into schools that had become evacuation centers. They parked their cars on higher ground at Safeway and ... Tsunami warnings, watches issued after Gulf of Alaska earthquake NBCNews.com Post-quake tsunami alerts lifted for Alaska, British Columbia, US West Coast CBS News Tsunami warnings canceled after magnitude-7.9 earthquake off Alaska CNN Washington Post - USA TODAY - WLS-TV - NPR all 668 news articles »
+New York Times Earthquake Shakes Alaska and Sends a Shudder of Alarm Along the Coast New York Times ANCHORAGE — The Alaskans, roused by a major earthquake and threatened by the specter of a tsunami, moved in the middle of the night. They shuffled into schools that had become evacuation centers. They parked their cars on higher ground at Safeway and ... Tsunami warnings, watches issued after Gulf of Alaska earthquake NBCNews.com Undersea Quake Sends Alaskans Fleeing From Feared Tsunami U.S. News & World Report 'Ring of Fire' fury strikes Alaska, Philippines, Japan Fox News USA TODAY - The Verge - WLS-TV - Vox all 960 news articles »
 
 
 Full story on F3News: [Earthquake Shakes Alaska and Sends a Shudder of Alarm Along the Coast - New York Times](http://www.f3nws.com/n/r4GPYC)
