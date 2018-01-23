@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Destinations to avoid in 2018"
-date: 2018-01-23 11:19:38Z
+date: 2018-01-23 15:22:40Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tourism backlash has been in full affect over the last 12 months, with several d
 
 Full story on F3News: [Destinations to avoid in 2018](http://www.f3nws.com/n/fAmWHC)
 
-> Posted on: Tuesday, January 23, 2018 11:19:38 AM
+> Posted on: Tuesday, January 23, 2018 3:22:40 PM
