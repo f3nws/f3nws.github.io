@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jazz legend Hugh Masekela dies"
-date: 2018-01-23 09:08:04Z
+date: 2018-01-23 10:33:22Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Legendary South African musician Hugh Masekela died on Tuesday after a long batt
 
 Full story on F3News: [Jazz legend Hugh Masekela dies](http://www.f3nws.com/n/qkSgfD)
 
-> Posted on: Tuesday, January 23, 2018 9:08:04 AM
+> Posted on: Tuesday, January 23, 2018 10:33:22 AM
