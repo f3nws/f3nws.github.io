@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Opinion: Australia Day should be January 1 — the symbolism is perfect](http://www.abc.net.au/news/image/3794872-16x9-700x394.jpg)
 
-Australia as we know it was born on a New Year's Day. Our history is so much more than the foundation of Sydney.
+Australia as we know it was born on a New Year's Day. Our history is so much more than the foundation of Sydney, writes Aron Paul.
 
 
 Full story on F3News: [Opinion: Australia Day should be January 1 — the symbolism is perfect](http://www.f3nws.com/n/CcBJ2C)
