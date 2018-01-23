@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Tsunami warning in effect after 8.2-magnitude quake off Alaska coast"
-date: 2018-01-23 10:38:51Z
+date: 2018-01-23 11:30:34Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ An 8.2-magnitude earthquake has been detected about 175 miles southeast of Kodia
 
 Full story on F3News: [Tsunami warning in effect after 8.2-magnitude quake off Alaska coast](http://www.f3nws.com/n/GCPZc)
 
-> Posted on: Tuesday, January 23, 2018 10:38:51 AM
+> Posted on: Tuesday, January 23, 2018 11:30:34 AM

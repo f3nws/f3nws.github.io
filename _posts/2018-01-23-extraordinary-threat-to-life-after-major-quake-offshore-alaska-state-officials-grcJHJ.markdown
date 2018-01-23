@@ -7,7 +7,7 @@ categories: rt-daily-news
 
 ![‘Extraordinary threat to life’ after major quake offshore Alaska - state officials](https://cdni.rt.com/files/static.en/article/breaking.jpg)
 
-A tsunami warning has been issued for Alaska, with officials warning there is an “extraordinary threat to life or property” following the 7.9 magnitude earthquake. Tsunami watch alerts have been issued in California and Hawaii. Read Full Article at RT.com
+A tsunami warning has been issued for Alaska, with officials warning there is an “extraordinary threat to life or property” following the 7.9 magnitude earthquake. Read Full Article at RT.com
 
 
 Full story on F3News: [‘Extraordinary threat to life’ after major quake offshore Alaska - state officials](http://www.f3nws.com/n/grcJHJ)

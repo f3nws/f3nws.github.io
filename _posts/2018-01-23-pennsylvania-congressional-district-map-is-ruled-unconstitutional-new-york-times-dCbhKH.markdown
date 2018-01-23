@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Pennsylvania Congressional District Map Is Ruled Unconstitutional - New York Times](https://static01.nyt.com/images/2017/12/30/us/30pennsylvania1/30pennsylvania1-facebookJumbo.jpg)
 
-New York Times Pennsylvania Congressional District Map Is Ruled Unconstitutional New York Times WASHINGTON — Pennsylvania's congressional district map is a partisan gerrymander that “clearly, plainly and palpably” violates the state's Constitution, the State Supreme Court said on Monday, adding to a string of court decisions striking down ... Pennsylvania court orders new congressional map due to gerrymandering Reuters Pennsylvania Court Tosses Voting Maps U.S. News & World Report Pennsylvania Supreme Court orders state's congressional map redrawn ABC News NBCNews.com - Vox - New York Magazine - Allentown Morning Call all 145 news articles »
+New York Times Pennsylvania Congressional District Map Is Ruled Unconstitutional New York Times WASHINGTON — Pennsylvania's congressional district map is a partisan gerrymander that “clearly, plainly and palpably” violates the state's Constitution, the State Supreme Court said on Monday, adding to a string of court decisions striking down ... Dems poised to gain seats after court throws out Pa. congressional map Politico Pennsylvania court orders new congressional map due to gerrymandering Reuters Pennsylvania Supreme Court orders state's congressional map redrawn ABC News NPR - Los Angeles Times - Bloomberg - Pittsburgh Post-Gazette all 147 news articles »
 
 
 Full story on F3News: [Pennsylvania Congressional District Map Is Ruled Unconstitutional - New York Times](http://www.f3nws.com/n/dCbhKH)
