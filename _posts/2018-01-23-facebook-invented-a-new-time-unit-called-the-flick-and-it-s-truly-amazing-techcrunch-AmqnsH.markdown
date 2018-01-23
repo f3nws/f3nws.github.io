@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Facebook invented a new time unit called the 'flick' and it's truly amazing - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2018/01/mathlady.jpg)
 
-TechStartups.com Facebook invented a new time unit called the 'flick' and it's truly amazing TechCrunch I was all set to dislike the “flick,” a time unit just recently invented by Facebook (technically the Oculus team), because I thought it was going to be something worthless like “the average time someone looks at a post.” In fact it's a very clever way ... Facebook seeks to redefine time with 'flicks' CNET Facebook engineer invents new unit of time, but loses his job before it gets approved CNBC Facebook invented a new unit of time Business Insider The Verge - ScienceAlert - TechStartups.com (blog) - SlashGear all 9 news articles »
+TechCrunch Facebook invented a new time unit called the 'flick' and it's truly amazing TechCrunch I was all set to dislike the “flick,” a time unit just recently invented by Facebook (technically the Oculus team), because I thought it was going to be something worthless like “the average time someone looks at a post.” In fact it's a very clever way ... Facebook seeks to redefine time with 'flicks' CNET Facebook engineer invents new unit of time, but loses his job before it gets approved CNBC Facebook announces that it has invented a new unit of time The Verge ScienceAlert - TechStartups.com (blog) - SlashGear - Fossbytes all 11 news articles »
 
 
 Full story on F3News: [Facebook invented a new time unit called the 'flick' and it's truly amazing - TechCrunch](http://www.f3nws.com/n/AmqnsH)

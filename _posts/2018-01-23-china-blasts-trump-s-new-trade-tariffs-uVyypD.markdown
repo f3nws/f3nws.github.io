@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "China blasts Trump's new trade tariffs"
-date: 2018-01-23 04:59:34Z
+date: 2018-01-23 06:49:25Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [China blasts Trump's new trade tariffs](http://www.f3nws.com/n/uVyypD)
 
-> Posted on: Tuesday, January 23, 2018 4:59:34 AM
+> Posted on: Tuesday, January 23, 2018 6:49:25 AM

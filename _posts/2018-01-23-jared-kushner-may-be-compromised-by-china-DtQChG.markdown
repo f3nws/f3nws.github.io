@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Jared Kushner may be compromised by China"
-date: 2018-01-23 04:47:13Z
+date: 2018-01-23 02:23:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Rachel Maddow looks at a new report in the New Yorker about U.S. intelligence co
 
 Full story on F3News: [Jared Kushner may be compromised by China](http://www.f3nws.com/n/DtQChG)
 
-> Posted on: Tuesday, January 23, 2018 4:47:13 AM
+> Posted on: Tuesday, January 23, 2018 2:23:00 AM

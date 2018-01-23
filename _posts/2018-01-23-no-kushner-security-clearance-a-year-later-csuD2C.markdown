@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "No Kushner security clearance a year later"
-date: 2018-01-23 04:37:12Z
+date: 2018-01-23 02:41:00Z
 categories: msnbc
 ---
 
@@ -12,4 +12,4 @@ Evan Osnos, staff writer for the New Yorker, talks with Rachel Maddow about Jare
 
 Full story on F3News: [No Kushner security clearance a year later](http://www.f3nws.com/n/csuD2C)
 
-> Posted on: Tuesday, January 23, 2018 4:37:12 AM
+> Posted on: Tuesday, January 23, 2018 2:41:00 AM

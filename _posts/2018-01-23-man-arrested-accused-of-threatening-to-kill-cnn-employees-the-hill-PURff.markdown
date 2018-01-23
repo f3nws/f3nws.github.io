@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Man arrested, accused of threatening to kill CNN employees - The Hill](http://thehill.com/sites/default/files/cnn_062717getty_lead.jpg)
 
-The Hill Man arrested, accused of threatening to kill CNN employees The Hill A Michigan man was arrested after allegedly threatening to shoot and kill CNN employees, WGCL-TV reported Monday. The FBI launched an investigation after the man, who is unnamed in the CBS report, reportedly called CNN 22 times about a week ago. "Fake ... Feds: Man Threatened to Kill CNN Employees Over 'Fake News' Daily Beast Man arrested for threatening to murder CNN employees Atlanta Journal Constitution (blog) 'Gunman' arrested for 'threatening to kill every single fake news' CNN reporter Express.co.uk CBS46 News Atlanta all 24 news articles »
+The Hill Man arrested, accused of threatening to kill CNN employees The Hill A Michigan man was arrested after allegedly threatening to shoot and kill CNN employees, WGCL-TV reported Monday. The FBI launched an investigation after the man, who is unnamed in the CBS report, reportedly called CNN 22 times about a week ago. "Fake ... Feds: Man Threatened to Kill CNN Employees Over 'Fake News' Daily Beast 'Fake News' hater arrested after threatening to attack CNN headquarters, kill employees The Week Magazine Michigan Man Arrested for Threatening to Shoot Up CNN: 'I'm Coming to Gun You All Down' Mediaite Atlanta Journal Constitution (blog) - CBS46 News Atlanta all 30 news articles »
 
 
 Full story on F3News: [Man arrested, accused of threatening to kill CNN employees - The Hill](http://www.f3nws.com/n/PURff)
