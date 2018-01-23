@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "1 killed, 7 taken to hospitals after Kentucky high school shooting"
-date: 2018-01-23 16:00:33Z
+date: 2018-01-23 17:59:42Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least one person was killed in a shooting Tuesday at a Kentucky high school, 
 
 Full story on F3News: [1 killed, 7 taken to hospitals after Kentucky high school shooting](http://www.f3nws.com/n/yYfagD)
 
-> Posted on: Tuesday, January 23, 2018 4:00:33 PM
+> Posted on: Tuesday, January 23, 2018 5:59:42 PM
