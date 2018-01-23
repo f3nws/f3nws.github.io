@@ -7,7 +7,7 @@ categories: google-news-entertaintment
 
 ![Neil Diamond Retires From Touring After Parkinson's Diagnosis - New York Times](https://static01.nyt.com/images/2018/01/24/world/24Neildiamond/24Neildiamond-facebookJumbo.jpg)
 
-New York Times Neil Diamond Retires From Touring After Parkinson's Diagnosis New York Times The singer Neil Diamond announced on Monday his retirement from touring, after a recent diagnosis of Parkinson's disease. Concert dates in Australia and New Zealand that were set for March and April as part of Mr. Diamond's 50th anniversary tour have ... Neil Diamond announces Parkinson's diagnosis, immediate retirement USA TODAY Neil Diamond Retires From Touring After Parkinson's Disease Diagnosis RollingStone.com Neil Diamond, 76, Announces Parkinson's Diagnosis & Retirement From Touring: Fans Send Love Hollywood Life EW.com (blog) - PEOPLE.com - Billboard - HuffPost all 269 news articles »
+New York Times Neil Diamond Retires From Touring After Parkinson's Diagnosis New York Times The singer Neil Diamond on Monday announced his retirement from touring, after a recent diagnosis of Parkinson's disease. Concert dates in Australia and New Zealand that were set for March and April as part of Mr. Diamond's 50th anniversary tour have ... Neil Diamond retires from touring after being diagnosed with Parkinson's disease Today.com Neil Diamond Retires From Touring Due to Parkinson's Disease Radio.com Music and Entertainment News neil diamond announces retirement from concert touring australian and new zealand tour dates cancelled Neil Diamond all 323 news articles »
 
 
 Full story on F3News: [Neil Diamond Retires From Touring After Parkinson's Diagnosis - New York Times](http://www.f3nws.com/n/zEpXeF)
