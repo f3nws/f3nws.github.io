@@ -7,7 +7,7 @@ categories: google-news-australia
 
 ![Girl missing after first day of school found 'petrified', trapped inside school bus, says mother - ABC Local](http://www.abc.net.au/news/image/9350706-16x9-700x394.jpg)
 
-ABC Local Girl missing after first day of school found 'petrified', trapped inside school bus, says mother ABC Local A missing five-year-old Queensland child was found "petrified" and banging on the doors of a school bus, almost five hours after she should have returned home from her first day back at school, her mother says. Bobbie Langdon contacted authorities on ... Five-yr-old 'left' on school bus: Qld mum Daily Mail Queensland | Australia-news | The Guardian The Guardian Annastacia Palaszczuk | Australia-news | The Guardian The Guardian all 30 news articles »
+ABC Local Girl missing after first day of school found 'petrified', trapped inside school bus, says mother ABC Local A missing five-year-old Queensland child was found "petrified" and banging on the doors of a school bus, almost five hours after she should have returned home from her first day back at school, her mother says. Bobbie Langdon contacted authorities on ... 'Petrified and crying': Terrified 5yo girl trapped on Queensland school bus for almost five hours Yahoo7 News all 30 news articles »
 
 
 Full story on F3News: [Girl missing after first day of school found 'petrified', trapped inside school bus, says mother - ABC Local](http://www.f3nws.com/n/RsTS4D)
