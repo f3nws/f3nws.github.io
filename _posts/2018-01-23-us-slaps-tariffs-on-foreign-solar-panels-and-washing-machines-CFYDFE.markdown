@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US slaps tariffs on foreign solar panels and washing machines"
-date: 2018-01-23 00:09:17Z
+date: 2018-01-23 04:04:05Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [US slaps tariffs on foreign solar panels and washing machines](http://www.f3nws.com/n/CFYDFE)
 
-> Posted on: Tuesday, January 23, 2018 12:09:17 AM
+> Posted on: Tuesday, January 23, 2018 4:04:05 AM
