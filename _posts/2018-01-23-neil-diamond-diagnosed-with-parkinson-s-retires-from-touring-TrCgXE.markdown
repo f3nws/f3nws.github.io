@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Neil Diamond diagnosed with Parkinson's, retires from touring"
-date: 2018-01-23 04:49:06Z
+date: 2018-01-23 13:24:17Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Entertainer Neil Diamond has been diagnosed with Parkinson's disease, prompting 
 
 Full story on F3News: [Neil Diamond diagnosed with Parkinson's, retires from touring](http://www.f3nws.com/n/TrCgXE)
 
-> Posted on: Tuesday, January 23, 2018 4:49:06 AM
+> Posted on: Tuesday, January 23, 2018 1:24:17 PM
