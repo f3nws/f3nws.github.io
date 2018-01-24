@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "New Jersey spent $42mn settling crimes committed by police"
-date: 2018-01-24 00:35:44Z
+date: 2018-01-24 00:35:00Z
 categories: rt-daily-news
 ---
 
@@ -12,4 +12,4 @@ Local authorities in New Jersey have spent $42 million in taxpayer money to sett
 
 Full story on F3News: [New Jersey spent $42mn settling crimes committed by police](http://www.f3nws.com/n/rpWDgE)
 
-> Posted on: Wednesday, January 24, 2018 12:35:44 AM
+> Posted on: Wednesday, January 24, 2018 12:35:00 AM
