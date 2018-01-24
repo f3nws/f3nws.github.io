@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AT&T wants Congress to pass a net neutrality law"
-date: 2018-01-24 05:02:40Z
+date: 2018-01-24 13:24:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ categories: cnn-com-top-stories
 
 Full story on F3News: [AT&T wants Congress to pass a net neutrality law](http://www.f3nws.com/n/xJTt4B)
 
-> Posted on: Wednesday, January 24, 2018 5:02:40 AM
+> Posted on: Wednesday, January 24, 2018 1:24:26 PM

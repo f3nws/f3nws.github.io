@@ -7,7 +7,7 @@ categories: techcrunch
 
 ![Facebook acquires biometric ID verification startup Confirm.io - TechCrunch](https://tctechcrunch2011.files.wordpress.com/2017/09/facebook-faceid.jpg)
 
-TechCrunch Facebook acquires biometric ID verification startup Confirm.io TechCrunch Facebook has confirmed to TechCrunch that it's acquired… Confirm.io. The startup offered an API that let other companies quickly verify someone's government-issued identification card, like a driver's license, was authentic. The Boston-based startup ... Facebook just acquired technology to quickly verify someone's ID BGR Why Did Facebook Just Buy This Company That Verifies Government-Issued IDs? Gizmodo Facebook acquires ID verification startup Confirm.io VentureBeat Business Insider - ZDNet - Neowin - Verdict all 34 news articles »
+TechCrunch Facebook acquires biometric ID verification startup Confirm.io TechCrunch Facebook has confirmed to TechCrunch that it's acquired… Confirm.io. The startup offered an API that let other companies quickly verify someone's government-issued identification card, like a driver's license, was authentic. The Boston-based startup ... Facebook acquires biometric ID verification startup Confirm.io TechCrunch all 40 news articles »
 
 
 Full story on F3News: [Facebook acquires biometric ID verification startup Confirm.io - TechCrunch](http://www.f3nws.com/n/GUmxzE)
