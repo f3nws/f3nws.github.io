@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2 killed in US high school shooting"
-date: 2018-01-24 01:12:38Z
+date: 2018-01-24 02:32:14Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least one person was killed in a shooting Tuesday at a Kentucky high school, 
 
 Full story on F3News: [2 killed in US high school shooting](http://www.f3nws.com/n/yYfagD)
 
-> Posted on: Wednesday, January 24, 2018 1:12:38 AM
+> Posted on: Wednesday, January 24, 2018 2:32:14 AM
