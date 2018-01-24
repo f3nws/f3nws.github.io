@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Trump 'blaming Samsung' over missing FBI text messages - The Hill](http://thehill.com/sites/default/files/trump22_010918getty.jpg)
 
-The Hill Trump 'blaming Samsung' over missing FBI text messages The Hill President Trump · Donald John TrumpTrump: If there's no wall, there's no DACA fix Trump appears to call out Samsung over missing FBI text messages Trump Commerce pick told lawmakers he would look at reversing Obama move on internet oversight: report ... The Epistemic Quandary of the FBI and Trump The Atlantic ABC, NBC, CBS ignore and downplay missing Strzok-Page texts Fox News Your guide to the anti-FBI conspiracy theories The Mercury News Breitbart News - Milwaukee Journal Sentinel - New York Post - The Daily Caller all 253 news articles »
+The Hill Trump 'blaming Samsung' over missing FBI text messages The Hill President Trump · Donald John TrumpTrump: If there's no wall, there's no DACA fix Trump appears to call out Samsung over missing FBI text messages Trump Commerce pick told lawmakers he would look at reversing Obama move on internet oversight: report ... After his gusher of lies, can anyone trust Trump? Washington Post 'High-level FBI officials' allegedly involved in Strzok-Page 'secret society' Fox News The Epistemic Quandary of the FBI and Trump The Atlantic The Mercury News - Breitbart News - Milwaukee Journal Sentinel - Daily Beast all 267 news articles »
 
 
 Full story on F3News: [Trump 'blaming Samsung' over missing FBI text messages - The Hill](http://www.f3nws.com/n/DBaCa)

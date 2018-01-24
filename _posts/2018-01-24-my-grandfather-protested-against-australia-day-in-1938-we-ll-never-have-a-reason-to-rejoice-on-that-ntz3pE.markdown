@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![My grandfather protested against Australia Day in 1938. We'll never have a reason to rejoice on that day - ABC Online](http://www.abc.net.au/news/image/9352620-16x9-700x394.jpg)
 
-ABC Online My grandfather protested against Australia Day in 1938. We'll never have a reason to rejoice on that day ABC Online Eighty years ago on Friday, my grandfather donned a black suit as a sign of mourning and in the hot summer heat, marched in silence through the streets of Sydney. The 150th anniversary of the landing of the First Fleet in Australia had for others been ... NT leader calls on Aboriginals to forgive NEWS.com.au Push to fly Aboriginal flag on Sydney icon The Australian Here Are Some Things You Can Do To Support Indigenous People On Jan 26 Junkee HuffPost - Geelong Advertiser all 31 news articles »
+ABC Online My grandfather protested against Australia Day in 1938. We'll never have a reason to rejoice on that day ABC Online Eighty years ago on Friday, my grandfather donned a black suit as a sign of mourning and in the hot summer heat, marched in silence through the streets of Sydney. The 150th anniversary of the landing of the First Fleet in Australia had for others been ... Australia, you listened to me when I needed the law to change - now you must listen to Indigenous Australians The Sydney Morning Herald NT leader calls on Aboriginals to forgive NEWS.com.au Massacres and protest: Australia Day's undeniable history The Guardian all 33 news articles »
 
 
 Full story on F3News: [My grandfather protested against Australia Day in 1938. We'll never have a reason to rejoice on that day - ABC Online](http://www.f3nws.com/n/ntz3pE)
