@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Save the Children office bombed in Afghanistan"
-date: 2018-01-24 11:19:00Z
+date: 2018-01-24 12:28:18Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ At least 12 people were injured in a suicide bombing outside the office of the U
 
 Full story on F3News: [Save the Children office bombed in Afghanistan](http://www.f3nws.com/n/xuJ3mE)
 
-> Posted on: Wednesday, January 24, 2018 11:19:00 AM
+> Posted on: Wednesday, January 24, 2018 12:28:18 PM
