@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Four million parts, 30 countries: How an Airbus A380 comes together"
-date: 2018-01-24 01:05:09Z
+date: 2018-01-24 10:45:43Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ It's the middle of the night in the sleepy French town of Lévignac, in the coun
 
 Full story on F3News: [Four million parts, 30 countries: How an Airbus A380 comes together](http://www.f3nws.com/n/nZeZXG)
 
-> Posted on: Wednesday, January 24, 2018 1:05:09 AM
+> Posted on: Wednesday, January 24, 2018 10:45:43 AM
