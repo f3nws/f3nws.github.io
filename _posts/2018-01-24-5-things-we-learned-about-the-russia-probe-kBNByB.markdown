@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "5 things we learned about the Russia probe"
-date: 2018-01-24 09:13:13Z
+date: 2018-01-24 13:37:57Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Tuesday saw a flurry of new developments in the special counsel probe led by for
 
 Full story on F3News: [5 things we learned about the Russia probe](http://www.f3nws.com/n/kBNByB)
 
-> Posted on: Wednesday, January 24, 2018 9:13:13 AM
+> Posted on: Wednesday, January 24, 2018 1:37:57 PM
