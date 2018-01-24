@@ -1,0 +1,15 @@
+---
+layout: post
+title:  "Four million parts, 30 countries: How an Airbus A380 comes together"
+date: 2018-01-24 01:05:09Z
+categories: cnn-com-top-stories
+---
+
+![Four million parts, 30 countries: How an Airbus A380 comes together](https://dynaimage.cdn.cnn.com/cnn/w_1200/http%3A%2F%2Fcdn.cnn.com%2Fcnnnext%2Fdam%2Fassets%2F180103170034-a380-logistics---city-of-hamburg-roro-vessel-jun08-hr-super-tease.jpg)
+
+It's the middle of the night in the sleepy French town of Lévignac, in the countryside just outside of Toulouse.
+
+
+Full story on F3News: [Four million parts, 30 countries: How an Airbus A380 comes together](http://www.f3nws.com/n/nZeZXG)
+
+> Posted on: Wednesday, January 24, 2018 1:05:09 AM
