@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Kentucky school shooting: 2 students killed, 18 injured - CNN](https://cdn.cnn.com/cnnnext/dam/assets/180123094402-marshall-ky-school-file-super-tease.jpg)
 
-CNN Kentucky school shooting: 2 students killed, 18 injured CNN (CNN) Another high school has turned into a scene of carnage, this time in western Kentucky. Sixteen people were wounded, two of them fatally, after a shooter opened fire Tuesday morning at Marshall County High School, authorities said. Four others ... School Shooting in Kentucky Is Nation's 11th of Year. It's Jan. 23. New York Times 2 dead, 17 injured in Kentucky school shooting; suspect held Chicago Tribune Shooting At Kentucky High School Leaves 2 Dead, At Least 17 Injured NPR New York Daily News - ABC News - BuzzFeed News - CBS News all 786 news articles »
+CNN Kentucky school shooting: 2 students killed, 18 injured CNN (CNN) Another high school has turned into a scene of carnage, this time in western Kentucky. Sixteen people were wounded, two of them fatally, after a shooter opened fire Tuesday morning at Marshall County High School, authorities said. Four others ... School Shooting in Kentucky Is Nation's 11th of Year. It's Jan. 23. New York Times 2 dead, 17 injured in Kentucky school shooting; suspect held Chicago Tribune Shooting At Kentucky High School Leaves 2 Dead, At Least 17 Injured NPR New York Daily News - BuzzFeed News - ABC News - CBS News all 902 news articles »
 
 
 Full story on F3News: [Kentucky school shooting: 2 students killed, 18 injured - CNN](http://www.f3nws.com/n/tCYysH)
