@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![Under Fire for Harassment, Congressman Says Aide 'Invited' Behavior - New York Times](https://static01.nyt.com/images/2018/01/24/us/politics/24dc-meehan/24dc-meehan--facebookJumbo.jpg)
 
-New York Times Under Fire for Harassment, Congressman Says Aide 'Invited' Behavior New York Times WASHINGTON — Under fire for using taxpayer money to settle a sexual misconduct complaint from a former aide, Representative Patrick Meehan, Republican of Pennsylvania, said Tuesday that the woman “specifically invited” his intimate communications, and ... Rep. Patrick Meehan says he saw aide as 'soul mate,' but denies sexual misconduct Fox News GOP rep told aide they were 'soul mates,' but denies harassment claim The Hill GOP congressman says he didn't harass a young female staffer but thought they were 'soul mates' Business Insider The Week Magazine - Hot Air - NBC 10 Philadelphia - TIME all 79 news articles »
+New York Times Under Fire for Harassment, Congressman Says Aide 'Invited' Behavior New York Times WASHINGTON — Under fire for using taxpayer money to settle a sexual misconduct complaint from a former aide, Representative Patrick Meehan, Republican of Pennsylvania, said Tuesday that the woman “specifically invited” his intimate communications, and ... Meehan called harassment accuser his 'soul mate' Politico GOP rep told aide they were 'soul mates,' but denies harassment claim The Hill Rep. Patrick Meehan says he saw aide as 'soul mate,' but denies sexual misconduct Fox News Business Insider - CBS News - The Week Magazine - Hot Air all 80 news articles »
 
 
 Full story on F3News: [Under Fire for Harassment, Congressman Says Aide 'Invited' Behavior - New York Times](http://www.f3nws.com/n/2SPCqC)
