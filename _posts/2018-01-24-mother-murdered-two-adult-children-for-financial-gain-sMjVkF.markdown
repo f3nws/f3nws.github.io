@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Mother 'murdered two adult children for financial gain'](http://www.abc.net.au/news/image/9356684-16x9-700x394.jpg)
 
-Police say a Gold Coast woman accused of murdering two of her children, believed to have had disabilities, allegedly did so to gain an insurance payout of more than $500,000.
+Police say a Gold Coast woman accused of murdering two of her children, believed to have had long-term impairments from prescription drugs, allegedly did so to gain an insurance payout of more than $500,000.
 
 
 Full story on F3News: [Mother 'murdered two adult children for financial gain'](http://www.f3nws.com/n/sMjVkF)
