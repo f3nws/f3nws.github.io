@@ -7,7 +7,7 @@ categories: google-news-top-stories
 
 ![US-led coalition kills 150 ISIS militants in Syria - The Hill](http://thehill.com/sites/default/files/isis_1_0.jpg)
 
-The Hill US-led coalition kills 150 ISIS militants in Syria The Hill U.S.-led coalition airstrikes in Syria killed an estimated 150 militants belonging to the Islamic State in Iraq and Syria (ISIS) over the weekend, U.S. Central Command said Tuesday. The precision strikes were directed at an "ISIS headquarters and ... Precision Strikes Kill 150 IS Terrorists in Syria, Coalition Says Voice of America US air strikes kill up to 150 ISIS fighters 'massing for movement' in Syria Business Insider Airstrikes Kill 150 Islamic State Militants in Syria, US Says Bloomberg Stars and Stripes - Department of Defense - ArmyTimes.com - Algemeiner all 44 news articles »
+The Hill US-led coalition kills 150 ISIS militants in Syria The Hill U.S.-led coalition airstrikes in Syria killed an estimated 150 militants belonging to the Islamic State in Iraq and Syria (ISIS) over the weekend, U.S. Central Command said Tuesday. The precision strikes were directed at an "ISIS headquarters and ... US air strikes kill up to 150 ISIS fighters 'massing for movement' in Syria Business Insider Coalition Precision Strikes Kill Scores of ISIS Terrorists in Syria Department of Defense Strikes kill 150 Islamic State militants in Syria -US-led coalition Ynetnews all 48 news articles »
 
 
 Full story on F3News: [US-led coalition kills 150 ISIS militants in Syria - The Hill](http://www.f3nws.com/n/hbQTQG)

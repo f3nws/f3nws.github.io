@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Report: Mueller seeks to question Trump"
-date: 2018-01-24 01:24:51Z
+date: 2018-01-24 03:24:26Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Special counsel Robert Mueller is seeking to interview President Donald Trump ab
 
 Full story on F3News: [Report: Mueller seeks to question Trump](http://www.f3nws.com/n/NcvuGB)
 
-> Posted on: Wednesday, January 24, 2018 1:24:51 AM
+> Posted on: Wednesday, January 24, 2018 3:24:26 AM
