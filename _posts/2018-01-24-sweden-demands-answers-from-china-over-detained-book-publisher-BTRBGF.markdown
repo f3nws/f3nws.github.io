@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Sweden demands answers from China over detained book publisher"
-date: 2018-01-24 03:05:47Z
+date: 2018-01-24 07:33:20Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sweden has demanded answers from China over the brazen abduction of a Swedish bo
 
 Full story on F3News: [Sweden demands answers from China over detained book publisher](http://www.f3nws.com/n/BTRBGF)
 
-> Posted on: Wednesday, January 24, 2018 3:05:47 AM
+> Posted on: Wednesday, January 24, 2018 7:33:20 AM
