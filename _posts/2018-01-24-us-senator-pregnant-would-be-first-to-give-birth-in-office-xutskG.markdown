@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "US Senator pregnant, would be first to give birth in office"
-date: 2018-01-24 02:22:29Z
+date: 2018-01-24 09:25:41Z
 categories: cnn-com-top-stories
 ---
 
@@ -12,4 +12,4 @@ Sen. Tammy Duckworth will make history when she becomes the first sitting senato
 
 Full story on F3News: [US Senator pregnant, would be first to give birth in office](http://www.f3nws.com/n/xutskG)
 
-> Posted on: Wednesday, January 24, 2018 2:22:29 AM
+> Posted on: Wednesday, January 24, 2018 9:25:41 AM
