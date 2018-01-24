@@ -7,7 +7,7 @@ categories: abc-top-stories
 
 ![Mother charged with murdering her two adult children](http://www.abc.net.au/news/image/9356684-16x9-700x394.jpg)
 
-The 51-year-old Gold Coast woman is accused of the murder of her daughter in 2012, her son five years later, and the torture and assault of another daughter. It is believed the victims had disabilities.
+Gold Coast woman Maree Crabtree is accused of the murder of her daughter in 2012, her son five years later, and the torture and assault of another daughter. It is believed the victims had disabilities.
 
 
 Full story on F3News: [Mother charged with murdering her two adult children](http://www.f3nws.com/n/sMjVkF)
