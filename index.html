@@ -1,26 +1,56 @@
----
-layout: default
----
+<!DOCTYPE html>
+<html>
 
-<div class="home">
+<head>
+    <meta name="description" content="F3News Client">
+    <meta charset="utf-8">
+    <meta name="viewport" content="width=device-width">
+    <title>F3News</title>
+    <meta name="theme-color" content="#5bc0de" />
 
-  <h1 class="page-heading">Posts</h1>
+    <link rel="alternate" type="application/rss+xml" href="https://www.f3nws.com/feed" />
+    <link rel="canonical" href="https://www.f3nws.com/">
+    <link rel="stylesheet" href="assets/app.css">
+</head>
 
-  <ul class="post-list">
-    {% for post in paginator.posts %}
-      <li>
-        <span class="post-meta">{{ post.date | date: "%b %-d, %Y" }}</span>
+<body>
+    <div id="app">
 
-        <h2>
-          <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>
-        </h2>
-      </li>
-    {% endfor %}
-  </ul>
-
-  {% include pagination.html %}
+        <h1 id="title" v-on:click="changeSection">
+            <i class="icon-logo-50"></i> {{title}}
+            <span v-show:if="articles.currentPage">Page {{articles.currentPage}}</span>
+        </h1>
 
 
-  <p class="rss-subscribe">subscribe <a href="{{ "/feed.xml" | prepend: site.baseurl }}">via RSS</a></p>
+        <ul id="list" class="recent">
+            <li v-for="item in getItems()">
+                <a v-bind:href="item.canonicalHref">
+                    <!-- <img v-bind:src="item.bannerPhotoUrl" style="width: 100%;" /> -->
+                    <div class="image" v-bind:style="{backgroundImage: 'url(' + item.bannerPhotoUrl + ')'}"></div>
+                    <p class="sttl">
+                        <span class="l">{{ relative(item.publishDate) }}</span>
+                        <span class="r">{{ item.sourceName }}</span>
+                        <div></div>
+                    </p>
+                    
+                    <h2>{{ item.title }}</h2>
+                    
+                    
+                </a>
+            </li>
+        </ul>
 
-</div>
+        <div class="sticky">
+            <a href="#" class="l" v-show:if="articles.previous">Prev</a>
+            <a href="#" class="r" v-show:if="articles.next" v-on:click="next">Next</a>
+        </div>
+    </div>
+
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/jquery/3.3.1/jquery.min.js" integrity="sha256-FgpCb/KJQlLNfOu91ta32o/NMZxltwRo8QtmkMRdAu8=" crossorigin="anonymous"></script>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/vue/2.5.16/vue.min.js" integrity="sha256-TaLceMwjWRqe4yhbqPOJH6V7UGt5AvvdNfpaIXJWbFU=" crossorigin="anonymous"></script>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/timeago.js/3.0.2/timeago.min.js" integrity="sha256-jwCP0NAdCBloaIWTWHmW4i3snUNMHUNO+jr9rYd2iOI=" crossorigin="anonymous"></script>
+    <script src="https://cdn.jsdelivr.net/npm/js-cookie@2.2.0/src/js.cookie.js" integrity="sha256-ZTMFCvouhTVozUsLgEjtZOlJY+OAiLImV1p8yoBU9OI=" crossorigin="anonymous"></script>
+    <script src="assets/app.js"></script>
+</body>
+
+</html>
