@@ -8,8 +8,7 @@
     <meta name="viewport" content="width=device-width">
     <title>F3News</title>
     <meta name="theme-color" content="#5bc0de" />
-
-    <link rel="alternate" type="application/rss+xml" href="https://www.f3nws.com/feed" />
+<link rel="alternate" type="application/rss+xml" href="https://www.f3nws.com/feed" />
     <link rel="canonical" href="https://www.f3nws.com/">
 <style id="jsbin-css">
 *,
@@ -203,19 +202,53 @@ a {
   float: right;
 }
 #newsContent {
-  padding: 5px;
+  background-color: white;
+  color: #444;
+  font-size: 14px;
+  box-shadow: 0px 0px 8px 0px #000000ad;
+  border: 1px solid #888;
+  margin-top: 10px;
 }
-#newsContent img {
-  width: 100%;
-}
-.close-news {
-  background-color: #ddd;
-  padding: 10px 0;
-  font-weight: bold;
-  cursor: pointer;
-}
+
 #newsContent video, #newsContent img{
   width: 100%;
+}
+#newsContent .block-link {
+  padding: 10px;
+  
+  background-color: #555;
+  color: white;
+  font-weight: bold;
+  cursor: pointer;
+  display: block;
+  text-align: center;
+}
+
+#newsContent .close-news {
+  position: fixed;
+  right: 20px;
+  top: 15px;
+  z-index: 1000;
+  border: 1px solid #666;
+}
+#newsContent .content {
+  margin-bottom: 30px;
+  padding: 15px;
+}
+#newsContent  h1 {
+  padding: 0 15px;
+}
+
+#newsContent blockquote {
+  color: #777;
+  margin: 0;
+  padding: 0 10px;
+  border-left: 5px solid #5bc1df;
+}
+#newsContent .st {
+  font-weight: bold;
+  color: #777;
+  padding: 0 15px 30px 15px;
 }
 </style>
 </head>
@@ -230,17 +263,26 @@ a {
             <span v-show:if="articles.currentPage">Page {{articles.currentPage}}</span>
         </h1>
 
-        <div v-if="articleMode">
+        <div v-if="articleMode" id="newsContent">
           <h1>{{article.title}}</h1>
-          <div id="newsContent" v-html="article.latestRevision.content"></div>
-          <div v-if="articleMode" class="close-news" @click="switchView">
+          <div class="st">
+            <span class="date l">{{article.latestRevision.publishDateOriginal.replace('T', ' @ ')}}</span>
+            <span class="author r" v-if="article.latestRevision.author">{{article.latestRevision.author}}</span>
+          </div>
+          
+          <img :src="article.bannerPhotoUrlSmall" v-if="article.bannerPhotoUrlSmall" />
+          
+          <div class="content" v-html="article.latestRevision.content"></div>
+          <div v-if="articleMode" class="close-news block-link" @click="switchView">
             Close
           </div>
+          
+          <a :href="article.canonicalHref" target="_black" class="block-link">Read on F3News &raquo;</a>
         </div>
-        <div>
+        <div v-else>
           <ul class="cards">
   <li class="cards__item" v-for="item in getItems()">
-    <a :href="item.canonicalHref" class="acr">
+    <a :href="item.canonicalHref" @click.prevent="showNews(item.id)" class="acr">
     <div class="card">
       <div class="card__image" :style="{backgroundImage: 'url(\'' + item.bannerPhotoUrlSmall + '\')'}"></div>
       <div class="card__content">
@@ -270,8 +312,9 @@ var app = new Vue({
     title: "",
     currentSection: "",
     articleMode: false,
-    article: {title: "yo"},
+    article: {title: ""},
     curentSectionIndex: 0,
+    lastScrollPos: 0,
     sections: [
       {e: "top-stories", t: "Top Stories"},
       {e: "latest", t: "Latest News"},
@@ -312,6 +355,7 @@ var app = new Vue({
   methods: {
     
     changeSection: function() {
+      if(this.articleMode) return;
       this.curentSectionIndex++;
       if(this.curentSectionIndex >= this.sections.length)
         this.curentSectionIndex = 0;
@@ -371,6 +415,7 @@ var app = new Vue({
         $.get(url, function(d) {
           app.article = d.result;
           app.articleMode = true;
+          app.lastScrollPos = window.pageYOffset;
           window.scrollTo(0,0);
         });
       
@@ -379,6 +424,8 @@ var app = new Vue({
     switchView: function() {
       this.articleMode = false;
       $("#list").show();
+      
+      window.scrollTo(0,this.lastScrollPos);
     }
   }
   
