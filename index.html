@@ -338,7 +338,9 @@ var app = new Vue({
           selIndex = i
           break;
         }
-      }  
+      }
+      this.showNews(location.hash.substr(1));
+        
     }
         
     var selection = Cookies.get('sec');
@@ -419,7 +421,7 @@ var app = new Vue({
           app.lastScrollPos = window.pageYOffset;
           window.scrollTo(0,0);
         });
-      
+      location.hash = id;
       return false;
     },
     switchView: function() {
