@@ -352,9 +352,10 @@ var app = new Vue({
     if(selIndex < 0 || selIndex >= this.sections.length)
         selIndex = 0;
     
-    this.setSection(selIndex);
     if(showNews) {
         this.showNews(location.hash.substr(1));
+    } else {
+        this.setSection(selIndex);
     }
     
     $("#title").on("swipeleft", this.changeSection);
