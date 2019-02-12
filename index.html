@@ -340,7 +340,9 @@ var app = new Vue({
           break;
         }
       }
-      showNews = true;
+      if(selIndex == -1) {
+        showNews = true;
+      }
     }
         
     var selection = Cookies.get('sec');
@@ -349,7 +351,6 @@ var app = new Vue({
     
     if(selIndex < 0 || selIndex >= this.sections.length)
         selIndex = 0;
-    
     
     this.setSection(selIndex);
     if(showNews) {
