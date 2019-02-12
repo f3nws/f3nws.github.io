@@ -430,6 +430,9 @@ var app = new Vue({
       return false;
     },
     switchView: function() {
+      if(this.currentSection == "") {
+          this.setSection(0);
+      }
       this.articleMode = false;
       $("#list").show();
       
